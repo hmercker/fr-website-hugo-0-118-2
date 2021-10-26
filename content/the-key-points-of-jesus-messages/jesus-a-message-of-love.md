@@ -8,3 +8,6 @@ hidden: False
 weight: 250
 ---
 ### Jésus : le messager de l'Amour
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---

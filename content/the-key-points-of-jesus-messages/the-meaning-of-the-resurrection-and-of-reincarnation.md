@@ -8,3 +8,6 @@ hidden: False
 weight: 290
 ---
 ### Le sens de la crucifixion et le sens de la résurection
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---

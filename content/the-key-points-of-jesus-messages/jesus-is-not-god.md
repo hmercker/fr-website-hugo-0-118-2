@@ -8,3 +8,6 @@ hidden: False
 weight: 280
 ---
 ### Jésus n'est pas Dieu
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---

@@ -8,3 +8,6 @@ hidden: False
 weight: 320
 ---
 ### La réalité de la vie spirituelle
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---

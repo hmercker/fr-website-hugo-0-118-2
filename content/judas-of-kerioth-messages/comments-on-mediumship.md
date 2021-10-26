@@ -9,5 +9,5 @@ weight: 200
 ---
 ## Commentaires sur la médiumnité
 
-**Author** | **Titel der Botschaft** | **Datum der Botschaft**  
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---

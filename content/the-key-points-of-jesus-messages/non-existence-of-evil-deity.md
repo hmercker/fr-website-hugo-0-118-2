@@ -8,3 +8,6 @@ hidden: False
 weight: 300
 ---
 ### La non existence d'une déité du mal
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---

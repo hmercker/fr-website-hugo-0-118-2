@@ -8,3 +8,6 @@ hidden: False
 weight: 310
 ---
 ### La doctrine du péché originel
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---

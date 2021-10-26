@@ -8,3 +8,6 @@ hidden: False
 weight: 260
 ---
 ### La loi du pardon
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---

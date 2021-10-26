@@ -8,3 +8,6 @@ hidden: False
 weight: 220
 ---
 ## Messages de Jésus à le Dr Samuels
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
