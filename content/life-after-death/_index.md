@@ -1,22 +1,19 @@
 ---
-title: "Das Leben nach dem Tod"
-menu_title: "Das Leben nach dem Tod"
+title: "La vie après la mort"
+menu_title: "La vie après la mort"
 description: ""
 date: 2020-07-03 02:18:11+11:00
 draft: False
 hidden: False
-weight: 1000
+weight: 70
 ---
-## Das Leben nach dem Tod
+## La vie après la mort
 
-1. [Tod und das Hinübergehen](/das-leben-nach-dem-tod/tod-und-das-hinuebergehen/)
-2. [Was passiert den meisten Menschenseelen nach dem Tod](/das-leben-nach-dem-tod/was-passiert-den-meisten-menschenseelen-nach-dem-tod/)
-3. [Die spirituellen Himmel und das christliche Königreich Gottes](/das-leben-nach-dem-tod/die-spirituellen-himmel-und-das-christliche-koenigreich-gottes/)
-4. [Die Höllen, Gerichte, Vergebung und Auferstehung](/das-leben-nach-dem-tod/die-hoellen-gerichte-vergebung-und-auferstehung/)
-5. [Der Schlafzustand](/das-leben-nach-dem-tod/der-schlafzustand/)
-6. [Reinkarnation - wahr oder falsch?](/das-leben-nach-dem-tod/reinkarnation-wahr-oder-falsch/)
-7. [Suizid und assestierter Suizid](/das-leben-nach-dem-tod/suizid-und-assestierter-suizid/)
-8. [Krieg und Gewalt](/das-leben-nach-dem-tod/krieg-und-gewalt/)
-9. [Abort und Schwangerschaftsabbruch](/das-leben-nach-dem-tod/abort-und-schwangerschaftsabbruch/)
-10. [Babies und Kinder](/das-leben-nach-dem-tod/content/babies-und-kinder-in-der-spirituellen-welt/)
-11. [Tiere](/das-leben-nach-dem-tod/tiere/)
+1. [La mort et la transition vers le monde Spirituel](/life-after-death/death-and-passing-over/)
+2. [Qu'arrive-t-il à la plupart des gens après la mort ?](/life-after-death/what-happens-to-most-folks-after-death/)
+3. [Bébés et enfants dans le monde des esprits](/life-after-death/babies-and-children-in-the-spirit-world/)
+4. [Les animaux de compagnie dans le monde des esprits](/life-after-death/pets-in-the-spirit-world/)
+5. [Les Cieux Spirituels et le Royaume Chrétien de Dieu](/life-after-death/the-spirit-heavens-and-the-christian-kingdom-of-god/)
+6. [Les enfers, le jugement et le pardon, et la résurrection](/life-after-death/the-hells-judgement-forgiveness-and-the-resurrection/)
+7. [L'état de sommeil](/life-after-death/the-sleep-state/)
+8. [Réincarnation - Erreur ou Vérité ?](/life-after-death/reincarnation-true-or-false/)
