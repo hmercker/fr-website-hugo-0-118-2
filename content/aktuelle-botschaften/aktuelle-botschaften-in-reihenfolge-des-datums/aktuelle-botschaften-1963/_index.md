@@ -11,5 +11,3 @@ weight: 570
 
 **Author** | **Titel der Botschaft** | **Datum der Botschaft**  
 ---|---|---
-Andreas | [Strebt nach dem Königreich des Himmels](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-1963/strebt-nach-dem-koenigreich-des-himmels-anonym-andreas-14-februar-1963/) | 14 Februar 1963
-Augustinus | [Wir müssen uns mehr Mühe geben, um von Gott zu empfangen ](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-1963/wir-muessen-uns-mehr-muehe-geben-um-von-gott-zu-empfangen-anonym-augustinus-15-april-1963/) | 15 April 1963
