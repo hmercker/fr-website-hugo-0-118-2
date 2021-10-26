@@ -1,32 +1,31 @@
 ---
-title: "Eine Spirituelle Reise - Der Weg zur Wahrheit der ewigen Liebe"
-menu_title: "Eine Spirituelle Reise - Der Weg zur Wahrheit der ewigen Liebe"
+title: "Le chemin vers la vérité de l'amour éternel"
+menu_title: "Le chemin vers la vérité de l'amour éternel"
 description: ""
 date: 2020-06-06 07:23:19+00:00
 draft: False
 hidden: False
-weight: 6
+weight:
 ---
+## Un voyage spirituel
 
-## Eine Spirituelle Reise
+### Le chemin vers la vérité de l'amour éternel
 
-### Der Weg zur Wahrheit der ewigen Liebe
+Tôt ou tard, chacun d'entre nous se lance à la recherche de la vérité, de l'amour, d'une connexion de l'âme avec le Divin. Ce site web est dédié à ceux qui sont à la recherche de la vérité - pour comprendre le sens de la vie, pour trouver l'harmonie et la paix, pour comprendre ce qui se passe quand nous mourons, pour suivre l'élan intérieur de la recherche de Dieu, la recherche de quelque chose qui nous mettra en harmonie avec ce que nous avons appris au fil des ans à travers les différentes voies spirituelles, les religions établies et autres.
 
-Früher oder später begibt sich jeder von uns auf die Suche nach Wahrheit, nach Liebe, nach einer Seelenverbindung zum Göttlichen.  Diese Webseite ist denen gewidmet die nach der Wahrheit suchen - den Sinn des Lebens zu verstehen, Harmonie und Frieden zu finden, zu ergründen was geschieht wenn wir sterben, den inneren Antrieb der Suche nach [Gott](/zentrale-themen/wer-oder-was-ist-gott/) zu folgen, die Suche nach etwas dass uns in Einklang bringt was wir im Laufe der Jahre durch verschiedene spirituelle Wege, etablierte Religionsrichtungen und anderes gelernt haben.
+Ce qui est présenté dans les pages suivantes est à la disposition de tout chercheur où le désir d'amour du cœur ne se consume jamais, où la faim de vérité et de sagesse est toujours présente, où la soif des eaux de la paix et de la félicité éternelles n'est jamais étanchée. C'est là que se révèle un chemin qui mène aux sources éternelles de l'amour, l'amour éternel de Dieu. Il en ressort les vérités que Jésus a vécues et révélées à l'humanité. Par le biais de messages célestes, ces vérités ont été redonnées à l'humanité et, par gratitude, nous les partageons avec tout le monde.
 
-Was in den folgenden Seiten präsentiert wird, ist verfügbar für ein jeden Suchenden,  wo das Begehren des Herzens nach Liebe nie verbrennt, der Hunger nach Wahrheit und Weisheit immer vorhanden ist, der Durst nach  den Wassern des ewigen Frieden und Glückseligkeit nie gestillt wurde.  Hier wird ein [Weg](/der-weg-der-goettlichen-liebe/) offenbart der zu den ewigen Quellen der Liebe führt,  der ewigen [Liebe Gottes](/padgett-botschaften/die-gabe-der-goettlichen-liebe/).  Hervor gehen die Wahrheiten die Jesus erfahren und der Menschheit offenbart hat. Mittels himmlischer Botschaften wurden diese [Wahrheiten](/padgett-botschaften/das-wahre-evangelium-neu-uebermittelt-durch-jesus/) der Menschheit wieder geschenkt und in Dankbarkeit teilen wir sie mit einem jeden.  
+Sur ce site, vous trouverez des réponses à de nombreuses questions d'ordre spirituel. Par exemple, ces questions fréquemment posées trouvent une réponse complète :
 
-Auf dieser Webseite findest du Antworten auf viele spirituell orientierte Fragen. Zum Beispiel werden diese häufig gestellten Fragen vollständig beantwortet:
+1. Que nous arrive-t-il après la mort ? Vivons-nous ou dormons-nous, comment vivons-nous, communiquons-nous et nous déplaçons-nous ? Que faisons-nous la plupart du temps ?
 
-1. Was geschieht mit uns [nach dem Tod](/das-leben-nach-dem-tod/) ? Leben wir oder schlafen wir, wie leben wir, kommunizieren und bewegen wir uns? Was tun wir die meiste Zeit?
-2. Können wir [Gottes Liebe spühren](/padgett-botschaften/das-experiment-die-goettliche-liebe-zu-spuehren/)?
-3. Wir sind Seele. Wie entwickeln wir in unseren Seelenwahrnehmungen? Was beinhaltet die [Seelentransformation](/zentrale-themen/der-prozess-der-seelentransformation/)?
-4. [Reinkarnation](/das-leben-nach-dem-tod/reinkarnation-wahr-oder-falsch/) - wahr oder falsch?
-5. Leben wir im Beginn einer neuen Ära des Lichts? Was wissen wir über die [Erdveränderungen](/zentrale-themen/erdveraenderungen/)?
+2. Pouvons-nous ressentir l'amour de Dieu ?
 
+3. Nous sommes l'âme. Comment évoluons-nous dans nos perceptions de l'âme ? En quoi consiste la transformation de l'âme ?
 
-Es werden viele Themen angesprochen z.B. die Bedeutung der [Gleichnisse Jesu](/zentrale-themen/die-gleichnisse-jesu/), [Spirituelle Gesetze](/spirituelle-themen/spirituelle-gesetze/), und vieles mehr.
+4. Réincarnation - vrai ou faux ?
 
-Einem jedem ist es offen diese dargebotenen Wahrheiten in ihr Leben einzubringen, egal des kulturellen Hintergrundes oder des Standes im Leben.  Mögen die folgenden Seiten dir auf deinem Seelenweg große Freude bereiten, und die tiefe Erkenntnis, dass wir - ein jeder von uns - innigst  geliebt werden.
+5. Vivons-nous à l'aube d'une nouvelle ère de lumière ? Que savons-nous des changements de la terre ?
+De nombreux sujets sont abordés, par exemple le sens des paraboles de Jésus, les lois spirituelles, et bien d'autres encore.
 
-Die Webseite *wahrheitfuerdiewelt.de* ist nicht Teil, und soll nicht einer religiösen Einstellung, Institution, Bewegung oder Glaubensrichtung dienen.  Diese Webseite ist allein gedacht, dem Schöpfer des Universums, Gott, zu verhelfen, die Menschheit zu erlösen und die Wichtigkeit des [Gebets für die Göttliche Liebe](/die-gemeinschaft-der-goettlichen-liebe/das-gebet/) klar zu stellen.
+Chacun est libre d'intégrer les vérités présentées dans sa vie, indépendamment de son origine culturelle ou de sa situation dans la vie. Que les pages qui suivent vous apportent une grande joie sur le chemin de votre âme, et la réalisation profonde que nous - chacun d'entre nous - sommes tendrement aimés.
