@@ -4,7 +4,7 @@ menu_title: "Zentren und Pforten des Lichts"
 description: ""
 date: 2020-07-03 02:18:11+11:00
 draft: False
-hidden: False
+hidden: true
 weight: 1280
 ---
 ## Zentren und Pforten des Lichts
