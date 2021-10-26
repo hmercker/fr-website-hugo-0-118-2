@@ -1,13 +1,13 @@
 ---
-title: "Aktuelle Botschaften von Jesus"
-menu_title: "Aktuelle Botschaften von Jesus"
+title: "Messages Contemporains de Jésus"
+menu_title: "Messages Contemporains de Jésus"
 description: ""
 date: 2020-06-28 15:43:52+00:00
 draft: False
 hidden: False
 weight: 230
 ---
-## Aktuelle Botschaften von Jesus
+## Messages Contemporains de Jésus
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
