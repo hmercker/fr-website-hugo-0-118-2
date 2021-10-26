@@ -1,6 +1,6 @@
 baseURL = ""
-languageCode = "de-DE"
-title = "Wahrheit für die Welt"
+languageCode = "fr-FR"
+title = "nouvelles vérités"
 theme = "newbirth"
 enableRobotsTXT = true
 googleAnalytics = "UA-xxxxx-1"
