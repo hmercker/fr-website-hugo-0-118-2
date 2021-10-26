@@ -1,12 +1,13 @@
 ---
-title: "Aktuelle Botschaften"
-menu_title: "Aktuelle Botschaften"
+title: "Messages Contemporains"
+menu_title: "Messages Contemporains"
 description: ""
 date: 2020-06-26 15:43:52+00:00
 draft: False
-hidden: True
-weight: 450
+hidden: False
+weight:
 ---
-# Aktuelle Botschaften
+# Messages Contemporains
 
-1. [Aktuelle Botschaften in Reihenfolge des Datums](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/)
+1. [Contemporary messages by date order](/contemporary-messages/contemporary-messages-by-date-order/)
+2. [Messages Contemporains selon le médium de réception](/contemporary-messages/contemporary-messages-per-medium/)
