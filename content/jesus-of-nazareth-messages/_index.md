@@ -1,16 +1,15 @@
 ---
-title: "Jesus von Nazareth Botschaften"
-menu_title: "Jesus von Nazareth Botschaften"
+title: "Messages de Jésus de Nazareth"
+menu_title: "Messages de Jésus de Nazareth"
 description: ""
 date: 2020-06-28 15:43:52+00:00
 draft: False
 hidden: False
-weight: 200
+weight: 40
 ---
-# Jesus von Nazareth Botschaften
+# Messages de Jésus de Nazareth
 
-1. [Der wahre Jesus von Nazareth](/jesus-von-nazareth-botschaften/der-ware-jesus-von-nazareth/)
-2. [Jesus Botschaften durch James E Padgett](/jesus-von-nazareth-botschaften/jesus-botschaften-durch-james-padgett/)
-3. [Jesus Botschaften durch Dr Samuels](/jesus-von-nazareth-botschaften/jesus-botschaften-durch-dr-samuels/)
-4. [Aktuelle Botschaften von Jesus](/jesus-von-nazareth-botschaften/aktuelle-botschaften-von-jesus/)
-5. [Aktuelle Lehren Jesu](/jesus-von-nazareth-botschaften/aktuelle-lehren-jesu-2020/)
+1. [Messages de Jésus à travers James Padgett](/jesus-of-nazareth-messages/messages-from-jesus-through-james-padgett/)
+2. [Jesus Botschaften durch Dr Samuels](/jesus-von-nazareth-botschaften/jesus-botschaften-durch-dr-samuels/)
+3. [Aktuelle Botschaften von Jesus](/jesus-of-nazareth-messages/contemporary-messages-of-jesus/)
+4. []()
