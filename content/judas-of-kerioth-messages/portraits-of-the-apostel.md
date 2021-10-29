@@ -9,32 +9,32 @@ weight: 190
 ---
 ## Portraits des apôtres
 
-![](/judas-von-kerioth-botschaften/judas_small.jpg/)   |  ![](/judas-von-kerioth-botschaften/andreas_small.jpg) |  ![](/judas-von-kerioth-botschaften/joseph_small.jpg)  
+![](/judas-of-kerioth-messages/judas_small.jpg/)   |  ![](/judas-of-kerioth-messages/andreas_small.jpg/) |  ![](//judas-of-kerioth-messages/joseph_small.jpg/)  
 ---|---|---  
 [Judas](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2001/judas-hr-judas-20-august-2001/) | [Andreas](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/die-rueckkehr-nach-kpar-nahum-hr-judas-5-februar-2002/) | Joseph  
-![](/judas-von-kerioth-botschaften/matthaeus_small.jpg) |  ![](/judas-von-kerioth-botschaften/jakobus_small.jpg) |  ![](/judas-von-kerioth-botschaften/lukas_small.jpg)  
-[Matthäus](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2001/matthaeus-apostel-jesu-hr-matthaeus-22-november-2001/) | Jakobus der Jüngere | Lukas  
-![](/judas-von-kerioth-botschaften/johannesmarkus_small.jpg) |  ![](/judas-von-kerioth-botschaften/nathanael_small.jpg) |  ![](/judas-von-kerioth-botschaften/simon_small.jpg)  
+![](/judas-of-kerioth-messages/matthaeus_small.jpg) |  ![](/judas-of-kerioth-messages/jakobus_small.jpg) |  ![](/judas-of-kerioth-messages/lukas_small.jpg)  
+[Matthieu](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2001/matthaeus-apostel-jesu-hr-matthaeus-22-november-2001/) | Jakobus der Jüngere | Lukas  
+![](/judas-von-kerioth-botschaften/johannesmarkus_small.jpg) |  ![](/judas-of-kerioth-messages/nathanael_small.jpg) |  ![](/judas-of-kerioth-messages/simon_small.jpg)  
 Johannes Markus | [Nathanael](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/nathanael-der-erste-juenger-hr-judas-2-februar-2002/) | [Simon](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/simon-der-zelot-hr-judas-1-april-2002/)  
 ![](/judas-von-kerioth-botschaften/johanneszebedaeus_small.jpg) |   |    
-[Johannes Zebedäus](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/jesus-trifft-die-familie-des-zebedaeus-hr-judas-15-februar-2002/) |   |    
+[Jean Zébédée](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/jesus-trifft-die-familie-des-zebedaeus-hr-judas-15-februar-2002/) |   |    
      
-*Das Urheberrecht dieser Bilder steht Geoff Cutler 2013 zu.*
+*Le copyright de ces images appartient à Geoff Cutler 2013.*
 
-Ein scheinbar realistisches Porträt Jesu findet man [hier](http://www.lovewithoutend.com/_01lwe_images/LambandLion.jpg)
+On peut trouver un portrait apparemment réaliste de Jésus [ici](http://www.lovewithoutend.com/_01lwe_images/LambandLion.jpg).
 
-Das Leichentuch von Turin wurde intensivst untersucht und wissenschaftliche Beweise weisen darauf hin, dass es echt ist.  Somit haben wir es hier auch aufgeführt.
+Le linceul de Turin a fait l'objet d'études approfondies et des preuves scientifiques indiquent qu'il est authentique.  Nous l'avons donc également répertorié ici.
 
-## Das Leichentuch von Turin
+## Le Suaire de Turin
 
-![](/judas-von-kerioth-botschaften/turin_face.jpg)
+![](/judas-of-kerioth-messages/turin_face.jpg)
 
-*Das Urheberrecht dieses Bildes steht der Person zu die es kreiert hat.*  
+*Le copyright de cette image appartient à la personne qui l'a créée.*
 
-## Weitere Persönlichkeiten
+## Autres personnalités
 
-![](/judas-von-kerioth-botschaften/pilate_small.jpg) |  ![](/judas-von-kerioth-botschaften/machiventa_small.jpg) |    
+![](/judas-of-kerioth-messages/pilate_small.jpg) |  ![](/judas-of-kerioth-messages/machiventa_small.jpg) |    
 ---|---|---  
-[Pilatus](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/die-politische-lage-im-jahre-26-n-chr-publius-pontius-pilatus-hr-judas-25-maerz-2002/) | Melchizedek |    
+[Pilate](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/die-politische-lage-im-jahre-26-n-chr-publius-pontius-pilatus-hr-judas-25-maerz-2002/) | Melchizédek |    
 
-*Das Urheberrecht dieser Bilder steht Geoff Cutler 2013 zu.*
+*Le copyright de ces images appartient à Geoff Cutler 2013.*
