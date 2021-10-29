@@ -13,9 +13,9 @@ weight: 190
 ---|---|---  
 [Judas](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2001/judas-hr-judas-20-august-2001/) | [Andreas](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/die-rueckkehr-nach-kpar-nahum-hr-judas-5-februar-2002/) | Joseph  
 ![](/judas-of-kerioth-messages/matthaeus_small.jpg) |  ![](/judas-of-kerioth-messages/jakobus_small.jpg) |  ![](/judas-of-kerioth-messages/lukas_small.jpg)  
-[Matthieu](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2001/matthaeus-apostel-jesu-hr-matthaeus-22-november-2001/) | Jakobus der Jüngere | Lukas  
+[Matthieu](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2001/matthaeus-apostel-jesu-hr-matthaeus-22-november-2001/) | Jacques le Jeune | Luc  
 ![](/judas-von-kerioth-botschaften/johannesmarkus_small.jpg) |  ![](/judas-of-kerioth-messages/nathanael_small.jpg) |  ![](/judas-of-kerioth-messages/simon_small.jpg)  
-Johannes Markus | [Nathanael](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/nathanael-der-erste-juenger-hr-judas-2-februar-2002/) | [Simon](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/simon-der-zelot-hr-judas-1-april-2002/)  
+Jean Marc | [Nathanael](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/nathanael-der-erste-juenger-hr-judas-2-februar-2002/) | [Simon](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/simon-der-zelot-hr-judas-1-april-2002/)  
 ![](/judas-von-kerioth-botschaften/johanneszebedaeus_small.jpg) |   |    
 [Jean Zébédée](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/jesus-trifft-die-familie-des-zebedaeus-hr-judas-15-februar-2002/) |   |    
      
