@@ -17,4 +17,4 @@ weight: 10
 6. [Messages non datés ](/james-padgett-messages/padgett-messages-undated/)
 7. [Messages non publiés](/james-padgett-messages/padgett-messages-not-published/)
 8. [Messages après la mort de Padgett](/james-padgett-messages/pagett-messages-after-death/)
-9. [La continuité du message de James Padgett]()
+9. [La continuité du message de James Padgett](/james-padgett-messages/brief-description-divine-love-movement/)
