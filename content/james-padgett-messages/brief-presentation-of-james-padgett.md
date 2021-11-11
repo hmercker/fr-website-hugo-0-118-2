@@ -9,6 +9,8 @@ weight: 10
 ---
 ## Qui était James Padgett
 
+![](/james-padgett-messages/James-Padgett-200x300.jpg)
+
 M. James Edward Padgett est né le 25 août 1852, à Washington D.C. et a étudié à l’Académie Polytechnique à Newmarket, en Virginie. Par la suite, Par la suite, il a exercé comme avocat dans la capitale pendant quarante-trois ans jusqu’à son décès en 1923. James Padgett n’était pas un Spiritualiste mais un Méthodiste et il a enseigné à l’école du dimanche à l’Église Méthodiste de la Trinité à Washington. Il n’avait eu aucune expérience précédente avec le phénomène psychique et sa conception de la doctrine religieuse était simplement celle de l’Église Protestante.
 
 Après le décès de son épouse, il a hésité avant de prendre part à sa première séance, mais, par nostalgie pour Hélène, et sur l’insistance d’amis, il a accepté d’examiner la possibilité d’entrer en contact avec elle. Au cours de la séance qui s’est tenue au domicile d’une certaine Mme Maltby, cette dernière a parfaitement décrit Hélène et a dit à James Padgett que sa femme voulait entrer contact avec lui et qu’elle viendrait à lui de sa demeure spirituelle. Le médium a compris qu’il s’agissait de la capacité psychique de James Padgett de se lier avec Hélène et d’enregistrer ses pensées. Sa solitude l’a motivé à suivre les instructions de Mme Maltby et d’essayer cette entreprise plutôt peu orthodoxe.
