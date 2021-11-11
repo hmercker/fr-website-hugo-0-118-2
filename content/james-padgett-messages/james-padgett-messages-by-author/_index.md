@@ -1,13 +1,13 @@
 ---
-title: "Messages de James Padgett par auteur"
-menu_title: "Messages de James Padgett par auteur"
+title: "Les messages de James Padgett par auteur "
+menu_title: "Les messages de James Padgett par auteur "
 description: ""
 date: 2017-11-26 15:43:52+00:00
 draft: False
 hidden: False
 weight: 50
 ---
-## Messages de James Padgett par auteur
+## Les messages de James Padgett par auteur
 
 | **Auteur**
 |---

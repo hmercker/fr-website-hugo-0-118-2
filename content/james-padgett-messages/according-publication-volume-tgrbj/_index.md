@@ -1,13 +1,13 @@
 ---
-title: "Selon leur date de publication TGRBJs"
-menu_title: "Selon leur date de publication TGRBJ"
+title: "Les messages de James Padgett selon leur date de publication"
+menu_title: "Les messages de James Padgett selon leur date de publication"
 description: ""
 date: 2020-06-28 15:43:52+00:00
 draft: False
 hidden: False
 weight: 20
 ---
-## Selon leur date de publication TGRBJ
+## Les messages de James Padgett selon leur date de publication
 
 James Padgett a reçu des messages, de Jésus, de nombreux esprits Célestes et autres êtres spirituels pendant la période allant de 1914 à sa mort en 1923. Ces messages ont fait d’une publication en quatre volumes Intitulés "The True Gospel Transmitted by Jesus" (Le véritable Évangile retransmis par Jésus).  Ces quatre volumes de messages ont été publiés entre les années 1941 pour le premier volume et 1972 pour le 4ème volume. Le quatriième et dernier volume a été achevé par le Révérend Paul Gibson après le décès du Dr Stone.
 

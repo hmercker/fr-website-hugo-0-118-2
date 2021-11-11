@@ -4,10 +4,10 @@ menu_title: "Volume 2"
 description: ""
 date: 2020-06-28 02:18:11+11:00
 draft: False
-hidden: False
-weight: 2
+hidden: True
+weight:
 ---
-### Volume II
+### Volume II des messages reçus par James Padgett
 
 ![](/james-padgett-messages/according-publication-volume-tgrbj/volume-2/paysage-du-canada2.jpg)
 

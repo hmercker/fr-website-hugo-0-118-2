@@ -4,10 +4,10 @@ menu_title: "Volume 1"
 description: ""
 date: 2020-06-28 02:18:11+11:00
 draft: False
-hidden: False
-weight: 1
+hidden: True
+weight:
 ---
-### Volume I
+### Volume I des messages reçus par James Padgett
 
 ![](/james-padgett-messages/according-publication-volume-tgrbj/volume-1/paysage-du-canada.jpg)
 

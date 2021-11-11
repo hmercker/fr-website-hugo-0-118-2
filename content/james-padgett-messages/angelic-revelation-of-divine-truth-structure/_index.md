@@ -1,13 +1,13 @@
 ---
-title: "Par thème Angelic Revelation of Divine Truth Structure"
-menu_title: "Par thème Angelic Revelation of Divine Truth Structure"
+title: "Les messages de James Padgett par thème"
+menu_title: "Les messages de James Padgett par thème"
 description: ""
 date: 2020-06-28 15:43:52+00:00
 draft: False
 hidden: False
 weight: 40
 ---
-## Par thème Angelic Revelation of Divine Truth Structure
+## Les messages de James Padgett par thème
 
 **Volume** | **Index**
 ---|---
