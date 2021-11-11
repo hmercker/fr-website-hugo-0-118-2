@@ -26,6 +26,7 @@ Sur ce site, vous trouverez des réponses à de nombreuses questions d'ordre spi
 4. Réincarnation - vrai ou faux ?
 
 5. Vivons-nous à l'aube d'une nouvelle ère de lumière ? Que savons-nous des changements de la terre ?
-De nombreux sujets sont abordés, par exemple le sens des paraboles de Jésus, les lois spirituelles, et bien d'autres encore.
+
+De nombreux sujets sont abordés, par exemple le sens des paraboles de Jésus, les lois spirituelles, et bien d’autres encore.
 
 Chacun est libre d'intégrer les vérités présentées dans sa vie, indépendamment de son origine culturelle ou de sa situation dans la vie. Que les pages qui suivent vous apportent une grande joie sur le chemin de votre âme, et la réalisation profonde que nous - chacun d'entre nous - sommes tendrement aimés.
