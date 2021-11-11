@@ -15,7 +15,7 @@ James Padgett a reçu des messages, de Jésus, de nombreux esprits Célestes et 
 
 **Volume** | **Index**
 ---|---
-Volume 1 | [Page](/james-padgett-messages/according-publication-volume-tgrbj/volume-1/)
-Volume 2 | [Page](/james-padgett-messages/according-publication-volume-tgrbj/volume-2/)
-Volume 3 | [Page](/james-padgett-messages/according-publication-volume-tgrbj/volume-3/)
-Volume 4 | [Page](/james-padgett-messages/according-publication-volume-tgrbj/volume-4/)
+Volume 1 | [I](/james-padgett-messages/according-publication-volume-tgrbj/volume-1/)
+Volume 2 | [II](/james-padgett-messages/according-publication-volume-tgrbj/volume-2/)
+Volume 3 | [III](/james-padgett-messages/according-publication-volume-tgrbj/volume-3/)
+Volume 4 | [IV](/james-padgett-messages/according-publication-volume-tgrbj/volume-4/)

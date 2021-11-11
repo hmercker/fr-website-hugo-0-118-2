@@ -7,7 +7,7 @@ draft: False
 hidden: False
 weight: 5
 ---
-### Volume 4
+### Volume IV
 
-**Page** | **Auteur** | **Titre du message** | **Date du message**  
----|---|---|---
+1. [Volume IV des messages reçus par James Padgett - Première Partie](/james-padgett-messages/according-publication-volume-tgrbj/volume-4/volume-4-i/)
+2. [Volume IV des messages reçus par James Padgett - Deuxième Partie](/james-padgett-messages/according-publication-volume-tgrbj/volume-4/volume-4-ii/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume III des messages reçus par James Padgett - Deuxième Partie
 
-
+![](/james-padgett-messages/according-publication-volume-tgrbj/volume-3/volume-3-ii/paysage-de-montagne4.jpg)
 
 **Page** | **Auteur** | **Titre du message** | **Date du message**
 ---|---|---|---

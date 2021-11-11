@@ -7,7 +7,7 @@ draft: False
 hidden: False
 weight: 3
 ---
-### Volume 3
+### Volume III
 
 Les nombreuses communications que M. James Padgett a pu avoir, au cours des années 1914 à 1923 avec Jésus, certains de ses disciples, avec de nombreuses personnalités historiques de tous les temps, mais aussi avec certains de ses amis qui étaient déjà passés dans le monde des esprits, lui ont permis de prendre progressivement conscience de la réalité et de l’importance du spiritualisme. Cependant au-delà de réalité du monde des esprits et de la réalité des communications entre le monde des esprits et le monde des mortels, il a progressivement pris conscience que son âme désirait découvrir l’Amour de Dieu et que cet Amour du Père est toujours prêt et désireux de répondre à ses aspirations. L'Amour de Dieu est la seule chose qui peut rendre l'homme suprêmement heureux sur terre et après qu'il soit devenu un esprit et il est également la seule chose qui peut transformer l'âme humaine en ange de lumière, tout en lui permettant d’acquérir l'immortalité que Jésus est venu enseigner sur terre et dont le sens va bien au-delà de la simple croyance en la survivance à la mort du corps physique.
 
