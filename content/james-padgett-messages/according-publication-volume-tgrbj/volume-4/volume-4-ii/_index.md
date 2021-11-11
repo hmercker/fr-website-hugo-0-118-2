@@ -9,5 +9,7 @@ weight:
 ---
 ### Volume IV des messages reçus par James Padgett - Deuxième Partie
 
+![](/james-padgett-messages/according-publication-volume-tgrbj/volume-4/volume-4-ii/savoie-mont-blanc-1.jpg)
+
 **Page** | **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---|---
