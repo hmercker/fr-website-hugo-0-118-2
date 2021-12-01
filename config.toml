@@ -1,6 +1,6 @@
 baseURL = ""
 languageCode = "fr-FR"
-title = "nouveleveilalaverite.fr"
+title = "nouvel eveil ala verite"
 theme = "newbirth"
 enableRobotsTXT = true
 googleAnalytics = "UA-xxxxx-1"
