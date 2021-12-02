@@ -11,7 +11,7 @@ weight: 10
 
 1. [Qui était James Padgett](/james-padgett-messages/brief-presentation-of-james-padgett/)
 2. [Les messages de James Padgett selon leur date de publication](/james-padgett-messages/according-publication-volume-tgrbj/)
-3. [Les messages de James Padgett par ordre Chronologique](/james-padgett-messages/padgett-messages-date-order/)
+3. [Les messages de James Padgett par ordre chronologique](/james-padgett-messages/padgett-messages-date-order/)
 4. [Les messages de James Padgett par thème](/james-padgett-messages/james-padgett-messages-by-theme/)
 5. [Les messages de James Padgett par auteur](/james-padgett-messages/james-padgett-messages-by-author/)
 6. [Les messages non publiés](/james-padgett-messages/padgett-messages-not-published/)
