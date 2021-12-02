@@ -11,7 +11,5 @@ weight: 40
 
 Il y a de nombreuses façons de découvrir les messages de James Padgett en dehors de leur ordre chronologique ou du nom de leur auteur. C’est ainsi que dans le Volume I des messages publié par le grand ami de James Padgett : le Dr Stone il y un premier essai de classification des messages autour de quelques grands thèmes comme l’immortalité, l’expiation, la résurrection et quelques autres. Le tableau ci-dessous vous permet de découvrir quelques autres grands thèmes comme ils ont été définis par l’Eglise de la Fondation de la vérité (FCDT : Foundation Church Of New Truth).
 
-**Volume** | **Index**
----|---
-Volume 1 | [Page](/james-padgett-messages/angelic-revelation-of-divine-truth-structure/volume-1/)
-Volume 2 | [Page](/james-padgett-messages/angelic-revelation-of-divine-truth-structure/volume-2/)
+**Thème**
+|---
