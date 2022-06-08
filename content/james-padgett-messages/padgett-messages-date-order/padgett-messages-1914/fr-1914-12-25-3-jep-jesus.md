@@ -40,8 +40,8 @@ Votre propre véritable ami et enseignant.
 Que les bénédictions de Dieu et les miennes reposent sur vous cette nuit.
 
 Jésus.
+
+*Note : Ce message est aussi publié dans le Volume II, page 16. Pour plus de détails, consultez cette page (lien en anglais, non encore traduit).*
 <small>
 
 1. <large id="f1"> Il semblerait, fondé sur un récent message de Judas, que la référence à Bethesda ci-dessus est erronée, il s’agit soit d’une erreur d’édition, soit d’une erreur de transmission.[↩](#a1)
-
-*Note : Ce message est aussi publié dans le Volume II, page 16. Pour plus de détails, consultez cette page (lien en anglais, non encore traduit).*

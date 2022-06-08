@@ -35,4 +35,4 @@ Vous serez bientôt en mesure de comprendre ce que je comprends.
 
 Bonne nuit. Jésus Christ.
 
-*[Dans ce message]()*, Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.
+*Note : [Dans ce message](???????), Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.*

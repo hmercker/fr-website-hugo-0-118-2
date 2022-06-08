@@ -21,4 +21,4 @@ Bonne nuit.
 
 Hélène.
 
-*[Dans ce message]()*, Judas explique que les propos attribués, dans le message ci-dessus, ne sont probablement exacts.
+*Note : [Dans ce message](?????), Judas explique que les propos attribués, dans le message ci-dessus, ne sont probablement exacts.*

@@ -50,4 +50,4 @@ Bonne nuit, avec tout mon amour et beaucoup de baisers.
 
 Hélène.
 
-*[Dans ce message de Judas]()*, il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.
+*Note : [Dans ce message de Judas](?????), il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.*

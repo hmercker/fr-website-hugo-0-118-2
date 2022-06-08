@@ -22,6 +22,8 @@ Je n’ai pas été conçu par l’Esprit Saint, comme cela est enseigné par le
 Oui, je le ferai, et vous apprendrez que beaucoup d’erreurs ont été écrites par les auteurs de la Bible. Je vous montrerai que je n’ai jamais prononcé les nombreuses fausses déclarations que j’ai soi-disant faites ou qu’elles n’ont pas exprimé mes enseignements de la vérité. Ses enseignements de la Science Chrétienne n’expriment pas le vrai sens de la vérité et de l’amour comme je les ai enseignés. Elle est dans l’erreur quant aux idées que Dieu est esprit seulement, un esprit du mental. Il est un Esprit de tout ce qui appartient à Son Être. Il est non seulement Esprit, mais Cœur, Âme et Amour.
 
 Vous êtes trop faible pour écrire plus. Vous avez ma bénédiction et celle également de l’Esprit Saint. Jésus le Christ.<sup id="a3">[3](#f3)</sup>
+
+*Note: C’est le troisième message de Jésus reçu par James E. Padgett. Ce message est aussi publié dans le Volume III.*
 <small>
 
 1. <large id="f1"> Ceci est le troisième message de Jésus reçu par Jacques E. Padgett. Le terme « formel » a été utilisé pour différencier les communications les plus importantes des communications les plus conviviales. (G.J.C.)[↩](#a1)
@@ -29,5 +31,3 @@ Vous êtes trop faible pour écrire plus. Vous avez ma bénédiction et celle é
 2. <large id="f2"> Jésus explique qu’il n’est pas Dieu, et ce qu’il voulait dire par « Je suis le chemin, la vérité et la vérité ».la vie » dans le Tome II (4e éd.) page 3. (G.J.C.)[↩](#a2)
 
 3. <large id="f3"> Ce message est également publié dans le Volume I, 1ère édition française, page 360. C’est le troisième message de Jésus reçu par James E. Padgett. (G.J.C.).[↩](#a3)
-
-*Note: C’est le troisième message de Jésus reçu par James E. Padgett. Ce message est aussi publié dans le Volume III.*
