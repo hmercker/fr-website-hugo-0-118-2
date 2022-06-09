@@ -9,7 +9,7 @@ weight:
 ---
 ### Affirmant que Jésus a écrit.
 
-Anne Rollins - reçu par James Padgett le 25. Décembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 25 Décembre 1914, Washington, USA.
 
 Ta grand-mère.
 

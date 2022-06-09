@@ -9,7 +9,7 @@ weight:
 ---
 ### M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme.
 
-Hélène Padgett - reçu par James Padgett le 20. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 20 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

@@ -9,6 +9,6 @@ weight:
 ---
 ### Et d’Hélène
 
-Hélène Padgett - reçu par James Padgett le 24. Septembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 24 Septembre 1914, Washington, USA.
 
 Bonne nuit, je t’aime, Hélène.

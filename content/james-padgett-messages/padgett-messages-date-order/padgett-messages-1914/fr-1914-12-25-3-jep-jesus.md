@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu.
 
-Jésus - reçu par James Padgett le 25. Décembre 1914, Washington, USA.
+Jésus - reçu par James Padgett le 25 Décembre 1914, Washington, USA.
 
 C’est moi, Jésus.
 

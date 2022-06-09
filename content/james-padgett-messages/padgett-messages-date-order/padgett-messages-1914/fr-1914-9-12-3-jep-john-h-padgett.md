@@ -9,7 +9,7 @@ weight:
 ---
 ### Une courte note du père de M. Padgett
 
-John Padgett - reçu par James Padgett le 12. Septembre 1914, Washington, USA.
+John Padgett - reçu par James Padgett le 12 Septembre 1914, Washington, USA.
 
 Oui, c’est moi, ton père.
 

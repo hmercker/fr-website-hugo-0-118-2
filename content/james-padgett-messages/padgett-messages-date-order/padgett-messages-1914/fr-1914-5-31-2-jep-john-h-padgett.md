@@ -9,7 +9,7 @@ weight:
 ---
 ### Est d’accord avec la suggestion faite de former un groupe pour protéger son fils dans son cheminement spirituel par l’écriture automatique
 
-John H Padgett - reçu par James Padgett le 31. Mai 1914, Washington, USA.
+John H Padgett - reçu par James Padgett le 31 Mai 1914, Washington, USA.
 
 Je suis ton père.
 

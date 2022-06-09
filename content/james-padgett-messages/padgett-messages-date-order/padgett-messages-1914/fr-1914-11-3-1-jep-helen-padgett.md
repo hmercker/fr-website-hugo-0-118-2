@@ -9,7 +9,7 @@ weight:
 ---
 ### Dans un ses premiers messages, Hélène a écrit que M. Padgett est trop occupé par ses affaires et ne consacre pas assez de temps à la prière au Père pour recevoir le don de l’esprit
 
-Hélène Padgett - reçu par James Padgett le 3. Novembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 3 Novembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

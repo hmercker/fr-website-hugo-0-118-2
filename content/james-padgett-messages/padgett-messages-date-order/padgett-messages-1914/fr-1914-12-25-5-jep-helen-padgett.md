@@ -9,7 +9,7 @@ weight:
 ---
 ### Et Hélène aussi.
 
-Hélène Padgett - reçu par James Padgett le 25. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 25 Décembre 1914, Washington, USA.
 
 C’est moi Hélène, tu es trop aimé du Maître pour être malheureux. Alors laisse-moi te dire bonne nuit, et que je t’aime de tout mon cœur et de toute mon âme.
 

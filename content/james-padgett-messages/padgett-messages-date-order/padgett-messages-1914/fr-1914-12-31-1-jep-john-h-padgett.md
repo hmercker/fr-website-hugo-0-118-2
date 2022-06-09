@@ -9,7 +9,7 @@ weight:
 ---
 ### Le père de M. Padgett parle du registre des âmes sœurs.
 
-John Padgett - reçu par James Padgett le 31. Décembre 1914, Washington, USA.
+John Padgett - reçu par James Padgett le 31 Décembre 1914, Washington, USA.
 
 C’est moi, ton père.
 

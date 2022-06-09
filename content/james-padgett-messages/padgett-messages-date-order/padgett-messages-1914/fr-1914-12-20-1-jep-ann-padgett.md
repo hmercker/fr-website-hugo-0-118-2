@@ -9,7 +9,7 @@ weight:
 ---
 ### La mère de M. Padgett dit que son père a trouvé son âme sœur et raconte sa progression spirituelle.
 
-Anne Padgett - reçu par James Padgett le 20. Décembre 1914, Washington, USA.
+Anne Padgett - reçu par James Padgett le 20 Décembre 1914, Washington, USA.
 
 C’est moi, ta mère.
 

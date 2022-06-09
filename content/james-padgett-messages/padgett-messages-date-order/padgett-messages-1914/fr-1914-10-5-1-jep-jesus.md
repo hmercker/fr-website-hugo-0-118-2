@@ -9,7 +9,7 @@ weight:
 ---
 ### Un premier message de Jésus pour permettre à M. Padgett d’acquérir une condition spirituelle avant que les vérités importantes ne soient écrites
 
-Jésus - reçu par James Padgett le 5. Octobre 1914, Washington, USA.
+Jésus - reçu par James Padgett le 5 Octobre 1914, Washington, USA.
 
 C’est moi, Jésus.
 

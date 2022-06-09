@@ -9,7 +9,7 @@ weight:
 ---
 ### Un premier message personnel d’Hélène pour l’aimer davantage de tout son cœur comme elle l’aime, et lui conseiller de faire attention aux lieux des séances auxquelles il assiste
 
-Hélène Padgett - reçu par James Padgett le 5. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 5 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

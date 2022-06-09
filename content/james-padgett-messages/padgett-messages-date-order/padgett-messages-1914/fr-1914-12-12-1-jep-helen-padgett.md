@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène Padgett dit que la grand-mère de M. Padgett veut écrire.
 
-Hélène Padgett - reçu par James Padgett le 12. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 12 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste
 
-Anne Rollins - reçu par James Padgett le 11. Novembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 11 Novembre 1914, Washington, USA.
 
 C’est moi, ta grand-mère.
 

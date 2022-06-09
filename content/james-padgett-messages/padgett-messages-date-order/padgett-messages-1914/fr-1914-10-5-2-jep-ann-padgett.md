@@ -9,7 +9,7 @@ weight:
 ---
 ### Exhortation de la mère de M. Padgett
 
-Anne Padgett - reçu par James Padgett le 5. Octobre 1914, Washington, USA.
+Anne Padgett - reçu par James Padgett le 5 Octobre 1914, Washington, USA.
 
 Oh, mon cher fils : Le Maître t’a montré le chemin du salut. Crois seulement !
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Une note d’encouragement d’Anne Rollins
 
-Anne Rollins - reçu par James Padgett le 12. Septembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 12 Septembre 1914, Washington, USA.
 
 Donne ton cœur au Seigneur et Il te bénira comme tu le réaliseras bientôt. Il l’a fait et il viendra prochainement vers toi.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Un message de confirmation du père de James Padgett
 
-John Padgett - reçu par James Padgett le 24. Septembre 1914, Washington, USA.
+John Padgett - reçu par James Padgett le 24 Septembre 1914, Washington, USA.
 
 C’est moi, ton père.
 

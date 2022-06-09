@@ -9,7 +9,7 @@ weight:
 ---
 ### Le père de M. Padgett lui assure que c’est Jésus qui a écrit Samedi
 
-John H Padgett - reçu par James Padgett le 14. Septembre 1914, Washington, USA.
+John H Padgett - reçu par James Padgett le 14 Septembre 1914, Washington, USA.
 
 C’est moi, ton père.
 

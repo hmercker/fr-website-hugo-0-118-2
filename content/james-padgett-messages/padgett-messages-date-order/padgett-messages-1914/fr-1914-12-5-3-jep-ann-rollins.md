@@ -9,7 +9,7 @@ weight:
 ---
 ### Grand-mère (Anne Rollins) dit que l’amour du Père pour M. Padgett l’aidera dans ses problèmes matériels
 
-Anne Rollins - reçu par James Padgett le 5. Décembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 5 Décembre 1914, Washington, USA.
 
 C’est moi, ta grand-mère.
 

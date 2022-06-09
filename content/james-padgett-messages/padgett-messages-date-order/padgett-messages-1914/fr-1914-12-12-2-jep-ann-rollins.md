@@ -9,7 +9,7 @@ weight:
 ---
 ### L’importance d’obtenir l’Amour Divin dans l’âme.
 
-Anne Rollins - reçu par James Padgett le 12. Décembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 12 Décembre 1914, Washington, USA.
 
 C’est moi, ta grand-mère.
 

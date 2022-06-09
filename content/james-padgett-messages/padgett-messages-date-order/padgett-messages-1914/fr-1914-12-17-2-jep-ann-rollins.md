@@ -9,7 +9,7 @@ weight:
 ---
 ### La grand-mère de M. Padgett confirme que c’est Jésus qui vient de lui écrire et le rassure sur le grand amour que Jésus avait pour lui.
 
-Anne Rollins - reçu par James Padgett le 17. Décembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 17 Décembre 1914, Washington, USA.
 
 C’est moi, ta grand-mère.
 

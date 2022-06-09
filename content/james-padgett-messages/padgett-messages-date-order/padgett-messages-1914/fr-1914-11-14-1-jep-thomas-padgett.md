@@ -9,7 +9,7 @@ weight:
 ---
 ### Thomas Padgett, un grand-oncle, veut assurer à M. Padgett que les esprits éminents écrivent réellement
 
-Thomas Padgett - reçu par James Padgett le 14. Novembre 1914, Washington, USA.
+Thomas Padgett - reçu par James Padgett le 14 Novembre 1914, Washington, USA.
 
 C’est moi, Thomas Padgett.
 

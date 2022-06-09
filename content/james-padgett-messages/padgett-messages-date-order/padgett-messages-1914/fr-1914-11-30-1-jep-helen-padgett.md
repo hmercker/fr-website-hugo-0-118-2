@@ -9,7 +9,7 @@ weight:
 ---
 ### Maison d’Hélène Padgett au niveau de la troisième sphère
 
-Hélène Padgett - reçu par James Padgett le 30. Novembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 30 Novembre 1914, Washington, USA.
 
 C’est moi Hélène. Je suis très heureuse parce que j’ai, en moi, tellement l’Amour de Dieu que je ne peux penser à rien d’autre qui me rendrait malheureuse.
 

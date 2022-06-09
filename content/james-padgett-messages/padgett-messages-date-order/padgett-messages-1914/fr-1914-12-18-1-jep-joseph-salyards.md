@@ -9,7 +9,7 @@ weight:
 ---
 ### Le professeur Salyards décrit son entrée dans le monde des esprits et sa progression spirituelle.
 
-Professeur Salyards - reçu par James Padgett le 18. Décembre 1914, Washington, USA.
+Professeur Salyards - reçu par James Padgett le 18 Décembre 1914, Washington, USA.
 
 C’est moi professeur Salyards.
 

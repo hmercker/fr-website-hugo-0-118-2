@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus veut que le monde suive ses enseignements
 
-Jésus - reçu par James Padgett le 12. Septembre 1914, Washington, USA.
+Jésus - reçu par James Padgett le 12 Septembre 1914, Washington, USA.
 
 C’est moi, Jésus.
 

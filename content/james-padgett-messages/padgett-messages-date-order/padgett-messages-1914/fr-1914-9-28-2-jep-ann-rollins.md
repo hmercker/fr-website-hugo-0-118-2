@@ -9,7 +9,7 @@ weight:
 ---
 ### La grand-mère de M. Padgett dans un premier message décrit sa maison dans la 7ème Sphère
 
-Anne Rollins - reçu par James Padgett le 28. Septembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 28 Septembre 1914, Washington, USA.
 
 C’est moi, ta grand-mère.
 

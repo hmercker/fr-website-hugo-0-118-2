@@ -9,7 +9,7 @@ weight:
 ---
 ### La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme.
 
-Anne Rollins - reçu par James Padgett le 15. Septembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 15 Septembre 1914, Washington, USA.
 
 Oui, je suis ta grand-mère.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La mère de M. Padgett parle de son Âme-sœur et de l’amour qu’elle a pour son fils
 
-Anne Padgett - reçu par James Padgett le 15. Septembre 1914, Washington, USA.
+Anne Padgett - reçu par James Padgett le 15 Septembre 1914, Washington, USA.
 
 C’est moi, ta mère.
 

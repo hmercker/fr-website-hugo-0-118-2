@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseille à M. Padgett de tourner toutes ses pensées vers Dieu et Son Amour et il réalisera bientôt que seul Son Amour est nécessaire pour devenir un homme très spirituel.
 
-Hélène Padgett - reçu par James Padgett le 27. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 27 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

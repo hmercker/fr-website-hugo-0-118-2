@@ -9,7 +9,7 @@ weight:
 ---
 ### M. Colburn doit aussi le croire
 
-Hélène Padgett - reçu par James Padgett le 14. Septembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 14 Septembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

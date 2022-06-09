@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène assure M. Padgett que le professeur Salyards l’aime et que c’est bien lui qui a écrit.
 
-Hélène Padgett - reçu par James Padgett le 18. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 18 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

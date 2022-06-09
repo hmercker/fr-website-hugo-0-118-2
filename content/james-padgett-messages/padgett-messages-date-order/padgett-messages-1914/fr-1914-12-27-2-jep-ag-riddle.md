@@ -9,7 +9,7 @@ weight:
 ---
 ### M. Padgett a conseillé, dans une communication précédente, son vieil ami et associé sur la façon d’obtenir l’Amour du Père, ce qu’il essaie de faire et l’en informe.
 
-Albert Riddle - reçu par James Padgett le 27. Décembre 1914, Washington, USA.
+Albert Riddle - reçu par James Padgett le 27 Décembre 1914, Washington, USA.
 
 C’est moi, ton ancien partenaire et ami.
 

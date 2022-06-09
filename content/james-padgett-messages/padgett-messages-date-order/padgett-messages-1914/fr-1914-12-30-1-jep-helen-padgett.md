@@ -9,7 +9,7 @@ weight:
 ---
 ### Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone.
 
-Hélène Padgett - reçu par James Padgett le 30. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 30 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

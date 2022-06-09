@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène a écrit que Jésus n’est pas très heureux durant les fêtes et qu’il quitte le plan terrestre vers les Cieux Célestes les plus élevés.
 
-Hélène Padgett - reçu par James Padgett le 25. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 25 Décembre 1914, Washington, USA.
 
 C’est moi, ta vraie et bien-aimée Hélène.
 

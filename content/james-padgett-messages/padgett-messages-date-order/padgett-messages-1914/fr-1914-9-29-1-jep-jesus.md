@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour Divin tend la main à tous les hommes. M. Padgett est l’instrument pour recevoir les vérités
 
-Jésus - reçu par James Padgett le 29. Septembre 1914, Washington, USA.
+Jésus - reçu par James Padgett le 29 Septembre 1914, Washington, USA.
 
 Christ Jésus est ici et souhaite vous écrire sur l’Amour de Dieu et les besoins de l’humanité.
 

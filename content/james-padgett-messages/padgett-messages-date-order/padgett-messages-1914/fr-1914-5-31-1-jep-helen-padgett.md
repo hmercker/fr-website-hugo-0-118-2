@@ -9,7 +9,7 @@ weight:
 ---
 ### Premier message préservé de l’épouse de M. Padgett, Hélène : Qui dit qu’elle regarde Jésus comme un homme de Dieu, mais pas comme Dieu lui-même. L’informe également sur ses parents et ses grands-parents
 
-Hélène Padgett - reçu par James Padgett le 31. Mai 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 31 Mai 1914, Washington, USA.
 
 C’est moi, Hélène.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Et de sa mère
 
-Anne Padgett - reçu par James Padgett le 24. Septembre 1914, Washington, USA.
+Anne Padgett - reçu par James Padgett le 24 Septembre 1914, Washington, USA.
 
 Tu as ma bénédiction. C’était le Christ qui parlait. Il est ton ami et ton sauveur.
 

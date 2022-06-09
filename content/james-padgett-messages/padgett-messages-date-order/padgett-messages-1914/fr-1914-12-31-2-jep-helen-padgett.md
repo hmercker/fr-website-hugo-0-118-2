@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène confirme l’effort fait par M. Padgett pour amener ses deux amis, maintenant dans le monde des esprits, à la lumière du Père.
 
-Hélène Padgett - reçu par James Padgett le 31. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 31 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

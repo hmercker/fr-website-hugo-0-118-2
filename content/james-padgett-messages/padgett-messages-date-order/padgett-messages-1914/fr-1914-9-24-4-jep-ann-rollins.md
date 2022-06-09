@@ -9,7 +9,7 @@ weight:
 ---
 ### Et d’Anne Rollins
 
-Anne Rollins - reçu par James Padgett le 24. Septembre 1914, Washington, USA.
+Anne Rollins - reçu par James Padgett le 24 Septembre 1914, Washington, USA.
 
 Tu parlais à Jésus. Je sais, car j’étais là et je lui ai parlé plusieurs fois. Sois de de bonne humeur. Tu sentiras bientôt l’influence de sa présence à tes côtés.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### M. Padgett a rencontré Bright Star lors d’une séance et l’aide maintenant à progresser spirituellement et elle dit que l’écriture automatique est supérieure aux séances des médiums parlant.
 
-Bright Star - reçu par James Padgett le 29. Décembre 1914, Washington, USA.
+Bright Star - reçu par James Padgett le 29 Décembre 1914, Washington, USA.
 
 Je suis Bright Star :
 

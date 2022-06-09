@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus n’est pas Dieu, mais a été envoyé par le Père pour conduire les hommes à Sa faveur et à Son amour. Il est le chemin, la vérité et la vie
 
-Jésus - reçu par James Padgett le 24. Septembre 1914, Washington, USA.
+Jésus - reçu par James Padgett le 24 Septembre 1914, Washington, USA.
 
 C’est moi, Jésus.
 

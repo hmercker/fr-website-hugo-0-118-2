@@ -9,7 +9,7 @@ weight:
 ---
 ### L’expérience de Mme Hélène Padgett en quittant son corps et en allant dans le monde des esprits.
 
-Hélène Padgett - reçu par James Padgett le 9. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 9 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène. *(Mme J. E. Padgett – épouse de M. James Padgett.)*
 

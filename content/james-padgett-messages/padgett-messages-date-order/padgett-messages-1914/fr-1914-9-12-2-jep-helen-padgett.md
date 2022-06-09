@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène confirme que Jésus a écrit
 
-Hélène Padgett - reçu par James Padgett le 12. Septembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 12 Septembre 1914, Washington, USA.
 
 Oui, je suis ici et j’aime être avec toi.
 

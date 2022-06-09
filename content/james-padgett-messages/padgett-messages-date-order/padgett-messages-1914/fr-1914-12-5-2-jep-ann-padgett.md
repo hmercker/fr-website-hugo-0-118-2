@@ -9,7 +9,7 @@ weight:
 ---
 ### La mère de M. Padgett dit que Mme Mary Eddy Baker voit l’erreur dans ses enseignements et vit dans la même sphère qu’elle
 
-Anne Padgett - reçu par James Padgett le 5. Décembre 1914, Washington, USA.
+Anne Padgett - reçu par James Padgett le 5 Décembre 1914, Washington, USA.
 
 C’est moi, ta mère.
 

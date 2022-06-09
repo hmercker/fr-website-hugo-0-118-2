@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène parle de son développement spirituel initial dans la troisième sphère avec l’aide de M. Padgett
 
-Hélène Padgett - reçu par James Padgett le 16. Novembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 16 Novembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

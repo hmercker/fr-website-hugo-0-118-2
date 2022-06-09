@@ -9,7 +9,7 @@ weight:
 ---
 ### Albert Ridle était tellement ancré dans ses pensées religieuses qu’il pensait n’avoir besoin de l’aide de personne pour progresser.
 
-Albert Riddle - reçu par James Padgett le 16. Décembre 1914, Washington, USA.
+Albert Riddle - reçu par James Padgett le 16 Décembre 1914, Washington, USA.
 
 C’est moi, ton ancien partenaire.
 

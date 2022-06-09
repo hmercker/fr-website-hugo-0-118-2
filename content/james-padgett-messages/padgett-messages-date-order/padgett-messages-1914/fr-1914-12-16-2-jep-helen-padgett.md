@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène confirme que M. Riddle a commencé à prier comme M. Padgett lui a suggéré de faire afin qu’il soit capable de progresser vers la lumière.
 
-Hélène Padgett - reçu par James Padgett le 16. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 16 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène.
 

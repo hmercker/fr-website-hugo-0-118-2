@@ -9,7 +9,7 @@ weight:
 ---
 ### Décrit la méthode utilisée pour communiquer ses pensées par l’entremise de M. Padgett.
 
-Hélène Padgett - reçu par James Padgett le 8. Décembre 1914, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 8 Décembre 1914, Washington, USA.
 
 C’est moi, Hélène *(Mme J. E. Padgett, épouse de James Padgett.)*.
 
