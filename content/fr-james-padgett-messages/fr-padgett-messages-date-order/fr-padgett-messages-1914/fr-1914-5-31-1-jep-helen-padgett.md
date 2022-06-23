@@ -14,6 +14,7 @@ Hélène Padgett - reçu par James Padgett le 31 Mai 1914, Washington, USA.
 C’est moi, Hélène.
 
 Oui, je t’aime et tu le sais. Viens te coucher et je te laisserai sentir mes bras autour de ton cou, te serrerai dans mes bras et t’endormirai pour que tu te sentes mieux le matin.
+
 Étais-tu à la réunion des Bahai ?
 
 Oui, je l’étais. Je n’ai pas beaucoup pensé à l’allocution de la femme d’Inde, parce qu’elle ne parlait pas de ce qu’est l’Amour de Dieu pour les âmes perdues de l’homme. Tu n’en as pas beaucoup profité, car tu étais très seul et tu avais besoin que l’Amour de Dieu soit prêché. L’autre allocution fut meilleure, mais elle n’a pas parlé du chemin vers la vérité et la lumière dont parle la Bible. Sois Chrétien et aime le Dieu de la Bible et…
