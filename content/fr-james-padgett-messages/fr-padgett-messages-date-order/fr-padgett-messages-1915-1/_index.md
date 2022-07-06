@@ -113,10 +113,8 @@ Jésus | [Le Saint-Esprit n’est pas Dieu. Pas de péché impardonnable](/fr-ja
 Hélène Padgett | [Hélène explique comment Saleeba contrôlerait et parlerait à travers Padgett](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-helen-padgett/) | 7 Juin 1915
 Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/) | 7 Juin 1915
 Hélène Padgett | [Hélène affirmant que Jésus avait écrit à M. Padgett](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-2-jep-helen-padgett/) | 7 Juin 1915
-"Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère
-public (Suite).](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) | 8 Juin 1915"
-"Professeur Salyards | [Le Professeur Salyard commente le description de la naissance et de la vie de
-Jésus jusqu’à l’époque de son ministère public.](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-2-jep-joseph-salyards/) | 8 Juin 1915"
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (Suite).](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) | 8 Juin 1915
+Professeur Salyards | [Le Professeur Salyard commente le description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public.](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-2-jep-joseph-salyards/) | 8 Juin 1915
 Jésus | [Pourquoi les hommes doivent croire qu’il est le vrai Jésus et pourquoi il écrit à travers M. Padgett](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-15-1-jep-jesus/) | 15 Juin 1915
 Hélène Padgett | [Hélène exprime la déception de Jésus de ne pas avoir pu délivrer un message](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-15-2-jep-helen-padgett/) | 15 Juin 1915
 Joe Shellington | [Joe Shellington, un ami de M. Padgett reçut de l’aide pour sortir des ténèbres](/fr-james-padgett-messages//fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-17-1-jep-joe-shellington/) | 17 Juin 1915
