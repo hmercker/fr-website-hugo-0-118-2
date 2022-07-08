@@ -1,15 +1,12 @@
 ---
-title: "Matthieu: L’âme et sa relation avec Dieu et la vie future et l’immortalité"
+title: "Matthieu: Lâ€™Ã¢me et sa relation avec Dieu et la vie future et lâ€™immortalitÃ©"
 menu_title: ""
-description: "Matthieu: L’âme et sa relation avec Dieu et la vie future et l’immortalité"
+description: "Matthieu: Lâ€™Ã¢me et sa relation avec Dieu et la vie future et lâ€™immortalitÃ©"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True
 weight:
 ---
-### Matthieu: L’âme et sa relation avec Dieu et la vie future et l’immortalité
+### Matthieu: Lâ€™Ã¢me et sa relation avec Dieu et la vie future et lâ€™immortalitÃ©
 
-St Matthieu - reçu par James Padgett le 2 Novembre 1915, Washington, USA.
-
-
-
+St Matthieu - reÃ§u par James Padgett le 2 Novembre 1915, Washington, USA.
