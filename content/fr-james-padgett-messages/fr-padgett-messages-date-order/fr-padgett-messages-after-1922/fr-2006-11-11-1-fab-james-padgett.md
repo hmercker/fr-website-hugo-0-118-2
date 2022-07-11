@@ -9,7 +9,4 @@ weight:
 ---
 ### La première vie de M. Padgett
 
-James Padgett - reçu par James Padgett le 11 Novembre 2006, Washington, USA.
-
-
-
+James Padgett - reçu par FAB le 11 Novembre 2006, Washington, USA.

@@ -9,7 +9,4 @@ weight:
 ---
 ### La confiance de Ruth dans l’Amour du Père
 
-Jésus - reçu par James Padgett le 10 Avril 1958, Washington, USA.
-
-
-
+Jésus - reçu par Dr Samuels le 10 Avril 1958, Washington, USA.

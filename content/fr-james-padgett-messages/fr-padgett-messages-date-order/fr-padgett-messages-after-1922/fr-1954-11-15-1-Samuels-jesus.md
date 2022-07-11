@@ -9,7 +9,4 @@ weight:
 ---
 ### Le Dr Stone reçoit l’instruction de Jésus de la Bible d’accepter l’aide de quiconque est prêt à la donner, même s’il n’a pas l’Amour Divin
 
-Jésus - reçu par James Padgett le 15 Novembre 1954, Washington, USA.
-
-
-
+Jésus - reçu par Dr Samuels le 15 Novembre 1954, Washington, USA.

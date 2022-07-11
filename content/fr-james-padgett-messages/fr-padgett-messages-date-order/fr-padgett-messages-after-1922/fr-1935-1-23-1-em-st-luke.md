@@ -9,7 +9,4 @@ weight:
 ---
 ### Commentaires sur le travail avec les esprits sombres
 
-St Luc - reçu par James Padgett le 23 Janvier 1935, Washington, USA.
-
-
-
+St Luc - reçu par Eugene Morgan le 23 Janvier 1935, Washington, USA.

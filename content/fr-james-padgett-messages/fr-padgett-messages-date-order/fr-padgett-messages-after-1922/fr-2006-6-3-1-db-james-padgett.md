@@ -9,7 +9,4 @@ weight:
 ---
 ### Le bon côté des choses
 
-James Padgett - reçu par James Padgett le 3 Juin 2006, Washington, USA.
-
-
-
+James Padgett - reçu par DB le 3 Juin 2006, Washington, USA.

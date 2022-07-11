@@ -9,7 +9,4 @@ weight:
 ---
 ### James E. Padgett :  Message personnel
 
-James Padgett - reçu par James Padgett le 21 Octobre 1997, Washington, USA.
-
-
-
+James Padgett - reçu par David Lampron le 21 Octobre 1997, Washington, USA.

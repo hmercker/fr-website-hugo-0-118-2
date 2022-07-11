@@ -9,7 +9,4 @@ weight:
 ---
 ### Le prochain message important reçu par Eugène Morgan de la part de M. Padgett le fut environ deux ans plus tard, le 1er juillet 1925
 
-James Padgett - reçu par James Padgett le 01 Juillet 1925, Washington, USA.
-
-
-
+James Padgett - reçu par Eugene Morgan le 01 Juillet 1925, Washington, USA.

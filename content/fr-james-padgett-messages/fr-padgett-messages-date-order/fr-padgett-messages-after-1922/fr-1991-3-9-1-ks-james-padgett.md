@@ -9,7 +9,4 @@ weight:
 ---
 ### Edition du deuxième volume des messages
 
-James Padgett - reçu par James Padgett le 9 Mars 1991, Washington, USA.
-
-
-
+James Padgett - reçu par Kathryn Stokes le 9 Mars 1991, Washington, USA.

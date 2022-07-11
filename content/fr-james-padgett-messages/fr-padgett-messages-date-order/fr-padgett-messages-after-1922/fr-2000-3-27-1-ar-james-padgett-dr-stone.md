@@ -9,7 +9,4 @@ weight:
 ---
 ### Promouvoir l’Amour entre nous
 
-James Padgett & Dr Stone - reçu par James Padgett le 27 Mars 2000, Washington, USA.
-
-
-
+James Padgett & Dr Stone - reçu par Amada Reza le 27 Mars 2000, Washington, USA.

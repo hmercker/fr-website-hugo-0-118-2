@@ -9,7 +9,4 @@ weight:
 ---
 ### Le deuxième avènement
 
-James Padgett - reçu par James Padgett le 21 Mai 2006, Washington, USA.
-
-
-
+James Padgett - reçu par DB le 21 Mai 2006, Washington, USA.

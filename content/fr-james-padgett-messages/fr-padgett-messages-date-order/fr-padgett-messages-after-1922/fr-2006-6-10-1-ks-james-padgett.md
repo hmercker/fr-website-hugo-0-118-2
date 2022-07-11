@@ -9,7 +9,4 @@ weight:
 ---
 ### Le pouvoir de l'amour d'effacer les erreurs
 
-James Padgett - reçu par James Padgett le 10 Juin 2006, Washington, USA.
-
-
-
+James Padgett - reçu par Kathryn Stokes le 10 Juin 2006, Washington, USA.

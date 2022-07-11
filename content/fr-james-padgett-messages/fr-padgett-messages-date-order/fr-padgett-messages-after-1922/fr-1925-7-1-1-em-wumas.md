@@ -9,7 +9,4 @@ weight:
 ---
 ### Wumas, un esprit sombre, a été aidé, par Eugène Morgan, afin de voir la lumière
 
-Wumas - reçu par James Padgett le 01 Juillet 1925, Washington, USA.
-
-
-
+Wumas - reçu par Eugene Morgan le 01 Juillet 1925, Washington, USA.

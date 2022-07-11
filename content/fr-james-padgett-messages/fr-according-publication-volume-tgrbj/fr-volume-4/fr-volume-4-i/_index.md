@@ -15,10 +15,10 @@ Liste des messages reçus par James Padgett faisant partie du Volume IV :
 
 **Page** | **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---|---
-III | Rev John Paul Gibson | [Introduction au volume IV](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/volume-4-i/fr-introduction-to-volume-4/) |
+III | Rev John Paul Gibson | [Introduction au volume IV](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/fr-introduction-to-volume-4/) |
 1 | Jésus | [Jésus choisit le Dr Stone](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-10-14-1-jep-jesus/) | 14 Octobre 1914
 1 | Dr Leslie R. Stone | [Discours du Dr Leslie R. Stone à des invités invisibles](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/fr-talks-by-leslie-stone-to-unseen-guests/) |
-8 | Les Administrateurs | [En mémoire](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/fr-in-memoriam.md/) |
+8 | Les Administrateurs | [En mémoire](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/fr-in-memoriam/) |
 9 | Les Administrateurs | [Dr. Leslie R. Stone](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/fr-dr-leslie-r-stone/) |
 10 | St Jean | [Jean affirme la grande importance du message de Jésus dans le choix de son ami, le Dr Stone, afin qu’il accomplisse également une grande œuvre au nom du Royaume](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-3-2-jep-st-john/) | 3 Octobre 1915
 11 | Priscilla Stone | [Mme Stone Exhorte M. Padgett, le Dr Stone et Eugène Morgan à ne jamais douter qu’ils ont été choisis pour œuvrer pour le Royaume](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-6-2-jep-priscilla-stone/) | 6 Février 1917
