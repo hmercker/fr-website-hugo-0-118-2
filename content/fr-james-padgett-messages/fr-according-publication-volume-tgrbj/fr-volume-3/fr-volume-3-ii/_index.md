@@ -1,7 +1,7 @@
 ---
-title: "Volume 3 II"
-menu_title: "Volume 3 II"
-description: ""
+title: "Volume III - Deuxième Partie"
+menu_title: ""
+description: "Volume III - Deuxième Partie"
 date: 2020-06-28 02:18:11+11:00
 draft: False
 hidden: True
@@ -223,3 +223,5 @@ Liste des messages reçus par James Padgett faisant partie du Volume III (Second
 401 | Ross Perry | [Perry est très heureux de dire à M. Padgett qu’il prie le Père avec toute la nostalgie de son âme pour un accroissement de Son Amour, et qu’il sera bientôt dans la troisième sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-4-27-1-jep-ross-perry/) | 27 Avril 1918
 403 | St Luc | [Saint Luc a été le premier à compiler le matériel maintenant contenu dans son Évangile, qui n’est pas identique à ce qu’il a compilé](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-28-1-jep-luke/) | 28 Août 1915
 404 | Jésus | [La prière donnée par Jésus comme la seule prière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/) | 2 Décembre 1916
+
+Retourner au [début](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3/fr-volume-3-ii/) du tableau ou continuer vers [Volume IV - Première Partie](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/).

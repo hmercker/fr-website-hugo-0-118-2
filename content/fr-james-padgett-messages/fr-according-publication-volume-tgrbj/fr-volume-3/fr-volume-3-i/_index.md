@@ -1,7 +1,7 @@
 ---
-title: "Volume 3 I"
-menu_title: "Volume 3 I"
-description: ""
+title: "Volume III - Première Partie"
+menu_title: ""
+description: "Volume III - Première Partie"
 date: 2020-06-28 02:18:11+11:00
 draft: False
 hidden: True
@@ -32,7 +32,7 @@ VII | Dr Leslie Stone | [Introduction](/fr-james-padgett-messages/fr-according-p
 18 | Bright Star | [M. Padgett a rencontré Bright Star lors d’une séance et l’aide maintenant à progresser spirituellement et elle dit que l’écriture automatique est supérieure aux séances des médiums parlant](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-29-1-jep-bright-star/) | 29 Décembre 1914
 18 | Hélène Padgett | [Hélène confirme l’effort fait par M. Padgett pour amener ses deux amis, maintenant dans le monde des esprits, à la lumière du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-31-2-jep-helen-padgett/) | 31 Décembre 1914
 20 | Hélène Padgett | [Mme Padgett a écrit qu’elle étudie les lois spirituelles et qu’elle a appris qu’un esprit ne peut communiquer avec les mortels que lorsqu’ils sont en relation, que la même loi s’applique aux mortels et que sa maison est dans la troisième sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-29-2-jep-helen-padgett/) | 29 Décembre 1914
-23 | Jésus | [Est soucieux d’expliquer la vérité et de corriger la contrevérité telle qu’elle est connue](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-undated/fr-undated-7-jep-jesus/) | non daté
+23 | Jésus | [Est soucieux d’expliquer la vérité et de corriger la contrevérité telle qu’elle est connue](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-7-jep-jesus/) | non daté
 24 | Jésus | [L’affirmation qu’il est Jésus. Se réfère à un esprit qui prétend avoir perdu son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-3-1-jep-jesus/) | 3 Avril 1915
 25 | Hélène Padgett | [Hélène affirmant que Jésus a écrit ](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-3-2-jep-helen-padgett/) | 3 Avril 1915
 26 | Hélène Padgett | [Hélène écrit au sujet de son progrès de la Troisième à la Cinquième Sphère d’Esprit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-7-1-jep-helen-padgett/) | 7 Janvier 1915

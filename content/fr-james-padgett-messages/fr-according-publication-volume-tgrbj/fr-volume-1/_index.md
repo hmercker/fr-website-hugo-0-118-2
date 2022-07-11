@@ -1,7 +1,7 @@
 ---
-title: "Volume 1"
-menu_title: "Volume 1"
-description: ""
+title: "Volume I"
+menu_title: ""
+description: "Volume I"
 date: 2020-06-28 02:18:11+11:00
 draft: False
 hidden: True
@@ -212,3 +212,5 @@ XVII | Daniel G Samuels | [La Véritable Mission de Jésus](/fr-james-padgett-me
 380 | Priscilla Stone | [La mère de l’éditeur est reconnaissante qu’il possède un peu de l’Amour du Père et souhaite que ces autres enfants cherchent aussi Son Amour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-13-4-jep-priscilla-stone/) | 13 Mai 1917
 381 | Thomas Paine | [L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/) | 20 Juin 1915
 382 | Kate Stone | [La sœur de docteur Stone lui parle de son travail dans le monde des esprits et l’informe que ses efforts pour aider les esprits à se tourner vers le Père pour recevoir Son Amour ont des résultats positifs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-19-1-jep-kate-stone/) | 19 Juin 1917
+
+Retourner au [début](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-1/fr-volume-1/) du tableau ou continuer vers [Volume II](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/fr-volume-2/).

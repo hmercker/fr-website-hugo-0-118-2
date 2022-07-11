@@ -1,7 +1,7 @@
 ---
-title: "Volume 4"
-menu_title: "Volume 4"
-description: ""
+title: "Volume IV - Première Partie"
+menu_title: ""
+description: "Volume IV - Première Partie"
 date: 2020-06-28 02:18:11+11:00
 draft: False
 hidden: True
@@ -179,3 +179,5 @@ III | Rev John Paul Gibson | [Introduction au volume IV](/fr-james-padgett-messa
 186 | Robert Ingersoll | [Robert Ingersoll commente les enseignements de Swedenborg alors qu’il était sur terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-29-1-jep-robert-ingersoll/) | 29 Mars 1917
 188 | Anne Rollins | [Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/) | 11 Novembre 1914
 191 | St Jacques | [Jacques : Les Vérités ne doivent pas être réfutées par n’importe quel prédication, enseignement, ou référence biblique qui sont contraires à ces vérités](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-28-3-jep-st-james/) | 28 Octobre 1915
+
+Retourner au [début](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/) du tableau ou continuer vers [Volume IV - Deuxième Partie](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-ii/).
