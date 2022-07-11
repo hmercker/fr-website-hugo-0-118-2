@@ -11,7 +11,9 @@ weight:
 
 (L’éditeur original des Messages de James Padgett.)
 
-Ce témoignage fait suite aux nombreuses questions qui ont suivi la publication des volumes I et II des Messages de Jésus et des Esprits Célestes que j’ai publiés pour la première fois en 1940,1 et qui se sont maintenus au cours des trois premières éditions. Je profite de l’opportunité de la publication de cette quatrième édition du volume I pour intégrer toutes ces questions, des lecteurs qui ont manifesté leur intérêt, sous la forme d’un témoignage qui montrera comment ce fut possible, pour M. Padgett, d’accomplir cette tâche de réception de ces messages remarquables. Il relate comment j’ai rencontré M. Padgett et présente les raisons qui m’ont amené à croire qu’il était réellement en mesure de recevoir des messages, non seulement du  monde des esprits, mais des plus grands esprits des Cieux Célestes, dont le Maître est Jésus de Nazareth.
+![](/fr-james-padgett-messages/fr-stone.jpg)
+
+Ce témoignage fait suite aux nombreuses questions qui ont suivi la publication des volumes I et II des Messages de Jésus et des Esprits Célestes que j’ai publiés pour la première fois en 1940 <sup id="a1">[1](#f1)</sup>, et qui se sont maintenus au cours des trois premières éditions. Je profite de l’opportunité de la publication de cette quatrième édition du volume I pour intégrer toutes ces questions, des lecteurs qui ont manifesté leur intérêt, sous la forme d’un témoignage qui montrera comment ce fut possible, pour M. Padgett, d’accomplir cette tâche de réception de ces messages remarquables. Il relate comment j’ai rencontré M. Padgett et présente les raisons qui m’ont amené à croire qu’il était réellement en mesure de recevoir des messages, non seulement du  monde des esprits, mais des plus grands esprits des Cieux Célestes, dont le Maître est Jésus de Nazareth.
 
 Je suis né le 10 novembre 1876, à Aldershot, dans le comté du Hampshire, en Angleterre. Je suis le dixième de treize enfants. J’ai débuté ma scolarité à l’école publique et je l’ai poursuivie au Lycée Farnham, dans le comté en Surrey, fondé par le Roi Edouard VI. Par la suite, j’ai travaillé dans l’atelier de sellerie de mon père, William Stone, à Aldershot et plus tard à Londres. Lorsque les affaires ont ralenti, j’ai émigré à Toronto, au Canada, en 1903. En cette occasion, ma mère, qui avait une grande confiance dans le pouvoir de la prière, a demandé au Père Céleste de lui faire savoir ce qu’était Sa Volonté. Sa réponse fut que je devais partir.
 
@@ -73,11 +75,13 @@ Un message a alors suivi de la part d’Hélène, d’Ann Rollins et, surtout, d
 
 Le Maître a écrit le 5 octobre 1914, affirmant qu’il avait choisi James Padgett pour accomplir son travail de diffusion des Vérités du Père à l’humanité. Je cite la dernière partie :
 
-*“… Allez vers le Seigneur dans la prière et il supprimera de votre âme tout ce qui a tendance à la souiller et à la rendre étrangère à lui. Il est Celui qui va la nettoyer du péché et de l’erreur.*
-
-*Seul les enseignements que je vous donnerai vous révéleront les Vérités de mon Père. Ne laissez pas votre cœur être troublé ou détruit, car je suis toujours avec vous et je vous aiderai chaque fois que vous en aurez besoin. Croyez seulement que je suis Jésus des écritures et que vous ne serez pas longtemps hors du Royaume. Vous êtes celui que j’ai choisi sur terre pour proclamer ma bonne nouvelle de la vie et l’amour. Soyez fidèle à vous-même et à votre Dieu, et il vous bénira abondamment. Gardez Ses Commandements et vous serez très heureux, et vous recevrez bientôt le contentement qu’Il donne à Ses vrais enfants. Allez à Lui avec tous vos soucis et vous trouverez la paix et le repos. Vous serez bientôt en état de laisser les choses de ce monde derrière vous, car j’ai besoin de vous pour mon service.*
-
-*Avec tout mon amour et bénédictions et ceux de l’Esprit Saint, je suis, Jésus.”*
+> … Allez vers le Seigneur dans la prière et il supprimera de votre âme tout ce qui a tendance à la souiller et à la rendre étrangère à lui. Il est Celui qui va la nettoyer du péché et de l’erreur.
+<br>
+<br>
+> Seul les enseignements que je vous donnerai vous révéleront les Vérités de mon Père. Ne laissez pas votre cœur être troublé ou détruit, car je suis toujours avec vous et je vous aiderai chaque fois que vous en aurez besoin. Croyez seulement que je suis Jésus des écritures et que vous ne serez pas longtemps hors du Royaume. Vous êtes celui que j’ai choisi sur terre pour proclamer ma bonne nouvelle de la vie et l’amour. Soyez fidèle à vous-même et à votre Dieu, et il vous bénira abondamment. Gardez Ses Commandements et vous serez très heureux, et vous recevrez bientôt le contentement qu’Il donne à Ses vrais enfants. Allez à Lui avec tous vos soucis et vous trouverez la paix et le repos. Vous serez bientôt en état de laisser les choses de ce monde derrière vous, car j’ai besoin de vous pour mon service.
+<br>
+<br>
+> Avec tout mon amour et bénédictions et ceux de l’Esprit Saint, je suis, Jésus.
 
 James Padgett a finalement été convaincu qu’il avait pour but une tâche de médiumnité par laquelle des grands messages des Vérités religieuses seraient donnés, à travers lui, à l’humanité. Il a prié avec ferveur et fréquemment et, au cours des trois mois suivants. Non seulement Jésus écrivit, mais aussi beaucoup d’apôtres, en particulier Jean et Jacques. Ils lui ont sans cesse demandé de prier pour l’Amour du Père, et l’ont informé que le moment n’était pas encore venu pour la révélation des grands messages. Le cerveau de James Padgett, tout en étant changé en qualité, n’avait pas encore atteint cette qualité qui permettrait le passage des communications du niveau espéré. Ils le pressèrent continuellement de chercher toujours plus d’Amour du Père par la prière envers Lui. Plusieurs fois lorsque je le rencontrait dans son bureau, il me disait :
 
@@ -139,3 +143,6 @@ Avant de conclure, je tiens à écrire sur mon âme soeur, Mary Kennedy et sur c
 Les messages supplémentaires de Jésus incluent un message reçu le 25 décembre 1914, juste avant la réception des grands écrits formels. Un autre, daté du 15 décembre 1915, déclare qu’en raison de l’Amour que j’avais obtenu et de mon désir d’aider au développement des Vérités du Père, j’avais été choisi par Jésus pour effectuer un travail pour le Royaume. Ceci s’est par la suite avéré être le travail d’édition des messages de James Padgett. J’ai depuis lors consacré ma vie entière à eux et à promouvoir la tache du Maître de disséminer les Vérités à l’humanité. Je pense avoir commencé ce travail au cours de ma vie, et  ce travail sera poursuivi partout par mes associés et amis.
 
 Dr. Leslie R. Stone
+<small>
+
+1. <large id="f1"> Ce titre n’a pas été utilisé jusqu’en 1956 et le tout premier volume fut en fait publié en 1941.[↩](#a1)
