@@ -15,5 +15,5 @@ En aucun cas, le sacrifice de Jésus sur la croix ou les souffrances endurées p
 
 La « mort » donc ne doit pas être redoutée. Elle correspond certes à la mort du corps physique mais elle doit être perçue comme une naissance à notre vie éternelle et elle doit donc l’être avec joie. Au cours de notre progression spirituelle nous connaîtrons également une seconde mort lorsque nous abandonnerons notre ancien corps spirituel pour un corps spirituel plus éthéré et plus fin.
 
-1. [Volume IV des messages reçus par James Padgett - Première Partie](/james-padgett-messages/according-publication-volume-tgrbj/volume-4/volume-4-i/)
-2. [Volume IV des messages reçus par James Padgett - Deuxième Partie](/james-padgett-messages/according-publication-volume-tgrbj/volume-4/volume-4-ii/)
+1. [Volume IV des messages reçus par James Padgett - Première Partie](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/)
+2. [Volume IV des messages reçus par James Padgett - Deuxième Partie](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-ii/)

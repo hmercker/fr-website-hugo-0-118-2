@@ -41,8 +41,8 @@ Christian Blandin
 
 **Page** | **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---|---
-II | [Témoignage de James Padgett](/fr-james-padgett-messages/fr-the-testimony-of-james-e-padgett/) |
-IV | [Introduction au volume II](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/fr-introduction-to-volume-2/) |
+II | James Padgett | [Témoignage de James Padgett](/fr-james-padgett-messages/fr-the-testimony-of-james-e-padgett/) |
+IV | Daniel G Samuels | [Introduction au volume II](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/fr-introduction-to-volume-2/) |
 1 | Jésus | [Jésus veut que le monde suive ses enseignements](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-12-1-jep-jesus/) | 12 Septembre 1914
 1 | Hélène Padgett | [Hélène confirme que Jésus a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-12-2-jep-helen-padgett/) | 12 Septembre 1914
 1 | John Padgett | [Une courte note du père de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-12-3-jep-john-h-padgett/) | 12 Septembre 1914

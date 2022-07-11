@@ -23,6 +23,7 @@ Alors que l’ensemble des messages a été édité, il est intéressant de déc
 | [1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/) |
 | [1919](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/) |
 | [1920-1922](fr-/james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/) |
+| [Après 1922](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/) | 
 
 Commentaire:
 
