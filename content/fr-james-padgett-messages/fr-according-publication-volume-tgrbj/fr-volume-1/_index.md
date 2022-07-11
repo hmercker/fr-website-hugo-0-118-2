@@ -114,7 +114,7 @@ XVII | Daniel G Samuels | [La Véritable Mission de Jésus](/fr-james-padgett-me
 174 | Hélène Padgett | [Hélène confirme ce que Constantin et Luc ont écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-5-3-jep-helen-padgett/) | 5 Septembre 1916
 175 | Samuel | [Que s’est-il réellement passé lors de la crucifixion de Jésus ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) | 27 Mars 1921
 177 | Hélène Padgett | [Hélène confirme que le message précédent a bien été révélé par Samuel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-2-jep-helen-padgett/) | 27 Mars 1921
-177 | SBC | [Ses croyances étaient simplement intellectuelles. Après un certain temps est devenu sceptique](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-undated/fr-undated-2-jep-sbc/) | non daté
+177 | SBC | [Ses croyances étaient simplement intellectuelles. Après un certain temps est devenu sceptique](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-2-jep-sbc/) | non daté
 181 | Hélène Padgett | [Affirme que les esprits sombres ont été aidés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-5-1-jep-helen-padgett/) | 5 Avril 1915
 182 | St Paul | [L’enfer et la durée de la peine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-19-2-jep-st-paul/) | 19 Novembre 1916
 183 | St Paul | [L’enfer et la durée de le peine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-20-1-jep-st-paul/) | 20 Novembre 1916
