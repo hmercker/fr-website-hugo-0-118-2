@@ -351,4 +351,4 @@ IV | Daniel G Samuels | [Introduction au volume II](/fr-james-padgett-messages/f
 389 | Samuel | [Le bonheur et la paix qui dépassent toute compréhension viennent au possesseur de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-10-2-jep-samuel/) | 10 Septembre 1916
 390 | Jésus | [La prière donnée par Jésus comme la seule prière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/) | 2 Décembre 1916
 
-Retourner au [début](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/fr-volume-2/) du tableau ou continuer vers [Volume III](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3-i/fr-volume-3-i/).
+Retourner au [début](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/) du tableau ou continuer vers [Volume III](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3/fr-volume-3-i/).
