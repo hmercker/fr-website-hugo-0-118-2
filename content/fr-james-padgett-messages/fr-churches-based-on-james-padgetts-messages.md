@@ -11,7 +11,7 @@ weight: 85
 
 James Padgett est décédé le 17 mars 1923. Le Dr Stone avait été, avec Eugène Morgan, son compagnon de tous les instants. Le legs des manuscrits a été laissé initialement à Eugène Morgan et, lorsque celui-ci est décédé, tous les manuscrits, y compris les siens, ont été transmis au Dr Leslie Stone.
 
-![](/the-way-of-divine-love/dr-leslie-stone.jpg)
+![](/fr-james-padgett-messages/fr-stone.jpg)
 
 Le Dr Stone a relevé le défi de préparer les messages pour la publication.
 
@@ -21,11 +21,11 @@ Le premier volume a été publié en son nom propre en 1941. Il a ensuite décid
 
 La première édition de chacun des quatre volumes des messages a été respectivement publiée en 1941 (Vol. I), 1950 (Vol. II), 1956 (Vol. III) et 1972 (Vol. IV). Quatre titres différents ont été utilisés au fil des ans, et vous trouverez plus de détails sur ces publications sur cette page. Ultérieurement, ces volumes, très légèrement modifiés (les pages principales semblent utiliser les mêmes plaques d'impression, avec quelques changements dans l'introduction, l'inclusion de messages supplémentaires  et de quelques photos) ont été publiés par la Foundation Church of the New Birth sous le titre "True Gospel Revealed Anew by Jesus". Au moment de sa mort, le Dr Stone avait publié les deux premiers volumes et avait contribué au troisième volume des messages de James Padgett. Le troisième volume a été complété par le Révérend John Paul Gibson alors que le Dr Stone était encore en vie, et il a également produit par la suite le volume IV.
 
-![]( /the-way-of-divine-love/dr-daniel-g-samuels.jpg)
+![](/fr-james-padgett-messages/fr-dr-daniel-g-samuels.jpg)
 
 Au cours de la période 1954-1966, un médium Juif, le Dr Daniel G. Samuels, a reçu un volume important de messages. Ceux-ci contenaient des informations fascinantes sur l'Ancien Testament et sur la façon dont Jésus avait appris qu'il pouvait être le messie. Apparemment, le Dr Samuels a éprouvé des difficultés à s'entendre avec le Révérend John Paul Gibson. Il a donc fini par quitter le mouvement et plus personne n'a eu de ses nouvelles. John Paul Gibson a fait deux tentatives par écrit pour le faire revenir, mais n'a pas obtenu de réponse. Il a transité vers le monde des esprits en mars 1982, et ce n'est que récemment que nous avons appris ce fait. Même s'il a communiqué avec nous depuis son décès, cela n'a pas apporté de réponse à la question de savoir pourquoi il avait quitté le mouvement. Il est probable que la vision du Dr Samuels sur la nature de l'église qui serait fondée, différait significativement de la vision des autres, en particulier dans les pratiques qu'il semblait adopter, et qui semblaient être fortement basées sur son héritage Juif. Il a fait savoir qu'il avait un esprit trop matérialiste et qu'il n'était pas très avancé dans la progression de son âme. Cependant, il est également vrai qu'il était difficile de communiquer avec le Révérend John Paul Gibson.
 
-![](/the-way-of-divine-love/rev-john-paul-gibson.jpg)
+![](/fr-james-padgett-messages/fr-rev-john-paul-gibson.jpg)
 
 En 1967, après le décès du Dr Stone, les rênes sont passées au Révérend John Paul Gibson, qui est devenu le deuxième dirigeant de la F.C.N.B. Ultérieurement, George Stokes, Kathryn Stokes, Amy Reza, Mary (Holmes, qui deviendra Reynolds), Michael Holmes, Russel Higby et Dan Bowman ont rencontré le Révérend John Paul Gibson lorsqu'ils sont allés dans l'est du pays pour servir la F.C.N.B., en 1972. A cette époque, les volumes ont été renommés "True Gospel Revealed Anew by Jesus". Ils ont été publiés en Français sous le titre "Nouvelles Révélations de Jésus de Nazareth". Quatre volumes ont été publiés et le dernier volume le fut en 1972. Ceux-ci restent les documents sources les plus originaux des Messages de Padgett, bien qu'il soit évident qu'une édition quelque peu réduite (consistant à supprimer des paragraphes plutôt qu'à en modifier le sens, en particulier lorsqu'il s'agit de questions personnelles) est intervenue, comme il est possible de le constater en étudiant les nombreux messages dupliqués.
 
@@ -37,7 +37,7 @@ Après le décès de Jean Paul Gibson en Octobre 1982, Jocelyne Harleston a pris
 
 Jocelyne Harleston devant faire face à toutes ces difficultés et ce stress qui ont suivi la mort de John Paul Gibson, il lui était difficile de prendre les rênes et de diriger la F.C.N.B. Elle a donc refusé d’assumer cette responsabilité. Cependant, il est également possible que sa décision ait été également influencée par l'opinion de John Paul Gibson selon laquelle le dirigeant de l'église devait être un homme. Elle a cependant continué d’assumer seule, pendant quelques mois, la transition jusqu'à ce que son appel à l'aide soit entendu et que Kathryn Stokes l’a rejoigne à Washington D.C. pour occuper le poste  de secrétaire de l'église, sans toutefois être nommée administratrice En Mars ou Avril 1983, le Révérend Bill Reilly est venu de Floride, à Washington D.C, accompagné de Victor Summers, afin de le proposer comme président. Ce choix fut entériné par un vote le 10 Avril 1983.
 
-![](/the-way-of-divine-love/victor-summers.jpg)
+![](/fr-james-padgett-messages/fr-victor-summers.jpg)
 
 Victor Summers s’est ainsi retrouvé littéralement propulsé à la tête de la F.C.N.B. une semaine ou deux après son arrivée à Washington. Toutefois, comme il était inexpérimenté et âgé que de 29 ans, la situation était pour lui très stressante et la relation entre les deux administrateurs s’est progressivement détériorée, même si leur coopération avait très bien débuté et était la source des plus grands espoirs. Les statuts de l’association prévoyaient la nomination d’un troisième administrateur pour occuper les fonctions de vice-président. Cette nomination, pour être effective devait recevoir l’accord de Jocelyne Harleston. Elle ne s’est jamais produite.
 
@@ -49,7 +49,7 @@ La dissolution de la F.C.N.B. originale n'a donc pas pu être effective. Confron
 
 Des réunions se sont alors tenues lieu au domicile de Kathryn Stokes, avec Dave Lampron, Bill Reilly, Amy Bolton, Jocelyne Harleston, le Révérend Bill Carroll afin de préparer l'enregistrement de la nouvelle église qui s'appellerait Foundation Church of Divine Truth. Finalement neuf anciens membres de l’Eglise précédente, la FCNB, ont fondé la « Foundation Church of Divine Truth » et l'ont enregistrée à Washington D.C. le 18 Décembre 1985. Jocelyne Harleston fut nommée présidente et Kathryn Stokes secrétaire. Elles ont récupéré l'accès à la boîte postale 996 Washington D.C. et l'ont utilisée avec la nouvelle entité de l'église.
 
-![](/the-way-of-divine-love/jocelyn-harleston.jpg)
+![](/fr-james-padgett-messages/fr-jocelyn-harleston.jpg)
 
 Photo de Jocelyne Harleston prise en 2014
 
