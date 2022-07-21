@@ -11,5 +11,10 @@ weight:
 
 St Sébastien - reçu par James Padgett le 24 Août 1915, Washington, USA.
 
+Je suis là, Saint-Sébastien.
 
+Je suis le Saint qui vous a écrit il y a quelques nuits et je veux dire que je suis toujours en mesure de le faire.
 
+Bonne nuit.
+
+St. Sébastien.

@@ -11,5 +11,18 @@ weight:
 
 St Jean - reçu par James Padgett le 24 Août 1915, Washington, USA.
 
+C’est moi, Saint Jean.
 
+Je veux simplement dire que ce que le Maître dit est vrai, et triomphera bientôt, et vous devez croire que la foi est une aide merveilleuse. Je sais qu’il vous semble que vous êtes encore loin d’être en mesure de faire ces choses, mais ce ne sera pas long, car toutes les puissances de notre monde de l’Esprit Chrétien travaillent à y parvenir.
 
+Je suis avec vous très souvent lorsque vous en êtes le moins conscient, tout comme les troupeaux des autres.
+
+Eh bien, il est soumis aux mêmes lois qui régissent les communications que nous autres et les pouvoirs l’avaient quitté lorsqu’il l’a déclaré. Il n’y a rien qui devrait vous étonner, car vous découvrirez à l’avenir que ce pouvoir s’épuisera souvent tout seul.
+
+Vous ne devez pas penser qu’il est infaillible dans ces choses qui concernent le fonctionnement des lois régissant les communications entre esprits et mortels. Nous sommes tous soumis à ces règles et, parfois, des conditions surgissent qui empêchent la poursuite des communications.
+
+Oui, c’est vrai et vous ne devez pas vous laisser troubler par ce fait.
+
+Je vais arrêter maintenant.
+
+Votre frère en Christ, Jean.
