@@ -69,3 +69,5 @@ Hélène Padgett | [Mme Padgett a écrit qu’elle étudie les lois spirituelles
 Hélène Padgett | [Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-30-1-jep-helen-padgett/) | 30 Décembre 1914
 John Padgett | [Le père de M. Padgett parle du registre des âmes sœurs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-31-1-jep-john-h-padgett/) | 31 Décembre 1914
 Hélène Padgett | [Hélène confirme l’effort fait par M. Padgett pour amener ses deux amis, maintenant dans le monde des esprits, à la lumière du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-31-2-jep-helen-padgett/) | 31 Décembre 1914
+
+Retourner au [début](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/) du tableau ou continuer vers : [Par ordre Chronologique 1915 - Première Partie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/).

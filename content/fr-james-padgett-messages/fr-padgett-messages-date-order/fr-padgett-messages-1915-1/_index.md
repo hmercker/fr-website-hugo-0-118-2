@@ -241,3 +241,5 @@ Sainte Camélia | [Sainte Camélia, religieuse catholique, n’est plus une reli
 Sainte Salatia | [Sainte Salatia est maintenant dans les Cieux Célestes et un disciple de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-31-3-jep-salatia/) | 31 Août 1915
 St Paul | [Paul sur les croyances du prédicateur. La perfection est un terme relatif](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-31-4-jep-st-paul/) | 31 Août 1915
 Jésus | [Jésus a assisté au service avec M. Padgett et commente les croyances de la congrégation](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-31-5-jep-jesus/) | 31 Août 1915
+
+Retourner au [début](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/) du tableau ou continuer vers : [Par ordre Chronologique 1915 - Deuxième Partie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/).
