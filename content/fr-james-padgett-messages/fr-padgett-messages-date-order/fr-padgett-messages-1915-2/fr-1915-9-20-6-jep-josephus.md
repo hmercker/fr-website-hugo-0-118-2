@@ -11,5 +11,10 @@ weight:
 
 Flavius Josèphe - reçu par James Padgett le 20 Septembre 1915, Washington, USA.
 
+C’est moi, Flavius Josèphe.
 
+Je veux simplement dire que depuis la dernière fois que je vous ai écrit, je me suis renseigné sur qui a enseigné que mon livre a été interpolé dans le paragraphe où il parle de Jésus.
 
+Ces personnes sont celles qui ne croient pas en l’existence de Jésus en tant que personne historique et essaient de se procurer des preuves pour montrer qu’il ne l’était pas. Mais je vous dis qu’il l’était et qu’il vivait en Palestine à l’époque où j’ai écrit à son sujet. Je ne pense pas qu’il soit préférable pour moi d’écrire une longue lettre ce soir, mais je reviendrai un jour ou l’autre.
+
+Votre frère en Christ, Flavius Josèphe.

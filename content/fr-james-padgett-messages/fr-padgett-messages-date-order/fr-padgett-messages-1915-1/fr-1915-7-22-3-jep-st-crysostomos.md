@@ -1,15 +1,15 @@
 ---
-title: "Saint Chrysostom donne son témoignage sur les erreurs de l’église qui ne connaissait pas l’Amour Divin"
+title: "Saint Chrysostome donne son témoignage sur les erreurs de l’église qui ne connaissait pas l’Amour Divin"
 menu_title: ""
-description: "Saint Chrysostom donne son témoignage sur les erreurs de l’église qui ne connaissait pas l’Amour Divin"
+description: "Saint Chrysostome donne son témoignage sur les erreurs de l’église qui ne connaissait pas l’Amour Divin"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True
 weight:
 ---
-### Saint Chrysostom donne son témoignage sur les erreurs de l’église qui ne connaissait pas l’Amour Divin
+### Saint Chrysostome donne son témoignage sur les erreurs de l’église qui ne connaissait pas l’Amour Divin
 
-St Chrysostom - reçu par James Padgett le 22 Juillet 1915, Washington, USA.
+St Chrysostome - reçu par James Padgett le 22 Juillet 1915, Washington, USA.
 
 Je suis Saint Chrysostome. <sup id="a1">[1](#f1)</sup>
 
@@ -35,4 +35,5 @@ Votre frère et ami, Chrysostome appelée Saint Jean de l’an 347 à 407.
 
 Archevêque de Constantinople.
 <small>
-1. <large id="f1"> Jean Chrysostome c. 349 – 407, archevêque de Constantinople, fut un père important de l’Église primitive. Il est connu pour ses prédications et ses prises de parole en public, sa dénonciation des abus d’autorité de la part des dirigeants ecclésiastiques et politiques, la Divine Liturgie de Saint Jean Chrysostome et sa sensibilité ascétique. L’épithète Χρυσόστομος (Chrysostomos, anglicisé sous le nom de Chrysostome) signifie en Grec « a la bouche d’or » et fait référence à sa célèbre éloquence. Les églises orthodoxes orientales et catholiques byzantines l’honorent comme un saint et le comptent parmi les trois saints Hiérarques, avec Basile le Grand et Grégoire de Nazianzus. Il est reconnu par l’Église orthodoxe orientale et l’Église catholique comme un saint et un docteur de l’Église. Des églises de tradition occidentale, dont l’Église Catholique Romaine, certaines provinces anglicanes et certaines églises luthériennes, lui rendent hommage le 13 Septembre. D’autres églises Luthériennes et provinces Anglicanes le commémorent à l’occasion de la fête traditionnelle de l’Est, le 27 Janvier. L’Église Copte Orthodoxe d’Alexandrie le reconnaît aussi comme un saint (avec comme jour de fêtes le 16 Thout et le 17 Hathor). (Source : Wikipédia.)[↩](#a1)
+
+1. <large id="f1"> Jean Chrysostome c. 349 – 407, archevêque de Constantinople, fut un père important de l’Église primitive. Il est connu pour ses prédications et ses prises de parole en public, sa dénonciation des abus d’autorité de la part des dirigeants ecclésiastiques et politiques, la Divine Liturgie de Saint Jean Chrysostome et sa sensibilité ascétique. L’épithète Χρυσόστομος (Chrysostomos, anglicisé sous le nom de Chrysostome) signifie en Grec « a la bouche d’or » et fait référence à sa célèbre éloquence. Les églises orthodoxes orientales et catholiques byzantines l’honorent comme un saint et le comptent parmi les trois saints Hiérarques, avec Basile le Grand et Grégoire de Nazianzus. Il est reconnu par l’Église orthodoxe orientale et l’Église catholique comme un saint et un docteur de l’Église. Des églises de tradition occidentale, dont l’Église Catholique Romaine, certaines provinces anglicanes et certaines églises luthériennes, lui rendent hommage le 13 Septembre. D’autres églises Luthériennes et provinces Anglicanes le commémorent à l’occasion de la fête traditionnelle de l’Est, le 27 Janvier. L’Église Copte Orthodoxe d’Alexandrie le reconnaît aussi comme un saint (avec comme jour de fêtes le 16 Thout et le 17 Hathor). (Source : Wikipédia)[↩](#a1)

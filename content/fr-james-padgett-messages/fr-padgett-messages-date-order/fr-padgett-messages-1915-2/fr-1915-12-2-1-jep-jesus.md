@@ -11,5 +11,10 @@ weight:
 
 Jésus - reçu par James Padgett le 2 Décembre 1915, Washington, USA.
 
+J’ai entendu votre discussion ce soir et me réjouis de la compréhension, dans l’âme, de mes vérités que vous et votre ami semblez avoir et je sens maintenant que tous deux vous progressez au point où vous serez bientôt en état de comprendre ma mission concernant l’écriture de ces messages. Vous avez vraiment dit que ma nouvelle révélation des vérités de l’âme est ce que l’humanité a besoin en ce moment  et que les hommes seront en état d’accepter comme les vérités vraies de l’amour de Dieu et de Ses lois. ***Ma venue à vous, c’est vraiment ma seconde venue sur la terre, et le résultat de ma venue, de cette manière, avec, pour résultat, de satisfaire et accomplir toutes les promesses des Écritures quant à ma seconde venue.***
 
+Alors ayez confiance en ce fait important et votre foi en moi va croître jusqu’à ce que vous ayez, dans vos âmes et esprits, aucun doute quant à ma mission actuelle, et votre travail de faire connaître aux hommes mon vrai but, en leur révélant les grandes vérités du Père.
 
+Je n’écrirai pas plus ce soir, mais dirai gardez votre courage et croyez, et le moment viendra bientôt quand vous pourrez recevoir mes messages dans toute leur plénitude, et avec une telle rapidité, que la propagation de ces vérités ne sera pas retardée. Je suis avec vous et serai un ami et un frère fidèles, beaucoup plus proche de vous que n’importe quel frère terrestre.
+
+Avec tout mon amour et bénédictions, je suis votre frère aimant et ami, Jésus.

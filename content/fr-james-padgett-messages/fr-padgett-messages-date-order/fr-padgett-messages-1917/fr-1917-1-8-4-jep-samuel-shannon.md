@@ -9,7 +9,4 @@ weight:
 ---
 ### Un esprit entêté de la seconde sphère qui ne soucie pas de sa progression spirituelle ou de l’Amour Divin du Père
 
-Samual Shannon - reçu par James Padgett le 8 Janvier 1917, Washington, USA.
-
-
-
+Samuel Shannon - reçu par James Padgett le 8 Janvier 1917, Washington, USA.
