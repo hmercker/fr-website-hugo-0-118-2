@@ -11,5 +11,8 @@ weight:
 
 Hélène Padgett - reçu par James Padgett le 24 Septembre 1916, Washington, USA.
 
+C’est moi, ta propre Hélène, vraie et aimante.
 
+Eh bien, mon cher, tu as reçu ce soir un merveilleux message du Maître, et tu peux l’étudier et le comprendre à fond, car il contient en lui plus de vérité que tu ne peux le percevoir par une lecture superficielle. Elle est si contradictoire avec les croyances chrétiennes et donc si importante, qu’il est souhaitable d’en connaître pleinement le sens. Je te souhaite une bonne nuit.
 
+Ta vraie et aimante Hélène.
