@@ -11,5 +11,12 @@ weight:
 
 John Mastry - reçu par James Padgett le 11 Mars 1916, Washington, USA.
 
+Je suis, John D. Mastry.
 
+Je m’intéresse à ce que Jean vous a écrit et je veux simplement vous dire que j’ai été choisi pour vous aider dans l’affaire dont il a parlé et que je ferai de mon mieux pour vous aider, et que je serai très prudent dans mes conseils. J’espère que vous aurez confiance en moi.
 
+C’est tout ce que je veux dire.
+
+Bonne nuit.
+
+Votre frère en Christ, John D. Mastry.

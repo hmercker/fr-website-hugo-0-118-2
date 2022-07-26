@@ -11,5 +11,16 @@ weight:
 
 Lafayette - reçu par James Padgett le 23 Avril 1916, Washington, USA.
 
+C’est moi, Lafayette. J’étais impatient depuis quelque temps de vous écrire à nouveau et de vous faire part des résultats des conseils que vous m’avez prodigués lors de mon dernier message. Après notre dernière communication, j’ai cherché le Général Washington et lui ai parlé de ma conversation avec vous et je lui ai demandé de m’expliquer ce que signifiait cet Amour Divin et comment il pouvait être obtenu.
 
+Il était si heureux de ma requête qu’il m’a pris dans ses bras et m’a appelé son garçon comme il l’avait fait sur terre et, avec son visage rayonnant d’amour et de bonheur, il m’a expliqué ce que cet Amour voulait dire, ce qu’il avait fait pour lui. quel bonheur cela lui avait apporté et comment il progressait maintenant vers les Cieux Célestes de lumière et de vérité.
 
+Eh bien, j’ai commencé à considérer ce qu’il m’avait dit, à avoir un désir dans mon âme pour cet Amour et le bonheur qu’il a dit qu’il m’apporterait, et j’ai commencé à prier pour l’Amour et j’ai essayé d’avoir la foi. Eh bien, sans prendre votre temps en répétant les étapes de mes progrès, je suis heureux de vous dire que j’ai cet Amour dans une certaine mesure et que je suis maintenant un habitant de la troisième sphère, appréciant les associations d’esprits qui ont aussi cet Amour et s’efforcent de progresser.
+
+Mon bonheur est très différent de ce qu’il était avant que cet Amour ne vienne à moi et je me rends compte que l’âme, et non pas le mental permettra de devenir des enfants rachetés de Dieu. Je n’ai jamais pensé que l’âme était capable de tant d’Amour et bonheur et que la connaissance de l’Amour Divin est l’une chose absolument nécessaire pour permettre aux esprits d’être unis avec le Père.
+
+Je tiens à vous exprimer ma gratitude et à dire que je n’oublierai jamais votre gentillesse et votre amour en tournant mes pensées vers cette grande vérité.
+
+Oui, je suis toujours intéressé par la guerre, mais maintenant je n’ai plus de haine pour les Allemands. Je vois qu’ils sont tous frères et enfants du Père, et que seules les ambitions de certains, les passions et la haine des autres, prolongent la guerre. Mais elle va se terminer bientôt car je vois devant moi l’effondrement de la campagne Allemande contre Verdun, la fin viendra alors rapidement.
+
+Je voudrais que cela soit demain, car alors le massacre, la mort et la misère qui en résulte cesseraient. Il y a tant d’esprits, arrivant de ces champs de bataille, qui sont tous impropres à la vie spirituelle et apparaissent dans une grande confusion, et lorsqu’ils réalisent qu’ils ne sont plus mortels, ils deviennent désorientés et misérables. Mais nous essayons de les aider. Nous n’avons pas d’ennemis et tous sont aidés de la même manière. Je ne vais pas écrire plus ce soir et en terminant je vous donne mon amour et je signe avec un nouveau nom, qui est, votre frère en Christ, Lafayette.
