@@ -46,3 +46,5 @@ Hélène Padget | [Hélène affirme que Francis Bacon a écrit sur la continuit�
 Jésus | [Jésus sur la « Nouvelle Pensée ». L’importance pour l’humanité de connaître la vérité sur la Nouvelle Naissance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-6-15-1-jep-jesus/) | 15 Juin 1919
 Spencer | [Un ami commente le livre que M. Padgett lisait sur le spiritualisme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-6-18-1-jep-spencer/) | 18 Juin 1919
 Jésus | [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 18 Octobre 1919
+
+Retourner au [début](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/) du tableau ou continuer vers : [Par ordre Chronologique 1920 - 1922](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/).

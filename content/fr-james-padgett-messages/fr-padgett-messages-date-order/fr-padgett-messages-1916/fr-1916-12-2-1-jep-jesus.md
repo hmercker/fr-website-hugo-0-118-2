@@ -27,7 +27,7 @@ Que votre prière soit comme suit :
 > Je sais que je suis la plus grande de Tes créations, la plus merveilleuse de toutes Tes œuvres et l’objet de Ton Amour et de Tes tendres soins.
 <br>
 <br>
-> Ta volonté est que je m’unisse à Toi et que je reçoive Ton grand Amour que tu m’as offert par Ta Miséricorde et Ton Désir que je devienne, en vérité, Ton enfant à travers Ton Amour et non pas à travers le sacrifice et la mort d’aucune de Tes créatures, même ci certains croient qu’un homme puisse être ton égal en puissance et en gloire.  
+> Ta volonté est que je m’unisse à Toi et que je reçoive Ton grand Amour que tu m’as offert par Ta Miséricorde et Ton Désir que je devienne, en vérité, Ton enfant à travers Ton Amour et non pas à travers le sacrifice et la mort d’aucune de Tes créatures, même ci certains croient qu’un homme puisse être ton égal en puissance et en gloire.
 <br>
 <br>
 > Je prie que Tu ouvres mon âme pour que Ton Amour y afflue et qu’alors vienne Ton Esprit Saint pour apporter, dans mon âme, Ton Amour Divin en grande abondance jusqu’à ce que mon âme se transforme en Ton Essence véritable et qu’ainsi me vienne la foi – une foi telle qu’elle me fasse réaliser que je suis véritablement Ton enfant dont l’âme humaine a été consacrée par Ta Substance même en une âme divine.

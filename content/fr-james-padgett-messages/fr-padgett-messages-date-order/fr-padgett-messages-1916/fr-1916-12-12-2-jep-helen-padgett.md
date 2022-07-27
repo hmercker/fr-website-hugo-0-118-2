@@ -11,5 +11,6 @@ weight:
 
 Hélène Padgett - reçu par James Padgett le 12 Décembre 1916, Washington, USA.
 
+C’est moi, ta vraie et bien-aimée Hélène. Eh bien, mon cher, je suis si heureuse que le Maître ait pu t’écrire à nouveau ce soir, car cela indique que tu pourras recevoir Ses messages en temps voulu et de façon très satisfaisante.
 
-
+Ta vraie et bien-aimée Hélène.

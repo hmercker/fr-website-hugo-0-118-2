@@ -38,3 +38,5 @@ Judas | [Ce que les Hommes doivent faire pour voir Dieu et réaliser qu’il est
 Jésus | [Jésus approuvant et insistant sur ce que Judas a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-3-21-2-jep-jesus/) | 21 Mars 1922
 Hélène Padgett | [Hélène écrit à quel point elle est heureuse d’avoir renoué le contact](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-4-1-jep-helen-padgett/) | 4 Avril 1922
 St Luc | [Immortalité par St. Luc – L’auteur du troisième Évangile du Nouveau Testament](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
+
+Retourner au [début](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/) du tableau ou continuer vers : [Après 1922](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/).

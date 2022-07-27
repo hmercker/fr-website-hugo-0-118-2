@@ -196,3 +196,5 @@ Hélène Padgett | [L’expérience de joie et de grandeur d’Hélène dans la 
 Jésus | [Jésus parle de la description de la troisième Sphère Céleste par l’épouse de M. Padgett. L’importance de l’homme à la recherche de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/) | 28 Décembre 1915
 Hélène Padgett & Mary Kennedy | [Hélène et Mary écrivent conjointement un message pour permettre à Mary de partager un secret avec son âme sœur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-29-1-jep-helen-padgett-mary-kennedy/) | 29 Décembre 1915
 St Luc | [Luc sur l’expiation, 1ère partie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-30-1-jep-luke/) | 30 Décembre 1915
+
+Retourner au [début](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/) du tableau ou continuer vers : [Par ordre Chronologique 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/).
