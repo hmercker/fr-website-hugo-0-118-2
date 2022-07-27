@@ -9,7 +9,7 @@ weight:
 ---
 ### 12ème Sermon – La confiance de Ruth dans l’Amour du Père
 
-Jesus - reçu par Dr Samuels le 10 Avril 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 10 Avril 1958, Washington, USA.
 
 C’est moi, Jésus.
 

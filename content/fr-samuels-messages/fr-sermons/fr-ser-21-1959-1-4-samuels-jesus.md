@@ -9,7 +9,7 @@ weight:
 ---
 ### 21ème Sermon – David regrette l’injustice présente durant son règne
 
-Jesus - reçu par Dr Samuels le 4 Janvier 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 4 Janvier 1959, Washington, USA.
 
 C’est moi, Jésus.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### 2ème Sermon – l’échec du Christianisme à prêcher l’Amour du Père
 
-Jesus - reçu par Dr Samuels le 24 Août 1957, Washington, USA.
+Jésus - reçu par Dr Samuels le 24 Août 1957, Washington, USA.
 
 C’est moi, Jésus.
 

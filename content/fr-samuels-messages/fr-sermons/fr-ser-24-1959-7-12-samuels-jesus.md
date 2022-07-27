@@ -9,7 +9,7 @@ weight:
 ---
 ### 24ème Sermon – Les sacrifices de l’église expliqués au temps du roi David
 
-Jesus - reçu par Dr Samuels le 12 Juillet 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 12 Juillet 1959, Washington, USA.
 
 C’est moi, Jésus.
 

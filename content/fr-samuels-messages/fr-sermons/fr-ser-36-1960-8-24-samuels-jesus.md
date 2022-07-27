@@ -9,7 +9,7 @@ weight:
 ---
 ### 36ème Sermon – Michée et les aristocrates de Jérusalem
 
-Jesus - reçu par Dr Samuels le 24 Août 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 24 Août 1960, Washington, USA.
 
 C’est moi, Jésus.
 

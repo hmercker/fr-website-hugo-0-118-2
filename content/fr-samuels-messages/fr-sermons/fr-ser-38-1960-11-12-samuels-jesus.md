@@ -9,7 +9,7 @@ weight:
 ---
 ### 38ème Sermon – Le jour du jugement comme visionné par Sophonie
 
-Jesus - reçu par Dr Samuels le 12 Novembre 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 12 Novembre 1960, Washington, USA.
 
 C’est moi, Jésus.
 

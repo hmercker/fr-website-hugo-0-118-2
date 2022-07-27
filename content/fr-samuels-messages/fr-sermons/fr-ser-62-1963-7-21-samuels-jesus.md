@@ -9,7 +9,7 @@ weight:
 ---
 ### 62ème Sermon – Isaïe, le messager des bonnes nouvelles
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
 
 C’est moi, Jésus.
 

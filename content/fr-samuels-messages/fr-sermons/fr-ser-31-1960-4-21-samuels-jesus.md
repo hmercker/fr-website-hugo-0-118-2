@@ -9,7 +9,7 @@ weight:
 ---
 ### 31ème Sermon – Le premier Isaïe, prophète d’Israël
 
-Jesus - reçu par Dr Samuels le 21 Avril 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Avril 1960, Washington, USA.
 
 C’est moi, Jésus.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### 40ème Sermon – Les ancêtres de Jérémie dans le règne de Saül et David
 
-Jesus - reçu par Dr Samuels le 16 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 16 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

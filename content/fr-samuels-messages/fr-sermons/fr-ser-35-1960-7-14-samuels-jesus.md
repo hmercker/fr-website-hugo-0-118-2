@@ -9,7 +9,7 @@ weight:
 ---
 ### 35ème Sermon – L’Espoir d’Isaïe d’un Royaume idéal pour Israël
 
-Jesus - reçu par Dr Samuels le 14 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 14 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

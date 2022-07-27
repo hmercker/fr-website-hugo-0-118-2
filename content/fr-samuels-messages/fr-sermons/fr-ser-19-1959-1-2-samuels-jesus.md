@@ -9,7 +9,7 @@ weight:
 ---
 ### 19ème Sermon – David exprime son idée de Dieu dans ses Psaumes
 
-Jesus - reçu par Dr Samuels le 2 Janvier 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 2 Janvier 1959, Washington, USA.
 
 C’est moi, Jésus.
 

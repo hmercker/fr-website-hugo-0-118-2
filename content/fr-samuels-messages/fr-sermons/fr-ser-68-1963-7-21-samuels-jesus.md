@@ -9,7 +9,7 @@ weight:
 ---
 ### 68ème Sermon – Le Second Isaïe prêchait la consécration de son peuple
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
 
 C’est moi, Jésus.
 

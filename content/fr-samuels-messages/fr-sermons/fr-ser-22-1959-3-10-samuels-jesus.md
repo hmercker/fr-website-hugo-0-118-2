@@ -9,7 +9,7 @@ weight:
 ---
 ### 22ème Sermon – Les conception de David sur l’au-delà
 
-Jesus - reçu par Dr Samuels le 10 Mars 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 10 Mars 1959, Washington, USA.
 
 C’est moi, Jésus.
 

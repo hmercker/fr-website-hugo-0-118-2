@@ -9,7 +9,7 @@ weight:
 ---
 ### 53ème Sermon – L’idéal de démocratie de Jérémie
 
-Jesus - reçu par Dr Samuels le 1 Août 1961, Washington, USA.
+Jésus - reçu par Dr Samuels le 1 Août 1961, Washington, USA.
 
 C’est moi, Jésus.
 

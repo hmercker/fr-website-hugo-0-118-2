@@ -9,7 +9,7 @@ weight:
 ---
 ### 8ème Sermon – Jérémie, le serviteur souffrant
 
-Jesus - reçu par Dr Samuels le 19 Décembre 1957, Washington, USA.
+Jésus - reçu par Dr Samuels le 19 Décembre 1957, Washington, USA.
 
 C’est moi, Jésus.
 

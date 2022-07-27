@@ -9,7 +9,7 @@ weight:
 ---
 ### 25ème Sermon – Le vingt-troisième Psaume
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1959, Washington, USA.
 
 C’est moi, Jésus.
 

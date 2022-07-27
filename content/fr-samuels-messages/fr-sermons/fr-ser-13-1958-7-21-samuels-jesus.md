@@ -9,7 +9,7 @@ weight:
 ---
 ### 13ème Sermon – La gentillesse abondante du roi David
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1958, Washington, USA.
 
 C’est moi, Jésus.
 

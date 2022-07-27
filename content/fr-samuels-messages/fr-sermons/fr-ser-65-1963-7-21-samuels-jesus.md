@@ -9,7 +9,7 @@ weight:
 ---
 ### 65ème Sermon – Le double concept du Père selon le Second Isaïe
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
 
 C’est moi, Jésus.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### 50ème Sermon – Lettre de Jérémie pour les Judéens à Babylone
 
-Jesus - reçu par Dr Samuels le 5 Août 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 5 Août 1960, Washington, USA.
 
 C’est moi, Jésus.
 

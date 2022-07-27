@@ -9,7 +9,7 @@ weight:
 ---
 ### 49ème Sermon – Jérémie attaque les maux sociaux en Judée
 
-Jesus - reçu par Dr Samuels le 29 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 29 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

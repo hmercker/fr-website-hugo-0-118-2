@@ -9,7 +9,7 @@ weight:
 ---
 ### 67ème Sermon – Beaucoup de chrétiens considèrent ces sermons comme prophétiques
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
 
 C’est moi, Jésus.
 

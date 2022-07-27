@@ -9,7 +9,7 @@ weight:
 ---
 ### 11ème Sermon – L’amour Divin du Père préfiguré par les expériences de Joseph
 
-Jesus - reçu par Dr Samuels le 4 Avril 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 4 Avril 1958, Washington, USA.
 
 C’est moi, Jésus.
 

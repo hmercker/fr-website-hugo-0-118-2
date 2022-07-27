@@ -9,7 +9,7 @@ weight:
 ---
 ### 52ème Sermon – Les tribulations de Jérémie en tant que prophète pacifiste
 
-Jesus - reçu par Dr Samuels le 12 Août 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 12 Août 1960, Washington, USA.
 
 C’est moi, Jésus.
 

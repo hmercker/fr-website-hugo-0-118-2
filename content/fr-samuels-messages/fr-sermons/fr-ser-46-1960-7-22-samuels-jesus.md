@@ -9,7 +9,7 @@ weight:
 ---
 ### 46ème Sermon – La conception de Jérémie d’un monde moral
 
-Jesus - reçu par Dr Samuels le 22 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 22 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

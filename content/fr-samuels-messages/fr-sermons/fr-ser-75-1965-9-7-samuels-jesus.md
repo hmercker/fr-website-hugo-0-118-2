@@ -9,7 +9,7 @@ weight:
 ---
 ### 75ème Sermon – Zacharie reçoit un commandement de Dieu Lui-même
 
-Jesus - reçu par Dr Samuels le 7 Septembre 1965, Washington, USA.
+Jésus - reçu par Dr Samuels le 7 Septembre 1965, Washington, USA.
 
 C’est moi, Jésus.
 

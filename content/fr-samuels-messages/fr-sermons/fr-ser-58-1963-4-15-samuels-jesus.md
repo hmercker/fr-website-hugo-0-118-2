@@ -9,7 +9,7 @@ weight:
 ---
 ### 58ème Sermon – La perte de Jérusalem pour Dieu est symbolisée par la mort de l’épouse du prophète
 
-Jesus - reçu par Dr Samuels le 15 Avril 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 15 Avril 1963, Washington, USA.
 
 C’est moi, Jésus.
 

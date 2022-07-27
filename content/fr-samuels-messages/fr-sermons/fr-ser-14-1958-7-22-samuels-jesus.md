@@ -9,7 +9,7 @@ weight:
 ---
 ### 14ème Sermon – La foi inébranlable de David dans le Père
 
-Jesus - reçu par Dr Samuels le 22 Juillet 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 22 Juillet 1958, Washington, USA.
 
 C’est moi, Jésus.
 

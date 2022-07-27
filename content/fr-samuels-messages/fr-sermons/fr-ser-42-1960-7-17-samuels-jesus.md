@@ -9,7 +9,7 @@ weight:
 ---
 ### 42ème Sermon – L’appel de Jérémie comme un prophète de Dieu
 
-Jesus - reçu par Dr Samuels le 17 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 17 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

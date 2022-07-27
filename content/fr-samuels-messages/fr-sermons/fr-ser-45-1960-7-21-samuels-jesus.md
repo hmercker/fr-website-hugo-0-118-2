@@ -9,7 +9,7 @@ weight:
 ---
 ### 45ème Sermon – Jérémie traduit en justice au Temple
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

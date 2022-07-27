@@ -9,7 +9,7 @@ weight:
 ---
 ### 26ème Sermon – La prise de conscience d’Osée de l’Amour du Père
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1959, Washington, USA.
 
 C’est moi, Jésus.
 
@@ -25,15 +25,7 @@ Osée fut un homme de grande sensibilité, la spiritualité et les souffrances q
 
 Maintenant ce n’est pas une histoire, comme le pensent certains commentateurs des Écritures, mais un vrai récit de, comment, par la prière et la foi dans le Père, le prophète Osée a appris à sublimer son chagrin, à propos d’une femme en faute, dans une magnifique conception de l’Amour du Père pour Israël, sa fiancée, et obtenir un soupçon de la rémission divine. Par le biais de sa propre douleur, Osée a pénétré avec une rare perspicacité la connaissance que l’Amour Divin a existé comme le grand Attribut du Père, qu’il souffre ou se réjouisse, s’empresse de la miséricorde et du pardon et est toujours plein d’espoir que la personne qu’il aime va cesser d’être séparée par un retour au Père et une purification de l’âme par la repentance. Et la parole de Dieu, par le biais de ses ministres, est venue à la compréhension d’Osée, disant :
 
-« Quand Israël était jeune, je l’aimais, Et j’appelai Mon fils hors d’Égypte. Mais ils se sont éloignés de ceux qui les appelaient : Ils ont sacrifié aux Baals et offert de l’encens aux idoles.…. C’est moi qui guidai les pas d’Ephraïm, Le soutenant par ses bras; Et ils n’ont pas vu que je les guérissais.… Je les tirai avec des liens d’humanité, avec des cordages d’amour,  Je fus pour eux comme celui qui aurait relâché le joug près de leur bouche, Et je leur présentai de la nourriture.… Ils ne retourneront pas au pays d’Égypte; Mais l’Assyrien sera leur roi, Parce qu’ils ont refusé de revenir à moi.
-
-Que ferai-je de toi, Ephraïm ? Dois-je te livrer, Israël ?
-
-Te traiterai-je comme Adma ?  Te rendrai-je semblable à Tseboïm ?
-
-Mon cœur s’agite au dedans de moi, Toutes mes compassions sont émues. »
-
-(Osée 11 : 1-5,8)
+> « Quand Israël était jeune, je l’aimais, Et j’appelai Mon fils hors d’Égypte. Mais ils se sont éloignés de ceux qui les appelaient : Ils ont sacrifié aux Baals et offert de l’encens aux idoles.…. C’est moi qui guidai les pas d’Ephraïm, Le soutenant par ses bras; Et ils n’ont pas vu que je les guérissais.… Je les tirai avec des liens d’humanité, avec des cordages d’amour,  Je fus pour eux comme celui qui aurait relâché le joug près de leur bouche, Et je leur présentai de la nourriture.… Ils ne retourneront pas au pays d’Égypte; Mais l’Assyrien sera leur roi, Parce qu’ils ont refusé de revenir à moi. Que ferai-je de toi, Ephraïm ? Dois-je te livrer, Israël ? Te traiterai-je comme Adma ?  Te rendrai-je semblable à Tseboïm ? Mon cœur s’agite au dedans de moi, Toutes mes compassions sont émues. » (Osée 11 : 1-5,8)
 
 C’est la première fois que le Père est représenté, dans la prophétie Hébraïque, comme affichant ces sentiments délicats d’amour et de tristesse, tous plus importants que le stress était en ce moment-là et longtemps après la supposée colère et vengeance de Dieu. Ici, nous avons un Dieu de Miséricorde et de Compassion, la conception qui ne devait pas l’emporter jusqu’au temps fixé de ma venue, même si elle avait été introduite, comme j’ai dit, dans les Écritures Hébraïques, par les récits de Joseph et de Ruth et la personnalité de David.
 

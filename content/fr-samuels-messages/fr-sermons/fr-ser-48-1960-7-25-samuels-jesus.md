@@ -9,7 +9,7 @@ weight:
 ---
 ### 48ème Sermon – Baruch et le livre du prophète
 
-Jesus - reçu par Dr Samuels le 25 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 25 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

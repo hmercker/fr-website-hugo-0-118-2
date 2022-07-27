@@ -9,7 +9,7 @@ weight:
 ---
 ### 23ème Sermon – Jésus explique le Psaume 18
 
-Jesus - reçu par Dr Samuels le 10 Avril 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 10 Avril 1959, Washington, USA.
 
 C’est moi, Jésus.
 

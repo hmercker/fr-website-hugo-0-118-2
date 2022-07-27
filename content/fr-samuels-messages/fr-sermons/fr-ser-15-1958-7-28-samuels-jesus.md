@@ -9,7 +9,7 @@ weight:
 ---
 ### 15ème Sermon – La patience du roi David
 
-Jesus - reçu par Dr Samuels le 28 Juillet 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 28 Juillet 1958, Washington, USA.
 
 C’est moi, Jésus.
 
@@ -25,7 +25,7 @@ Et David dit à ses hommes: « Que chacun de vous ceigne son épée ! » (1 Samu
 
 Un des serviteurs de Nabal vint dire à Abigaïl, femme de Nabal, en disant :
 
-« Voici, David a envoyé du désert des messagers pour saluer notre maître Nabal qui les a rudoyés. Et pourtant ces gens ont été bons pour nous ; ils ne nous ont fait aucun outrage, et rien ne nous a été enlevé tout le temps que nous avons été avec eux, lorsque nous étions dans les champs, ils nous ont, nuit et jour, servi de muraille, tout le temps que nous avons été avec eux, faisant paître les troupeaux.  Sache maintenant et vois ce que tu as à faire, car la perte de notre maître et de toute sa maison est résolue, et il est si méchant qu’on n’ose lui parler. » (1 Samuel 25  : 14-17)
+> « Voici, David a envoyé du désert des messagers pour saluer notre maître Nabal qui les a rudoyés. Et pourtant ces gens ont été bons pour nous ; ils ne nous ont fait aucun outrage, et rien ne nous a été enlevé tout le temps que nous avons été avec eux, lorsque nous étions dans les champs, ils nous ont, nuit et jour, servi de muraille, tout le temps que nous avons été avec eux, faisant paître les troupeaux.  Sache maintenant et vois ce que tu as à faire, car la perte de notre maître et de toute sa maison est résolue, et il est si méchant qu’on n’ose lui parler. » (1 Samuel 25  : 14-17)
 
 Alors Abigail, sans consulter Nabal, qui était en état d’ébriété, prépara une quantité considérable de provisions, les chargea sur des ânes et les conduisit pour intercepter David avant qu’il n’atteigne la maison de Nabal. Et lorsqu’elle le rencontra, elle se prosterna devant David, lui présenta les provisions en l’implorant afin qu’il ne cherche pas la vengeance.
 
@@ -35,7 +35,7 @@ A moi la faute, mon seigneur !  Entends les paroles de ta servante. Ne prête mo
 
 Et David répondit :
 
-« Béni soit le Seigneur, le Dieu d’Israël, qui t’a envoyé ce jour pour me rencontrer ; sois bénie pour ta discrétion et sois bénie que tu m’aies préservé, en ce jour, de cette violence et de chercher vengeance de ma propre main…… Va en paix dans ta maison ; vois, j’ai écouté ta voix et j’ai accepté ta personne. » (1 Samuel 25 : 24-35)
+> « Béni soit le Seigneur, le Dieu d’Israël, qui t’a envoyé ce jour pour me rencontrer ; sois bénie pour ta discrétion et sois bénie que tu m’aies préservé, en ce jour, de cette violence et de chercher vengeance de ma propre main…… Va en paix dans ta maison ; vois, j’ai écouté ta voix et j’ai accepté ta personne. » (1 Samuel 25 : 24-35)
 
 Et David épargna Nabal et sa maison, bien qu’il était très en colère, cependant il ne fut pas insensible au plaidoyer de la miséricorde, parce qu’elle fut faite par celle qui a pris sur elle l’erreur de son mari et lui montra une profondeur de noblesse du cœur et de courage qui a touché une corde sensible en lui. Sa bonté de cœur fut appréciée, car si David n’avait pas eu une certaine noblesse d’âme, ses requêtes seraient passées, en vain, au-dessus de lui. Et il a également considéré sa venue comme un signe du Père qu’il ne devrait pas se venger de sa propre main de Nabal ; et il a retenu son épée, car il était conscient de ce qu’il considérait être la Volonté de Dieu. En raison de sa noblesse d’âme, il sut que Dieu l’avait envoyée, car il savait que cette noblesse d’âme venait uniquement du Père. Parce que David avait la compréhension du cœur qui lui avait révélée que le Père était générosité, et cet amour, cette bonté et miséricorde et tout ce qui était noble, était Lui ; et elles sont venues à l’homme par Lui.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### 29ème Sermon – Amos, premier prophète d’Israël
 
-Jesus - reçu par Dr Samuels le 21 Août 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Août 1959, Washington, USA.
 
 C’est moi, Jésus.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### 18ème Sermon – L’Éloge de Dieu par le Roi David
 
-Jesus - reçu par Dr Samuels le 22 Décembre 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 22 Décembre 1958, Washington, USA.
 
 C’est moi, Jésus.
 

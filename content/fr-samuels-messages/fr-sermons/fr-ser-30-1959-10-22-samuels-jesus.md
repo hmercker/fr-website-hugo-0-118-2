@@ -9,7 +9,7 @@ weight:
 ---
 ### 30ème Sermon – Amos et Osée étaient obéissant à Dieu
 
-Jesus - reçu par Dr Samuels le 22 Octobre 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 22 Octobre 1959, Washington, USA.
 
 C’est moi, Jésus.
 

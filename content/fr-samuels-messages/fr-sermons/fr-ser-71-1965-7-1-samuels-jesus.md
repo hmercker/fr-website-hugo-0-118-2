@@ -9,7 +9,7 @@ weight:
 ---
 ### 71ème Sermon – Aggée demande instamment la reconstruction du Temple
 
-Jesus - reçu par Dr Samuels le 1 Juillet 1965, Washington, USA.
+Jésus - reçu par Dr Samuels le 1 Juillet 1965, Washington, USA.
 
 C’est moi, Jésus.
 

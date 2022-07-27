@@ -9,7 +9,7 @@ weight:
 ---
 ### 4ème Sermon – Le véritable accomplissement de la Loi – l’Amour du Père
 
-Jesus - reçu par Dr Samuels le 26 Août 1957, Washington, USA.
+Jésus - reçu par Dr Samuels le 26 Août 1957, Washington, USA.
 
 C’est moi, Jésus.
 

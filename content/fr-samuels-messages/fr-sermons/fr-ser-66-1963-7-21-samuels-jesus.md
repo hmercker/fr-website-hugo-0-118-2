@@ -9,7 +9,7 @@ weight:
 ---
 ### 66ème Sermon – Jésus explique encore les chants d’Isaïe
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
 
 C’est moi, Jésus.
 

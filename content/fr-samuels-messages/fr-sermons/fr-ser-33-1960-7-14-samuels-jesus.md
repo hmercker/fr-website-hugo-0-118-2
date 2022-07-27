@@ -9,7 +9,7 @@ weight:
 ---
 ### 33ème Sermon – Isaïe déclare le jugement de Dieu sur les nations
 
-Jesus - reçu par Dr Samuels le 14 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 14 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

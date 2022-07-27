@@ -9,7 +9,7 @@ weight:
 ---
 ### 16ème Sermon – L’Amour du Roi David pour ses enfants rebelles
 
-Jesus - reçu par Dr Samuels le 1 Août 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 1 Août 1958, Washington, USA.
 
 C’est moi, Jésus.
 
@@ -29,7 +29,7 @@ Et Ittaï, avec la foi en ce Dieu qui l’a rendu indésirable dans son propre p
 
 Les prêtres sont également venus, Tsadok et les Lévites, portant l’arche de l’Alliance de Dieu, pour l’emmener dans l’expédition depuis Jérusalem, afin d’avoir Jéhovah, le Seigneur, éternellement avec eux, comme ils le pensaient. Mais David savait qu’il était inutile de chercher Dieu dans un temple. En effet, Dieu pouvait être atteint, avec la prière, n’importe où et il avait la foi que Dieu répondrait à sa prière, soit en le délivrant de la main de son ennemi ou, comme il le pensait, à le rejeter. Dans les deux cas, David accepterait la décision de Dieu. Et le roi dit à Zadok :
 
-« Rapporte l’arche de Dieu dans la ville. Si je trouve grâce aux yeux de l’Éternel, il me ramènera, et il me fera voir l’arche et sa demeure. Mais s’il dit : Je ne prends point plaisir en toi ! Me voici, qu’Il me fasse ce qui lui semblera bon.…» (2 Samuel 15 : 25-26).
+> « Rapporte l’arche de Dieu dans la ville. Si je trouve grâce aux yeux de l’Éternel, il me ramènera, et il me fera voir l’arche et sa demeure. Mais s’il dit : Je ne prends point plaisir en toi ! Me voici, qu’Il me fasse ce qui lui semblera bon.…» (2 Samuel 15 : 25-26).
 
 Tsadok et les prêtres ramenèrent donc l’Arche de Dieu à Jérusalem. Et David monta sur le Mont des oliviers et pleura avec la tête couverte et les pieds nus ; et ceux qui étaient avec lui firent de même. Il instruit Huschaï, l’Arkien, son ami, de rester à Jérusalem et de faire semblant de servir Absalom, afin de réduire à néant le mauvais conseiller d’Ahitophel, qui avait conspiré avec son fils contre lui. Et David demanda à Huschaï de transmettre toutes les informations aux prêtres, Tsadok et Ablathar, qui lui transmettraient toutes les informations en retour. Pour que Huschaï accueille Absalom comme roi, pour servir le fils comme il avait servi le père.
 

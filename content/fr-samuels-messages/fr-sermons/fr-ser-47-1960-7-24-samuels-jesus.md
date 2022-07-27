@@ -9,7 +9,7 @@ weight:
 ---
 ### 47ème Sermon – Le feu dans le cœur du Prophète
 
-Jesus - reçu par Dr Samuels le 24 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 24 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

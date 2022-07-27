@@ -9,7 +9,7 @@ weight:
 ---
 ### 63ème Sermon – Le Second Isaïe, le prophète de l’exil
 
-Jesus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 21 Juillet 1963, Washington, USA.
 
 C’est moi, Jésus.
 

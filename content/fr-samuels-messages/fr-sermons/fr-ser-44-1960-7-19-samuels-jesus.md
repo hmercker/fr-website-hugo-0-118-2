@@ -9,7 +9,7 @@ weight:
 ---
 ### 44ème Sermon – Jérémie à Jérusalem
 
-Jesus - reçu par Dr Samuels le 19 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 19 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

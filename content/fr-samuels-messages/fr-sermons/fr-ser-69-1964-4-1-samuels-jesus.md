@@ -9,7 +9,7 @@ weight:
 ---
 ### 69ème Sermon – Le Troisième Isaïe définit son style d’après celui du Second Isaïe
 
-Jesus - reçu par Dr Samuels le 1 Avril 1964, Washington, USA.
+Jésus - reçu par Dr Samuels le 1 Avril 1964, Washington, USA.
 
 C’est moi, Jésus.
 

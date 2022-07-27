@@ -9,7 +9,7 @@ weight:
 ---
 ### 43ème Sermon – Les premiers sermons de Jérémie
 
-Jesus - reçu par Dr Samuels le 18 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 18 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 

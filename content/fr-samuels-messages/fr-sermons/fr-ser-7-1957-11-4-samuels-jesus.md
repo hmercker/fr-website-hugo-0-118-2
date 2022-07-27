@@ -9,7 +9,7 @@ weight:
 ---
 ### 7ème Sermon – Le rite Chrétien appelé Messe
 
-Jesus - reçu par Dr Samuels le 4 Novembre 1957, Washington, USA.
+Jésus - reçu par Dr Samuels le 4 Novembre 1957, Washington, USA.
 
 C’est moi, Jésus.
 

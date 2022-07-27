@@ -9,7 +9,7 @@ weight:
 ---
 ### 17ème Sermon – Le roi David, un homme de Dieu
 
-Jesus - reçu par Dr Samuels le 2 Août 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 2 Août 1958, Washington, USA.
 
 C’est moi, Jésus.
 

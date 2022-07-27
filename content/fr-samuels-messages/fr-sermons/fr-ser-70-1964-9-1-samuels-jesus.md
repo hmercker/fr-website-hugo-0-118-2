@@ -9,7 +9,7 @@ weight:
 ---
 ### 70ème Sermon – Jésus a utilisé les premières lignes du troisième Isaïe lorsqu’il a parlé à Nazareth
 
-Jesus - reçu par Dr Samuels le 1 Septembre 1964, Washington, USA.
+Jésus - reçu par Dr Samuels le 1 Septembre 1964, Washington, USA.
 
 C’est moi, Jésus.
 

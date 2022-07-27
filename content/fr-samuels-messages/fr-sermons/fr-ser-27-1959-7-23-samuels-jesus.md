@@ -9,4 +9,4 @@ weight:
 ---
 ### 27ème Sermon – Jésus explique les prophéties d’Osée
 
-Jesus - reçu par Dr Samuels le 23 Juillet 1959, Washington, USA.
+Jésus - reçu par Dr Samuels le 23 Juillet 1959, Washington, USA.

@@ -9,7 +9,7 @@ weight:
 ---
 ### 6ème Sermon – L’incompréhension du sacrifice du sang
 
-Jesus - reçu par Dr Samuels le 22 Octobre 1957, Washington, USA.
+Jésus - reçu par Dr Samuels le 22 Octobre 1957, Washington, USA.
 
 C’est moi, Jésus.
 

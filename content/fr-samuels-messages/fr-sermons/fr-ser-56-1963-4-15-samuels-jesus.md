@@ -9,7 +9,7 @@ weight:
 ---
 ### 56ème Sermon – Ézéchiel décrit son exil à Babylone
 
-Jesus - reçu par Dr Samuels le 15 Avril 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 15 Avril 1963, Washington, USA.
 
 C’est moi, Jésus.
 

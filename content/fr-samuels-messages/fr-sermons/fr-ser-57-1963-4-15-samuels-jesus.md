@@ -9,7 +9,7 @@ weight:
 ---
 ### 57ème Sermon – L’appel prophétique d’Ézéchiel
 
-Jesus - reçu par Dr Samuels le 15 Avril 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 15 Avril 1963, Washington, USA.
 
 C’est moi, Jésus.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### 55ème Sermon – Jésus explique le vrai sens des prophéties de Habacuc
 
-Jesus - reçu par Dr Samuels le 1 Août 1961, Washington, USA.
+Jésus - reçu par Dr Samuels le 1 Août 1961, Washington, USA.
 
 C’est moi, Jésus.
 

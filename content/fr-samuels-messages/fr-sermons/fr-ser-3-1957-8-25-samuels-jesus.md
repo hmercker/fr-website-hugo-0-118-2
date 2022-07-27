@@ -9,7 +9,7 @@ weight:
 ---
 ### 3ème Sermon – L’absence de la Vraie Grâce de Dieu dans le Christianisme aujourd’hui
 
-Jesus - reçu par Dr Samuels le 25 Août 1957, Washington, USA.
+Jésus - reçu par Dr Samuels le 25 Août 1957, Washington, USA.
 
 C’est moi, Jésus.
 

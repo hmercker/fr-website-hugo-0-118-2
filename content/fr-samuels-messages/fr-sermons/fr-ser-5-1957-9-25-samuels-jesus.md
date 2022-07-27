@@ -9,7 +9,7 @@ weight:
 ---
 ### 5ème Sermon – La vraie foi et vertu d’Abraham
 
-Jesus - reçu par Dr Samuels le 25 Septembre 1957, Washington, USA.
+Jésus - reçu par Dr Samuels le 25 Septembre 1957, Washington, USA.
 
 C’est moi, Jésus.
 

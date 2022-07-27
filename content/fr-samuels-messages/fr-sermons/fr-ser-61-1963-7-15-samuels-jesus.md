@@ -9,7 +9,7 @@ weight:
 ---
 ### 61ème Sermon – Le Second Isaïe, la voix de la libération
 
-Jesus - reçu par Dr Samuels le 15 Juillet 1963, Washington, USA.
+Jésus - reçu par Dr Samuels le 15 Juillet 1963, Washington, USA.
 
 C’est moi, Jésus.
 

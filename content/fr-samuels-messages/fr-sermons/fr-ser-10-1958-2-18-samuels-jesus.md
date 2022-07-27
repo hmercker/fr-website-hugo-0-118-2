@@ -9,7 +9,7 @@ weight:
 ---
 ### 10ème Sermon – L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin
 
-Jesus - reçu par Dr Samuels le 18 Février 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 18 Février 1958, Washington, USA.
 
 C’est moi, Jésus.
 

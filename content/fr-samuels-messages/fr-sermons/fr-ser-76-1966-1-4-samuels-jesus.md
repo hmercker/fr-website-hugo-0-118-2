@@ -9,7 +9,7 @@ weight:
 ---
 ### 76ème Sermon – Jésus, sur la terre, a été impressionné par les écrits de Zacharie
 
-Jesus - reçu par Dr Samuels le 4 Janvier 1966, Washington, USA.
+Jésus - reçu par Dr Samuels le 4 Janvier 1966, Washington, USA.
 
 C’est moi, Jésus.
 

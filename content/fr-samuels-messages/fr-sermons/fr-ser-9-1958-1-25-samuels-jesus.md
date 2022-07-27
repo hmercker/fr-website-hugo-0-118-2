@@ -9,7 +9,7 @@ weight:
 ---
 ### 9ème Sermon – Le Nouveau Cœur dans l’Ancien Testament
 
-Jesus - reçu par Dr Samuels le 25 Janvier 1958, Washington, USA.
+Jésus - reçu par Dr Samuels le 25 Janvier 1958, Washington, USA.
 
 C’est moi, Jésus.
 

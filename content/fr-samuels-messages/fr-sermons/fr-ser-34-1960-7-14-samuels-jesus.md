@@ -9,7 +9,7 @@ weight:
 ---
 ### 34ème Sermon – La lutte d’Isaïe contre les maux sociaux et les sacrifices
 
-Jesus - reçu par Dr Samuels le 14 Juillet 1960, Washington, USA.
+Jésus - reçu par Dr Samuels le 14 Juillet 1960, Washington, USA.
 
 C’est moi, Jésus.
 
