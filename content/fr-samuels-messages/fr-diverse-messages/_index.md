@@ -7,7 +7,9 @@ draft: False
 hidden: False
 weight: 120
 ---
-## Messages Divers
+## Messages Divers au Dr Samuels
+
+![](/fr-samuels-messages/fr-diverse-messages/fr-paysage-de-montagne13.jpg)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
