@@ -1,0 +1,42 @@
+---
+title: "23ème Sermon – Jésus explique le Psaume 18"
+menu_title: ""
+description: "23ème Sermon – Jésus explique le Psaume 18"
+date: 2022-06-01 06:00:01+00:76
+draft: False
+hidden: True
+weight:
+---
+### 23ème Sermon – Jésus explique le Psaume 18
+
+Jesus - reçu par Dr Samuels le 10 Avril 1959, Washington, USA.
+
+C’est moi, Jésus.
+
+Je tiens maintenant à parler sur le Psaume 18, qui apparaît également dans la deuxième Samuel, chapitre 22, sous le titre « Chant de David de la délivrance. » L’écrivain affirme que «le Seigneur l’avait délivré de la main de tous ses ennemis et de la main de Saül.
+
+Maintenant, ce psaume est important, car il montre David réalisant qu’il avait été placé dans une situation désespérée, tout d’abord par Saül, puis par les autres ennemis, et comment il a attribué à Dieu son salut de ses ennemis. Il y a des différences de langage entre ce chant tel qu’il apparaît dans le livre de Samuel, et tel qu’il est dans le Psautier, ce qui nous permet de comprendre, plus complètement, que les écrits de David ont été constamment revus par d’autres, si bien que les critiques sont souvent amenés à croire que ces Psaumes n’avaient pas été écrits par David. En outre, les thèmes que le roi traitait étaient fréquemment élargis et développés par les psalmistes qui ont vécu longtemps après lui, afin que ses pensées et émotions soient projetées, à travers ces hommes, dans des âges bien au-delà du sien, ce qui nous permet de percevoir l’influence énorme exercée, pendant des siècles,  par David,  sur la future pensée Hébraïque. C’est en reconnaissance de cette influence sur eux que les psalmistes ont écrit, ultérieurement, leurs chants sous le titre « Un Psaume de David. »
+
+Le chapitre 22 du Deuxième Samuel, peut très facilement être lu par quiconque a en sa possession une copie de l’ancien Testament, mais, pour mon but, ce soir, je tiens à citer certains de ces versets s’y trouvant :
+
+> « … Le Seigneur est mon rocher et ma forteresse, mon libérateur ; Le Dieu de mon rocher; en lui je place ma confiance: Dieu Est mon rocher, où je trouve un abri, Mon bouclier et la force qui me sauve, Ma haute retraite et mon refuge. O mon Sauveur ! Tu me protèges de la violence.  … Quand les flots de la mort m’ont entouré, Les torrents de la destruction m’ont épouvanté; Les liens du sépulcre m’ont entouré, Les filets de la mort m’ont surpris.…Dans ma détresse, j’ai invoqué l’Éternel, J’ai appelé et invoqué mon Dieu; De Son temple, il a entendu ma voix, Et mon cri est parvenu à Ses oreilles.  Il étendit sa main d’en haut, il me saisit, Il me retira des grandes eaux; Il me délivra de mon adversaire puissant, de mes ennemis qui étaient plus forts que moi.… » (2 Samuel 22: souffrances de l’enfer m’ont entouré : Les filets de la mort m’avaient surpris. Dans ma détresse, j’ai invoqué l’Éternel, J’ai crié à mon Dieu; De son temple, il a entendu ma voix, Et mon cri est parvenu devant lui à ses oreilles.… Il étendit sa main d’en haut, il me saisit, Il me retira des grandes eaux; Il me délivra de mon adversaire puissant, De mes ennemis qui étaient plus forts que moi.… : Car ils étaient trop forts pour moi. » (Psaumes 18 :  1-6, 16-17)
+
+Maintenant, je ne suis pas intéressé par ce travail, car mon objectif est plutôt de montrer l’amour de David pour le Père à travers ses écrits, tout comme j’ai montré sa gentillesse envers son peuple dans son comportement comme roi. Quelles que soient les différences, une chose se distingue nettement : sa confiance dans le Père en temps de détresse. Cette grande foi en Dieu s’est exprimée plusieurs fois dans ses Psaumes, et je le répète, il a été retravaillé, ultérieurement par d’autres psalmistes.
+
+L’un de ces Psaumes est le Psaume 22, qui a causé une émotion considérable et la confusion parmi les Chrétiens, car ils pensent que c’est une prophétie que David est censé avoir fait au sujet de ma crucifixion. En fait il est censé être une vision de cet événement dans ma vie :
+
+PSAUME 22 « Et moi  je suis un ver et non un homme ; L’opprobre des hommes et le méprisé du peuple. Tous ceux qui me voient se moquent de moi : Ils ouvrent la bouche, secouent la tête disant, Recommande-toi à l’Éternel !  L’Éternel le sauvera, Il le délivrera, puisqu’il l’aime ! … « Ne t’éloigne pas de moi quand la détresse est proche, Quand personne ne vient à mon secours ! » De nombreux taureaux sont autour de moi : Des taureaux de Basan m’environnent. Ils ouvrent leur gueule contre moi, Semblables au lion qui déchire et rugit.… Je suis comme l’eau qui s’écoule, et tous mes os se séparent : Mon cœur est comme de la cire ; Il se fond dans mes entrailles. Ma force se dessèche comme l’argile, Et ma langue s’attache à mon palais ; Tu me réduis à la poussière de la mort.… Car des chiens m’environnent, Une bande de scélérats rôdent autour de moi, Ils ont percé mes mains et mes pieds. Je pourrais compter tous mes os. Eux, ils observent, ils me regardent ;… Ils se partagent mes vêtements, Ils tirent au sort ma tunique.… » (Psaumes 22 : 6-8, 11-18)
+
+Maintenant, cela ressemble beaucoup à une prophétie, en particulier dans certains détails comme « compter ses os » le percement des mains et des pieds et le tirage au sort des vêtements. Cependant, l’écrivain s’est imaginé être à la place de David et a dépeint la situation critique du roi, plutôt que d’imiter la description de Jéhovah venant à l’aide de David dans le Psaume 18 (Chant de David de la Délivrance). Ici l’auteur s’est inspiré du Second Samuel, (chapitre 21), qui raconte la situation critique de David dans la bataille contre les Philistins :
+
+« Les Philistins firent encore la guerre à Israël. David descendit avec ses serviteurs, et ils combattirent les Philistins. David était fatigué. »
+
+« Et Ishbi-benob, qui était le fils du géant (Goliath de Gath)… il est ceint d’une nouvelle épée, censé avoir tué David. »
+
+> « Mais Abischaï, fils de Tseruja, vint au secours de David, frappa le Philistin et le tua.  … Alors les gens de David jurèrent, en lui disant: Tu ne sortiras plus avec nous pour combattre, et tu n’éteindras pas la lampe d’Israël.…» (2 Samuel 21 : 15-17)
+
+Ce moment de péril extrême, dans lequel David âgé ne trouvait plus la force de combattre activement, fut celui choisi par le Psalmiste pour dépeindre les peurs et les sentiments de David. L’écrivain, comme il était fréquent chez les anciens Hébreux, a utilisé des fantaisies poétiques et des images, comme celles des taureaux de Basan, qui, bien sûr, symbolisaient les forts soldats ennemis, ou d’être versé comme l’eau, autrement dit, complètement épuisé par l’effort, son cœur fondre dans ses entrailles, et sa langue, s’accrochant à sa mâchoire, ce qui signifie de plus en plus faible avec crainte et paralysé, de l’ennemi féroce les chiens l’encerclant, c’est-à-dire, prêt à livrer les coups finaux.
+
+Dans le même chapitre, l’histoire de la pendaison de la famille de Saül par les Gabaonites, tel qu’approuvée par David, a donné à l’écrivain l’idée du percement des mains et des pieds et le comptage des os, les os étant désarticulés, et le regard des spectateurs envers la victime. Saül et ses fils, y compris Jonathan, furent pendus, par les Philistins, après la bataille de Gilboa, quand ce dernier les trouvèrent leur de son retour après la bataille et dépouillèrent les morts de leurs vêtements. L’achèvement des blessés après le combat, le tirage au sort des vêtements et de l’armure de l’ennemi vaincu était une vieille coutume parmi ces personnes, comme parmi les Hébreux – comme cela fut pratiqué, pendant un millier d’années, si ce n’est plus, par les Romains. L’auteur de cette  soi-disant prédiction avait à l’esprit ce que David a dû penser s’il avait été tué et pendu par les Philistins. Il n’y avait aucune conception d’une crucifixion dans l’imagerie de l’écrivain et encore moins une prophétie de la mort du Messie.
+
+Jésus de la Bible et Maître des Cieux Célestes.
