@@ -11,10 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Mahatma Gandhi | [Ayez foi en nous, amis bien-aimés de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1958/fr-1-1958-anonymous-mahatma-gandhi/) |   1958
-André | [Tendre la main au Royaume des Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-2-1963-2-14-anonymous-andrew/) | 14 Février 1963
-Augustin | [Nous devons faire un plus grand effort pour recevoir de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-3-1963-4-15-anonymous-augustine/) | 15 Avril 1963
-Keea Atta Kem | [Demandez au Père d'ouvrir vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-4-1969-2-14-anonymous-keea-atta-kem/) | 14 Février 1969
+1969/fr-4-1969-2-14-anonymous-keea-atta-kem/) | 14 Février 1969
 Keea Atta Kem | [Soyez conscient de ce que vous dites. Soyez conscient de ce que vous pensez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-5-1969-2-24-anonymous-keea-atta-kem/) | 24 Février 1969
 Augustin | [Voici votre chance d'avancement - Voici la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-6-1969-2-24-anonymous-augustine/) | 24 Février 1969
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
