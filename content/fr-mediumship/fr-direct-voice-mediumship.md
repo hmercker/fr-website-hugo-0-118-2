@@ -9,6 +9,6 @@ weight: 680
 ---
 ### La médiumnité de la Voix Directe
 
-1. [La médiumnité de la Voix Directe]()
-2. [Le contexte du projet Voix Directe]()
-3. [Les messages relatifs au projet Voix Directe]()
+1. [La médiumnité de la Voix Directe](/fr-mediumship/fr-the-mediumship-of-direct-voice/)
+2. [Le contexte du projet Voix Directe](/fr-mediumship/fr-the-context-of-the-direct-voice-project/)
+3. [Les messages relatifs au projet Voix Directe](/fr-mediumship/fr-messages-about-the-direct-voice-project/)
