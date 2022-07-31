@@ -9,9 +9,11 @@ weight: 120
 ---
 ## La médiumnité
 
-1. [Les limites de la médiumnité](/fr-mediumship/fr-mediumship-good-or-bad/)
-2. [Les médiums de l'Amour Divin](/fr-mediumship/fr-divine-love-spiritual-mediums/)
-3. [Les médiums et la Bible](/fr-mediumship/fr-what-does-the-bible-say-about-mediumship/)
-4. [Les lois de Rpport et de Communication](/fr-mediumship/fr-the-laws-of-rapport-and-communication/)
-5. [La médiumnité de James Padgett](/fr-mediumship/fr-on-mediumship-and-james-padgett/)
-6. [Dr. Daniel G Samuels](/fr-mediumship/fr-dr-daniel-g-samuels-mediumship/)
+1. [Les limites de la médiumnité](/fr-mediumship/fr-the-limits-of-mediumship/)
+2. [Les médiums et la Bible](/fr-mediumship/fr-mediums-and-the-bibel/)
+3. [Les médiums de l'Amour Divin](/fr-mediumship/fr-mediums-of-divine-love/)
+4. [Le mécanisme de la médiumnité](/fr-mediumship/fr-the-mechanisms-of-mediumship/)
+5. [Les dangers de la médiumnité](/fr-mediumship/fr-the-dangers-of-mediumship/)
+6. [La reconnaisance de la vérité](/fr-mediumship/fr-the-recognition-of-truth/)
+7. [Les lois de Rpport et de Communication](/fr-mediumship/fr-the-laws-of-rapport-and-communication/)
+8. [La médiumnité de la Voix Directe](/fr-mediumship/fr-messages-about-the-direct-voice-project/)
