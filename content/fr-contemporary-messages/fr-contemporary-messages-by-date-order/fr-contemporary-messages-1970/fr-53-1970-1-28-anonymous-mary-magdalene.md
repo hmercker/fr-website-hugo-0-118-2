@@ -1,0 +1,22 @@
+---
+title: "L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix"
+menu_title: ""
+description: "L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix"
+date: 2022-06-01 06:00:01+00:121
+draft: False
+hidden: True
+weight:
+---
+### L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix
+
+Marie Madeleine - reçu le 28 Janvier 1970, Vancouver, Colombie-Britannique, Canada.
+
+Je suis si heureuse de venir vous saluer depuis les sphères Célestes de l'Esprit. Cela me fait plaisir de vous voir rassemblés et de savoir que vous avez le désir de servir Dieu. Marie, la mère de Jésus, est ici avec moi ce soir, ainsi que tant d'autres chers vieux amis. Je suis Marie-Madeleine. J'aime venir et être avec vous, et vous apporter toute l'aide que je peux. Je sais que vous attendez la Voix Directe et je voulais venir vous encourager. Je sais que vous appréciez que nous venions vous parler et que cela nous fait plaisir de venir vous parler et vous encourager. Nous devons travailler ensemble, tous ensemble, vous en tant que groupe joint à nous dans l'amour et l'harmonie. Nous faisons partie de votre groupe.
+
+Je suis très désireuse que nous développions la Voix Directe car je veux venir et me montrer telle que je suis car tous ne peuvent pas me voir ou m'entendre. Nous prions tous pour vous et nous vous aimons tant. Vous devriez aussi prier pour nous. Cela nous rapproche davantage lorsque vous priez pour nous et nous avons besoin de vos prières parce que nous désirons progresser tout autant que vous, et même plus, parce que vous constaterez qu'à mesure que vous progressez, votre désir de progression augmente en conséquence. Nous devons donc prier les uns pour les autres et nous aimer les uns les autres. Je suis si heureuse, et cela nous fait tellement plaisir de venir sur Terre et que les Terriens m'entendent et sachent que je leur parle et que je peux vous aider aussi. Si vous n'aviez pas de développement de l'âme, il ne serait pas possible pour moi de venir et pour les autres qui vous aiment tendrement de se rapprocher. Comme c'est merveilleux pour nous d'avoir l'occasion d'être avec vous, de vous aider dans le travail que vous faites et de vous faire sentir la force d'amour que nous vous apportons. Je tiens à vous remercier encore une fois pour les efforts que vous déployez pour le développement de votre âme.
+
+Vous ne vous rendez pas compte de l'utilité pour les autres du fait même que les progrès de votre âme et les émanations qui vibrent en vous affectent les autres lorsque vous vous approchez d'eux, même si vous ne dites pas un mot. Les émanations de votre corps pénètrent les individus avec lesquels vous entrez en contact et cela déclenche chez l'autre une réaction très utile. Ainsi, lorsque vous progressez, vous aidez également les autres, sans le savoir, parfois pour vous-mêmes. Les autres sont capables de puiser en vous. La paix, la force de guérison et la force d'amour, toutes ces émanations sortent de votre corps en permanence lorsque vous progressez dans l'Amour Divin de Dieu.
+
+Le saviez-vous, mes amis ? Le saviez-vous ? Que vous aidez ceux avec qui vous entrez en contact même si vous ne leur dites pas un mot. Vous nous avez entendu dire que votre lumière brillera dans l'Univers. Cette lumière dont nous parlons est une force vivante et une force vitale, une force pénétrante. C'est la lumière de Dieu qui éclaire le monde à travers vous mes amis et vous trouverez des gens qui désirent être proches de vous. Ils ne comprennent pas pourquoi. Ils désirent être en votre compagnie ou simplement entrer en contact avec vous et ni vous ni eux n'en comprennent la raison. Mais la raison est qu'ils ressentent les émanations qui viennent de vous. L'Amour de Dieu dans vos âmes qui vient de vous, l'Amour de Dieu dans vos âmes émane de vous et apporte aux autres la lumière et la paix. Alors mes chers, continuez dans votre progression et pensez aussi à prier pour nous qui vous aimons et vous guidons afin que nous puissions avoir un rapport étroit et travailler étroitement et avec amour les uns avec les autres.
+
+Que Dieu vous bénisse mes amis, que Dieu soit avec vous et que vous soyez conscients de Son amour qui coule dans vos âmes chaque jour, tout au long de la journée, pensez à l'Amour de Dieu qui coule dans vos âmes. Bonne nuit mes amis.
