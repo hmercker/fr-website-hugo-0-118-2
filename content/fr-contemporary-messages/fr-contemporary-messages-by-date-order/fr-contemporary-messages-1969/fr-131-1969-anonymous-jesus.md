@@ -10,3 +10,7 @@ weight:
 ### La plus grande bénédiction que l'homme puisse recevoir
 
 Jésus - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+
+Mes enfants, être conscients de votre mission dans la vie est tellement important pour vous et pouvoir venir comme cela et toucher la Source même de votre création est la plus grande bénédiction que l'homme puisse recevoir.
+
+Ce soir, je viens vous bénir et ouvrir cette merveilleuse réunion qui est sur le point d'avoir lieu. C'est seulement lorsqu'un groupe vient avec des désirs et des envies sincères, en donnant un grand amour et en attirant la plus grande bénédiction de toutes parmi nous, que nous pouvons venir à vous comme cela, mes enfants. Que Dieu vous bénisse.
