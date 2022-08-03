@@ -11,5 +11,10 @@ weight:
 
 Hélène Padgett - reçu par James Padgett le 8 Avril 1917, Washington, USA.
 
+C’est moi, ta vraie et bien aimée Hélène.
 
+Eh bien, mon cher, je viens te confirmer que Swedenborg t’a bien écrit, car je me rends compte que tu doutes qu’il l’ait vraiment fait. En fait, il a répondu à tes questions avec ses propres mots, et aucune pensée contenue dans ses réponses n’est venue de ton esprit. Luc a aussi écrit, et tu dois y croire.
 
+Bonne nuit et que Dieu te bénisse.
+
+Ta propre vraie et bien aimée Hélène.
