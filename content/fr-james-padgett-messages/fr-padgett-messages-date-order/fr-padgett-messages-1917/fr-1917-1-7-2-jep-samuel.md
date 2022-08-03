@@ -11,5 +11,10 @@ weight:
 
 Samuel - reçu par James Padgett le 7 Janvier 1917, Washington, USA.
 
+C’est moi, Samuel.
 
+Je ne dirai que quelques mots. Je suis heureux que Jean ait écrit de façon aussi encourageante, car cela vous fera du bien, et je tiens à étayer ce qu’il a dit. Vous pouvez chercher de meilleures conditions maintenant. Gardez seulement votre courage et ayez foi en ce que nous vous écrivons. Vous avez mon amour et mes bénédictions. Alors croyez en nous tous, et ne laissez pas les choses qui semblent insurmontables vous décourager.
 
+Je viendrai bientôt. Bonne nuit.
+
+Votre frère en Christ, Samuel.

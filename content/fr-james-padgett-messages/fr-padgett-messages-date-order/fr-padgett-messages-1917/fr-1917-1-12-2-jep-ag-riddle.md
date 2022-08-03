@@ -11,5 +11,8 @@ weight:
 
 Albert Riddle - reçu par James Padgett le 12 Janvier 1917, Washington, USA.
 
+C’est moi, A. G. Riddle.
 
+J’écris simplement pour expliquer que l’esprit qui prétend être un martyr espagnol est bien celui qu’il prétend être, et n’est pas un simple intrus qui raconte une histoire fictive. Eh bien, mon cher garçon, je te souhaite une bonne nuit.
 
+Ton vieil ami et frère, A. G. Riddle.

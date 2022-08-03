@@ -11,5 +11,10 @@ weight:
 
 La mère de Perry - reçu par James Padgett le 17 Février 1917, Washington, USA.
 
+Je suis, Mme Perry.
 
+J’ai entendu ce que M. Taggart vient de dire, et je sens que je dois aussi venir vous dire que mon fils a eu l’esprit et l’âme ouverts à la vérité, et qu’il est maintenant débarrassé de l’affreuse croyance qui le tenait dans les ténèbres, et il prie le Père avec toute la sincérité de son âme.
 
+Oh, mon ami, comment suffisamment vous remercier pour ce que vous avez fait ? Je ne peux pas, mais je peux prier pour vous, et je le ferai avec toute la sincérité de mon âme, et je sais que le Père vous bénira. Alors bonne nuit, et que Dieu vous bénisse.
+
+Votre amie, Mme Perry.
