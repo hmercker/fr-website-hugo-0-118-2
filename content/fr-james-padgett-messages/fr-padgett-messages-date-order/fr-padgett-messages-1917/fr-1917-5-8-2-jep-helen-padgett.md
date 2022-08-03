@@ -9,7 +9,10 @@ weight:
 ---
 ### Hélène commente le message de Jésus sur le travail de M. Padgett parmi les esprits sombres
 
-Hélène Padget - reçu par James Padgett le 8 Mai 1917, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 8 Mai 1917, Washington, USA.
 
+C’est moi, ta vraie et bien-aimée Hélène. Tu as eu, ce soir, un message du Maître que tu ne t’attendais pas à recevoir. Il t’éclairera considérablement sur le sujet sur lequel nous t’avons écrit plusieurs fois, mais que nous n’avons pas pu expliquer de façon satisfaisante car nous ne comprenons tout simplement pas nous-mêmes. Mais je pense que maintenant tu peux te faire une idée de la raison pour laquelle ce travail parmi les esprits des ténèbre est si important.
 
+Je n’écrirai pas plus maintenant.
 
+Ta propre vraie et bien-aimée Hélène.
