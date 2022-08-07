@@ -11,5 +11,12 @@ weight:
 
 Mme Eddy Baker - reçu par James Padgett le 13 Juin 1918, Washington, USA.
 
+Je désire écrire quelques lignes, car j’ai été intéressé par la conversation du Docteur et je veux lui exprimer mes remerciements quant à ses efforts pour éclairer un de mes disciples sur la vérité. Mon obligation est basée sur le fait que je reconnais les erreurs trompeuses de certains de mes enseignements, et que je suis responsable des croyances de nombreux mortels qui sont erronées et qui ont pour effet de les éloigner de la vérité. En outre, chaque fois que ceux qui ont embrassé les croyances que j’ai enseignées sont dirigés vers la lumière et qu’il leur est ainsi montré les erreurs de mes enseignements, je suis plus heureuse et soulagée des fardeaux que je porte avec moi — que mes enseignements éloignent tellement de personnes de la vérité. En tout cela, je me réfère à la grande question de l’Amour Divin et à la manière dont les mortels peuvent l’obtenir, devenir en harmonie avec le Père, et participer à Sa nature Divine et à son immortalité.
 
+J’ai examiné ces vérités depuis que je suis venu au monde des esprits, et je réalise, avec une grande conviction, que la réflexion de l’Amour Divin n’est pas la possession de ce mental qui ne vient qu’avec la possession de l’Amour du Père. *[Note : cette phrase n’a pas de sens et suggère que le rapport était affaibli, ce qui est confirmé par la phrase suivante]*. J’aimerais avoir le temps ce soir de vous écrire une lettre plus longue sur ce sujet, mais votre guide dit que vous n’êtes pas en état de recevoir une longue lettre et je dois m’arrêter.
 
+Permettez-moi d’exprimer l’espoir que vous et votre ami, chaque fois que l’occasion se présentera, essaierez d’éclairer mes disciples sur les vérités que vous connaissez, ainsi que sur les erreurs et le défaut de la véritable explication d’un salut que mes livres ne contiennent pas.
+
+Avec mon amour, je vous souhaite une bonne nuit.
+
+Mme Eddy.

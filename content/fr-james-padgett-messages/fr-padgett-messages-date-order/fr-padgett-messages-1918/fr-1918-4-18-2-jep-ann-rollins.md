@@ -11,5 +11,10 @@ weight:
 
 Anne Rollins - reçu par James Padgett le 18 Avril 1918, Washington, USA.
 
+C’est moi, ta grand-mère.
 
+Permet-moi de dire que j’ai entendu ce que le Maître a dit et que je me joins à lui pour te conseiller de maintenir ta foi et ton courage, car je sais ce que tu désires sera accompli et les moyens trouvés pour accomplir cette tâche et la mener à bien.
 
+Nous sommes tous avec toi, essayant de t’aider, et nous le ferons. Fais seulement ce que le Maître a dit et tu n’échoueras pas ni ne seras déçu à la fin. Crois que je t’aime beaucoup, que je suis souvent avec toi et que nous réussirons. Bonne nuit. Bonne nuit.
+
+Ta grand-mère.
