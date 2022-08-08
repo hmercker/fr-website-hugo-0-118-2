@@ -11,5 +11,8 @@ weight:
 
 Hélène Padgett - reçu par James Padgett le 15 Novembre 1918, Washington, USA.
 
+C’est moi, ta vraie et bien-aimée Hélène.
 
+Eh bien, mon cher, tu as travaillé dur ce soir, et tu as reçu un long message de John Wesley, et je ne te retiendrai donc pas longtemps. Je veux simplement dire que ton état s’est beaucoup amélioré, et nous sommes très certains que les messages peuvent maintenant être transmis sans trop de retard et avec une relative facilité. Nous t’envoyons notre amour et prions pour ton bonheur. Bonne nuit.
 
+Ta vraie et affectueuse Hélène.
