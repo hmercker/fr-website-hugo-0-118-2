@@ -11,7 +11,7 @@ weight:
 
 Francis Bacon - reçu par James Padgett le 20 Novembre 1918, Washington, USA.
 
-Je suis Francis Bacon.
+Je suis Francis Bacon. <sup id="a1">[1](#f1)</sup>
 
 J’ai été avec vous ce soir, lors de votre lecture, et j’ai été quelque peu intéressé par ce que James Hyslop a dit dans son article sur le Christianisme et le Spiritualisme, et beaucoup de choses qu’il avance sont vraies. Il explique de manière très satisfaisante pourquoi il est possible de croire à beaucoup de soi-disant miracles de la Bible. Comme il le dit, ils ne sont pas différents, dans la nature de leurs opérations ou dans l’exercice de la loi qui les a produits, des phénomènes physiques qui se manifestent en ce moment parmi les investigateurs du Spiritualisme. Et si, aujourd’hui, la même loi dans sa force qui fut mise en opération par Jésus et les disciples, pouvait opérée, les mêmes phénomènes ou phénomènes similaires se produiraient. Bien sûr, beaucoup dépend du médium et de la qualité du rapport qui peut être créé par l’esprit communicant ou plutôt opératoire, car il faut comprendre que tous les miracles supposés sont le résultat du travail des esprits qui, par l’harmonie existant entre eux et les mortels, ont pu mettre en application les lois nécessaires pour produire les résultats appelés miracles.
 
@@ -30,3 +30,6 @@ Ce matériel persiste à la mort ou à une destruction supposée, bien que la fo
 Eh bien, j’ai assez écrit, et j’ai le sentiment que vous me pardonnerez mon intrusion ; mais je me sens aussi quelque peu justifié pour avoir écrit comme je l’ai fait. Avec mes meilleurs souhaits.
 
 Votre ami Francis Bacon.
+<small>
+
+1. <large id="f1"> Francis Bacon, 1er vicomte St Alban (22 Janvier 1561 – 9 Avril 1626) fut un philosophe, homme d’état, scientifique, juriste, orateur, essayiste et auteur anglais. Il a été à la fois procureur général et Lord Chancelier d’Angleterre. Après sa mort, il est resté extrêmement influent par ses travaux, en particulier comme avocat philosophique et praticien de la méthode scientifique pendant la révolution scientifique. Bacon a été appelé le père de l’empirisme. Ses travaux ont plaidé pour la possibilité d’une connaissance scientifique basée uniquement sur l’observation inductive et attentive des événements de la nature. Plus important encore, il a fait valoir que cet objectif pourrait être atteint en utilisant une approche sceptique et méthodique par laquelle les scientifiques s’efforcent d’éviter de se tromper eux-mêmes. Bien que ses propres idées pratiques sur une telle méthode, la méthode de Bacon, n’a pas eu une influence durable, l’idée générale de l’importance et la possibilité d’une méthodologie sceptique fait de Bacon le père de la méthode scientifique. Cela a marqué un nouveau tournant dans le cadre rhétorique et théorique de la science, dont les détails pratiques sont encore au centre des débats actuels sur la science et la méthodologie. (Source : Wikipédia)[↩](#a1)

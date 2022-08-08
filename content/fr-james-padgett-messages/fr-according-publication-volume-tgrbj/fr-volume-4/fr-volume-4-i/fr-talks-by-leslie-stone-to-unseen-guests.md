@@ -28,7 +28,7 @@ A la fin de mon exposé, je prierai le Père Céleste, afin qu’Il vous envoie 
 
 Dans l’un des messages de Jésus qui a été écrit par M. Padgett, Jésus dit :
 
-> « C’est l’afflux de l’Amour Divin dans l’âme et la disparition de tout ce qui tend au péché et à l’erreur transformant l’âme en la Nature Divine du Père et l’unité avec Lui. »
+> C’est l’afflux de l’Amour Divin dans l’âme et la disparition de tout ce qui tend au péché et à l’erreur transformant l’âme en la Nature Divine du Père et l’unité avec Lui.
 
 Il n’y a qu’un seul moyen d’obtenir ce Grand Don Gratuit – de l’Amour Divin – dans l’âme. Vous devez prier pour cela avec la foi qui permet que les énergies de l’âme deviennent si actives dans leurs désirs ardents allant vers le Père et avec une telle intensité afin que l’âme s’ouvre à l’afflux de ce Grand Don d’Amour Divin, qui transforme l’âme en la Nature Divine du Père.
 

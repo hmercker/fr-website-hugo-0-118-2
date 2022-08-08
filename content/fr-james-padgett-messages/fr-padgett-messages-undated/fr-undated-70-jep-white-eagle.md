@@ -11,5 +11,8 @@ weight:
 
 Aigle Blanc - reçu par James Padgett, Washington, USA.
 
+C’est moi, Aigle Blanc.
 
+Vous êtes un homme bon, mais vous n’aimez pas mon traitement, comme je le vois. Laissez-moi essayer ce soir lorsque vous arrêterez d’écrire.
 
+Aigle blanc.

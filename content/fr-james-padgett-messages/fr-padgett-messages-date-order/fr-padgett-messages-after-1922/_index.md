@@ -19,7 +19,7 @@ Jésus | [Le Dr Stone reçoit l’instruction de Jésus de la Bible d’accepter
 Jésus | [La confiance de Ruth dans l’Amour du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/fr-1958-4-10-1-samuels-jesus/) | 10 Avril 1958
 James Padgett | [Edition du deuxième volume des messages](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/fr-1991-3-9-1-ks-james-padgett/) | 9 Mars 1991
 James Padgett | [James E. Padgett :  Message personnel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/fr-1997-10-21-1-dl-james-padgett/) | 21 Octobre 1997
-James Padgett & Dr Stone | [Promouvoir l’Amour entre nous](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/fr-2000-3-27-1-ar-james-padgett-dr-stone/) | 27 Mars 2000
+James Padgett & Dr Stone | [Promouvoir l’Amour entre nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-27-1-ar-james-padgett-dr-stone/) | 27 Mars 2000
 James Padgett | [Le deuxième avènement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/fr-2006-5-21-1-db-james-padgett/) | 21 Mai 2006
 James Padgett | [Le bon côté des choses](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/fr-2006-6-3-1-db-james-padgett/) | 3 Juin 2006
 James Padgett | [Le pouvoir de l'amour d'effacer les erreurs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/fr-2006-6-10-1-ks-james-padgett/) | 10 Juin 2006

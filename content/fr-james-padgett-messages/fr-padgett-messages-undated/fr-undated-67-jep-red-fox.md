@@ -11,5 +11,10 @@ weight:
 
 Renard Roux - reçu par James Padgett, Washington, USA.
 
+Je suis, Red Fox (Renard Roux).
 
+Je vous ai dit la vérité : je suis dans la troisième sphère et je suis un Indien heureux et encore plus heureux depuis que vous avez reçu l’Amour, car il nous rapproche davantage.
 
+Oui, je vous l’ai dit. Vous avez entendu ma voix, comme vous le faites souvent.
+
+Renard Roux.

@@ -11,5 +11,6 @@ weight:
 
 Anne Rollins - reçu par James Padgett, Washington, USA.
 
+Le Christ n’est pas seulement un Esprit du Père, mais il est aussi celui que Dieu a donné à Jésus lorsqu’il l’a oint pour sa mission terrestre. Jésus est seulement un fils de Dieu, et n’est pas Dieu ou une partie de Lui.
 
-
+Ta grand-mère.

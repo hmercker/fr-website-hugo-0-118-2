@@ -11,5 +11,12 @@ weight:
 
 Hélène Padgett - reçu par James Padgett, Washington, USA.
 
+C’est moi, Hélène.
 
+Mon cher Ned, tu en as assez écrit pour ce soir. Je veux te dire que je t’aime de tout mon cœur et de toute mon âme et que je t’ai tant aimé ce soir.
 
+J’étais avec toi dans le parc et j’ai capté toutes tes pensées d’amour et j’étais si heureuse.
+
+Maintenant, mon chéri, arrête pour ce soir et aime-moi comme tu l’as fait toute la soirée.
+
+Je suis ta véritable et bien-aimée, Hélène.
