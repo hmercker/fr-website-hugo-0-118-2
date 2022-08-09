@@ -14,9 +14,9 @@ weight: 200
 [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | [André](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | Joseph  
 ![](/fr-judas-of-kerioth-messages/fr-matthaeus_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-jakobus_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-lukas_small.jpg)  
 [St Matthieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-22-1-hr-st-matthew/) | Jacques le Jeune | St Luc  
-![](/fr-judas-von-kerioth-messages/fr-johannesmarkus_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-nathanael_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-simon_small.jpg)  
+![](/fr-judas-of-kerioth-messages/fr-johannesmarkus_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-nathanael_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-simon_small.jpg)  
 Jean Marc | [Nathanaël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-2-1-hr-judas/) | [Simon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-1-1-hr-judas/)  
-![](/fr-judas-von-kerioth-messages/fr-johanneszebedaeus_small.jpg) |   |    
+![](/fr-judas-of-kerioth-messages/fr-johanneszebedaeus_small.jpg) |   |    
 [Jean Zébédée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) |   |    
      
 *Le copyright de ces images appartient à Geoff Cutler 2013.*
