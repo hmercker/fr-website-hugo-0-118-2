@@ -9,6 +9,16 @@ weight: 200
 ---
 ## Portraits des apôtres
 
+Ces portraits sont le résultat de la communication entre le médium H. et Judas. Judas est capable de transmettre une image de chaque apôtre que H. est capable de reproduire. Il était initialement prévu de nommer cette section : *"Portraits des douze apôtres"* [Judas m'a gentiment réprimandé dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-29-1-hr-judas/), en me disant que le nombre des apôtres n'a jamais été limité à douze. Je suppose que j'aurais dû m'en douter, car je me suis rendu compte que Marie-Madeleine était l'une des plus proches disciples de Jésus.
+
+Des techniques informatiques modernes ont été utilisées pour construire ces portraits, souvent à partir d'un portrait similaire, un peu comme dans le cas de l'approche par kit d'identification de la police. Ce faisant, H. a reçu une formation artistique formelle et, dans sa jeunesse, il a gagné de l'argent de poche en copiant les grands maîtres, de sorte que la reproduction d'images gravées dans l'esprit n'est pas si difficile.
+
+Les noms affichés avec un lien hypertexte relient certains détails de ce disciple.
+
+Une description de Jésus, a été donnée par [Anne Rollins](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/). L'image de Jacques le Bailleur ci-dessous, est aussi remarquablement similaire, et Jacques était apparemment [si semblable à Jésus qu'il était souvent confondu avec lui](/fr-samuels-messages/fr-revelations/fr-rev-41-1955-3-3-41-samuels-jesus/). Une description très similaire a également [été donnée par Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-3-1-jep-st-john/). En 2018, un médium contemporain a reçu un message de Jésus contenant également [sa description lors de son passage sur terre](********11/04/2018******).
+
+Si vous êtes au courant des recherches scientifiques, vous savez également que le suaire de Turin a finalement été réévalué de manière exhaustive, et que les preuves, les preuves scientifiques, sont massivement en faveur de son authenticité. Cela étant, nous sommes heureux d'inclure une photo dérivée de l'image.
+
 ![](/fr-judas-of-kerioth-messages/fr-judas_small.jpg/)   |  ![](/fr-judas-of-kerioth-messages/fr-andreas_small.jpg/) |  ![](/fr-judas-of-kerioth-messages/fr-joseph_small.jpg/)  
 ---|---|---  
 [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | [André](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | Joseph  

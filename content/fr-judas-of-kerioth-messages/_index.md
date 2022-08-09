@@ -1,13 +1,13 @@
 ---
-title: "Messages de Judas"
-menu_title: "Messages de Judas"
+title: "Messages de Judas de Kerioth"
+menu_title: "Messages de Judas de Kerioth"
 description: ""
 date: 2020-06-28 15:43:52+00:00
 draft: False
 hidden: False
 weight: 30
 ---
-# Messages de Judas
+# Messages de Judas de Kerioth
 
 1.  [Consultation du livre de Judas](/fr-judas-of-kerioth-messages/fr-the-book-of-judas/)
 2.  [Liste des messages de Judas](/fr-judas-of-kerioth-messages/fr-judas-messages-by-date/)
