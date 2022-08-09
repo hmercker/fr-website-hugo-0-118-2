@@ -15,5 +15,5 @@ weight: 30
 4.  [Le ministère public de Jésus](/fr-judas-of-kerioth-messages/fr-the-public-ministry-of-jesus.md/)
 5.  [Les Sphères Spirituelles - la vie après la mort](/fr-judas-of-kerioth-messages/fr-the-spiritual-spheres-life-after-death/)
 6.  [Messages sur la Spiritualité en général](/fr-judas-of-kerioth-messages/fr-messages-on-spirituality-in-general/)
-7.  [Commentaires sur la médiumnité](/fr-judas-of-kerioth-messages/fr-comments-on-mediumship/)
+7.  [Commentaires sur les challenges de la médiumnité](/fr-judas-of-kerioth-messages/fr-comments-on-mediumship/)
 8.  [Portraits des apôtres](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/)
