@@ -1,7 +1,7 @@
 ---
 title: "Le chemin vers la vérité de l'amour éternel"
 menu_title: "Le chemin vers la vérité de l'amour éternel"
-description: ""
+description: "Le chemin vers la vérité de l'amour éternel"
 date: 2020-06-06 07:23:19+00:00
 draft: False
 hidden: False

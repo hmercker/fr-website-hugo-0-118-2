@@ -9,15 +9,15 @@ weight: 200
 ---
 ## Portraits des apôtres
 
-![](/judas-of-kerioth-messages/judas_small.jpg/)   |  ![](/judas-of-kerioth-messages/andreas_small.jpg/) |  ![](//judas-of-kerioth-messages/joseph_small.jpg/)  
+![](/fr-judas-of-kerioth-messages/fr-judas_small.jpg/)   |  ![](/fr-judas-of-kerioth-messages/fr-andreas_small.jpg/) |  ![](/fr-judas-of-kerioth-messages/fr-joseph_small.jpg/)  
 ---|---|---  
-[Judas](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2001/judas-hr-judas-20-august-2001/) | [Andreas](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/die-rueckkehr-nach-kpar-nahum-hr-judas-5-februar-2002/) | Joseph  
-![](/judas-of-kerioth-messages/matthaeus_small.jpg) |  ![](/judas-of-kerioth-messages/jakobus_small.jpg) |  ![](/judas-of-kerioth-messages/lukas_small.jpg)  
-[Matthieu](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2001/matthaeus-apostel-jesu-hr-matthaeus-22-november-2001/) | Jacques le Jeune | Luc  
-![](/judas-von-kerioth-botschaften/johannesmarkus_small.jpg) |  ![](/judas-of-kerioth-messages/nathanael_small.jpg) |  ![](/judas-of-kerioth-messages/simon_small.jpg)  
-Jean Marc | [Nathanael](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/nathanael-der-erste-juenger-hr-judas-2-februar-2002/) | [Simon](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/simon-der-zelot-hr-judas-1-april-2002/)  
-![](/judas-von-kerioth-botschaften/johanneszebedaeus_small.jpg) |   |    
-[Jean Zébédée](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/jesus-trifft-die-familie-des-zebedaeus-hr-judas-15-februar-2002/) |   |    
+[Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | [André](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | Joseph  
+![](/fr-judas-of-kerioth-messages/fr-matthaeus_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-jakobus_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-lukas_small.jpg)  
+[St Matthieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-22-1-hr-st-matthew/) | Jacques le Jeune | St Luc  
+![](/fr-judas-von-kerioth-messages/fr-johannesmarkus_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-nathanael_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-simon_small.jpg)  
+Jean Marc | [Nathanaël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-2-1-hr-judas/) | [Simon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-1-1-hr-judas/)  
+![](/fr-judas-von-kerioth-messages/fr-johanneszebedaeus_small.jpg) |   |    
+[Jean Zébédée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) |   |    
      
 *Le copyright de ces images appartient à Geoff Cutler 2013.*
 
@@ -27,14 +27,14 @@ Le linceul de Turin a fait l'objet d'études approfondies et des preuves scienti
 
 ## Le Suaire de Turin
 
-![](/judas-of-kerioth-messages/turin_face.jpg)
+![](/fr-judas-of-kerioth-messages/fr-turin_face.jpg)
 
 *Le copyright de cette image appartient à la personne qui l'a créée.*
 
 ## Autres personnalités
 
-![](/judas-of-kerioth-messages/pilate_small.jpg) |  ![](/judas-of-kerioth-messages/machiventa_small.jpg) |    
+![](/fr-judas-of-kerioth-messages/fr-pilate_small.jpg) |  ![](/fr-judas-of-kerioth-messages/fr-machiventa_small.jpg) |    
 ---|---|---  
-[Pilate](/aktuelle-botschaften/aktuelle-botschaften-in-reihenfolge-des-datums/aktuelle-botschaften-2002/die-politische-lage-im-jahre-26-n-chr-publius-pontius-pilatus-hr-judas-25-maerz-2002/) | Melchizédek |    
+[Pilate](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-1-hr-judas/) | Melchizédek |    
 
 *Le copyright de ces images appartient à Geoff Cutler 2013.*

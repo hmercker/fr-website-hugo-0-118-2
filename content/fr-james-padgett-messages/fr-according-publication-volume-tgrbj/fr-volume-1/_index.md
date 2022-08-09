@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume I des messages reçus par James Padgett
 
-![](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-1/paysage-du-canada.jpg)
+![](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-1/fr-paysage-du-canada.jpg)
 
 La première publication de ce volume de messages en anglais, a eu lieu en 1941. La première version française a été publiée en Janvier 2018. 77 années séparent donc ces deux éditions. Le temps est maintenant venu pour le public français de découvrir ces messages qui se révèlent comme étant très importants pour l’humanité. L’aspect matériel du monde est toujours très présent et domine largement notre vie quotidienne. Cependant nous vivons une ère de grands changements où beaucoup de nos repères spirituels habituels s’effondrent. **Plus que jamais, il devient donc essentiel de dépasser le cadre des institutions religieuses traditionnelles et de développer une relation personnelle avec notre Créateur. Le temps est venu de découvrir une véritable spiritualité.**
 

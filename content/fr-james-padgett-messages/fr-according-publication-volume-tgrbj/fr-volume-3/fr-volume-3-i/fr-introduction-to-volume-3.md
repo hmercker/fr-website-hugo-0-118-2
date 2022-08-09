@@ -21,7 +21,7 @@ C’est avec cette assurance que M. Padgett a continué de recevoir des messages
 
 Peu de temps après, Hélène découvrit que ses prières au Père pour Son Amour avaient été exaucées, dans la mesure où elle a écrit qu’elle avait accompli ce que M. Padgett avait voulu qu’elle fasse. Peu de temps après, elle passa vers la Troisième Sphère et exhorta M. Padgett, lui aussi, à rechercher l’Amour du Père pour également améliorer sa condition terrestre. Avec l’aide d’Hélène et les encouragements d’autres auteurs, surtout de Jésus lui-même, qui ont commencé à écrire sur cette époque, M. Padgett a reçu l’Amour du Père et cette condition d’âme qui lui a permis d’obtenir les nombreux et merveilleux messages qui sont maintenant imprimés dans les deux volumes des Nouvelles Révélations du Nouveau Testament de Jésus de Nazareth.
 
-Il y a un message très important d’Hélène « sur les différentes sortes d’amour » que j’ai choisi spécialement pour cette introduction au volume III.
+Il y a un message très important d’Hélène *« sur les différentes sortes d’amour »* que j’ai choisi spécialement pour cette introduction au volume III.
 
 Dr Leslie R. Stone
 
@@ -59,7 +59,7 @@ Je ne peux pas t’expliquer la profondeur, la hauteur et les merveilles de mon 
 
 Je serai avec toi tant que tu vivras sur terre, dans toute la plénitude de mon amour, et quand viendra le temps de ton passage, je serai présente. Tellement d’amour sera autour de toi que tu oublieras la mort et le réveil, tu sauras seulement que ton âme-sœur est avec toi pour te dire l’amour et le bonheur et les beautés de la vie qui seront les tiens, et te montrer dans quelle mesure cet amour peut faire de toi un esprit qui possède aussi l’Amour Divin.
 
-Eh bien mon cher, bébé est ici pour dire qu’elle a lu ce que j’ai écrit et qu’elle est si heureuse que tu m’aies pour âme sœur. Elle est très heureuse et grandit tout le temps en beauté et en possession de l’Amour du Père, et elle veut donc que tu cherches de plus en plus cet amour, et elle dit : « Comme papa est riche d’avoir l’amour âme sœur de ma merveilleuse mère et la certitude du grand amour du Père si seulement il le cherche ; et, de plus, ce qui peut ne pas compter pour beaucoup, il a l’amour de son Bébé qui est maintenant heureuse ».
+Eh bien mon cher, bébé est ici pour dire qu’elle a lu ce que j’ai écrit et qu’elle est si heureuse que tu m’aies pour âme sœur. Elle est très heureuse et grandit tout le temps en beauté et en possession de l’Amour du Père, et elle veut donc que tu cherches de plus en plus cet amour, et elle dit : *« Comme papa est riche d’avoir l’amour âme sœur de ma merveilleuse mère et la certitude du grand amour du Père si seulement il le cherche ; et, de plus, ce qui peut ne pas compter pour beaucoup, il a l’amour de son Bébé qui est maintenant heureuse »*.
 
 Et Marie dit que je ne dois pas négliger de dire qu’elle est ici aussi, qu’elle a lu mon message avec grand plaisir, et qu’elle veut que je dise au Dr. que s’il se substitue à toi à ta place, et à elle à ma place, pour lire la lettre, il connaîtra un peu son amour envers lui, que ce sera son âme sœur et ne pourra être celle de personne d’autre et elle essaie si souvent de le convaincre de son existence et de sa tendresse.
 
@@ -67,9 +67,7 @@ Tu as beaucoup écrit et je vais arrêter. Je suis si contente d’avoir pu écr
 
 Bonne nuit, mon cher Ned.
 
-Ta propre vraie et bien-aimée,
-
-Hélène.
+Ta propre vraie et bien-aimée, Hélène.
 
 J’ai choisi ce message parce qu’il est magnifique dans son contenu d’amour, aussi parce qu’il y est fait référence à ma Marie et à son amour pour moi. Croyez-moi quand je dis que je suis reconnaissant à Mme Hélène Padgett pour les nombreux messages merveilleux qu’elle m’a écrits et surtout pour le fait qu’elle a trouvé mon âme sœur pour moi, Mary Kennedy, qui a vécu près de ma maison en Angleterre. Bien que nous ne nous soyons jamais rencontrés sur terre, j’ai été béni par tant de son grand amour du monde des esprits pendant de nombreuses décennies de mes 90 années sur ce plan matériel. Je ressens sa présence chaque fois que j’ai besoin de force spirituelle et d’amour, et son amour pour moi s’exprime continuellement dans tous ses écrits, dont certains sont imprimés dans ce volume.
 
