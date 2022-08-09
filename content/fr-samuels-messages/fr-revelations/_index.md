@@ -15,7 +15,7 @@ weight: 100
 
 1°) Mécompréhension de la mission du Messie (laquelle continue de nos jours) :
 
-Lorsque Jésus a dit « Je suis dans le Père et le Père est en moi », Jésus n’a jamais voulu dire que Dieu le Père et lui-même formaient une seule et même personne. Le mot Christ représentait l’Amour Divin du Père. Sa mission avait pour but de montrer qu’une Nouvelle Naissance, par l’effusion de l’Amour du Père pour le salut éternel, était à portée de main. Ainsi, originellement, le Christianisme signifiait la Nouvelle Naissance.
+Lorsque Jésus a dit *« Je suis dans le Père et le Père est en moi »*, Jésus n’a jamais voulu dire que Dieu le Père et lui-même formaient une seule et même personne. Le mot Christ représentait l’Amour Divin du Père. Sa mission avait pour but de montrer qu’une Nouvelle Naissance, par l’effusion de l’Amour du Père pour le salut éternel, était à portée de main. Ainsi, originellement, le Christianisme signifiait la Nouvelle Naissance.
 
 2°) Le sacrifice de Jésus sur la croix n’est en aucun cas une source de salut pour l’humanité.
 
@@ -27,7 +27,7 @@ Jésus n’a jamais jeûné 40 jours dans le désert et n’a jamais dialogué a
 
 Jésus a enseigné que la noblesse de cœur résulterait du cœur transformé par l’Amour du Père pour ses enfants, lequel permettrait à ces enfants de résider dans les Cieux Célestes.
 
-5°) Introduction du 11ème commandement : « Aimez-vous les uns les autres, comme je vous ai aimés. »
+5°) Introduction du 11ème commandement : *« Aimez-vous les uns les autres, comme je vous ai aimés. »*
 
 Cette déclaration signifiait que, en tant que Messie, Jésus donnait un commandement qui devait être placé avec, et surtout au-dessus, des dix commandements de Moïse. Ce commandement était la Loi de l’Amour de Dieu.
 

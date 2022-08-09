@@ -13,23 +13,23 @@ weight: 110
 
 ### Les Sermons peuvent être regroupés autour de 5 thèmes principaux qui évoquent la transformation de l’âme humaine en une âme divine par la prière au Père pour son amour :
 
-1°) Le Nouveau Cœur dans l’Ancien Testament :
+#### 1°) Le Nouveau Cœur dans l’Ancien Testament :
 
 Cette transformation de l’âme humaine dans une âme divine par la prière au Père pour son Amour était, et est, le Nouveau Cœur, que les écrivains et les prophètes ont prédit dans l’Ancien Testament, et qui fut accompli par la venue de Jésus. Et cela signifiait que l’homme lui-même ne pouvait pas se purifier par ses propres moyens, mais qu’il pourrait le faire avec l’aide de Dieu.
 
-2°) La voie vers l’immortalité :
+#### 2°) La voie vers l’immortalité :
 
 Seul l’Amour de Dieu, effusé dans l’âme humaine à travers l’Esprit Saint en réponse au sérieux de la prière, peut susciter une transformation. Le Christianisme aujourd’hui, place son ultime confiance dans les Dix Commandements de Moïse pour la purification de l’âme humaine, mais il ne met pas en avant la puissance du Nouveau Cœur et la puissance de la prière au Père pour Son Amour. Aucun sang, qu’il s’agisse de celui de l’homme ou de celui de l’animal, n’a un effet rédempteur sur le péché de l’humanité, tel que cela est enseigné dans certaines églises. En conséquence le rite Chrétien de la messe, ou transsubstantiation, n’est pas une cérémonie voulue par Dieu. Jésus réaffirme également qu’il ne faut pas voir dans la vie du prophète Jérémie, et dans les souffrances qu’il a endurées en essayant d’amener les gens à une compréhension de leur situation désastreuse, une préfiguration de sa propre souffrance et surtout de sa crucifixion.
 
-3°) L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin :
+#### 3°) L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin :
 
 L’amour humain, qui a été implanté dans l’humanité par Dieu, fut l’ancêtre de ce sublime amour que le Père tient disponible pour ceux de ses enfants qui le demandent dans la prière fervente. On remarque cette évolution avec l’histoire d’Abraham, d’Esaü et de Jacob, de Joseph et de ses frères, de Naomi et sa belle-fille Ruth, du Roi David
 
-4°) La très grande noblesse de cœur et patience de David (13 Sermons consacrés à David et à ses psaumes).
+#### 4°) La très grande noblesse de cœur et patience de David (13 Sermons consacrés à David et à ses psaumes).
 
 David a été désigné comme un homme en recherche du Propre Cœur de Dieu. Ce fut précisément à cause de cette qualité de cœur, qu’il a pu, la plupart du temps, faire face aux conditions brutales qui régnaient alors.
 
-5°) L’Étude de l’Amour de Dieu révélé par les prophètes :
+#### 5°) L’Étude de l’Amour de Dieu révélé par les prophètes :
 
 La prise de conscience de l’Amour de Dieu pour Joseph, Ruth et le Roi David s’est poursuivie à travers les prophètes. Bien qu’Amos fût le premier prophète, ce fut l’étude d’Osée, qui souffrait des infidélités de son épouse Gomer, qui a permis à Jésus de réaliser que l’Amour de Dieu différait de l’amour humain et qu’il pourrait être possédé par l’homme.
 
