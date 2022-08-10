@@ -29,6 +29,8 @@ Ces messages ont été communiqués en plusieurs parties.
 
 #### Le 1er Octobre 2020 marque le début d'une collaboration spéciale entre Albert Fike et Jésus
 
+{{< figure src="fr-picture-of-jeanne-al-by-dennis_small.jpg" title="Jeanne et Albert Fike" >}}
+
 ![Albert et Jeanne Fike](/fr-jesus-of-nazareth-messages/fr-picture-of-jeanne-al-by-dennis_small.jpg)
 
 Albert et Jeanne Fike vivent au Canada dans le petit village côtier de Gibsons en Colombie Britannique. Albert est jardinier de profession mais est maintenant à la retraite tout comme Jeanne qui a fait sa carrière en tant qu’activiste pour les aides aux familles en situation précaire dans sa province natale. Depuis une décennie, ils ont dédié leur vie à la propagation du message de l’Amour Divin sur Terre. Albert Fike est particulierement doué pour la réception de messages en provenance des esprits célestes . Ils oeuvrent avec d’autres au sein d’une fondation non religieuse (divinelovesancturary.com) pour la dissémination des enseignements spirituels ainsi qu’à l’établissement de cercles et portail de lumiere pour supporter l’éveil de l’humanité et la transition vers un monde plus aimant.
