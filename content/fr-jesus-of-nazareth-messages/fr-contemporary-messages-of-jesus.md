@@ -9,5 +9,6 @@ weight: 230
 ---
 ## Messages Contemporains de Jésus
 
-**Auteur** | **Titre du message** | **Date du message**  
----|---|---
+1. [Années 1984-2000](/fr-jesus-of-nazareth-messages/fr-messages-jesus-years-1984-2000/)
+2. [Années 2001-2014](/fr-jesus-of-nazareth-messages/fr-messages-jesus-years-2001-2014/)
+3. [Années 2014 à nos jours](/fr-jesus-of-nazareth-messages/fr-messages-jesus-years-2014-to-present/)
