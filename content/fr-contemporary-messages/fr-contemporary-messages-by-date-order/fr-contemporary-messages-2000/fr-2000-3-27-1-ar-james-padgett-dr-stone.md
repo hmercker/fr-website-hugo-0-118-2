@@ -9,7 +9,7 @@ weight:
 ---
 ### Promouvoir l’Amour entre nous
 
-James Padgett & Dr Stone - reçu par Amada Reza le 27 Mars 2000, Washington, USA.
+James Padgett & Dr Stone - reçu par Amada Reza le 27 Mars 2000, Aptos, Californie, USA.
 
 *[Cher Dieu, je prie pour un afflux de Ton Amour Divin en ce moment, afin que je puisse être en relation avec Tes Anges Célestes qui nous guident et nous protègent. Je prie pour avoir la foi en la puissance de Ton Amour pour me transformer en une nouvelle création, née dans Ton Amour Divin. Par cet Amour dans mon âme, je peux être plus capable de m’élever du plan terrestre pour entrer en relation avec les esprits et les âmes des Esprits Célestes qui sont ici avec nous. Puissions-nous être protégés de l’influence des esprits inférieurs, afin qu’ils n’interfèrent pas avec cette transmission, et qu’ils soient instruits de Ton Don et de Ta Miséricorde. Je T’aime, cher Dieu, et je ne veux que faire Ta volonté. Si je peux être un instrument pour que les anges transmettent leurs pensées, utilise-moi comme tel. Merci, mon Dieu. Je Vous aime. Amen]*
 
