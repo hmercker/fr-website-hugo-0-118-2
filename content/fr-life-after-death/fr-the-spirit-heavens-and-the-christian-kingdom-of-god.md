@@ -1,15 +1,15 @@
 ---
-title: "Les Cieux Spirituels et le Royaume Chrétien de Dieu"
-menu_title: "Les Cieux Spirituels et le Royaume Chrétien de Dieu"
+title: "Les cieux spirituels et le royaume chrétien de dieu"
+menu_title: "Les cieux spirituels et le royaume chrétien de dieu"
 description: ""
 date: 2020-07-03 02:18:11+11:00
 draft: False
 hidden: False
 weight: 390
 ---
-## Les Cieux Spirituels et le Royaume Chrétien de Dieu
+## Les cieux spirituels et le royaume chrétien de dieu
 
-### Les cieux spirituels et le royaume de dieu Chretien
+### Les cieux spirituels et le royaume de dieu chretien
 
 Les Chrétiens orthodoxes qui arrivent sur cette page web pensent peut-être que le mot "ciel" est le mot souvent utilisé dans la Bible pour désigner le Royaume de Dieu. Ce n'est pas le cas. Ce diagramme peut aider à illustrer la construction de cet aspect des royaumes qui se trouvent au-delà de ce royaume matériel
 
