@@ -83,8 +83,8 @@ Judas | [La Quatrième Sphère](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [La cinquième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
 Judas | [La sixième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
 Judas | [La septième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
-no title
-no title
+Leytergus | [Les différences entre la Sixième Sphère et les Sphères Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-3-af-leytergus/) | 12 Septembre 2017
+Seretta Kem | [Une question sur la 7ème Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-4-af-seretta-kem/) | 14 Novembre 2017
 Yogananda | [Yogananda décrit son voyage à travers les Sphères.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-1-af-yogananda/) | 22 Novembre 2018
 no title
 Jésus | [Leçon 4 : Voyage à travers les sphères de l’esprit.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-22-1-af-jesus/) | 22 Octobre 2020
