@@ -5,7 +5,7 @@ description: ""
 date: 2020-07-03 02:18:11+11:00
 draft: False
 hidden: False
-weight: 390
+weight: 370
 ---
 ## Les cieux spirituels et le royaume chrétien de dieu
 
@@ -86,7 +86,7 @@ Judas | [La septième sphere](/fr-contemporary-messages/fr-contemporary-messages
 Leytergus | [Les différences entre la Sixième Sphère et les Sphères Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-3-af-leytergus/) | 12 Septembre 2017
 Seretta Kem | [Une question sur la 7ème Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-4-af-seretta-kem/) | 14 Novembre 2017
 Yogananda | [Yogananda décrit son voyage à travers les Sphères.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-1-af-yogananda/) | 22 Novembre 2018
-no title
+Copernic | [La mesure du temps sur Terre est très différente de celle des cieux célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/) | 2 Décembre 2019
 Jésus | [Leçon 4 : Voyage à travers les sphères de l’esprit.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-22-1-af-jesus/) | 22 Octobre 2020
 Barbara Davies | [Ma nouvelle maison et la vie dans l’esprit.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/) | 20 Janvier 2021
 Jésus | [Leçon 5 : Comparaison entre les Cieux Célestes et le paradis de l’amour naturel.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-29-1-af-jesus/) | 29 Octobre 2020

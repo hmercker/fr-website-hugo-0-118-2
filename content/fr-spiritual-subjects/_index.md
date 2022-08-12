@@ -14,3 +14,5 @@ weight: 100
 3. [Guérison et Miracles](/fr-spiritual-subjects/fr-healing-and-miracles/)
 4. [Anges](/fr-spiritual-subjects/fr-angels/)
 5. [Les Âmes Sœurs](/fr-spiritual-subjects/fr-soul-mates/)
+6. [Les Extra Terrestres](/fr-spiritual-subjects/fr-extra-terrestrials/)
+7. [Diverses prières](/fr-spiritual-subjects/fr-various-prayers/)

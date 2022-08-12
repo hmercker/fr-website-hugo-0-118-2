@@ -9,8 +9,7 @@ weight: 50
 ---
 ## L'essentiel du Message de Jésus
 
-1. [Jésus: le messager de l'Amour](/fr-the-key-points-of-jesus-messages/fr-jesus-a-message-of-love/)
-2. [La loi du pardon](/fr-the-key-points-of-jesus-messages/fr-the-law-of-forgiveness/)
+1. [Un résumé des enseignements de Jésus](/fr-the-key-points-of-jesus-messages/fr-a-summary-of-the-teachings-of-jesus/)
 3. [Jésus est un sauveur Spirituel](/fr-the-key-points-of-jesus-messages/fr-jesus-is-a-spiritual-savior-who-did-come-to-establish-a-physical-kingdom/)
 4. [Jésus n'est pas Dieu](/fr-the-key-points-of-jesus-messages/fr-jesus-is-not-god/)
 5. [Le sens de la crucifixion et le sens de la résurection](/fr-the-key-points-of-jesus-messages/fr-the-meaning-of-the-resurrection-and-of-reincarnation/)
