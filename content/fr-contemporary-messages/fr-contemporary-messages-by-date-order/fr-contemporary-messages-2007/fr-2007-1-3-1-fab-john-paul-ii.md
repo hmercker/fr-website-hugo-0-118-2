@@ -1,7 +1,7 @@
 ---
-title: "L'amour de Dieu et le pape"
+title: "Lamour de Dieu et le pape"
 menu_title: ""
-description: "L'amour de Dieu et le pape"
+description: "Lamour de Dieu et le pape"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True
