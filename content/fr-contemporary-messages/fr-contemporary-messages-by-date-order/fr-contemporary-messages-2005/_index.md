@@ -30,8 +30,7 @@ Marie | [Un don à Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-
 Mala | [La spiritualité des premiers Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-11-1-fab-mala/) | 11 Septembre 2005
 Jésus | [Gardez le message sur l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-7-1-ks-jesus/) | 7 Octobre 2005
 St Jean | [L'intelligence naturelle de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-9-1-ar-st-john/) | 9 Octobre 2005
-"Jésus | [Planter la graine
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-12-1-db-jesus/) | 12 Octobre 2005"
+Jésus | [Planter la graine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-12-1-db-jesus/) | 12 Octobre 2005
 Buddha | [Le Bouddha est très heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-1-fab-buddha/) | 7 Novembre 2005
 Leslie Stone | [Leslie Stone est très haut dans les Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-2-fab-leslie-stone/) | 7 Novembre 2005
 Jésus | [La Terre Mère réagit-elle à la négativité humaine ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-11-1-ks-jesus/) | 11 Novembre 2005

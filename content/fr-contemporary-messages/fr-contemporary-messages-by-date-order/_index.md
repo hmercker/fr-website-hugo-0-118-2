@@ -34,7 +34,6 @@ weight: 330
 | [2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/) |
 | [2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/) |
 | [2000](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/) |
-| [2000](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/) |
 | [1995-1999](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/) |
 | [1984-1994](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/) |
 | [1970](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/) |

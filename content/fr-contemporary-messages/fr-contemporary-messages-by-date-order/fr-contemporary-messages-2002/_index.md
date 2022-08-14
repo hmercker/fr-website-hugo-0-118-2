@@ -18,8 +18,7 @@ Judas | [Autres êtres et le but de ces messages](/fr-contemporary-messages/fr-c
 Judas | [La canalisation et l’influence des croyances enracinées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/) | 9 Janvier 2002
 Judas | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-11-1-hr-judas/) | 11 Janvier 2002
 Judas | [Construire l’harmonie avec humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-14-1-hr-judas/) | 14 Janvier 2002
-"John | [Le don du libre arbitre
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-14-2-wv-john/) | 14 Janvier 2002"
+John | [Le don du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-14-2-wv-john/) | 14 Janvier 2002
 Judas | [La Foi (suite)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-15-1-hr-judas/) | 15 Janvier 2002
 Tolkien | [Tolkien a remarqué que je lisais son livre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-17-1-pjr-tolkien/) | 17 Janvier 2002
 Judas | [Les sites Web et la diffusion de la Bonne Nouvelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-17-2-hr-judas/) | 17 Janvier 2002

@@ -35,7 +35,7 @@ Jésus | [Le moment éternel](/fr-contemporary-messages/fr-contemporary-messages
 Henry James Sr. | [Henry James Sr. fait l’expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-15-1-fab-henry-james-sr/) | 15 Juin 2006
 Roger Williams | [La liberté dans l’Amérique coloniale et dans le futur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-15-2-fab-roger-williams/) | 15 Juin 2006
 Jésus | [Jésus commente le message de Henry James](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-17-1-fab-jesus/) | 17 Juin 2006
-"Jésus | [ 	Jésus commente les messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-22-1-fab-jesus/) | 22 Juin 2006"
+Jésus | [Jésus commente les messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-22-1-fab-jesus/) | 22 Juin 2006
 Jésus | [Jésus commente le Mouvement Amour Divin/Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-27-1-fab-jesus/) | 27 Juin 2006
 Jésus | [Jésus commente la présence Juive dans les messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-3-1-fab-jesus/) | 3 Juillet 2006
 Emerson | [Emerson ne croit toujours pas à l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-15-1-fab-emerson/) | 15 Juillet 2006
@@ -43,10 +43,8 @@ Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messa
 Socrates | [Notre boussole intérieure supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
 St Pierre | [Les règles du jeu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-20-1-ks-st-peter/) | 20 Juillet 2006
 Inconnu | [Un avenir radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-24-1-ks-unknown/) | 24 Juillet 2006
-"Jésus | [Les plaisirs physiques sont bons
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-30-1-fab-jesus/) | 30 Juillet 2006"
-"Will Rogers | [La paix et l'amour sont assurés
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-3-1-fab-will-rogers/) | 3 Août 2006"
+Jésus | [Les plaisirs physiques sont bons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-30-1-fab-jesus/) | 30 Juillet 2006
+Will Rogers | [La paix et l'amour sont assurés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-3-1-fab-will-rogers/) | 3 Août 2006
 David Ben-Gurion | [Le conflit Israelo-Palestinien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) | 7 Août 2006
 George Bernard Shaw | [George Bernard Shaw a trouvé l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-13-1-fab-george-bernard-shaw/) | 13 Août 2006
 Pelagius | [Pelage est conforté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-24-1-fab-pelagius/) | 24 Août 2006
@@ -84,8 +82,7 @@ William Bradford | [Pensées d'un leader Pèlerin](/fr-contemporary-messages/fr-
 Jésus | [Souffrance, rédemption et croix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-19-1-fab-jesus/) | 19 Décembre 2006
 Franklin D Roosevelt | [F.D. Roosevelt parle sur ses expériences spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-1-fab-franklin-d-roosevelt/) | 20 Décembre 2006
 Franklin D Roosevelt | [F,D. Roosevelt parle sur ses expériences spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-2-fab-franklin-d-roosevelt/) | 20 Décembre 2006
-"George Washington | [Le fondateur de son pays apporte son soutien
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-3-fab-george-washington/) | 20 Décembre 2006"
+George Washington | [Le fondateur de son pays apporte son soutien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-3-fab-george-washington/) | 20 Décembre 2006
 Woodrow Wilson | [Le fondateur de son pays apporte son soutien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-4-fab-woodrow-wilson/) | 20 Décembre 2006
 Jésus | [La nature exacte des accusations portées au procès de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-21-1-fab-jesus/) | 21 Décembre 2006
 Jésus | [Guerre et paix et le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-22-1-fab-jesus/) | 22 Décembre 2006
