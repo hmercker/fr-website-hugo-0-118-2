@@ -12,17 +12,23 @@ weight:
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Marie | [La loi de compensation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-4-1-ar-mary/) | 4 Janvier 2001
+Jésus | [La guérison.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-18-1-ar-jesus/) | 18 Janvier 2001
 Esprit Céleste Elevé | [S’élever au-dessus du mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-1-ks-a-high-celestial-spirit/) | 23 Janvier 2001
-Josef | [Suivez le courant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-3-1-ks-joseph/) | 3 Février 2001
-St Jean | [L’autre vision](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-4-1-ar-st-john/) | 4 Février 2001
+Jésus | [La guérison (Suite).](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-1-ar-jesus/) | 23 Janvier 2001
+Joseph | [Suivez le courant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-3-1-ks-joseph/) | 3 Février 2001
+St Jean | [Laisse-toi aller et sois juste l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-4-1-ar-st-john/) | 4 Février 2001
+White Eagle | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
 Esprit Céleste Elevé | [Tendre l’autre joue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-24-1-ks-a-high-celestial-spirit/) | 24 Février 2001
 St Jean | [Comment être dans le monde, mais pas de lui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-3-11-1-ar-st-john/) | 11 Mars 2001
-Josef | [L’amour commence à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-3-22-1-ks-joseph/) | 22 Mars 2001
+Joseph | [L’amour commence à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-3-22-1-ks-joseph/) | 22 Mars 2001
 Marie | [L’Âme et ses Émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-3-24-1-ar-mary/) | 24 Mars 2001
 Marie | [Vérité ou Amour, lequel est le plus grand ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-4-26-1-ar-mary/) | 26 Avril 2001
 St Jean | [La vue et le son de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-13-1-ar-st-john/) | 13 Mai 2001
-Josef | [Karma de groupe et libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-18-1-ks-joseph/) | 18 Mai 2001
-Josef | [Suivre les conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-4-1-ks-joseph/) | 4 Juin 2001
+Joseph | [Karma de groupe et libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-18-1-ks-joseph/) | 18 Mai 2001
+Jésus | [Bijoux d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-30-1-ar-jesus/) | 30 Mai 2001
+Joseph | [Suivre les conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-4-1-ks-joseph/) | 4 Juin 2001
+Jésus | [Rrance Message de Jésus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-24-1-ar-jesus/) | 24 Juin 2001
+Jésus | [Prier pour la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-13-1-ks-jesus/) | 13 Juillet 2001
 St Jean | [Amour parfait = résultats parfaits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-15-1-ar-st-john/) | 15 Juillet 2001
 Swift Bear | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-17-1-Alfredo-swift-bear/) | 17 Juillet 2001
 Marie | [Grandir en amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-22-1-ar-mary/) | 22 Juillet 2001
@@ -64,7 +70,7 @@ Judas | [La cinquième sphere](/fr-contemporary-messages/fr-contemporary-message
 Judas | [La sixième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
 Judas | [La septième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
 Judas | [Divorce, les douze apôtres et les douze tribus d’Israël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-29-1-hr-judas/) | 29 Septembre 2001
-Josef | [La prière, la meilleure préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-30-1-ks-joseph/) | 30 Septembre 2001
+Joseph | [La prière, la meilleure préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-30-1-ks-joseph/) | 30 Septembre 2001
 Judas | [Parties innocentes au terrorisme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-1-1-hr-judas/) | 1 Octobre 2001
 Judas | [Joseph se marie avec Marie et retourne à Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-3-1-hr-judas/) | 3 Octobre 2001
 Judas | [Parallèles entre la Galilée à l’époque de Jésus et aujourd’hui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-3-2-hr-judas/) | 3 Octobre 2001
@@ -72,9 +78,11 @@ Judas | [La naissance de Jésus à Bethléem](/fr-contemporary-messages/fr-conte
 Judas | [La fuite en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-1-hr-judas/) | 5 Octobre 2001
 Judas | [Aide au suicide et symboles chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
 Judas | [La justification de la violence et les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-hr-judas/) | 6 Octobre 2001
+Jésus | [L'amour et la vérité doivent passer en premier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-ks-jesus/) | 6 Octobre 2001
 Judas | [L’éducation de Jésus en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) | 8 Octobre 2001
 Judas | [Le retour de Joseph et Marie à Nazareth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-9-1-hr-judas/) | 9 Octobre 2001
 Judas | [La situation politique en Galilée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-11-1-hr-judas/) | 11 Octobre 2001
+Jésus | [Jésus sur les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-11-1-ar-jesus/) | 11 Octobre 2001
 Judas | [Le livre d’Urantia, la Trinité et la canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-12-1-hr-judas/) | 12 Octobre 2001
 Judas | [L’unicité de la perception et l’objectif de l’harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-14-1-hr-judas/) | 14 Octobre 2001
 Judas | [Le jeune Jésus, Marie et Joseph sont de retour à Nazareth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-15-1-hr-judas/) | 15 Octobre 2001
@@ -97,10 +105,11 @@ Judas | [Les Esséniens, les Sadducéens et les rouleaux de la mer Morte](/fr-co
 Judas | [Le rôle des Pharisiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-19-1-hr-judas/) | 19 Novembre 2001
 Judas | [Les trois rois mages et l’étoile de Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-20-1-hr-judas/) | 20 Novembre 2001
 St Matthieu | [Matthieu, apôtre de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-22-1-hr-st-matthew/) | 22 Novembre 2001
+André | [ Surmonter les obstacles au voyage.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-23-1-ks-andrew/) | 23 Novembre 2001
 Judas | [Médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-26-1-hr-judas/) | 26 Novembre 2001
 Judas | [La médiumnité et l’esprit du mortel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-30-1-hr-judas/) | 30 Novembre 2001
 Marie | [S’opposer fermement à la violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-1-1-ar-mary/) | 1 Décembre 2001
-Josef | [Vivre dans l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-2-1-ks-joseph/) | 2 Décembre 2001
+Joseph | [Vivre dans l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-2-1-ks-joseph/) | 2 Décembre 2001
 Judas | [Que nous apprend la bible ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-3-1-hr-judas/) | 3 Décembre 2001
 Judas | [A Qui Jésus s’adressait-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-4-1-hr-judas/) | 4 Décembre 2001
 Judas | [Le danger de la médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-4-2-hr-judas/) | 4 Décembre 2001

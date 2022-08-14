@@ -23,7 +23,11 @@ weight: 330
 | [2013](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/) |
 | [2012](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/) |
 | [2011](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/) |
-| [2006-2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006-2010/) |
+| [2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/) |
+| [2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/) |
+| [2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/) |
+| [2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/) |
+| [2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/) |
 | [2005](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/) |
 | [2004](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/) |
 | [2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/) |

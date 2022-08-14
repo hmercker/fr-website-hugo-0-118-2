@@ -11,11 +11,14 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Rev Dave Lampron | [Une qualité de Dieu rarement mentionnée.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-dl-rev-dave-lampron/) | 22 Juin 2000
+Jésus | [Sur le suicide.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
 Marie | [Embrasser l’unicité des qualités de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-28-1-ar-mary/) | 28 Janvier 2000
 Joseph | [Joseph : Sur Joseph d’Arimathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph/) | 6 Février 2000
 Joseph | [Joseph : Le père de Jésus et Joseph d’Arimathie sont une seule et même personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/) | 9 Février 2000
 Marie | [Vous avez tous la capacité d’être un canal pour les énergies de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-27-1-ar-mary/) | 27 Février 2000
 Marie | [Message d’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-1-ar-mary/) | 5 Mars 2000
+Jésus | [Marchant sur l’eau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-1-ks-jesus/) | 5 Mars 2000
 St Jean | [Communication personnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-13-1-Alfredo-st-john/) | 13 Mars 2000
 Jésus | [Faire confiance aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-1-ks-jesus/) | 19 Mars 2000
 Marie et David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-1-ar-mary-david/) | 19 Mars 2000
@@ -25,6 +28,7 @@ Marie | [Vous êtes le cadeau de ce monde](/fr-contemporary-messages/fr-contempo
 Esprit Céleste Elevé | [Esprit, Amour et Perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-7-1-ks-a-high-celestial-spirit/) | 7 Avril 2000
 Joseph | [Prier pour l’Amour Divin sans avoir l’impression d’être un imposteur ; Quand reçoit-on l’immortalité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-9-1-ks-joseph/) | 9 Avril 2000
 Marie | [Avec l’amour, vous pouvez affronter tout mal avec confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-5-13-1-ar-mary/) | 13 Mai 2000
+Jésus | [La vérité qui est écrite dans votre âme doit être parlée dans toutes les langues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-4-1-ar-jesus/) | 4 Juin 2000
 Esprit Céleste Elevé | [Un Esprit Céleste Élevé : Conseil personnel ; sur les Premiers Parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-19-1-ks-a-high-celestial-spirit/) | 19 Juin 2000
 Jésus | [Message annuel de transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-25-1-ar-jesus/) | 25 Juin 2000
 André | [Conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-7-21-1-ks-andrew/) | 21 Juillet 2000
@@ -52,5 +56,6 @@ Esprit Céleste Elevé | [Bénédictions matérielles](/fr-contemporary-messages
 Esprit Céleste Elevé | [Chercher la vérité avec notre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-30-1-ks-a-high-celestial-spirit/) | 30 Novembre 2000
 Esprit Céleste Elevé | [Protection contre les blessures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-5-1-ks-a-high-celestial-spirit/) | 5 Décembre 2000
 Esprit Céleste Elevé | [La foi et comment découvrir la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-19-1-ks-a-high-celestial-spirit/) | 19 Décembre 2000
+Jésus | [Un message de Noël.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-25-1-ar-jesus/) | 25 Décembre 2000
 Marie | [Qu’est-ce que la Foi ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-28-1-ar-mary/) | 28 Décembre 2000
 Marie | [Âme, foi et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-30-1-ar-mary/) | 30 Décembre 2000
