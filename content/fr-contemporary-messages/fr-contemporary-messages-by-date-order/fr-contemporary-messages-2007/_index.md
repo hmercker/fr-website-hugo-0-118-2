@@ -25,8 +25,8 @@ Jésus | [Les plaisirs physiques et la spiritualité](/fr-contemporary-messages/
 Jésus | [Justice économique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-1-fab-jesus/) | 20 Janvier 2007
 Jésus | [Justice économique - 2ème partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-2-fab-jesus/) | 20 Janvier 2007
 Jésus | [La fermeture des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-3-fab-jesus/) | 20 Janvier 2007
-"Jésus | [ 	L’évolution du corps physique et les messages de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-4-fab-jesus/) | 20 Janvier 2007"
-"Jésus | [ 	Guerre et paix et le plan de Dieu Partie 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-5-fab-jesus/) | 20 Janvier 2007"
+Jésus | [L’évolution du corps physique et les messages de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-4-fab-jesus/) | 20 Janvier 2007
+Jésus | [Guerre et paix et le plan de Dieu Partie 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-5-fab-jesus/) | 20 Janvier 2007
 Jésus | [L'Amérique et la vérité spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-23-1-fab-jesus/) | 23 Janvier 2007
 Le père du médium | [Aide aux pays en difficulté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-23-2-fab-mediums-father/) | 23 Janvier 2007
 Aman | [Les premiers parents - une description physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-1-fab-aman/) | 24 Janvier 2007
