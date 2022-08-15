@@ -9,7 +9,7 @@ weight:
 ---
 ### Pourquoi Dieu permet que de mauvaises choses se produisent
 
-Marie - reçu par FALSE le 6 Août 1999FALSE.
+Marie - reçu par Amada Reza le 6 Août 1999, Aptos, Californie, USA.
 
 
 

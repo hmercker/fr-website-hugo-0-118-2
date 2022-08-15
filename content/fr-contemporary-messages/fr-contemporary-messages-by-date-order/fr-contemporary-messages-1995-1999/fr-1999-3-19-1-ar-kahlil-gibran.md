@@ -9,7 +9,7 @@ weight:
 ---
 ### Poésie
 
-Kahlil Gibran - reçu par FALSE le 19 Mars 1999FALSE.
+Kahlil Gibran - reçu par Amada Reza le 19 Mars 1999, Aptos, Californie, USA.
 
 
 

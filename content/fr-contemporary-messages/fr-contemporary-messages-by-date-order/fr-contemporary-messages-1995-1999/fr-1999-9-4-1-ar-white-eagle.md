@@ -9,7 +9,7 @@ weight:
 ---
 ### Les animaux et l’amour naturel
 
-White Eagle - reçu par FALSE le 4 Septembre 1999FALSE.
+White Eagle - reçu par Amada Reza le 4 Septembre 1999, Aptos, Californie, USA.
 
 
 

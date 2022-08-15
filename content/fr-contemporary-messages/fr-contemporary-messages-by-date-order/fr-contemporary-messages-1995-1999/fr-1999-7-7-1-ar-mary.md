@@ -9,7 +9,7 @@ weight:
 ---
 ### Sur l’autodéfense
 
-Marie - reçu par FALSE le 7 Juillet 1999FALSE.
+Marie - reçu par Amada Reza le 7 Juillet 1999, Aptos, Californie, USA.
 
 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La guérison par l’intermédiaire des guérisseurs spirituels
 
-White Eagle - reçu par FALSE le 3 Novembre 1999FALSE.
+White Eagle - reçu par Amada Reza le 3 Novembre 1999, Aptos, Californie, USA.
 
 
 

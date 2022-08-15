@@ -9,7 +9,7 @@ weight:
 ---
 ### Mental et spiritualité
 
-Joseph - reçu par FALSE le 4 Mars 1999FALSE.
+Joseph - reçu par Amada Reza le 4 Mars 1999, Aptos, Californie, USA.
 
 
 

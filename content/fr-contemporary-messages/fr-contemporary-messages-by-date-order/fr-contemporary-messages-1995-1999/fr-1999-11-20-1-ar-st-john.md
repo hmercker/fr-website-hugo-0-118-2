@@ -9,7 +9,7 @@ weight:
 ---
 ### Encourager Alfredo
 
-St Jean - reçu par FALSE le 20 Novembre 1999FALSE.
+St Jean - reçu par Amada Reza le 20 Novembre 1999, Aptos, Californie, USA.
 
 
 

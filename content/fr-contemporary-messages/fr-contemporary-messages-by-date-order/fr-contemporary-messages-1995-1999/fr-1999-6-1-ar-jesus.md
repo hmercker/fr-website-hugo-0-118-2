@@ -9,7 +9,7 @@ weight:
 ---
 ### Message annuel en transe
 
-Jésus - reçu par Amada Reza le Juin1999, Aptos, Californie, USA.
+Jésus - reçu par Amada Reza le Juin 1999, Aptos, Californie, USA.
 
 
 

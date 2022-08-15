@@ -9,7 +9,7 @@ weight:
 ---
 ### Sur le manque d’amour de soi de M___
 
-Marie & Jean - reçu par FALSE le 12 Novembre 1999FALSE.
+Marie & Jean - reçu par Amada Reza le 12 Novembre 1999, Aptos, Californie, USA.
 
 
 

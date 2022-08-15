@@ -9,7 +9,7 @@ weight:
 ---
 ### Message d’encouragement
 
-Marie & Jean - reçu par FALSE le 17 Décembre 1999FALSE.
+Marie & Jean - reçu par Amada Reza le 17 Décembre 1999, Aptos, Californie, USA.
 
 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Sur le don de la communication avec les esprits
 
-Marie - reçu par FALSE le 5 Août 1999FALSE.
+Marie - reçu par Amada Reza le 5 Août 1999, Aptos, Californie, USA.
 
 
 

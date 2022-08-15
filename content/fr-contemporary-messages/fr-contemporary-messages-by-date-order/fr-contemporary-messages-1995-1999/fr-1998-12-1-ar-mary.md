@@ -9,7 +9,5 @@ weight:
 ---
 ### L’ascension de Jésus et les prophéties de Daniel
 
-Marie - reçu par FALSE le  Décembre 1998FALSE.
-
-
+Marie - reçu par Amada Reza le  Décembre 1998, Aptos, Californie, USA.
 
