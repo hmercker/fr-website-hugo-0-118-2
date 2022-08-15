@@ -18,13 +18,13 @@ Joseph | [Joseph : Sur Joseph d’Arimathie](/fr-contemporary-messages/fr-contem
 Joseph | [Joseph : Le père de Jésus et Joseph d’Arimathie sont une seule et même personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/) | 9 Février 2000
 Marie | [Vous avez tous la capacité d’être un canal pour les énergies de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-27-1-ar-mary/) | 27 Février 2000
 Marie | [Message d’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-1-ar-mary/) | 5 Mars 2000
-Jésus | [Marchant sur l’eau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-1-ks-jesus/) | 5 Mars 2000
+Jésus | [Marchant sur l’eau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-2-ks-jesus/) | 5 Mars 2000
 St Jean | [Communication personnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-13-1-Alfredo-st-john/) | 13 Mars 2000
 Jésus | [Faire confiance aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-1-ks-jesus/) | 19 Mars 2000
-Marie et David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-1-ar-mary-david/) | 19 Mars 2000
+Marie et David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000
 James Padgett & Dr Stone | [Promouvoir l’Amour entre nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-27-1-ar-james-padgett-dr-stone/) | 27 Mars 2000
-Esprit Céleste Elevé | [Faits, noms, dates et divergences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-2-1-ks-a-high-celestial-spirit/) | 2 Avril 2000
 Marie | [Vous êtes le cadeau de ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-2-1-ar-mary/) | 2 Avril 2000
+Esprit Céleste Elevé | [Faits, noms, dates et divergences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-2-2-ks-a-high-celestial-spirit/) | 2 Avril 2000
 Esprit Céleste Elevé | [Esprit, Amour et Perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-7-1-ks-a-high-celestial-spirit/) | 7 Avril 2000
 Joseph | [Prier pour l’Amour Divin sans avoir l’impression d’être un imposteur ; Quand reçoit-on l’immortalité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-9-1-ks-joseph/) | 9 Avril 2000
 Marie | [Avec l’amour, vous pouvez affronter tout mal avec confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-5-13-1-ar-mary/) | 13 Mai 2000
