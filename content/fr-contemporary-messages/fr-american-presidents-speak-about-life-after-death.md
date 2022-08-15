@@ -11,3 +11,14 @@ weight: 345
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+
+
+Hi christian.
+can you see what I write here?
+Yes
+ok the repository is running fine.. all good.
+Why could finnaly clone The website and it was not possibe before ?
+I am not sure. Computers are a funny thing but at least we have it done now. So we are good to go. I am very excited about this.
+So now you have to explain me how to stage the files from Visual Studio
+ok. I will show you now how you get into the contemporary messages.
+The first thing is, I show you the individual message URL's that are created.
