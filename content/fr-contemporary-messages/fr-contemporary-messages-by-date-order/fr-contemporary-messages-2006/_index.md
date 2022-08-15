@@ -30,8 +30,8 @@ Cotton Mather | [Dieu regarde le cœur](/fr-contemporary-messages/fr-contemporar
 Nietzsche | [Nietzsche est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-28-1-fab-nietzsche/) | 28 Mai 2006
 James Padgett | [Les bonnes choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-3-1-db-james-padgett/) | 3 Juin 2006
 Marie | [L'étoffe de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-5-1-ar-mary/) | 5 Juin 2006
-James Padgett | [Le pouvoir de l’amour pour effacer les erreurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-10-1-ks-james-padgett/) | 10 Juin 2006
 Jésus | [Le moment éternel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-10-1-ar-jesus/) | 10 Juin 2006
+James Padgett | [Le pouvoir de l’amour pour effacer les erreurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-10-2-ks-james-padgett/) | 10 Juin 2006
 Henry James Sr. | [Henry James Sr. fait l’expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-15-1-fab-henry-james-sr/) | 15 Juin 2006
 Roger Williams | [La liberté dans l’Amérique coloniale et dans le futur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-15-2-fab-roger-williams/) | 15 Juin 2006
 Jésus | [Jésus commente le message de Henry James](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-17-1-fab-jesus/) | 17 Juin 2006

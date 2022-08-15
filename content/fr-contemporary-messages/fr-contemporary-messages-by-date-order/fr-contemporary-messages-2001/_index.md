@@ -13,8 +13,8 @@ weight:
 ---|---|---
 Marie | [La loi de compensation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-4-1-ar-mary/) | 4 Janvier 2001
 Jésus | [La guérison.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-18-1-ar-jesus/) | 18 Janvier 2001
-Esprit Céleste Elevé | [S’élever au-dessus du mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-1-ks-a-high-celestial-spirit/) | 23 Janvier 2001
 Jésus | [La guérison (Suite).](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-1-ar-jesus/) | 23 Janvier 2001
+Esprit Céleste Elevé | [S’élever au-dessus du mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-2-ks-a-high-celestial-spirit/) | 23 Janvier 2001
 Joseph | [Suivez le courant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-3-1-ks-joseph/) | 3 Février 2001
 St Jean | [Laisse-toi aller et sois juste l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-4-1-ar-st-john/) | 4 Février 2001
 White Eagle | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
@@ -77,12 +77,12 @@ Judas | [Parallèles entre la Galilée à l’époque de Jésus et aujourd’hui
 Judas | [La naissance de Jésus à Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-4-1-hr-judas/) | 4 Octobre 2001
 Judas | [La fuite en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-1-hr-judas/) | 5 Octobre 2001
 Judas | [Aide au suicide et symboles chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
-Judas | [La justification de la violence et les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-hr-judas/) | 6 Octobre 2001
 Jésus | [L'amour et la vérité doivent passer en premier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-ks-jesus/) | 6 Octobre 2001
+Judas | [La justification de la violence et les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-2-hr-judas/) | 6 Octobre 2001
 Judas | [L’éducation de Jésus en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) | 8 Octobre 2001
 Judas | [Le retour de Joseph et Marie à Nazareth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-9-1-hr-judas/) | 9 Octobre 2001
 Judas | [La situation politique en Galilée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-11-1-hr-judas/) | 11 Octobre 2001
-Jésus | [Jésus sur les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-11-1-ar-jesus/) | 11 Octobre 2001
+Jésus | [Jésus sur les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-11-2-ar-jesus/) | 11 Octobre 2001
 Judas | [Le livre d’Urantia, la Trinité et la canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-12-1-hr-judas/) | 12 Octobre 2001
 Judas | [L’unicité de la perception et l’objectif de l’harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-14-1-hr-judas/) | 14 Octobre 2001
 Judas | [Le jeune Jésus, Marie et Joseph sont de retour à Nazareth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-15-1-hr-judas/) | 15 Octobre 2001

@@ -28,7 +28,7 @@ Anonyme | [Rentrer à la maison avec confiance](/fr-contemporary-messages/fr-con
 Judas | [La foi des petits enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-22-1-hr-judas/) | 22 Janvier 2002
 Judas | [Les distorsions de l’histoire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-25-1-hr-judas/) | 25 Janvier 2002
 Judas | [La vision globale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-28-1-hr-judas/) | 28 Janvier 2002
-Jacques | [Seul l'Amour peut révéler la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-28-1-ks-james/) | 28 Janvier 2002
+Jacques | [Seul l'Amour peut révéler la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-28-2-ks-james/) | 28 Janvier 2002
 Judas | [Aider les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-29-1-hr-judas/) | 29 Janvier 2002
 Judas | [Foi, connaissance, compréhension et confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-30-1-hr-judas/) | 30 Janvier 2002
 Judas | [Nathanaël, le premier disciple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-2-1-hr-judas/) | 2 Février 2002
@@ -58,7 +58,7 @@ Judas | [Jésus et le baptême par l’eau](/fr-contemporary-messages/fr-contemp
 Judas | [La situation politique en 26 AD – Tiberius Claudius Nero](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-21-1-hr-judas/) | 21 Mars 2002
 Judas | [La situation politique en 26AD – Lucius Aelius Sejanus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-22-1-hr-judas/) | 22 Mars 2002
 Judas | [La situation politique en 26 AD – Publius Pontius Pilatus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-1-hr-judas/) | 25 Mars 2002
-Jésus | [Transformez votre espoir en foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-1-ar-jesus/) | 25 Mars 2002
+Jésus | [Transformez votre espoir en foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-2-ar-jesus/) | 25 Mars 2002
 Judas | [La situation politique en 26 AD – Publius Pontius Pilatus suite](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-26-1-hr-judas/) | 26 Mars 2002
 Judas | [La guérison du fils du maire de Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-27-1-hr-judas/) | 27 Mars 2002
 Judas | [La guérison du paralytique à Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-28-1-hr-judas/) | 28 Mars 2002

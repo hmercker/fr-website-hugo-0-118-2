@@ -19,8 +19,8 @@ Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messag
 Martin Luther King jr | [La Terre Promise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-12-1-fab-martin-luther-king-jr/) | 12 Janvier 2007
 Thomas Jefferson | [Un changement spirituel dans la politique américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-14-1-fab-thomas-jefferson/) | 14 Janvier 2007
 Thomas Jefferson | [Un changement spirituel dans la politique américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-14-2-fab-thomas-jefferson/) | 14 Janvier 2007
-St Jean | [Jean commente son Évangile et son enfance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-17-1-fab-st-john/) | 17 Janvier 2007
 Jésus | [L'attention du public aux messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-17-1-fab-jesus/) | 17 Janvier 2007
+St Jean | [Jean commente son Évangile et son enfance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-17-2-fab-st-john/) | 17 Janvier 2007
 Jésus | [Les plaisirs physiques et la spiritualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-18-1-fab-jesus/) | 18 Janvier 2007
 Jésus | [Justice économique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-1-fab-jesus/) | 20 Janvier 2007
 Jésus | [Justice économique - 2ème partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-2-fab-jesus/) | 20 Janvier 2007
