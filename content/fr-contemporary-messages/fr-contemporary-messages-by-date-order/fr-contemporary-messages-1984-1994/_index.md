@@ -29,7 +29,7 @@ Jésus | [Son église sur la Terre](/fr-contemporary-messages/fr-contemporary-me
 Jésus | [La loi de l'activation (Première partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-20-1-dl-jesus/) | 20 Mai 1987
 Jésus | [La loi de l'activation (Deuxième partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-28-1-dl-jesus/) | 28 Mai 1987
 Jésus | [La loi de l'activation (3ème partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-4-1-dl-jesus/) | 4 Juin 1987
-Jésus | [Notre mission éternelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-11-1-dl-jesus/) | 11 Juin 1987
+Jésus | [Notre ministère tout au long de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-11-1-dl-jesus/) | 11 Juin 1987
 Jésus | [Sur la loi du progrès, du hangemeny et de la Croissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-17-1-dl-jesus/) | 17 Juin 1987
 Jésus | [L'influence des mauavis esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-25-1-dl-jesus/) | 25 Juin 1987
 Jésus | [Sur la guérison, la loi changemenyt et la croissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-7-2-1-dl-jesus/) | 2 Juillet 1987
@@ -38,8 +38,7 @@ Jésus | [Le grand réseau de communication.](/fr-contemporary-messages/fr-conte
 Jésus | [Foi et guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-8-18-1-dl-jesus/) | 18 Août 1987
 Jésus | [Écriture automatique et impression de pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-8-31-1-dl-jesus/) | 31 Août 1987
 Jésus | [Qui est l'auteur de "Nouveaux enseignements pour une humanité en éveil" ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-9-9-1-dl-jesus/) | 9 Septembre 1987
-"Jésus | [Le levain de l'amour
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-11-12-1-dl-jesus/) | 12 Novembre 1987"
+Jésus | [Le levain de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-11-12-1-dl-jesus/) | 12 Novembre 1987
 Jésus | [Sans amour, je suis comme une cymbale qui tinye](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-17-1-dl-jesus/) | 17 Décembre 1987
 Jésus | [Le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-31-1-dl-jesus/) | 31 Décembre 1987
 Jésus | [La loi de l’équipoise et de l’équilibre.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-1-18-1-dl-jesus/) | 18 Janvier 1988
@@ -50,20 +49,17 @@ Jésus | [La vérité et le voyage vers la perfection](/fr-contemporary-messages
 Jésus | [Atlantis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-10-18-1-dl-jesus/) | 18 Octobre 1988
 Jésus | [l'humanité commence à voir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-16-1-dl-jesus/) | 16 Janvier 1989
 Jésus | [Un espoir pour l'âme perdue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-22-1-ks-jesus/) | 22 Janvier 1989
-"Jésus | [Le porteur de bonnes nouvelles
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-3-24-1-dl-jesus/) | 24 Mars 1989"
+Jésus | [Le porteur de bonnes nouvelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-3-24-1-dl-jesus/) | 24 Mars 1989
 Jésus | [L'importance de développer la nature d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-4-9-1-ks-jesus/) | 9 Avril 1989
-"Jésus | [ 	Le flux et reflux de l’Amour Divin.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-10-1-1-dl-jesus/) | 1 Octobre 1989"
+Jésus | [Le flux et reflux de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-10-1-1-dl-jesus/) | 1 Octobre 1989
 Jésus | [Pas à pas, le Royaume de Dieu se construit avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-10-1-1-ks-jesus/) | 1 Octobre 1989
-"Jésus | [La dissémination de la vérité et la réincarnation
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-1-10-1-dl-jesus/) | 10 Janvier 1990"
+Jésus | [La dissémination de la vérité et la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-1-10-1-dl-jesus/) | 10 Janvier 1990
 Jésus | [Gérer le legs d'une église](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-3-15-1-dl-jesus/) | 15 Mars 1990
 Jésus | [Confirmation de l'ordination](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-5-6-1-dl-jesus/) | 6 Mai 1990
 Jésus | [Insertions de volume](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-12-30-1-ar-jesus/) | 30 Décembre 1990
-"Jésus | [Présentation des volumes
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-12-30-1-ks-jesus/) | 30 Décembre 1990"
+Jésus | [Présentation des volumes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-12-30-1-ks-jesus/) | 30 Décembre 1990
 James Padgett | [Édition du deuxième volume des messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1991-3-9-1-ks-james-padgett/) | 9 Mars 1991
 Jésus | [Publication du volume II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1991-8-11-1-ks-jesus/) | 11 Août 1991
-Jésus | [es ondulations deviennent des vagues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1991-11-29-1-dl-jesus/) | 29 Novembre 1991
+Jésus | [Les ondulations deviennent des vagues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1991-11-29-1-dl-jesus/) | 29 Novembre 1991
 Jésus | [Au sujet des divers médiums](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1992-6-10-1-ks-jesus/) | 10 Juin 1992
 Marie Madeleine | [Communication personnelle.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1992-7-9-1-dl-mary-magdalene/) | 9 Juillet 1992

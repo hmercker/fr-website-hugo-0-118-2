@@ -20,7 +20,7 @@ Jésus | [Jésus répond à des questions sur Rembrant et Marc Chagall, donnant 
 Jésus | [Conseils sur la guérison... Commentaires sur les livres censés être écrits par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-2-1-1-ks-jesus/) | 1 Février 1997
 Jésus | [Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse...](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-4-1-1-ks-jesus/) | 1 Avril 1997
 Jésus | [Avancer dans ce monde et dans l'autre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-5-17-1-ks-jesus/) | 17 Mai 1997
-Jésus | [le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-6-1-dl-jesus/) | 6 Octobre 1997
+Jésus | [Le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-6-1-dl-jesus/) | 6 Octobre 1997
 Jacques | [Convaincre la famille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-21-1-dl-james/) | 21 Octobre 1997
 James Padgett | [L‘équipe d’anges qui travaille à développer les dons de chacun](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-21-2-dl-james-padgett/) | 21 Octobre 1997
 St Jean | [Message personnel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-21-3-dl-st-john/) | 21 Octobre 1997

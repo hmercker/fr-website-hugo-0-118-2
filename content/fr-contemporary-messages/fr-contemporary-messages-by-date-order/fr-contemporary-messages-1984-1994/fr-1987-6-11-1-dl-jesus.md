@@ -1,15 +1,25 @@
 ---
-title: "Notre mission éternelle"
+title: "Notre ministère tout au long de la vie"
 menu_title: ""
-description: "Notre mission éternelle"
+description: "Notre ministère tout au long de la vie"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True
 weight:
 ---
-### Notre mission éternelle
+### Notre ministère tout au long de la vie
 
 Jésus - reçu par Révérend Dave Lampron le 11 Juin 1987.
 
+Je suis maintenant ici pour écrire, mon cher frère en Christ, et je suis très heureux de vous apporter mes pensées et mes mots concernant la candidature de D.R.. Je voudrais tout d'abord dire qu'il a fait des progrès exceptionnels dans son cours d'étude, et que nous, dans les Cieux Célestes, avons suivi ses progrès avec grand intérêt, non seulement en termes d'études actuelles mais aussi en termes de développement de son âme au fil du temps. Et nous sommes heureux de dire que nous approuvons pleinement sa candidature ministérielle, car nous pensons qu'il fera un excellent ajout à notre force ministérielle sur terre.
 
+En vérité, la fin de ses études formelles actuelles n'est que le tout début de son ministère de toute une vie. Et par "toute une vie", je ne fais pas seulement référence à l'existence mortelle, mais aussi au travail qui lui reste à accomplir, ainsi qu'à vous tous, du côté spirituel de la vie. Car je suis sûr que vous savez tous, au fond de vos cœurs et de vos âmes, qu'une fois que l'on a fermement posé les pieds sur le chemin du service de notre Père aimant, il n'y a vraiment pas d'autre direction ni d'autre but que d'aller de l'avant et de progresser dans la poursuite de l'expiation complète avec Dieu.
 
+Ainsi, cher frère D____, nous vous souhaitons la bienvenue dans notre famille grandissante d'amour et de dévouement au Père, et dans le travail de diffusion de Ses Vérités à un monde en mal d'âme. Et, en fait, quand je dis "monde", j'inclus également le monde des esprits, car je sais que, comme nous, D_ voit aussi la nécessité de porter ce travail dans le monde des esprits. Et je l'encourage à poursuivre ses services spirituels à travers la lecture de nos messages et à travers les mots qu'il aimerait également exprimer à partir des désirs sincères de sa propre âme à ceux qui, dans la vie spirituelle, se sont égarés et qui sont à la recherche de quelqu'un qui puisse les mettre sur la bonne voie du salut et du bonheur de l'âme.
+
+Je sais qu'il est dit par beaucoup que les préoccupations de chacun devraient être orientées vers ce que l'on appelle l'ici et le maintenant - c'est-à-dire la vie terrestre et ses nombreux problèmes et défis. Mais il existe un vaste monde au-delà du monde matériel où les besoins de vos frères et soeurs sont tout aussi importants, et bien souvent encore plus importants que les besoins de ceux qui vivent sur le plan mortel. Ainsi, lorsque de bonnes âmes comme B. R. et D____ tendent la main avec leur cœur pour aider leurs frères et sœurs de notre côté de la vie, elles rendent un service d'une importance exceptionnelle. Il y a des myriades d'esprits qui ont besoin de conseils et de direction, et nous avons besoin de toute l'aide que nous pouvons obtenir pour tenter d'atteindre les âmes perdues avec la Lumière des Vérités du Père. Sans le désir de certains mortels de nous aider dans ce travail, de nombreux esprits pourraient continuer dans l'obscurité pendant de nombreuses années à venir. Car, comme vous le savez, aussi étrange que cela puisse paraître, beaucoup d'esprits, et surtout ceux qui sont passés récemment, comparativement parlant, n'écouteront pas les esprits supérieurs qui tentent de les conseiller. Conformément à la loi de l'attraction, ils sont beaucoup plus disposés à écouter les esprits de leur niveau, ou les mortels qu'ils considèrent encore comme ayant la plus grande parenté avec eux. Le problème, bien sûr, est que peu d'esprits et de mortels de leur propre niveau ont connaissance des vérités supérieures du Père, et les circonstances sont souvent réduites à un aveugle guidant un aveugle. Mais comme dans le cas d'Eugène Morgan, de M. Padgett et du Dr Stone, bien qu'ils aient été considérés comme ayant des liens de parenté avec leurs auditeurs spirituels en termes d'apparences superficielles - ou, en d'autres termes, comme des "compagnons mortels", pour ainsi dire - heureusement, pour ceux qui étaient attirés par ces trois hommes, ceux-ci représentaient ces quelques mortels exceptionnels qui possédaient la Vérité, et qui pouvaient conduire et conduisaient effectivement de nombreux esprits vers leur salut et leur bonheur.
+
+Eh bien, je me rends compte que je me suis quelque peu écarté de l'intention principale et du but de conférer mon approbation et ma bénédiction en accordant à D____ son ordination ministérielle, mais je n'ai pas perdu de vue cette intention initiale. Et j'ai eu le plaisir ce soir de venir vers vous et d'étendre mon approbation à D, comme je l'ai fait. Mes frères Célestes se joignent à moi pour accueillir D____ dans notre giron, et nous nous réjouissons de son progrès spirituel et de son service continu au Père et à tous Ses enfants dans le besoin. Et, bien sûr, lorsque je dis cela, vous devez comprendre que notre approbation est également soutenue par notre Père Céleste.
+
+Ainsi, mes chers collègues, nous sommes heureux qu'une autre personne se joigne à nous, et nous attendons avec impatience les jours à venir, lorsque notre nombre augmentera à pas de géant. Avec votre aide et toutes nos propres forces Célestes, si Dieu le veut, ce temps ne sera pas long à venir.
+Que Dieu vous bénisse tous est le souhait et la prière d'adieu de votre frère et ami, Jésus.
