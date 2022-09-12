@@ -27,10 +27,10 @@ St Jean | [La vue et le son de l’Amour](/fr-contemporary-messages/fr-contempor
 Joseph | [Karma de groupe et libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-18-1-ks-joseph/) | 18 Mai 2001
 Jésus | [Bijoux d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-30-1-ar-jesus/) | 30 Mai 2001
 Joseph | [Suivre les conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-4-1-ks-joseph/) | 4 Juin 2001
-Jésus | [Rrance Message de Jésus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-24-1-ar-jesus/) | 24 Juin 2001
+Jésus | [Trance Message de Jésus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-24-1-ar-jesus/) | 24 Juin 2001
 Jésus | [Prier pour la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-13-1-ks-jesus/) | 13 Juillet 2001
 St Jean | [Amour parfait = résultats parfaits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-15-1-ar-st-john/) | 15 Juillet 2001
-Swift Bear | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-17-1-Alfredo-swift-bear/) | 17 Juillet 2001
+Swift Bear | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-17-1-alfredo-swift-bear/) | 17 Juillet 2001
 Marie | [Grandir en amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-22-1-ar-mary/) | 22 Juillet 2001
 St Jean | [L’éducation des enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-29-1-ar-st-john/) | 29 Juillet 2001
 Jésus | [Entends ta voix intérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-17-1-hr-jesus/) | 17 Août 2001
