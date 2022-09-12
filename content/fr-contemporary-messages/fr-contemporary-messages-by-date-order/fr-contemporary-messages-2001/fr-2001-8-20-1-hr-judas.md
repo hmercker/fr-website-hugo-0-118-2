@@ -33,7 +33,8 @@ C’est alors que j’entendis la voix me dire : «Je veux te montrer que l’â
 
 *[Ensuite, je fus à nouveau seul, avec mon cœur qui battait terriblement …]*
 
-![](/fr-judas-of-kerioth-messages/fr-judas_small.jpg)
+![](/fr-judas-of-kerioth-messages/fr-judas.jpg)
+
 Judas
 
 Malheureusement, je ne sais pas qui est le titulaire du droit d’auteur original de cette photographie, l’image a cependant été modifiée par le médium, en utilisant un logiciel de manipulation d’image numérique, pour obtenir le résultat qu’il recherchait. Sur cette base, je pense qu’elle peut être publiée. Si l’image résultante laisse apparaître une ressemblance avec une personne vivante, cette ressemblance est fortuite. Geoff Cutler.

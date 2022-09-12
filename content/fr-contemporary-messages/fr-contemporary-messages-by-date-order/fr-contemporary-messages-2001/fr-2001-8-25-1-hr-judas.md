@@ -28,7 +28,8 @@ Jésus était un grand orateur, qui savait comment captiver l’attention du pub
 Maintenant, dans le cadre des nombreux messages qui ont été reçus au cours des derniers mois, je voudrais parler un peu de quelques-unes de ces célèbres paraboles de Jésus :
 
 > Vous êtes le sel de la terre; mais si le sel perd sa saveur, avec quoi le salera-t-on ?  Il n’est dorénavant plus bon à rien, mais destiné à être jeté dehors et foulé aux pieds par les hommes.
->
+<br>
+<br>
 > Vous êtes la lumière du monde. Une ville située sur une montagne ne peut pas être cachée. Personne, après avoir allumé une lampe, ne la couvre d’un vase, ou ne la met sous un lit ; mais il la met sur un chandelier, afin que ceux qui entrent voient la lumière. Que votre lumière luise ainsi devant les hommes, afin qu’ils voient vos bonnes œuvres, et qu’ils glorifient votre Père qui est dans les cieux.
 
 Les paraboles ont été raccourcies, leur valeur explicative a été perdue dans une certaine mesure et elles sont citées hors contexte.
