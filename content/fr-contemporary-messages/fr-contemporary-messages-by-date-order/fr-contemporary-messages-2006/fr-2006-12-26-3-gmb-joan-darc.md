@@ -9,7 +9,7 @@ weight:
 ---
 ### Et si je [Jeanne d’Arc] n’avait pas été exécutée ?
 
-Joan d'Arc - reçu par GMB le 26 Décembre 2006, Illawarra District, Australia.
+Joan d'Arc - reçu par George Barnard le 26 Décembre 2006, Illawarra ., Australia.
 
 
 
