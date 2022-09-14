@@ -211,7 +211,7 @@ John F Kennedy | [De grands projets sont en préparation](/fr-contemporary-messa
 Roi George VI | [Continuez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-2-af-king-george-vi/) | 14 Novembre 2017
 Winston Churchill | [On a besoin de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-3-af-winston-churchill/) | 14 Novembre 2017
 Seretta Kem | [Une question sur la 7ème Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-4-af-seretta-kem/) | 14 Novembre 2017
-Joan d'Arc | [S'avancer pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-1-af-joan-d'arc/) | 15 Novembre 2017
+Joan d'Arc | [S'avancer pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-1-af-joan-darc/) | 15 Novembre 2017
 Lao Tzu | [À la pointe du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-2-af-lao-tzu/) | 15 Novembre 2017
 Rumi | [Rumi parle de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-3-af-rumi/) | 15 Novembre 2017
 Thomas d'Aquin | [Beaucoup dans ce monde sont endormis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-4-af-thomas-aquinas/) | 15 Novembre 2017
