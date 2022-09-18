@@ -9,7 +9,7 @@ weight:
 ---
 ### Les principautés de l’air
 
-Jacques - reçu par Dr Samuels le pas de date, Washington, DC, USA.
+Jacques - reçu par Dr Samuels le 2 Novembre 1954, Washington, DC, USA.
 
 C’est moi, Jacques.
 

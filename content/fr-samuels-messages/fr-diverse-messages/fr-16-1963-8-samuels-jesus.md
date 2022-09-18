@@ -9,7 +9,7 @@ weight:
 ---
 ### Hanukka, Noël, Épiphanie, la deuxième célébration, 17 et 18 Décembre ; 24 et 25 Décembre ; 6 Janvier.
 
-Jésus - reçu par Dr Samuels le 1 Août 1963, Washington, DC, USA.
+Jésus - reçu par Dr Samuels le Août 1963, Washington, DC, USA.
 
 La Fête de la Dédicace du Temple, du 12 au 19 Décembre, est très proche de Noël, célébré chaque année le 25 Décembre, et je voudrais inclure et combiner les deux en une seule fête. La fête Hébraïque était célébrée chaque année le 25e jour de Kislev (novembre-décembre) pour commémorer la purification du Temple de Jérusalem du culte idolâtre du roi séleucide Antiochus (surnommé Épiphane, fils d’Antiochus IV) et sa re-dédicace par Judas Maccabée en 165 avant J.-C. (I Maccabés, chapitre 4, contre 56-59, et II Maccabés, chapitre 10, vers 1-8). En ce jour de fête et les sept jours suivants, les maisons de Jérusalem et d’autres lieux étaient illuminées et Flavius Joseph appela cette célébration la fête des Lumières (Jean, chapitre 10, versets 22-39 et Antiquités des Juifs, livre 12, chapitre 7, verset 7).
 

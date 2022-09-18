@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Sermon sur le vingt-troisième Psaume
 
-Jésus - reçu par Dr Samuels le  23 & 26 Mars et 2 Juin 1955, Washington, DC, USA.
+Jésus - reçu par Dr Samuels le 23 & 26 Mars et 2 Juin 1955, Washington, DC, USA.
 
 C’est moi, Jésus.
 

@@ -23,21 +23,21 @@ L'organisation des images des manuscrits est en outre ventilée par année et pa
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jacques | [Les principautés de l’air](/fr-samuels-messages/fr-diverse-messages/fr-1-1954-11-2-1-samuels-james/) | 2 Novembre 1954
-Jésus | [Jésus confirme les propos de Jacques](/fr-samuels-messages/fr-diverse-messages/fr-2-1955-6-23-2-samuels-jesus/) | 23 Juin 1955
+Jacques | [Les principautés de l’air](/fr-samuels-messages/fr-diverse-messages/fr-1-1954-11-2-samuels-james/) | 2 Novembre 1954
+Jésus | [Jésus confirme les propos de Jacques](/fr-samuels-messages/fr-diverse-messages/fr-2-1955-6-23-samuels-jesus/) | 23 Juin 1955
 Jésus | [Le Sermon sur le vingt-troisième Psaume](/fr-samuels-messages/fr-diverse-messages/fr-3-23-26-march-2-june-1955-samuels-jesus/) |  23 & 26 Mars & 2 Juin 1955
 Jésus | [Les fonctions du sacerdoce Hébreu](/fr-samuels-messages/fr-diverse-messages/fr-4-undated-samuels-jesus/) | pas de date
-Jésus | [De nombreux Hébreux se sont prénommés Jésus.](/fr-samuels-messages/fr-diverse-messages/fr-5-1959-3-13-5-samuels-jesus/) | 13 Mars 1959
-Jésus | [Le Dr Samuels est devenu un véritable enfant du Père](/fr-samuels-messages/fr-diverse-messages/fr-6-1954-10-28-6-samuels-jesus/) | 28 Octobre 1954
-Jésus | [L’instrumentalité du Dr Samuels sert un double objectif](/fr-samuels-messages/fr-diverse-messages/fr-7-1954-10-21-7-samuels-jesus/) | 21 Octobre 1954
-Jésus | [Il est dit au Dr Samuels que son travail actuel aboutira à un Évangile nouveau et corrigé pour l'humanité](/fr-samuels-messages/fr-diverse-messages/fr-8-1954-12-22-8-samuels-jesus/) | 22 Décembre 1954
+Jésus | [De nombreux Hébreux se sont prénommés Jésus.](/fr-samuels-messages/fr-diverse-messages/fr-5-1959-3-13-samuels-jesus/) | 13 Mars 1959
+Jésus | [Le Dr Samuels est devenu un véritable enfant du Père](/fr-samuels-messages/fr-diverse-messages/fr-6-1954-10-28-samuels-jesus/) | 28 Octobre 1954
+Jésus | [L’instrumentalité du Dr Samuels sert un double objectif](/fr-samuels-messages/fr-diverse-messages/fr-7-1954-10-21-samuels-jesus/) | 21 Octobre 1954
+Jésus | [Il est dit au Dr Samuels que son travail actuel aboutira à un Évangile nouveau et corrigé pour l'humanité](/fr-samuels-messages/fr-diverse-messages/fr-8-1954-12-22-samuels-jesus/) | 22 Décembre 1954
 Jésus | [L’Ancienne et la nouvelle Alliance](/fr-samuels-messages/fr-diverse-messages/fr-9-august-1955-samuels-jesus/) |  Août 1955
-Jésus | [Les Âmes à la création, le Développement et la Dématérialisation](/fr-samuels-messages/fr-diverse-messages/fr-10-25-july-1961-20-april-1962-samuels-jesus/) | 25 Juillet 1961 et 20 Aavril 1962
+Jésus | [Les Âmes à la création, le Développement et la Dématérialisation](/fr-samuels-messages/fr-diverse-messages/fr-10-25-july-1961-20-april-1962-samuels-jesus/) | 25 Juillet 1961 et 20 Avril 1962
 Jésus | [L’âme d’un Enfant](/fr-samuels-messages/fr-diverse-messages/fr-11-undated-samuels-jesus/) | pas de date
-Marie | [La naissance et la jeunesse de Jésus comme révélés par Marie, mère de Jésus](/fr-samuels-messages/fr-diverse-messages/fr-12-1905-5-16-12-samuels-mary/) | 16 Mai 1905
-Jésus | [Mariages civils, le divorce, l’adultère, le contrôle des naissances et l’avortement](/fr-samuels-messages/fr-diverse-messages/fr-13-1961-4-1-13-samuels-jesus/) | 1 Avril 1961
-Joseph | [Le Père de Jésus a été appelé Alphée par des écrivains évangéliques](/fr-samuels-messages/fr-diverse-messages/fr-14-1954-11-2-14-samuels-joseph/) | 2 Novembre 1954
-Jésus | [Chavouot – Pentecôte, Quatrième Célébration, Dimanche le plus proche du 50ème jour après le 2ème Samedi d’Avril](/fr-samuels-messages/fr-diverse-messages/fr-15-1963-8-1-15-samuels-jesus/) | 1 Août 1963
-Jésus | [Hanukka, Noël, Épiphanie, la deuxième célébration, 17 et 18 Décembre ; 24 et 25 Décembre ; 6 Janvier.](/fr-samuels-messages/fr-diverse-messages/fr-16-1963-8-1-16-samuels-jesus/) | 1 Août 1963
-Jésus | [Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre.](/fr-samuels-messages/fr-diverse-messages/fr-17-1963-8-1-17-samuels-jesus/) | 1 Août 1963
+Marie | [La naissance et la jeunesse de Jésus comme révélés par Marie, mère de Jésus](/fr-samuels-messages/fr-diverse-messages/fr-12-1963-samuels-mary/) | 1963
+Jésus | [Mariages civils, le divorce, l’adultère, le contrôle des naissances et l’avortement](/fr-samuels-messages/fr-diverse-messages/fr-13-1961-4-1-samuels-jesus/) | 1 Avril 1961
+Joseph | [Le Père de Jésus a été appelé Alphée par des écrivains évangéliques](/fr-samuels-messages/fr-diverse-messages/fr-14-1954-11-2-samuels-joseph/) | 2 Novembre 1954
+Jésus | [Chavouot – Pentecôte, Quatrième Célébration, Dimanche le plus proche du 50ème jour après le 2ème Samedi d’Avril](/fr-samuels-messages/fr-diverse-messages/fr-15-1963-8-samuels-jesus/) | Août 1963
+Jésus | [Hanukka, Noël, Épiphanie, la deuxième célébration, 17 et 18 Décembre ; 24 et 25 Décembre ; 6 Janvier.](/fr-samuels-messages/fr-diverse-messages/fr-16-1963-8-samuels-jesus/) | Août 1963
+Jésus | [Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre.](/fr-samuels-messages/fr-diverse-messages/fr-17-1963-8-samuels-jesus/) | Août 1963
 Jésus | [Les fêtes de Pâques et leur célébration commune le 2e samedi soir et dimanche d’Avril](/fr-samuels-messages/fr-diverse-messages/fr-18-sep-oct-1955-aug-oct-1962-may-june-1965-samuels-jesus/) | Septembre et Octobre 1955, Août et Octobre 1962, Mai et Juin 1965

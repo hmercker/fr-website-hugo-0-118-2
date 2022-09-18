@@ -9,7 +9,7 @@ weight:
 ---
 ### Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre.
 
-Jésus - reçu par Dr Samuels le 1 Août 1963, Washington, DC, USA.
+Jésus - reçu par Dr Samuels le Août 1963, Washington, DC, USA.
 
 Au sujet des fêtes à observer par l’Église de la Nouvelle Naissance, il ne s’agit pas d’instituer de nouveaux jours de fête, mais de clarifier la signification de ceux que nous possédons et de réinterpréter, à la lumière de l’Amour Divin, ceux que nous voulons conserver pour la célébration. Il y a aussi une question de dates, au sujet desquelles je propose d’exprimer mes pensées et mes désirs.
 

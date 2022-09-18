@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus confirme les propos de Jacques
 
-Jésus - reçu par Dr Samuels le pas de date, Washington, DC, USA.
+Jésus - reçu par Dr Samuels le 23 Juin 1955, Washington, DC, USA.
 
 C’est moi, Jésus.
 
