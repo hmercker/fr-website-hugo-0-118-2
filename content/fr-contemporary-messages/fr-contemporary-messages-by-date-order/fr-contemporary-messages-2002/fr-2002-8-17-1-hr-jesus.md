@@ -13,3 +13,4 @@ Jésus - reçu par H___  le 17 Août 2002, Cuenca, Équateur.
 
 
 
+© Geoff Cutler 2013
