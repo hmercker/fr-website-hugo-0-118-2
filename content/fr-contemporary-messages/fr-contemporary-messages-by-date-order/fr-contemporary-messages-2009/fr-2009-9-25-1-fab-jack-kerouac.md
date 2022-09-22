@@ -11,5 +11,11 @@ weight:
 
 Jack Kerouac - reçu par FAB le 25 Septembre 2009, Santa Cruz, Californie, USA.
 
-
-
+Je suis Jack Kerouac.
+J'ai découvert ici les profondeurs de mon incapacité à être sensible aux besoins des autres. Ce qui se profilait dans ma conscience était ma négligence envers ma fille Jan. C'était vraiment horrible. Mais j'étais un chercheur, et en cherchant, j'ai trouvé. Mes péchés n'étaient pas excusés - ils étaient remplacés par la grâce de l'Amour Divin.
+J'ai lu votre pensée. Vous savez comment j'ai traité les autres. Vous savez aussi que je suis alcoolique. Donc vous remettez en question votre canalisation.
+Eh bien, ne le faites pas. Ma vie m'appartient. Et j'ai progressé hors de la grande obscurité qui m'a accueillie. Je me noyais, et l'Amour Divin m'a sauvé. Que cela soit l'épitaphe de Jack Kerouac, et non l'abus des autres et de l'alcool qui m'a conduit à une tombe précoce et qui a garanti l'obscurité que je vois maintenant être inévitable.
+Chaque mot que vous avez canalisé de moi est exactement ce que je vous ai dit. Alors ne doute pas de vous. J'ai trouvé le bonheur et la paix dans l'Amour Divin parce que j'étais un chercheur.
+Ce qui m'attendait lorsque je me suis retrouvé ici fut inconcevable. J'avais su avant de mourir que j'avais fait fausse route. Mais je n'avais jamais imaginé que tout ce que j'avais fait et dit me reviendrait. C'était une horreur. Mais à côté de ma consommation d'alcool et de mon mépris insensible pour les autres, mon âme était vraiment en feu pour la vérité spirituelle. Oui, c'était autant ma réalité que la vie qui a mal tourné.
+Il m'a été lancé une bouée de sauvetage et je m'y suis accroché. Je suis fier de mon passage de l'obscurité à la lumière. J'avais la volonté de le faire, et je l'ai fait. Au début, c'était impossible. Tout me frappait en même temps. C'était un flot continu de souvenirs qui brûlaient comme du feu. Je n'avais pas prévu cela. Comme je vous l'ai dit précédemment, mes croyances bouddhistes ne m'ont pas aidé. Ce qu'on m'a dit sur l'Amour Divin l'était.
+Je suis donc un exemple vivant du fait, que ce monde spirituel démontre amplement que, quelle que soit la quantité de ténèbres dans l'âme d'un homme, Dieu est capable de le racheter.

@@ -112,4 +112,4 @@ Jimmy Stewart | [Jimmy Stewart fait le bilan de sa vie](/fr-contemporary-message
 Ida Tarbell | [Quelque chose de merveilleux à attendre avec impatience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-24-1-fab-ida-tarbell/) | 24 Décembre 2009
 Jésus | [Clarification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-25-1-fab-jesus/) | 25 Décembre 2009
 Jésus | [Clarification - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-1-fab-jesus/) | 28 Décembre 2009
-Woodrow Wilson | [La tristesse d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-2-fab-woodrow-wilson/) | 28 Décembre 2009
+Woodrow Wilson | [Le point de vue d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-2-fab-woodrow-wilson/) | 28 Décembre 2009

@@ -11,5 +11,5 @@ weight:
 
 Wat Tyler - reçu par FAB le 17 Février 2009, Santa Cruz, Californie, USA.
 
-
-
+Je suis là, Wat Tyler.
+Oui, j'ai utilisé le mot " aristocrate " parce que nous, les paysans, les considérions tous - propriétaires terriens, nobles, dirigeants politiques et clergé - comme un seul et même ennemi.

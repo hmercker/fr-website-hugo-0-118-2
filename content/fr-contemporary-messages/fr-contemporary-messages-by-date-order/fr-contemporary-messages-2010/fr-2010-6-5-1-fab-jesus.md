@@ -11,5 +11,5 @@ weight:
 
 Jésus - reçu par FAB le 5 Juin 2010, Santa Cruz, Californie, USA.
 
-
-
+C'est moi, Jésus.
+Permets-moi de développer ma canalisation du 13 mai 2010, Différentes Armes. Bien sûr, le contrôle politique et militaire est obtenu par l'économie.

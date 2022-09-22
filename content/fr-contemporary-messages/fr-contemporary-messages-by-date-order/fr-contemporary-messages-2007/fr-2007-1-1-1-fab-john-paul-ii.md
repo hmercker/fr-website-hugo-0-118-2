@@ -11,5 +11,11 @@ weight:
 
 Jean Paul II - reçu par FAB le 1 Janvier 2007, Santa Cruz, Californie, USA.
 
+Je suis là, le pape Jean-Paul II.
+Je sais que vous ne croyez pas comme moi. Je sais aussi que vous avez une très haute opinion de moi.
+Eh bien, je suis toujours engagé dans mes efforts en faveur de la paix et de la compréhension. J'ai vu très clairement qu'il est vital que les personnes ayant des croyances différentes apprennent à coopérer les unes avec les autres et à s'aimer, et que le seul moment où nous devrions protester est lorsque la liberté et la dignité sont menacées.
+Je sais que vous ne croyez pas en la plupart des positions conservatrices, en particulier les positions religieuses. Mais vous, comme tant d'autres, avez appris à vivre dans un monde où les gens ont des façons de penser et d'agir très différentes.
+Comme vous l'avez compris, ce message est un appel à la paix dans le monde. J'espère que mes adeptes pourront passer outre la condamnation de la médiumnité par l'Église catholique, bien que je sache que cela ne sera peut-être pas possible.
+Ici, je continue à soutenir mes croyances Catholiques. Il y a un Créateur qui nous aime et qui dirige les affaires des hommes.
 
-
+Le pape Jean-Paul II (18 mai 1920, Wadowice, Pologne - 2 avril 2005, Cité du Vatican) a régné en tant que pape de l'Église Catholique Romaine du 16 octobre 1978 jusqu'à sa mort plus de 26 ans plus tard, faisant de son pontificat le deuxième plus long des temps modernes après le règne de 31 ans de Pie IX. Il est le seul pape polonais à ce jour, et le premier pape non italien depuis le néerlandais Adrien VI dans les années 1520. Il est l'une des seules quatre personnes à avoir été nommées comme personnalité de l'année dans le Time 100 à la fois pour le 20e siècle et pour une année du 21e siècle. (Source : Wikipedia)

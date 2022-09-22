@@ -11,5 +11,8 @@ weight:
 
 Jésus - reçu par FAB le 21 Octobre 2006, Santa Cruz, Californie, USA.
 
-
-
+C'est moi, Jésus.
+J'ai dit par l'intermédiaire de M. Padgett, "leurs idées et croyances [des Juifs] sur la vie après la mort étaient très floues". Vous pensez que cela est en contradiction avec votre récente canalisation, dans "Jésus et le Talmud - l'âme et la vie après la mort", qui m'a fait dire, "les rabbins talmudiques avaient une compréhension remarquable de ces questions."
+J'ai utilisé le mot "remarquable" pour exprimer l'idée que les rabbins talmudiques étaient très en avance sur leur temps. Ils étaient en fait capables de se rapprocher de la compréhension de certaines réalités de l'au-delà. Mais comparé aux messages de Padgett, leur compréhension peut vraiment être considérée comme "floue".
+Je voulais leur donner le crédit d'avoir souvent été proches de comprendre ces choses. Mais malgré cela, ils n'avaient pas une idée claire, car aux brillantes prémonitions se mêlaient de nombreuses croyances erronées.
+Votre canalisation, donc, était exacte. Il s'agissait d'un hommage gracieux à mes coreligionnaires.

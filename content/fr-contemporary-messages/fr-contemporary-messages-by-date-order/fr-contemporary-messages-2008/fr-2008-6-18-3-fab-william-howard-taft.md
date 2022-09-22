@@ -11,5 +11,5 @@ weight:
 
 William Howard Taft - reçu par FAB le 18 Juin 2008, Santa Cruz, Californie, USA.
 
-
-
+C'est moi, William Howard Taft.
+Je me suis retrouvé avec certains de mes ennemis politiques, non pas parce que nous pensions de la même façon, mais parce que notre condition d'âme était la même. Et plus nous nous étions adonnés à la manière spécifiquement "politique" de nous comporter, plus nous trouvions nos destins ici-bas entrelacés.

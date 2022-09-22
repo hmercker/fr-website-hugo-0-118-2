@@ -9,7 +9,7 @@ weight:
 ---
 ###  Négativité héritée et péché originel
 
-Jésus - reçu par FAB le 21 Septembre 2010, Santa Cruz, Californie, USA.
+Jésus - reçu par FAB le 21 Septembre 2010, Berkeley, Californie, USA.
 
 
 

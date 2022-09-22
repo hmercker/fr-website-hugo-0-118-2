@@ -11,5 +11,6 @@ weight:
 
 Jésus - reçu par FAB le 7 Juillet 2009, Santa Cruz, Californie, USA.
 
-
-
+C'est moi, Jésus.
+Dans ma canalisation du 24 janvier 2009, L'avènement de la paix et de l'harmonie, j'ai dit que "l'élection de Barack Obama à la présidence était des plus improbables".
+Je faisais référence aux circonstances de son début de vie. Dieu était avec lui alors qu'il allait de triomphe en triomphe.

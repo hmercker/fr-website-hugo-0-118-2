@@ -11,5 +11,5 @@ weight:
 
 Madelyn Dunham - reçu par FAB le 17 Novembre 2008, Santa Cruz, Californie, USA.
 
-
-
+Je suis là, Madelyn Dunham. (La grand-mère de Barack Obama)
+Je n'ai pas été surprise par de nombreuses choses que j'ai récemment vécues ici. J'ai observé la victoire de mon petit-fils très clairement et fièrement, et ensuite j'ai été informée de l'activité étonnante ici, dirigée vers la terre - et j'ai pleuré de joie.

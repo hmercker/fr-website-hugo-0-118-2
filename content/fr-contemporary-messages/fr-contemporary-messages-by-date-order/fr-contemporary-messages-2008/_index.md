@@ -100,7 +100,7 @@ Jésus | [La joie et la foi de Jésus](/fr-contemporary-messages/fr-contemporary
 Hildegard of Bingen | [Une mystique médiévale exulte dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-7-1-fab-hildegard-of-bingen/) | 7 Août 2008
 Mary Shelley | [L'auteur de Frankenstein a trouvé l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-7-2-fab-mary-shelley/) | 7 Août 2008
 Bram Stoker | [L'auteur de Dracula a changé ses croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-1-fab-bram-stoker/) | 11 Août 2008
-Robert Louis Stevenson | [L'auteur de Dracula a changé ses croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-2-fab-robert-louis-stevenson/) | 11 Août 2008
+Robert Louis Stevenson | [Un auteur sur la nature du soi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-2-fab-robert-louis-stevenson/) | 11 Août 2008
 Eschyle | [Un dramaturge de la Grèce antique a trouvé la voie Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-12-1-fab-aeschylus/) | 12 Août 2008
 Pelage | [Pélage possède la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-12-2-fab-pelagius/) | 12 Août 2008
 Jésus | [La jeunesse de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-18-1-fab-jesus/) | 18 Août 2008
@@ -131,10 +131,8 @@ Marcel Proust | [Proust décrit son expérience avec la Madeleine](/fr-contempor
 Marcel Proust | [Proust et ses guides](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-7-1-fab-marcel-proust/) | 7 Octobre 2008
 Judy Garland | [Les tentatives de suicide de Judy Garland](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-judy-garland/) | 12 Octobre 2008
 Sarah | [La naissance d'Isaac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-2-fab-sarah/) | 12 Octobre 2008
-"John F Kennedy | [
-Les expériences d'un Kennedy en esprit
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-16-1-fab-john-f-kennedy/) | 16 Octobre 2008"
-John F Kennedy | [Les expériences d'un Kennedy en esprit - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-18-1-fab-john-f-kennedy/) | 18 Octobre 2008
+John F Kennedy | [Les expériences d'un Kennedy en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-16-1-fab-john-f-kennedy/) | 16 Octobre 2008
+John F Kennedy | [Les expériences d'un Kennedy en esprit - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-17-1-fab-john-f-kennedy/) | 17 Octobre 2008
 Milton Friedman | [Les souffrances d'un esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-23-1-fab-milton-friedman/) | 23 Octobre 2008
 Judy Garland | [Judy Garland partage son cœur - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-29-1-fab-judy-garland/) | 29 Octobre 2008
 Benjamin Franklin | [La Confédération iroquoise - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-9-1-fab-benjamin-franklin/) | 9 Novembre 2008
@@ -142,11 +140,11 @@ Jésus | [Le programme économique de Jésus](/fr-contemporary-messages/fr-conte
 Jésus | [Le programme économique de Jésus - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-9-3-fab-jesus/) | 9 Novembre 2008
 Jésus | [Le programme politique de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-12-1-fab-jesus/) | 12 Novembre 2008
 Jésus | [La Doctrine de choc et sa défaite](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-12-2-fab-jesus/) | 12 Novembre 2008
-Jésus | [Justice et jugement de valeur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-17-1-fab-jesus/) | 17 Novembre 2008
 Madelyn Dunham | [La fierté et la joie de la grand-mère de Barack Obama](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-17-2-fab-madelyn-dunham/) | 17 Novembre 2008
+Jésus | [Justice et jugement de valeur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-18-1-fab-jesus/) | 18 Novembre 2008
 Benjamin Franklin | [Imperfections des Pères fondateurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-22-1-fab-benjamin-franklin/) | 22 Novembre 2008
 Jésus | [Système économique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-22-2-fab-jesus/) | 22 Novembre 2008
-Jésus | [Le programme politique de Jésus - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-22-3-fab-jesus/) | 22 Novembre 2008
+Jésus | [Le programme politique de Jésus - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-25-3-fab-jesus/) | 25 Novembre 2008
 Jésus | [Indignation et ressentiment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-10-1-fab-jesus/) | 10 Décembre 2008
 Moctezuma II | [La tristesse d'un Empereur Aztèque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-13-1-fab-moctezuma-ii/) | 13 Décembre 2008
 Jésus | [Guerre et paix et le plan de Dieu Partie 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-1-fab-jesus/) | 14 Décembre 2008

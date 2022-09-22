@@ -11,5 +11,5 @@ weight:
 
 Jérémie - reçu par FAB le 16 Mai 2008, Santa Cruz, Californie, USA.
 
-
-
+Je suis là, Jérémie.
+J'étais une personne qui avait une indignation vertueuse. Je voyais des choses qui n'étaient pas bonnes, et je voulais qu'elles soient meilleures.

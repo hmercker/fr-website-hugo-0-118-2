@@ -11,5 +11,10 @@ weight:
 
 Louis XIV - reçu par FAB le 12 Juillet 2005, Santa Cruz, Californie, USA.
 
-
-
+Je suis, Louis XIV.
+Oui, c'est moi, le roi de France. Et oh, comme je regrette toutes les souffrances que j'ai causées par mes guerres ! Lorsque je suis venu ici, je n'étais plus le Roi-Soleil, mais un esprit tout nu, avec toute ma vanité et mes prétentions au pouvoir. L'illusion d'être le VIP de France s'est envolée, remplacée par la misère de réaliser que j'avais semé le pouvoir du monde pour lui-même, et donc récolté le malheur. Ce n'est pas littéralement le fait que je sois roi qui a causé ma souffrance. C'est le mauvais usage que j'ai fait de cette confiance sacrée. Lorsque j'ai réalisé tout le mal que j'avais causé, je n'ai pas pu le supporter, et pourtant j'y étais obligé. La loi était exacte et inexorable.
+Après un certain temps, j'ai réfléchi à certains enseignements Chrétiens, et ils m'ont vraiment aidé. Je suis maintenant un esprit heureux, bien que j'aurais pu être tellement plus heureux et éviter de longues années de douleur amère et de remords.
+Oh, ce que le Seigneur a prévu pour l'humanité est tellement merveilleux ! Acceptez tout, tant dans votre vie que dans le monde, et ayez une grande foi et confiance que tout est exactement comme cela doit être et doit être.
+Il y a une ÉNORME armée d'esprits qui se bat contre le Mal et les ténèbres, et nous vaincrons.
+Je vous remercie de votre bienveillance à l'égard de ce message.
+Sincèrement, Louis XIV, mais maintenant un esprit nu et humble.

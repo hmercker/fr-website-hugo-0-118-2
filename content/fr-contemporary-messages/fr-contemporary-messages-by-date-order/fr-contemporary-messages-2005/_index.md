@@ -17,9 +17,9 @@ Inconnu | [Vous ne pouvez pas vous tromper avec l'Amour Divin](/fr-contemporary-
 Stephen Foster | [Maladie mentale et musique dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-9-1-fab-stephen-foster/) | 9 Janvier 2005
 André | [L'or et l'argent vous entourent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-19-1-ks-andrew/) | 19 Janvier 2005
 Jésus | [La compassion et le don du choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-3-26-1-ar-jesus/) | 26 Mars 2005
-Jésus | [L'épanouissement comme attribut de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-5-7-1-ar-jesus/) | 7 Mai 2005
+Jésus | [L'épanouissement comme attribut de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-5-14-1-ar-jesus/) | 14 Mai 2005
 St Jean | [Le pays de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-5-22-1-ar-st-john/) | 22 Mai 2005
-St Pierre | [épandre la vérité par l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-5-23-1-ks-st-peter/) | 23 Mai 2005
+St Pierre | [Répandre la vérité par l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-5-23-1-ks-st-peter/) | 23 Mai 2005
 Aman | [La première expérience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-5-1-ar-aman/) | 5 Juin 2005
 Abraham Lincoln | [Abraham Lincoln et la Guerre.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/) | 30 Juin 2005
 Louis XIV | [Le malheur de Louis XIV](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-7-12-1-fab-louis-xiv/) | 12 Juillet 2005

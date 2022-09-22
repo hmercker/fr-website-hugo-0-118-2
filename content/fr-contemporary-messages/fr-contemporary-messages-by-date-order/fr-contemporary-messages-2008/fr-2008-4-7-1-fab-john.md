@@ -11,5 +11,6 @@ weight:
 
 John - reçu par FAB le 7 Avril 2008, Santa Cruz, Californie, USA.
 
-
-
+C'est moi, Jean.
+J'ai dit dans ma canalisation du 17 Janvier 2007 que je ne connaissais pas la pensée et la culture Grecques. Mais vous savez qu'il y avait une influence grecque en Terre Sainte à mon époque, en raison de la présence romaine.
+Eh bien, oui. C'est vrai. Mais nous, les Juifs, considérions que l'influence Grecque était étrangère et nuisible à notre religion et à nos traditions, et nous nous en sommes donc tenus à l'écart.

@@ -37,7 +37,7 @@ Jésus | [Armes différentes](/fr-contemporary-messages/fr-contemporary-messages
 Jésus | [Connaissance angélique de la nature humaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-22-1-fab-jesus/) | 22 Mai 2010
 Jésus | [L'Union Européenne - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-22-2-fab-jesus/) | 22 Mai 2010
 Jésus | [Les perceptions de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-23-1-fab-jesus/) | 23 Mai 2010
-Jésus | [éché Héréditaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-25-1-fab-jesus/) | 25 Mai 2010
+Jésus | [Péché Héréditaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-25-1-fab-jesus/) | 25 Mai 2010
 Jésus | [Circonstances inhabituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-27-1-fab-jesus/) | 27 Mai 2010
 Jésus | [Jésus parle de l'indignation vertueuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-30-1-fab-jesus/) | 30 Mai 2010
 John D Rockefeller | [Une perception différente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-4-1-fab-john-d-rockefeller/) | 4 Juin 2010
@@ -55,10 +55,11 @@ Jésus | [Jésus est né sans Péché et sans Défaut](/fr-contemporary-messages
 Pape Urbain II | [Les expériences du Pape urbain II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-17-1-fab-pope-urban-ii/) | 17 Août 2010
 Pape Urbain II | [Les expériences du Pape urbain II -2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-18-1-fab-pope-urban-ii/) | 18 Août 2010
 Saladin | [Les expériences d’un leader Musulman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-18-2-fab-saladin/) | 18 Août 2010
-Harry Truman | [Pensées d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-25-2-fab-harry-truman/) | 25 Août 2010
 Jésus | [L'Union Européenne - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-25-3-fab-jesus/) | 25 Août 2010
 Franklin D Roosevelt | [Franklin D. Roosevelt sur les complexités d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-1-fab-franklin-d-roosevelt/) | 26 Août 2010
-Jésus | [Foi et succès mondains](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-1-fab-jesus/) | 26 Août 2010
+Harry Truman | [Pensées d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-2-fab-harry-truman/) | 26 Août 2010
+Jésus | [L'Union Européenne - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-25-3-fab-jesus/) | 25 Août 2010
+Jésus | [Foi et succès mondains](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-27-1-fab-jesus/) | 27 Août 2010
 Emmett Till | [Affirmation afro-américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-30-1-fab-emmett-till/) | 30 Août 2010
 Benjamin Franklin | [La Confédération iroquoise - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-3-1-fab-benjamin-franklin/) | 3 Septembre 2010
 Jésus | [Optimisme en matière d'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-3-2-fab-jesus/) | 3 Septembre 2010
