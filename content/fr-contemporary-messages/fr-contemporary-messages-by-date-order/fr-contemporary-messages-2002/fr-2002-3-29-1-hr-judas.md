@@ -20,7 +20,7 @@ Un matin, au lever du soleil, alors que nous revenions de notre pêche nocturne,
 
 Lorsque nous sommes arrivés au rivage, nous avons échoué les bateaux et nous avons commencé à nettoyer nos filets. Concentrés sur ce travail et presque assoupis, nous avons à peine remarqué que des gens s’approchaient pour acheter du poisson, mais il y en avait peu à vendre.
 
-Soudain, Jésus est arrivé, plein d’énergie avec un visage radieux après un sommeil réparateur. Quand les gens le virent, ils le pressèrent immédiatement de questions : *« Maître, parlez-nous du RoyauEt Jésus commença à parler. Alors que toujours plus de gens arrivaient pour écouter ses paroles, car dans les autres bateaux il y n’avait pas non plus grand chose à acheter, ils poussaient de plus en plus Jésus vers le bord de l’eau, parce que tous voulaient être près de lui, jusqu’à ce qu’enfin, Jésus se mette à rire et à appeler Pierre :
+Soudain, Jésus est arrivé, plein d’énergie avec un visage radieux après un sommeil réparateur. Quand les gens le virent, ils le pressèrent immédiatement de questions : *« Maître, parlez-nous du Royaume des Cieux. »* Et Jésus commença à parler. Alors que toujours plus de gens arrivaient pour écouter ses paroles, car dans les autres bateaux il y n’avait pas non plus grand chose à acheter, ils poussaient de plus en plus Jésus vers le bord de l’eau, parce que tous voulaient être près de lui, jusqu’à ce qu’enfin, Jésus se mette à rire et à appeler Pierre :
 
 *« Simon, mon ami, fais-moi la faveur de mettre ton bateau à l’eau. Nous nous éloignerons ensuite un peu au large de la côte, afin que je puisse parler en paix. Les gens me jettent presque à l’eau. »*
 
@@ -76,7 +76,7 @@ Luc rapporte dans son Évangile :
 
 Il est vrai que l’histoire a beaucoup été embellie. Elle ne mentionne pas la réticence de Pierre. Toutefois, il est vrai que Pierre a été étonné et même plus, intimidé. Il avait vu beaucoup de choses que Jésus avait accomplies, même la résurrection de Thaddée à Naïm, mais maintenant, alors qu’il avait affaire à une simple « prise » de poisson, mais tellement abondante qu’il n’avait jamais vu cela jusqu’à présent dans sa vie, il fut témoin d’un miracle de la vie quotidienne. Il était un expert concernant le lac. Il savait qu’on ne pouvait pas pêcher avec succès le jour, et il savait que l’eau profonde au milieu du lac n’était pas le lieu approprié pour pêcher, et maintenant il faisait face à un miracle qu’il ne pouvait pas saisir dans son intégralité. Oui, Pierre, André et les autres pêcheurs professionnels ont été plus impressionnés que je ne le fus, parce que j’ai seulement compris que c’était une prise extraordinaire de poissons, mais je n’étais pas en mesure de saisir sa véritable portée.
 
-C’est la raison pour laquelle Pierre éprouvait de l’admiration envers Jésus, et c’est pourquoi il a prononcé les mots : « Seigneur, éloigne-toi de moi, parce que je suis un homme pécheur ».
+C’est la raison pour laquelle Pierre éprouvait de l’admiration envers Jésus, et c’est pourquoi il a prononcé les mots : *« Seigneur, éloigne-toi de moi, parce que je suis un homme pécheur »*.
 
 [Jésus a écrit au Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-18-6-9-13-22-december-1954-samuels-jesus/) :
 
