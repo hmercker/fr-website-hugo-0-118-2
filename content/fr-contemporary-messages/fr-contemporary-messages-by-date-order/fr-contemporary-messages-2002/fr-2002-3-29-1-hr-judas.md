@@ -49,7 +49,7 @@ Luc rapporte dans son Évangile :
 <br>
 <br>
 > Il monta dans l’une de ces barques, qui appartenait à Simon, et il le pria de s’éloigner un peu du rivage.  Puis il s’assit, et de la barque il enseignait la foule.
-<br> 
+<br>
 <br>
 > Quand il eut fini de parler, il dit à Simon: *« Avance là où l’eau est profonde et jette tes filets pour pêcher. »*
 <br>
