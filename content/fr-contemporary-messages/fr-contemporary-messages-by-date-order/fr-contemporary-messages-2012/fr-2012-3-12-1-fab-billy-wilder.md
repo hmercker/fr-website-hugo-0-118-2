@@ -9,7 +9,7 @@ weight:
 ---
 ### Billy Wilder à propos de Marilyn Monroe
 
-Billy Wilder - reçu par FAB le 12 Mars 2012, Santa Cruz, Californie, USA.
+Billy Wilder - reçu par FAB le 12 Mars 2012, Santa Cruz, Californie, USA
 
 C’est moi, Billy Wilder
 

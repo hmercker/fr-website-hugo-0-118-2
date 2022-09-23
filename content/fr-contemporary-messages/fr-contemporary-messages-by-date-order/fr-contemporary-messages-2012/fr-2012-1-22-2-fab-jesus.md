@@ -9,7 +9,13 @@ weight:
 ---
 ### Approbation de la publication des messages de Judas
 
-Jésus - reçu par FAB le 22 Janvier 2012, Santa Cruz, Californie, USA.
+Jésus - reçu par FAB le 22 Janvier 2012, Santa Cruz, Californie, USA
 
 
+C’est moi, Jésus.
 
+Dites à Geoff que je lui donne mon plein accord quant à la publication des messages de Judas.
+Avec tout mon amour pour ses fidèles efforts,
+
+Jésus,
+Maître des Cieux Célestes

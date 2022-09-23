@@ -9,7 +9,8 @@ weight:
 ---
 ### L’aide est en chemin
 
-Jésus - reçu par FAB le 30 Mars 2012, Santa Cruz, Californie, USA.
+Jésus - reçu par FAB le 30 Mars 2012, Santa Cruz, Californie, USA
 
 
 
+Je suis là, Jésus. Oui, l’aide de Dieu sera juste à temps, et l’humanité recevra de l’aide pour guérir de toute cette dévastation.
