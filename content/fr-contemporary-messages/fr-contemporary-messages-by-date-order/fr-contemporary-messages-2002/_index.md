@@ -18,14 +18,17 @@ Judas | [Autres êtres et le but de ces messages](/fr-contemporary-messages/fr-c
 Judas | [La canalisation et l’influence des croyances enracinées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/) | 9 Janvier 2002
 Judas | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-11-1-hr-judas/) | 11 Janvier 2002
 Judas | [Construire l’harmonie avec humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-14-1-hr-judas/) | 14 Janvier 2002
+John | [Le don du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-14-2-wv-john/) | 14 Janvier 2002
 Judas | [La Foi (suite)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-15-1-hr-judas/) | 15 Janvier 2002
 Tolkien | [Tolkien a remarqué que je lisais son livre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-17-1-pjr-tolkien/) | 17 Janvier 2002
 Judas | [Les sites Web et la diffusion de la Bonne Nouvelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-17-2-hr-judas/) | 17 Janvier 2002
 Judas | [Des empreintes dans le sable](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-17-3-hr-judas/) | 17 Janvier 2002
 St Jean | [Pas à pas, vous apprenez bien vos leçons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-21-1-ks-st-john/) | 21 Janvier 2002
+Anonyme | [Rentrer à la maison avec confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-21-2-mm-anonyme/) | 21 Janvier 2002
 Judas | [La foi des petits enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-22-1-hr-judas/) | 22 Janvier 2002
 Judas | [Les distorsions de l’histoire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-25-1-hr-judas/) | 25 Janvier 2002
 Judas | [La vision globale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-28-1-hr-judas/) | 28 Janvier 2002
+Jacques | [Seul l'Amour peut révéler la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-28-2-ks-james/) | 28 Janvier 2002
 Judas | [Aider les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-29-1-hr-judas/) | 29 Janvier 2002
 Judas | [Foi, connaissance, compréhension et confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-30-1-hr-judas/) | 30 Janvier 2002
 Judas | [Nathanaël, le premier disciple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-2-1-hr-judas/) | 2 Février 2002
@@ -49,11 +52,13 @@ Judas | [Marie Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-
 Judas | [Les démons et Marie Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-12-1-hr-judas/) | 12 Mars 2002
 Judas | [Le Son de Sa voix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-13-1-hr-judas/) | 13 Mars 2002
 Judas | [L’attitude de la famille de Jésus en l’an 26](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-15-1-hr-judas/) | 15 Mars 2002
+André | [Lâcher prise pour s'épanouir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-16-1-ks-andrew/) | 16 Mars 2002
 Judas | [L’histoire de Nicodème](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-18-1-hr-judas/) | 18 Mars 2002
 Judas | [Jésus et le baptême par l’eau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-19-1-hr-judas/) | 19 Mars 2002
 Judas | [La situation politique en 26 AD – Tiberius Claudius Nero](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-21-1-hr-judas/) | 21 Mars 2002
 Judas | [La situation politique en 26AD – Lucius Aelius Sejanus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-22-1-hr-judas/) | 22 Mars 2002
 Judas | [La situation politique en 26 AD – Publius Pontius Pilatus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-1-hr-judas/) | 25 Mars 2002
+Jésus | [Transformez votre espoir en foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-2-ar-jesus/) | 25 Mars 2002
 Judas | [La situation politique en 26 AD – Publius Pontius Pilatus suite](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-26-1-hr-judas/) | 26 Mars 2002
 Judas | [La guérison du fils du maire de Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-27-1-hr-judas/) | 27 Mars 2002
 Judas | [La guérison du paralytique à Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-28-1-hr-judas/) | 28 Mars 2002
@@ -85,6 +90,8 @@ Judas | [Vérité et fausses croyances – troisième partie](/fr-contemporary-m
 Judas | [Les femmes autour de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-22-1-hr-judas/) | 22 Mai 2002
 Judas | [Salomé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-28-1-hr-judas/) | 28 Mai 2002
 Judas | [L’Esclavage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-4-1-hr-judas/) | 4 Juin 2002
+Sam | [Retraite spirituelle - Hawaii](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-6-1-fab-sam/) | 6 Juin 2002
+Sam | [Retraite spirituelle - Hawaii2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-7-1-fab-sam/) | 7 Juin 2002
 Judas | [Mettre l’accent sur l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-19-1-hr-judas/) | 19 Juin 2002
 Judas | [La gueule de bois spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-25-1-hr-judas/) | 25 Juin 2002
 Judas | [La saison pour être seul](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-7-17-1-hr-judas/) | 17 Juillet 2002
@@ -97,6 +104,7 @@ André | [La foi non compromise](/fr-contemporary-messages/fr-contemporary-messa
 Judas | [Paul de Tarse et la Première Épître aux Corinthiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-15-1-hr-judas/) | 15 Août 2002
 Jésus | [L’année en réflexion, et la valeur de la simplicité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-17-1-hr-jesus/) | 17 Août 2002
 Judas | [La popularité des « révélations » absurdes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-20-1-hr-judas/) | 20 Août 2002
+Jésus | [La personne derrière le rideau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-9-2-1-ar-jesus/) | 2 Septembre 2002
 Joseph (AT) | [Joseph de l’Ancien Testament](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-10-30-1-fab-joseph-ot/) | 30 Octobre 2002
 Joseph (AT) | [Le seul Vrai Dieu des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-10-31-1-fab-joseph-ot/) | 31 Octobre 2002
 Joseph (AT) | [Joseph en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-1-1-fab-joseph-ot/) | 1 Novembre 2002
@@ -112,3 +120,4 @@ Joseph (AT) | [William Shakespeare dans le monde des esprits](/fr-contemporary-m
 Joseph (AT) | [Victor Hugo dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-28-1-fab-joseph-ot/) | 28 Décembre 2002
 Joseph (AT) | [Saint François dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-29-1-fab-joseph-ot/) | 29 Décembre 2002
 Moïse | [Moïse partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-30-1-fab-moses/) | 30 Décembre 2002
+Johann Sebastian Bach | [Les expériences de Johann Sebastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) | 31 Décembre 2002

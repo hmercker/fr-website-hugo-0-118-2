@@ -20,3 +20,5 @@ Lorsque nous acceptons notre relation avec Dieu comme la seule chose vraie qui i
 Les lois du monde spirituel, comme les lois du monde terrestre, sont telles qu’elles nous amèneront à la vérité, et la vérité est quelque chose que nous devons tenir en très haute estime comme quelque chose à rechercher avec chaque désir, chaque pensée et chaque action volontaire, et lorsque nous serons capables d’amener cette recherche dans nos vies éveillées et pensantes, alors nous trouverons l’aide et l’assistance qui est vraiment notre droit de naissance. Ne vous décevez pas en cherchant à trouver votre confort dans ce seul monde, mais sachez que vous êtes d’abord esprit et que vous devez honorer votre esprit ; c’est votre véritable moi et c’est là que vous trouverez les réponses et les capacités de percevoir la vérité.
 
 Je vous aime et j’espère que vous trouverez un certain réconfort dans ce message et bien que je n’aie pas répondu à une question spécifique, il peut satisfaire certaines questions qui ont été posées.
+
+Je suis votre sœur dans le Christ, Marie la mère de Jésus et votre amie et guide dans l’Amour Divin.

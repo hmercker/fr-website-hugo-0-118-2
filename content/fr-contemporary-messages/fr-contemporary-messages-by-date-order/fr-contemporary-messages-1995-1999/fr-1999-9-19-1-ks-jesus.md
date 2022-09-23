@@ -1,15 +1,40 @@
 ---
-title: "Le miracle de Fatima et l’Amour de Dieu"
+title: "Le soleil bondissant de Fatima"
 menu_title: ""
-description: "Le miracle de Fatima et l’Amour de Dieu"
-date: 2022-06-01 06:00:01+00:22
+description: "Le soleil bondissant de Fatima"
+date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True
 weight:
 ---
-### Le miracle de Fatima et l’Amour de Dieu
+### Le soleil bondissant de Fatima
 
-Jésus - reçu par FALSE le 19 Septembre 1999FALSE.
+Jésus - reçu par Kathryn Stokes le 19 Septembre 1999, Santa Cruz, Californie, USA.
 
+*[Cher Créateur, s'il te plaît, déverse tes bénédictions d'amour sur moi et aide-moi à mettre de côté mes pensées afin que je puisse être un canal clair pour un message de tes anges gardiens afin qu'ils puissent expliquer le "soleil rebondissant" vu par des milliers de personnes qui ont assisté au miracle promis par, soi-disant, Mère Marie, qui devait se produire un certain jour - quelque chose comme le 13 Octobre 1917.*
 
+*S'il vous plaît, Dieu, aidez-nous à mieux comprendre ce miracle si nos esprits raisonnants sont capables de saisir les explications. Protégez-moi des influences des esprits inférieurs. Je veux connaître la vérité. Je désire avoir une plus grande foi et me placer sous l'emprise de lois spirituelles supérieures. Merci pour toutes les bénédictions que tu nous accordes chaque jour. Amen.]*
 
+Je suis ici maintenant pour écrire, ma chère sœur en Christ, et je viens en réponse à votre question d'aujourd'hui sur le miracle du soleil à Fatima. Je suis votre ami et votre frère en esprit, Jésus de la Bible et Maître des Cieux célestes.
+
+Vous pouvez savoir maintenant que quelque chose d'"inhabituel" s'est certainement produit ce jour-là, comme promis par la soi-disant Vierge Marie, et comme en a été témoin la multitude. Et aussi, comme vous le savez, les lois spirituelles supérieures ont un pouvoir sur les lois matérielles inférieures, c'est pourquoi les gens appellent ces événements des "miracles" parce qu'ils ne rentrent pas dans le cadre du raisonnement matériel normal.
+
+Il est assez difficile de décrire le fonctionnement des lois spirituelles à l'esprit rationnel parce qu'il a son propre ensemble de valeurs et d'expériences à utiliser pour comprendre le fonctionnement de l'univers ou, du moins, la partie de l'univers avec laquelle il a pris connaissance. Ainsi, lorsqu'un modèle de pensée particulièrement rigide ou fixe est impliqué dans certaines règles telles que "ce qui monte doit redescendre", l'esprit doit faire un effort de transformation. Lorsque les règles changent, ce qui monte doit redescendre, se mettre en orbite ou être détruit. La pensée d'une personne doit donc être ouverte au changement, être flexible et réaliser qu'il y a encore beaucoup à apprendre. En fait, l'apprentissage, la croissance et le changement ne cessent jamais. Nous, les habitants des Cieux Célestes, continuons à apprendre de nouvelles choses à mesure que nous recevons davantage de l'amour transformateur de Dieu. Ses lois englobent tout et rien n'est jamais laissé sans gouvernance par son merveilleux esprit.
+
+Dans certains cas, lorsque les gens ont hâte qu'on leur prouve qu'il existe une puissance supérieure et que leur vie malheureuse et/ou banale a une "fin heureuse", ou quelque chose de glorieux à attendre, cette anticipation et cette excitation les laissent ouverts à l'acceptation de la réalité d'événements inhabituels. Laissez-moi vous assurer que tout le monde n'a pas vu la même chose ce jour-là, car les choses sont interprétées différemment par les yeux de différentes personnes, et pour ajouter à cette divergence, le souvenir de l'événement est encore plus différent de ce qu'ils croyaient avoir vu à l'époque.
+
+Ainsi, la prophétie s'est accomplie, une grande force a été mise en œuvre pour réfracter la lumière d'une source créée afin de donner l'impression que le soleil ne restait pas immobile à son emplacement, car Dieu aime Ses enfants et beaucoup étaient venus là pour voir un signe de Dieu afin d'accroître leur foi en Son existence, en Son pouvoir, afin de se sentir moins insignifiants, afin d'avoir une preuve tangible qu'Il veille sur eux et prend soin d'eux. Et, comme dans d'autres "miracles", où les récits diffèrent dans ce cas aussi, des milliers de personnes ont été témoins d'événements étranges qui leur ont apporté la capacité de croire et d'avoir de l'espoir, et le travail des anges a réussi à aider ces âmes si désespérées d'un "signe de Dieu".
+
+Maintenant, après l'événement, il revenait toujours aux individus ce qu'ils ont fait ou feraient à l'avenir à la suite de ce signe. Cela pouvait renforcer leur foi pendant un certain temps, puis, face à l'adversité, ils pouvaient retomber dans le désespoir. Certains se souviendraient de l'événement et renouvelleraient leur foi, tandis que d'autres se convaincraient que tout cela n'était que le fruit de leur imagination et que rien ne s'était vraiment passé. De merveilleux signes de l'Amour de Dieu pour ses enfants ont souvent été montrés dans le monde. Ceux qui n'ont pas la foi voient rarement ces signes parce qu'ils ne les cherchent pas, ne s'attendent pas à ce qu'ils se produisent, n'y croient même pas lorsqu'ils se produisent, mais essaient simplement de les expliquer "scientifiquement", comme s'il ne s'agissait que du fonctionnement naturel des lois matérielles. C'est la seule façon dont leur raisonnement orienté vers la matière peut traiter l'événement dont ils ont été témoins. Je suis certain que nous serions capables de vous "époustoufler" si nous décrivions les nombreux événements d'intervention spirituelle dans le monde matériel, mais je vous assure que ce ne serait pas une entreprise productive car, si vous deviez faire connaître au monde ces événements monumentaux, cela créerait encore plus de doute sur votre santé mentale - la plupart des gens n'en croiraient même pas un mot.
+
+Mais en priant pour l'Amour de Dieu, en agissant sur votre foi et en manifestant votre amour dans vos activités quotidiennes, vous serez les bénéficiaires de ces nombreuses bénédictions et miracles, et lorsque le temps sera venu de rédiger un manuel sur les lois spirituelles et la façon dont elles gouvernent les lois matérielles, ces faits spirituels pourront être écrits et présentés pour la plus grande compréhension de ceux qui sont sur le chemin spirituel de la progression de l'âme. Mais, le temps n'est pas encore venu pour une telle publication et même ceux d'entre vous qui sont les plus avancés auraient des difficultés à saisir comment ces esprits éthérés, apparemment sans pouvoir, peuvent déplacer des objets matériels, par exemple. Mais il faut tenir compte d'un autre ensemble de lois où les forces électromagnétiques ont plus de pouvoir que l'énergie matérielle.
+
+Des miracles continueront à se produire chaque jour sur terre. Certains en seront témoins, d'autres non. Au fur et à mesure que vous progresserez dans l'Amour, vous ne serez pas seulement témoins de leurs occurrences, mais vous commencerez à comprendre comment et pourquoi ils fonctionnent et, dans une certaine mesure, vous aurez la capacité de canaliser l'énergie spirituelle au profit de l'humanité en quête de sens spirituel.
+
+Cela arrivera. Soyez patient. Nous n'aimons pas dire "bientôt" parce que cela pourrait avoir une portée de 50 ans et ce n'est pas ce qu'un mortel vivant dans sa vie terrestre considère comme tôt. Le miracle du soleil "rebondissant" de Fatima impliquait le pouvoir des anges et des bons esprits travaillant ensemble pour créer une illusion de lumière réfractée changeante qui donnerait l'impression que le soleil se déplace de haut en bas.
+
+Je vous laisse donc avec mes bénédictions et j'espère que cela répondra de manière satisfaisante à votre question. Mais, j'ai découvert que souvent, la réponse à une certaine question a tendance à créer plus de confusion et/ou de curiosité ou à faire en sorte que l'on tente de découvrir des choses qui sont au-delà des perceptions de l'âme à saisir à ce moment précis. Alors, tenez bon ! Continuez vos bonnes prières et sachez que les réponses à vos questions vous parviendront lorsque vous serez prêt à les comprendre.
+
+Je suis votre frère en Christ, qui vous laisse maintenant avec mon Amour et reviendrai bientôt.
+
+Jésus de la Bible et Maître des Cieux Célestes.

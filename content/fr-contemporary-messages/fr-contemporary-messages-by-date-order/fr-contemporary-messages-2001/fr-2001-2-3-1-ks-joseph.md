@@ -9,7 +9,7 @@ weight:
 ---
 ### Suivez le courant
 
-Josef - reçu par Kathryn Stokes le 3 Février 2001, Santa Cruz, Californie, USA.
+Joseph - reçu par Kathryn Stokes le 3 Février 2001, Santa Cruz, Californie, USA.
 
 Je suis ici maintenant pour écrire, comme je suis venu pour t’aider à exprimer tes préoccupations. Tu es consciente du fait que tu t’attardes trop souvent sur des préoccupations matérielles, qui à leur tour te maintiennent au fond du trou et t’embourbent dans des détails qui n’ont que peu d’importance pour le développement de ton âme dans l’Amour et n’ont guère la capacité d’apporter bonheur et joie dans ta vie.
 

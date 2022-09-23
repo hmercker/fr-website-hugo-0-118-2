@@ -1,0 +1,21 @@
+---
+title: "Le déroulement de la chute"
+menu_title: ""
+description: "Le déroulement de la chute"
+date: 2022-06-01 06:00:01+00:111
+draft: False
+hidden: True
+weight:
+---
+### Le déroulement de la chute
+
+Aman - reçu par FAB le 29 Janvier 2007, Santa Cruz, Californie, USA.
+
+C'est moi, Aman.
+Vous avez lu dans les messages de James Padgett : "Au fur et à mesure que nous nous déconnectons de nos âmes et de leurs pouvoirs spirituels .... "1.
+Vous m'avez canalisé en disant que quelque chose en nous s'est immédiatement "éteint". Vous vous demandez où se trouve la vérité. Sommes-nous tombés instantanément, ou cela fut-il progressif ?
+Eh bien, lorsque l'orgueil nous a aveuglés à Dieu, nous avons ressenti quelque chose que nous n'avions pas ressenti auparavant - une déconnexion de Dieu. Au fil du temps, cette déconnexion n'a fait que se creuser à mesure que notre orgueil s'endurcissait. La connexion spirituelle exaltée a été rompue par notre rébellion dès que nous avons conçu l'idée d'atteindre la grandeur sans l'aide de Dieu. De là, ce fut une descente facile vers notre nature animale. Ce fut progressif.
+L'orgueil a coupé la réalité de notre proximité avec Dieu, car nous ne pouvions plus la ressentir avec notre attitude arrogante. Par "progressif", j'entends le déploiement de notre nouvelle vie malheureuse. Notre orgueil a déclenché cette nouvelle réalité, car nous ne pouvions pas récupérer notre domaine perdu.
+Ne soyez donc pas perturbés par ce mot. Il signifie simplement que, bien que la transition vers notre nouvel état ait été progressive, c'est notre orgueil qui l'a immédiatement déclenchée. Ce ne fut pas un changement instantané, mais ce qui fut immédiat fut ce nouveau sentiment de déconnexion causé par notre orgueil. C'est ce que je voulais dire par quelque chose en nous qui se ferme.
+
+1 Je suis actuellement incapable de localiser ce texte dans les Messages de Padgett. Il se peut que FAB ait utilisé comme référence une publication basée sur les messages qui a été quelque peu remaniée.

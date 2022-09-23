@@ -1,0 +1,30 @@
+---
+title: "Marchant sur l’eau"
+menu_title: ""
+description: "Marchant sur l’eau"
+date: 2022-06-01 06:00:01+00:03
+draft: False
+hidden: True
+weight:
+---
+### Marchant sur l’eau
+
+Jésus - reçu par Kathryn Stokes le 5 Mars 2000, Santa Cruz, Californie, USA.
+
+*[Cher Dieu, nous prions pour élever nos pensées à des niveaux supérieurs. Je prie pour que Ton Amour Divin afflue dans mon âme. Je crois que les anges sont conscients des questions qui ont été présentées, alors je prie pour que je puisse mettre de côté mes pensées et permettre à l’ange d’exprimer clairement les siennes, sans entraves ou limitations.]*
+
+Je suis ici maintenant pour écrire, et je viens en réponse à votre désir de recevoir un écrit des esprits supérieurs qui ont de plus grandes perceptions sur les mécanismes des lois de Dieu sur Ses enfants. Je suis votre ami et frère en esprit, Jésus de la Bible, qui est Maître des Cieux Célestes, et c’est un privilège pour moi de venir vers vous en ce moment pour répondre à certaines des questions posées par ceux qui suivent nos messages.
+
+J’étais avec vous lorsque vous exprimiez vos pensées sur la raison pour laquelle je ne marchais pas sur l’eau et moi aussi, je suis conscient du fait que la lévitation du corps matériel par l’exercice de pensées et de désirs supérieurs est une réalité et peut se produire dans ce monde matériel. Mais, dans le cas présent, où j’avais embarqué dans une petite barque dans le but de rattraper mes disciples, qui étaient partis plus tôt, ce n’était pas une circonstance pour méditer, sérieusement et profondément, afin de faire léviter mon corps, et cela n’aurait servi à rien si je l’avais fait. Les « miracles » qui m’ont été attribués ont été appelés ainsi parce qu’ils sont en dehors du fonctionnement normal et/ou naturel des lois matérielles avec lesquelles les gens sont familiers, donc ils supposent qu’un événement super naturel s’est produit. Mais, lorsque l’humanité aura évolué vers une condition où beaucoup de ses membres auront été transformés par l’Amour Divin, ces événements seront monnaie courante, et alors on saura qu’il y a des lois supérieures qui ont préséance sur les lois inférieures, naturelles ou matérielles. Celles-ci ne seront plus appelées « miracles », mais mais on s’attendra à ce qu’elle se produisent aussi souvent, aussi naturellement, que l’action de la gravité s’exprime de nos jours.
+
+Comme vous le savez, il y aura beaucoup de gens qui continueront à croire que j’ai marché sur l’eau parce que j’étais un « homme divin », parce que j’ai pu accomplir d’autres exploits qui ont défié la raison, et je vous suggère de ne pas consacrer trop de temps ou d’énergie à essayer de les convaincre du contraire, mais plutôt de souligner l’Amour Divin, comme vous voyez que nous faisons ; car c’est ce qui va sauver leur âme. S’ils croient que j’ai marché sur l’eau ou que je suis Dieu, c’est une erreur de jugement ou un malentendu sur les faits de ce qui est la vérité, mais ils n’interféreront pas avec la réception de l’Amour sauveur quand on prie pour lui, en toute sincérité et humilité. Il y a beaucoup de conceptions erronées qui sont dans l’esprit de millions de personnes à travers le monde. Certains d’entre elles sont plus préjudiciables à l’acceptation de la vérité que d’autres, mais l’Amour et la Miséricorde de Dieu dans l’âme d’une personne permettront finalement à la personne d’effacer tous les concepts erronés, et elles ne seront même pas conscientes de l’instant où ces « idées » (si tenaces et si chèrement tenues) les ont laissées, ne leur laissant qu’une claire compréhension de la vérité pour les guider et les élever dans leur développement spirituel.
+
+Mais j’aimerais ajouter ici que, sans un désir sincère et prolongé de vérité de la part d’une âme humble, le mental peut rester prioritaire, les croyances erronées s’accrochent au mental dans la sixième sphère, et elles ne le quitteront plus aussi longtemps que la personne voudra croire en elles. Ainsi, sans la puissance de l’Amour de Dieu dans une âme, et sans la puissance de la vérité qui y réside, le mental peut demeurer ascendant, et la vérité sera écrasée par le libre arbitre.
+
+Lorsque ____, qui croit en la vérité de nos messages, se fait questionner par ses amis et ses proches, elle sera guidée dans ses réponses. Souvent, vous avez constaté qu’une réponse peut être exprimée plus clairement d’une manière à une certaine personne, alors que l’exprimer d’une autre manière à une autre la rendrait plus palpable et plus facile à saisir par les conceptions confuses de son esprit. Ainsi, dans ces cas, la guidance sert bien le but, et même si notre disciple ne croit pas qu’elle a le don de canaliser nos pensées, tout ce qu’elle a à faire est de désirer la vérité, de vouloir présenter une réponse acceptable à son ami ou étudiant, et de laisser son cœur ouvert – nous pourrons lui faire parvenir la réponse qu’elle veut et doit donner.
+
+Je vous remercie de me permettre d’exprimer mes réflexions à ce sujet. Il s’agit d’un processus continu, mais de nombreuses réponses ne sont pas satisfaisantes pour beaucoup de gens. Ainsi, le principal enseignement qui doit être souligné est le désir de connaître la vérité avec un cœur sincère et contrit, parce que si les gens ne veulent pas changer, s’ils s’accrochent avec ténacité à leurs idées préconçues sans considérer la possibilité que celles-ci puissent être incomplètes ou même absolument incorrectes, alors ils ne pourront entendre la vérité, ils ne pourront changer leur pensée à ce sujet. C’est comme si deux choses ne pouvaient pas occuper la même place en même temps ; et tant qu’ils s’accrochent fermement à une idée particulière qu’ils croient exacte et vraie, il est presque impossible que la vérité puisse influencer leur position.
+
+Je vous laisse maintenant avec ces pensées et, comme vous pouvez le constater, c’est un problème auquel nous sommes confrontés depuis des siècles, et qui peut être très frustrant pour nous.
+
+Je vous aime tous et chacun, et vous laisse avec mes bénédictions d’amour, Jésus de la Bible et Maître des Cieux Célestes.

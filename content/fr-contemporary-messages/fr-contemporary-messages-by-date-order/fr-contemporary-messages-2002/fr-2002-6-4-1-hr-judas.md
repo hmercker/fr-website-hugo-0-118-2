@@ -90,3 +90,5 @@ Jésus n’a pas appelé les gens à se retirer de ce monde, mais à aider activ
 C’est tout pour aujourd’hui. Je te dis au revoir avec mes bénédictions.
 
 Ton frère en Christ, Judas.
+
+© Geoff Cutler 2013
