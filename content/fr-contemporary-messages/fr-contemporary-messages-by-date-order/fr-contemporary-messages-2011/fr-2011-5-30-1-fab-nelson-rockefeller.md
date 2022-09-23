@@ -11,5 +11,7 @@ weight:
 
 Nelson Rockefeller - reçu par FAB le 30 Mai 2011, Santa Cruz, Californie, USA.
 
+Je suis, Nelson Rockefeller.
 
+Vous êtes en train de lire mes conférences « L’avenir du fédéralisme ». Ce ne sont que des foutaises. Je n’en pensais pas un mot. Je pensais seulement à ma propre famille. C’est tout.
 
