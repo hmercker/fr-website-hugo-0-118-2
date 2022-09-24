@@ -9,7 +9,19 @@ weight:
 ---
 ### Aimer la création de Dieu
 
-Père - reçu par Helge Mercker le 27 Novembre 2012, Elim, Namibia.
+Père - reçu par Helge Mercker le 27 Novembre 2012, Elim, Namibia
+
+Je veux parler, c’est ton Père.
+
+Cher enfant, pourquoi hésites-tu à tendre la main à ceux que tu aimes, pourquoi acceptes-tu les ordres de ta tête quand tu sens que ton cœur dit autre chose. L’amour n’est jamais gaspillé, l’amour est toujours donné. Mon cher et doux enfant, c’est ton Père qui te serre toujours dans Ses bras. Tu me fais plaisir, tu me fais sourire. Aime-toi comme je t’aime ! Tu seras fortifiée par mon Amour, car tu sais que de nombreuses tâches t’attendent. Je veux tenir ta main pendant que tu avances et que tu découvres le monde de mon Amour, de ma Grâce et de ma Miséricorde.
+
+Comme tu le sais, je suis lié par mon Amour pour tout ce que j’ai créé. J’aime tout ce qui est. L’échec à reconnaître l’amour et l’orgueil dans le cœur humain sont les pierres d’achoppement pour que l’humanité puisse voir la création que j’ai faite. J’aime tout et je veux que tous Mes enfants se tournent vers l’amour véritable, et Je donne Mon amour à ceux qui le veulent sérieusement, sincèrement et profondément. Efforce-toi d’accomplir ce but d’une vie épanouie et pleine d’âme, comme je te l’ai destiné.
+
+Reconnais le côté créatif en toi, l’accomplissement et l’honneur des dons que je t’ai accordés lorsque je t’ai créé. Aspire à l’épanouissement de tes talents et de tes dons, mon enfant. Je souhaite tellement que mes enfants s’éveillent aux véritables beaux êtres pour lesquels je les ai créés. Touche ton cœur comme je le touche, et ressens la douceur de l’amour avec lequel je t’ai créé ; et laisse derrière toi le cœur de pierre qui est devenu le cœur de l’humanité.
+
+Fais partie de cela, mon enfant, d’avoir un cœur de chair et un amour qui coule doucement pour toutes mes créatures et la création. C’est ton père qui te parle maintenant et te soutient avec des bras d’amour. Je t’aime,
+
+Ton père.
 
 
 
