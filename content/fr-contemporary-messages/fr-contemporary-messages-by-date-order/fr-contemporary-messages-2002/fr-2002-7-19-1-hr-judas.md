@@ -9,7 +9,7 @@ weight:
 ---
 ### Marie Madeleine
 
-Judas - reçu par H___  le 19 Juillet 2002, Cuenca, Équateur.
+Judas - reçu par H____ le 19 Juillet 2002, Cuenca, Équateur.
 
 
 
