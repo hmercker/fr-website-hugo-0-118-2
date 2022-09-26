@@ -9,16 +9,7 @@ weight:
 ---
 ### Le Monde de l’Illusion
 
-Père - reçu par Enfant de Dieu le 2 Décembre 2012
+Père - reçu par Child of God le 2 Décembre 2012.
 
-Mon désir le plus profond est pour toi.
-
-Je me languis de toi. Je désire ardemment que tous Mes enfants reviennent à la maison. Vous êtes si nombreux à être perdus dans votre monde d’illusion. Perdus dans votre monde de séparation.
-
-Votre message est le suivant : Je suis là. Je parle à ceux qui entendent. Je suis la voix aimante à l’intérieur, qui vous encourage, vous réconforte, vous guide doucement vers votre destination : Ne faire qu’un avec moi. Toi seul peut nous séparer. Abandonne l’illusion. Renonce à tout ce qui n’est pas de l’amour.
-
-Écoute-moi. Je suis là.
-
-Ton père.
 
 
