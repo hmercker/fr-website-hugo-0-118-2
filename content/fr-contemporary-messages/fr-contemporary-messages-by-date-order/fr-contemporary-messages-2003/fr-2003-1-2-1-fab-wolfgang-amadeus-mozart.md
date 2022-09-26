@@ -11,7 +11,6 @@ weight:
 
 Wolfgang Amadeus Mozart - reçu par FAB le 2 Janvier 2003, Santa Cruz, Californie, USA.
 
-
 C’est moi, Wolfgang Amadeus Mozart.
 
 J’ai attendu patiemment toutes ces années pour communiquer avec les mortels. Je tiens à vous remercier très sincèrement pour cette occasion.
@@ -32,8 +31,6 @@ Merci beaucoup pour la réception de ce message. Cela a beaucoup compté pour mo
 
 Puissiez-vous être heureux dans les prochains jours.
 
-Amour
+Amour, Mozart.
 
-Mozart
-
-[Un message plus récent a été reçu de Mozart](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2007\fr-2007-7-17-1-fab-wolfgang-amadeus-mozart.md)
+***Note :*** *[Un message plus récent a été reçu de Mozart](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/)*

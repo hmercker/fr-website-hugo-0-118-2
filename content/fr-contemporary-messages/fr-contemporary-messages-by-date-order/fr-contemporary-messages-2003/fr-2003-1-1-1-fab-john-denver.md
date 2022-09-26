@@ -10,11 +10,6 @@ weight:
 ### Expériences de John Denver
 
 John Denver - reçu par FAB le 1 Janvier 2003, Santa Cruz, Californie, USA.
-1er Janvier 2003
-
-Santa Cruz, Californie
-
-Reçu par F.A. B.
 
 C’est moi, John Denver.
 
@@ -24,7 +19,7 @@ Tout d’abord, permettez-moi de dire que j’apprécie profondément votre amou
 
 Quant à mon propre développement, comme vous le savez, je ne suis dans le monde des esprits que depuis peu de temps. Je vous ai rendu visite peu de temps après ma mort. A cette époque, j’étais euphorique d’être hors du corps et sans soucis de la terre. Mais peu de temps après, comme vous l’aviez prédit avec précision, certaines choses négatives que j’avais faites ou dites, se sont élevées et m’ont confronté, et j’ai souffert.
 
-C’était formidable durant la vie de la terre d’avoir le genre de notoriété et d’exposition qui me permette d’être efficace dans mes causes préférées. Mais cela a nécessité un prix. Ma gloire a créé des pressions inhabituelles dans ma vie, me faisant gâcher certains aspects de ma vie personnelle, tels que [.. .supprimé pour protéger les vivants…]. Les gens ne doivent pas croire que la gloire et la fortune sont un pique-nique, parce qu’elles ne le sont pas. J’étais constamment demandé et j’avais du mal à refuser certaines activités qui m’éloignaient de ma famille et mes enfants.
+C’était formidable durant la vie de la terre d’avoir le genre de notoriété et d’exposition qui me permette d’être efficace dans mes causes préférées. Mais cela a nécessité un prix. Ma gloire a créé des pressions inhabituelles dans ma vie, me faisant gâcher certains aspects de ma vie personnelle, tels que *[...supprimé pour protéger les vivants...]*. Les gens ne doivent pas croire que la gloire et la fortune sont un pique-nique, parce qu’elles ne le sont pas. J’étais constamment demandé et j’avais du mal à refuser certaines activités qui m’éloignaient de ma famille et mes enfants.
 
 Quant à l’Amour Divin, vous serez heureux de savoir que je considère sérieusement ce que vous m’avez dit à ce sujet. J’ai essayé de l’expérimenter et des sentiments nouveaux ont surgi dans mon âme. Je crois donc qu’il y a quelque chose avec lui. Par ailleurs, j’ai vu tellement d’activités d’esprits angéliques élevés autour de vous que je sais qu’il doit y avoir quelque chose lié à lui.
 
@@ -36,8 +31,6 @@ J’ai enregistré un peu de ce malheur dans mes chansons, mais aussi un amour d
 
 Je vois comment vous êtes consacré à ma musique, et je ne peux que vous remercier. Vous, et d’autres comme vous, confirment ma conviction que j’ai vraiment fait quelque chose de valable. Cela m’a apporté de la consolation dans mes peines. Je reviendrai bientôt pour vous écrire. Sachez que vous êtes libre de partager avec moi vos pensées et vos idées au sujet de la Nouvelle Naissance de l’âme.
 
-Avec amour
+Avec amour, John Denver.
 
-John Denver.
-
-[Un second message de John Denver](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2003\fr-2003-1-23-1-fab-john-denver.md)
+***Note :*** *[Un second message de John Denver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-23-1-fab-john-denver/)*

@@ -9,14 +9,9 @@ weight:
 ---
 ### John Denver a changé de point de vue
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-john-denver2.jpg)
+
 John Denver - reçu par FAB le 23 Janvier 2003, Santa Cruz, Californie, USA.
-
-
-23 Janvier 2003
-
-Santa Cruz, Californie
-
-Reçu par F.A. B.
 
 C’est moi, John Denver.
 
@@ -38,8 +33,8 @@ Je veux que le monde sache qu’aucun talent musical, ni nobles idéaux, ne peut
 
 Je pense que j’ai exprimé ce soir ce que je voulais dire. J’apprécie votre bonté et je sais que nous sommes maintenant de bons amis.
 
-Sincèrement, John Denver
+Sincèrement, John Denver.
 
-[Le premier message de John Denver](fr-contemporary-messages-2003\fr-2003-1-1-1-fab-john-denver.md)
+**Note :** *[Le premier message de John Denver.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-1-1-fab-john-denver/)*
 
 
