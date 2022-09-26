@@ -11,7 +11,6 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Jésus | [Ésus-les vérités du père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1995-1-ks-jesus/) |   1995
 Bill Reilly | [Bill Reilly vient en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1995-10-10-1-dl-bill-reilly/) | 10 Octobre 1995
 Jésus | [Sur la sélection de M. Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-5-15-1-ks-jesus/) | 15 Mai 1996
 Jésus | [Pourquoi Jésus n’apparaît-il pas aux gens aujourd’hui, comme il l’a fait à ses disciples il y a 2 000 ans ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-7-20-1-ks-jesus/) | 20 Juillet 1996
