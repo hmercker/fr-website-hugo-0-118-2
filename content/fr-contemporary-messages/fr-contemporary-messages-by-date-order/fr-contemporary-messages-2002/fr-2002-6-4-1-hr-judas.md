@@ -9,17 +9,17 @@ weight:
 ---
 ### L’Esclavage
 
-Judas - reçu par H___  le 4 Juin 2002, Cuenca, Équateur.
+Judas - reçu par H____ le 4 Juin 2002, Cuenca, Équateur.
 
-Mon cher frère H___,
+Mon cher frère H____ ,
 
 Plusieurs jours se sont écoulés sans possibilité pour moi de transmettre un message. J’espère que tu progresseras et te stabiliseras. J’ai encore beaucoup à communiquer.
 
 Dans mon dernier message, j’ai dit que je parlerai des idées de Jésus sur l’esclavage, et pourquoi ces enseignements n’ont pas été intégrés dans les Évangiles.
 
-Il y a quelque temps, j’ai écrit :
+[Il y a quelque temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-18-1-hr-judas/), j’ai écrit :
 
-Le lendemain soir, Buni, accompagné de plusieurs fonctionnaires qui lui servaient de gardes du corps, est venu à la maison de Joseph afin de parler avec Jésus.
+> Le lendemain soir, Buni, accompagné de plusieurs fonctionnaires qui lui servaient de gardes du corps, est venu à la maison de Joseph afin de parler avec Jésus.
 
 C’est vrai, tel est le message que j’ai présenté sur la rencontre de Nicodème et de Jésus. Rappelle-toi cette phrase.
 
@@ -35,21 +35,21 @@ Bien entendu, le prix d’un esclave sur les marchés de Jérusalem variait beau
 
 Pour ajouter une « difficulté supplémentaire » aux gens riches, la loi mosaïque prescrivait qu’ils devaient libérer leurs esclaves après six années de servitude.
 
-« Si tu achètes un esclave Hébreu, il servira six années ; mais la septième, il sortira libre, sans rien payer. » (Exode21:2)
-
+> Si tu achètes un esclave Hébreu, il servira six années ; mais la septième, il sortira libre, sans rien payer. (Exode21:2)
 Ils ne considéraient certainement pas l’esclavage comme une bonne affaire.
 
 Les esclaves qui travaillaient dans les maisons urbaines de la classe riche, comme dans le cas de Nicodème, devaient souvent subvenir aux besoins de leur propre famille, ils avaient des femmes et des enfants. Lorsque les six années de servitude étaient terminées, les esclaves abandonnaient leur maître, avec leurs épouses.
 
 La loi dit :
 
-« S’il est entré seul, il sortira seul ; s’il avait une femme, sa femme sortira avec lui.
-
-Si son maître lui avait donné une femme, et qu’elle lui avait donné des fils ou des filles ; la femme et ses enfants seront à son maître, et il sortira par lui-même. »
+> S’il est entré seul, il sortira seul ; s’il avait une femme, sa femme sortira avec lui.
+<br>
+<br>
+> Si son maître lui avait donné une femme, et qu’elle lui avait donné des fils ou des filles ; la femme et ses enfants seront à son maître, et il sortira par lui-même. »
 
 Ceci, bien sûr, constituait, dans de nombreux cas, une situation grave pour l’esclave qui aimait sa famille et ne voulait pas l’abandonner. Et il n’avait pas d’argent pour acheter sa liberté. Néanmoins, la loi lui offrait l’alternative suivante :
 
-« Mais si l’esclave dit, j’aime mon maître, ma femme et mes enfants ; Je ne vais pas sortir libre alors son maître le conduira à Dieu, et l’amènera à la porte ou au montant de la porte ; et son maître lui percera l’oreille avec un poinçon ; et il le servira pour toujours. »
+> Mais si l’esclave dit, j’aime mon maître, ma femme et mes enfants ; Je ne vais pas sortir libre alors son maître le conduira à Dieu, et l’amènera à la porte ou au montant de la porte ; et son maître lui percera l’oreille avec un poinçon ; et il le servira pour toujours.
 
 Avec cet acte désespéré, le pauvre esclave pouvait garder sa famille, mais il perdait sa liberté pour toujours.
 
@@ -57,15 +57,15 @@ Par ailleurs, lorsque le maître voyait une telle fidélité, envers lui ou enve
 
 Des scènes similaires à celle de la visite de Nicodème se sont produites fréquemment. Et Jésus attirait toujours notre attention :
 
-« Regardez, le riche maître vient avec les personnes en qui il a confiance. Ce ne sont pas des hommes de sa classe, qu’il appelle amis, parce qu’en fait, il ne leur fait pas confiance. Ce ne sont pas ses salariés, parce que leur loyauté s’arrête avec les limites de l’argent du maître. Non, ce sont ses serviteurs, ceux qui ont des oreilles perforées, qui se sont donnés volontairement à cause de l’amour. Le maître n’est peut être pas conscient de cela, mais au fond de son cœur, il sait que les gens motivés par l’amour sont des gens nobles, les seuls dignes de sa confiance. Et ce sont ces personnes qu’il récompense.
+*« Regardez, le riche maître vient avec les personnes en qui il a confiance. Ce ne sont pas des hommes de sa classe, qu’il appelle amis, parce qu’en fait, il ne leur fait pas confiance. Ce ne sont pas ses salariés, parce que leur loyauté s’arrête avec les limites de l’argent du maître. Non, ce sont ses serviteurs, ceux qui ont des oreilles perforées, qui se sont donnés volontairement à cause de l’amour. Le maître n’est peut être pas conscient de cela, mais au fond de son cœur, il sait que les gens motivés par l’amour sont des gens nobles, les seuls dignes de sa confiance. Et ce sont ces personnes qu’il récompense.*
 
-Et c’est aussi le cas avec notre Père Céleste. Ceux qui se donnent sans réserve et volontairement, reçoivent Ses bénédictions. Et même plus, Il les adopte comme ses vrais enfants et les héritiers de Son royaume. »
+*Et c’est aussi le cas avec notre Père Céleste. Ceux qui se donnent sans réserve et volontairement, reçoivent Ses bénédictions. Et même plus, Il les adopte comme ses vrais enfants et les héritiers de Son royaume. »*
 
 Oui, je sais que tu espérais entendre que Jésus avait attaqué l’esclavage de front. Mais cela ne s’est jamais produit. Tout d’abord, il n’a pas existé en Palestine sous la forme que tu as à l’esprit. Deuxièmement, l’esclavage était une institution reconnue et réglementée par la loi mosaïque, considérée comme la parole même du Seigneur. Cependant, l’enseignement de Jésus, l’enseignement de l’amour inconditionnel, qualifiait, implicitement, l’esclavage comme incompatible avec le chemin vers Dieu.
 
 On ne retrouve dans la Bible que quelques rudiments de la dure critique sociale du Maître dans la Bible, parce que les dirigeants Chrétiens, se sentant mal à l’aise du fait de certaines allusions, ont en grande partie, effacé ce qu’il avait dit. Cependant, dans la lettre du frère du Maître, tu peux encore entendre l’écho de la voix même du Maître. (Jacques 2:2-10, approximativement.)
 
-« Supposons qu’un homme vienne, dans votre réunion, bien habillé et avec un anneau d’or à son doigt, et qu’un autre homme, évidemment pauvre, arrive en vêtements usés. Si, tournant vos regards vers celui qui porte l’habit magnifique, vous lui dites : « Toi, assieds-toi ici à cette place d’honneur ! » et si vous dites au pauvre : « Toi, tiens-toi là debout ! » Ou bien : « Assieds-toi à mes pieds sur le sol ! »  Ne faites-vous pas en vous-mêmes une distinction, et ne jugez-vous pas sous l’inspiration de mauvaises pensées ? »
+*« Supposons qu’un homme vienne, dans votre réunion, bien habillé et avec un anneau d’or à son doigt, et qu’un autre homme, évidemment pauvre, arrive en vêtements usés. Si, tournant vos regards vers celui qui porte l’habit magnifique, vous lui dites : *« Toi, assieds-toi ici à cette place d’honneur ! »* et si vous dites au pauvre : *« Toi, tiens-toi là debout ! »* Ou bien : *« Assieds-toi à mes pieds sur le sol ! »*  Ne faites-vous pas en vous-mêmes une distinction, et ne jugez-vous pas sous l’inspiration de mauvaises pensées ? »*
 
 « Écoutez, mes frères bien-aimés : Dieu n’a-t-il pas choisi les pauvres aux yeux du monde, pour qu’ils soient riches en la foi et héritiers du royaume qu’il a promis à ceux qui l’aiment ? Si vous vous comportez comme je l’ai suggéré, c’est le pauvre homme que vous avilissez ! Regardez autour de vous. Ne sont-ce pas les riches qui vous oppriment et qui vous traînent devant les tribunaux ? Ne sont-ce pas eux qui outragent le beau nom que vous portez ? »
 
