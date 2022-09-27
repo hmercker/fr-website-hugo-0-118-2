@@ -9,7 +9,23 @@ weight:
 ---
 ### En vous, je ne vois que de la beauté
 
-Père - reçu par Child of God le 25 Janvier 2013.
+Père - reçu par Enfant de Dieu le 25 Janvier 2013
+
+Je suis ton bien-aimé. En toi, je ne vois que la beauté. Je sens que ton fervent désir de Me servir et ton désir d’apporter toutes les bonnes choses nous rapprocheront.
+
+Sache que tout est pris en charge. Continue ton chemin d’abandon. Je connais ton cœur innocent et je te fais confiance. Rien ne t’est enlevé et le temps t’apportera la clarté. Ce ne sont que de petits pas qui te préparent à ce qui t’attend.
+
+Parfois, il semble que tu sois perdu. Sache que de meilleures choses t’attendent – trésor après trésor. Plus je ressens ton désir, plus je peux donner et plus tu peux recevoir. L’amour est la réponse à ton désir ardent. Cultive ton désir de me servir en aimant encore plus. Tu es le visage de Dieu. Tu es mon cœur et mon âme. Repose ton esprit dans ta confiance en Moi. Ouvre ton âme à l’afflux de Mon Amour. Plonge-toi dans Mon amour infini.
+
+La réponse est l’amour. La réponse à ta liberté se trouve dans toutes les barrières que tu as construites contre l’amour. Chaque fois que tu ne peux pas aimer pleinement, c’est le signe d’une barrière que tu as construite entre nous. Reconnais-les et accepte-les. Ta conscience est ton fondement pour le pardon. Le pardon n’est qu’une expression de l’amour. Ton âme grandit avec ta conscience pour reconnaître et pardonner. Un petit péché est enlevé de ton âme et l’amour te remplit. Avec l’amour vient la liberté. Se pardonner et s’aimer soi-même rend tout le monde libre.
+
+Si seulement tu pouvais te voir. Voir ta lumière étonnante – ton âme étincelante. Si seulement tu pouvais te voir à travers mes yeux.
+
+Je ne vois que la beauté.
+
+Je tiens ton cœur.
+
+Ton père.
 
 
 
