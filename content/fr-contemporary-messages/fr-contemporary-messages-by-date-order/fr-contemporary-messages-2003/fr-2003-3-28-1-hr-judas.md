@@ -9,7 +9,7 @@ weight:
 ---
 ### Pilate prend ses fonctions durant l’année 26
 
-Judas - reçu par H___ le 28 Mars 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 28 Mars 2003, Cuenca, Équateur.
 
 
 

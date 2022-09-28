@@ -9,7 +9,7 @@ weight:
 ---
 ### Sortir de l’enfer
 
-Judas - reçu par H___ le 6 Février 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 6 Février 2003, Cuenca, Équateur.
 
 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le manque d’espoir dans les Enfers
 
-Judas - reçu par H___ le 5 Février 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 5 Février 2003, Cuenca, Équateur.
 
 
 

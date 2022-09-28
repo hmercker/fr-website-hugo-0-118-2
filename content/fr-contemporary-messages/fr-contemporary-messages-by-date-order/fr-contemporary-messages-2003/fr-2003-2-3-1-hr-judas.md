@@ -9,7 +9,7 @@ weight:
 ---
 ### La confiance en Dieu
 
-Judas - reçu par H___ le 3 Février 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 3 Février 2003, Cuenca, Équateur.
 
 
 

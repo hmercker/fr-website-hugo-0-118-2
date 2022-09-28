@@ -9,7 +9,7 @@ weight:
 ---
 ### La parabole de la roseraie
 
-Judas - reçu par H___ le 23 Avril 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 23 Avril 2003, Cuenca, Équateur.
 
 
 

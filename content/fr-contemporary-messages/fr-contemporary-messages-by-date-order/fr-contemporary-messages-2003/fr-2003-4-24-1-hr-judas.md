@@ -9,7 +9,7 @@ weight:
 ---
 ### Grandir dans Mon Amour
 
-Judas - reçu par H___ le 24 Avril 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 24 Avril 2003, Cuenca, Équateur.
 
 
 

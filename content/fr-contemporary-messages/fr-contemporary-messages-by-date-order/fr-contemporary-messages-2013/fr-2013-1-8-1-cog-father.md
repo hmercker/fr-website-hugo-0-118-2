@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître la vraie liberté
 
-Père - reçu par Enfant de Dieu le 8 Janvier 2013
+Père - reçu par Enfant de Dieu le 8 Janvier 2013.
 
 La liberté, c’est le partage de ton amour le plus profond. La liberté, c’est Mon amour qui coule dans ton cœur et ton âme sans aucune obstruction. La liberté, c’est Mon amour qui t’entoure tout entier, réveillant chaque cellule de ton corps. Mon bonheur, c’est ton âme qui brille et scintille, embrassant chaque âme sur ton chemin. Ma plus grande joie est ton sourire.
 
@@ -19,9 +19,7 @@ Connais la vraie liberté. Aime de tout ton cœur. Laisse-moi entrer dans ton c�
 
 Tu es l’amour. L’amour te rendra libre.
 
-Sois avec moi,
-
-Ton Père.
+Sois avec moi, ton Père.
 
 
 

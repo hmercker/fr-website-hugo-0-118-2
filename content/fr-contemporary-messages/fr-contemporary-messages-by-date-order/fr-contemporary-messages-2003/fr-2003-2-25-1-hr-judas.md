@@ -9,7 +9,7 @@ weight:
 ---
 ### Les choses sont ce qu’elles sont
 
-Judas - reçu par H___ le 25 Février 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 25 Février 2003, Cuenca, Équateur.
 
 
 

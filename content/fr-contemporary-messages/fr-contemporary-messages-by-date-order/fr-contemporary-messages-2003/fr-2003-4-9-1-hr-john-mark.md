@@ -9,7 +9,7 @@ weight:
 ---
 ### Libre arbitre et offre de guérison
 
-Jean Marc - reçu par H___ le 9 Avril 2003, Cuenca, Équateur.
+Jean Marc - reçu par H____ le 9 Avril 2003, Cuenca, Équateur.
 
 
 

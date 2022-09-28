@@ -9,7 +9,7 @@ weight:
 ---
 ### Le bien qui se cache
 
-Judas - reçu par H___ le 3 Avril 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 3 Avril 2003, Cuenca, Équateur.
 
 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La dynamique de la vie 2 : L’Amour
 
-Judas - reçu par H___ le 21 Mars 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 21 Mars 2003, Cuenca, Équateur.
 
 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La pièce de monnaie dans la bouche du poisson
 
-Judas - reçu par H___ le 14 Avril 2003, Cuenca, Équateur.
+Judas - reçu par H____ le 14 Avril 2003, Cuenca, Équateur.
 
 
 

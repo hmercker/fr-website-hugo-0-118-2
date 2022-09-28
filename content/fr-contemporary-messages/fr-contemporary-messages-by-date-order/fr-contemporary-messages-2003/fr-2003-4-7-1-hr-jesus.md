@@ -9,7 +9,7 @@ weight:
 ---
 ### Pourquoi Jésus a-t-il choisi Judas et Marie-Madeleine ?
 
-Jésus - reçu par H___ le 7 Avril 2003, Cuenca, Équateur.
+Jésus - reçu par H____ le 7 Avril 2003, Cuenca, Équateur.
 
 
 
