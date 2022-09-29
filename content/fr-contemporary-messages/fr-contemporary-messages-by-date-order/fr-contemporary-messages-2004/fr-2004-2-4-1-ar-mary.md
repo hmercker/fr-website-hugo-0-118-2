@@ -9,7 +9,7 @@ weight:
 ---
 ### Assez est ennuyeux
 
-Marie - reçu par Amada Reza le 4 Février 2004, Aptos, Californie, USA.
+Marie - reçu par Amada Reza le 4 Février 2004, Santa Cruz, California, USA.
 
 Je suis très heureuse de partager mon temps avec toi, et je suis ton amie et ta tutrice qui t’aime. Je suis Marie, la mère de Jésus, et je souhaite assurer à ma fille qu’elle m’entend et reçoit mes pensées.
 
