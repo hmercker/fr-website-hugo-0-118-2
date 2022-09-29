@@ -9,8 +9,7 @@ weight:
 ---
 ### L'Amour du Père
 
-Père - reçu par Helge Mercker le 7 Janvier 2013, Elim, Namibie
-
+Père - reçu par Helge Mercker le 7 Janvier 2013, Elim, Namibie.
 
 Mon enfant, c’est moi, ton Père aimant.
 
