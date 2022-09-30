@@ -13,7 +13,7 @@ Franklin D Roosevelt - reçu par FAB le 25 Décembre 2006, Santa Cruz, Californi
 
 C'est moi, Franklin Delano Roosevelt.
 
-Je veux discuter d'une déclaration que j'ai faite dans mon dernier message que j'ai canalisé à travers vous. J'ai dit : *« Je suis resté un politicien jusqu'à la fin, ce qui signifie que j'ai abordé la vie, et ma propre vie, sous cet angle. »*
+Je veux discuter d'une déclaration que j'ai faite dans[ mon dernier message que j'ai canalisé à travers vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-1-fab-franklin-d-roosevelt/). J'ai dit : *« Je suis resté un politicien jusqu'à la fin, ce qui signifie que j'ai abordé la vie, et ma propre vie, sous cet angle. »*
 
 Il est évident que je me souciais vraiment de mes responsabilités politiques, et que je désirais vraiment être utile à la société américaine. Cela a été clairement perçu par beaucoup.
 

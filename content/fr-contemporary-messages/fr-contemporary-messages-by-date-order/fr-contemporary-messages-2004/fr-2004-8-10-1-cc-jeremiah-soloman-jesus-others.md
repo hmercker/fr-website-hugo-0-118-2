@@ -11,13 +11,9 @@ weight:
 
 Jérémie, Salomon, Jésus et autres - reçu par CC le 10 Août 2004, New York, USA.
 
-Cher CC,
+Cher CC, merci d’avoir répondu à nos coups de pouce. C’est un moment opportun pour exprimer nos pensées, es-tu d’accord ? *[Oui.]*
 
-Merci d’avoir répondu à nos coups de pouce. C’est un moment opportun pour exprimer nos pensées, es-tu d’accord ? *[Oui.]*
-
-Chers enfants du temps,
-
-Nous venons à vous aujourd’hui avec notre amour et notre dévotion. Nous réalisons l’aventure qui vous attend et nous souhaitons vous inspirer force et ferveur. Ne vous étonnez pas des difficultés qui vous assaillent car le changement doit avoir lieu si vous voulez devenir de meilleurs exemples de l’Amour de Dieu. Sachez que ce n’est pas seulement nous qui vous demandons de donner l’exemple de l’amour qui est conféré à vos âmes, mais aussi vos propres âmes qui réclament que ces changements aient lieu. Ce sont les désirs et les aspirations de votre âme qui provoquent ces changements. C’est vous qui appelez les lois en action ; c’est votre volonté et vos intentions qui tirent les ficelles de votre destin.
+Chers enfants du temps, nous venons à vous aujourd’hui avec notre amour et notre dévotion. Nous réalisons l’aventure qui vous attend et nous souhaitons vous inspirer force et ferveur. Ne vous étonnez pas des difficultés qui vous assaillent car le changement doit avoir lieu si vous voulez devenir de meilleurs exemples de l’Amour de Dieu. Sachez que ce n’est pas seulement nous qui vous demandons de donner l’exemple de l’amour qui est conféré à vos âmes, mais aussi vos propres âmes qui réclament que ces changements aient lieu. Ce sont les désirs et les aspirations de votre âme qui provoquent ces changements. C’est vous qui appelez les lois en action ; c’est votre volonté et vos intentions qui tirent les ficelles de votre destin.
 
 Votre douleur et votre confusion proviennent de votre volonté de maintenir le statu quo. Ce sont vos natures physiques qui provoquent un malaise face aux changements en cours. Vos natures spirituelles sont prêtes à aller de l’avant, mais vos contreparties ont du mal à lâcher le contrôle qu’elles ont toujours eu. Il est donc sage de prier pour intégrer l’Amour (spirituel) à votre existence matérielle.
 
@@ -27,14 +23,10 @@ Réalisez que vous êtes d’abord une entité spirituelle et ensuite un mortel 
 
 Priez, mes enfants, le Père vous écoute. Vous êtes aimés au-delà de toute compréhension. Nous sommes toujours à vos côtés. Nous vous aimons et nous vous parlerons à nouveau. Que Dieu vous bénisse.
 
-Vos gardiens,
-
-Jeremiah et Solomon
+Vos gardiens, Jeremiah et Solomon.
 
 Je suis votre ami et frère Jésus, si je peux ajouter quelques mots à propos de vos discussions sur le « but ». Lorsque j’ai marché sur la terre il y a 2000 ans, j’ai également réfléchi à mon but. Et ce que j’ai appris, je vais maintenant vous le dire.
 
 Chacun d’entre vous est le « but ». Chaque âme est une expression unique et individuelle de l’amour. Il n’y a pas d’autre but à définir ou à décrire. Vous essayez de vous identifier à quelque chose d’extérieur à vous. Il n’y a aucun besoin de cela. Vous êtes le but. Rapprochez-vous de Dieu et de Son Amour et alors vous vous verrez et verrez le « but ».
 
-Nous vous aimons, jeunes frères, nous sommes toujours avec vous et nous nous signons,
-
-Jésus, Marie-Madeleine, Jean, Marie, Joseph, Paul, Luc, Pierre, André, Jean Marc, Daniel, Moïse, Sarah (arrière, arrière grand-mère) et beaucoup d’autres.
+Nous vous aimons, jeunes frères, nous sommes toujours avec vous et nous nous signons, Jésus, Marie-Madeleine, Jean, Marie, Joseph, Paul, Luc, Pierre, André, Jean Marc, Daniel, Moïse, Sarah (arrière, arrière grand-mère) et beaucoup d’autres.

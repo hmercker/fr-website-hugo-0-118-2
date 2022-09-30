@@ -9,7 +9,7 @@ weight:
 ---
 ### L’égalité de l’amour de Dieu
 
-St Jean et Jésus - reçu par Amada Reza le 17 Décembre 2004, Aptos, Californie, USA.
+St Jean et Jésus - reçu par Amada Reza le 17 Décembre 2004, Santa Cruz, Californie, USA.
 
 Je suis ici pour vous écrire, ma chère famille en Christ, je suis Jean, l’apôtre de Jésus. C’est un nom qui me situe dans un certain contexte historique, mais je tiens à vous faire savoir que je suis simplement votre frère et votre collaborateur dans cette grande et merveilleuse œuvre de vivre l’Amour Divin.
 
