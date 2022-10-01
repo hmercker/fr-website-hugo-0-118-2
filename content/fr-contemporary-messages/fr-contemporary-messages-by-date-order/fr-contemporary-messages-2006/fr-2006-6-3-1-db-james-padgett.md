@@ -9,7 +9,5 @@ weight:
 ---
 ### Les bonnes choses
 
-James Padgett - reçu par FALSE le 3 Juin 2006FALSE.
-
-
+James Padgett - reçu par DB le 3 Juin 2006, Troup, Texas, USA.
 

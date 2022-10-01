@@ -11,7 +11,7 @@ weight:
 
 Sarah Elizabeth Egelburg - reçu par Kathryn Stokes le 11 Octobre 2004, Santa Cruz, Californie, USA.
 
-Cher K___, tu t’es sentie bouleversé et frustrée aujourd’hui et peut-être que ces sentiments vont interférer avec la qualité du message que nous allons pouvoir délivrer, mais comme tu le sais très bien, tous les messages reçus ne sont pas destinés à des événements bouleversants, et beaucoup de pensées et de suggestions que nous délivrons ont pour but d’aider le médium.
+Cher K____ , tu t’es sentie bouleversé et frustrée aujourd’hui et peut-être que ces sentiments vont interférer avec la qualité du message que nous allons pouvoir délivrer, mais comme tu le sais très bien, tous les messages reçus ne sont pas destinés à des événements bouleversants, et beaucoup de pensées et de suggestions que nous délivrons ont pour but d’aider le médium.
 
 Souvent, les messages apparemment banals sont tout aussi importants et utiles que les plus profonds, vous n’avez donc pas à vous soucier de plaire à votre public, mais sachez simplement que chacun prendra ce dont il a besoin ou ce qu’il trouve utile à ce stade de son développement et ne sera pas dérangé par des déclarations ou des informations qui ne s’appliquent pas à lui.
 

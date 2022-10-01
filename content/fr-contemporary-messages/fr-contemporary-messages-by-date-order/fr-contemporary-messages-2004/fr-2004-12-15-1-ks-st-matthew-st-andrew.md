@@ -27,4 +27,6 @@ Maintenez vos désirs sincères de développer une relation plus étroite avec v
 
 Merci de bien vouloir canaliser nos pensées ; vous pouvez ressentir notre amour et vous savez que ces pensées viennent de l’extérieur de votre propre esprit. Nous aimons tous les enfants de notre Père et nous essayons de les encourager de toutes les manières possibles. *« Soyez fidèle à vous-même »*. Aimez Dieu et ayez foi en son amour pour vous et votre vie continuera à se dérouler de manière belle et harmonieuse.
 
-Je suis votre ami et votre frère dans l’Esprit de l’Amour de Dieu manifesté dans mon âme, et l’un de vos gardiens qui vous aime. Matthew, avec André et d’autres anges Célestes.
+Je suis votre ami et votre frère dans l’Esprit de l’Amour de Dieu manifesté dans mon âme, et l’un de vos gardiens qui vous aime. 
+
+Matthew, avec André et d’autres anges Célestes.

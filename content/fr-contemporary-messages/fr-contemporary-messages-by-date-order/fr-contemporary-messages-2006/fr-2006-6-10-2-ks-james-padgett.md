@@ -12,4 +12,3 @@ weight:
 James Padgett - reçu par Kathryn Stokes le 10 Juin 2006, Santa Cruz, Californie, USA.
 
 
-

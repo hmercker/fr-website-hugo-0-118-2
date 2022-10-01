@@ -21,7 +21,7 @@ Tu peux être sûr que tu passeras par beaucoup, beaucoup de changements au cour
 
 Oui, je sais que tu t’inquiètes encore de l’avenir et que tu te demandes si tu seras capable de relever les défis qui se présenterons, mais laisse-moi te répéter que tu as un talent considérable qui travaille pour toi de ce côté-ci de la vie. Et si cela ne te réconforte pas, le Père le fera, grâce à ta foi toujours plus grande en Lui.
 
-Non, tu ne passes pas trop de temps à relire « Du côté de la Rivière ». Nous voyons que tu prends le temps de documenter ton processus de transcription, ce qui profitera à tous ceux qui pourraient rencontrer tes messages – les autographes, plutôt – à l’avenir.
+Non, tu ne passes pas trop de temps à relire *« Du côté de la Rivière »*. Nous voyons que tu prends le temps de documenter ton processus de transcription, ce qui profitera à tous ceux qui pourraient rencontrer tes messages – les autographes, plutôt – à l’avenir.
 
 Je t’aime de mon amour et de l’Amour du Père qui se déverse à travers moi. Il y a tant de choses que toi et Hans voulez savoir sur les rouages de l’âme et de l’esprit – tout vous sera révélé quand votre heure sera venue – mais comme vous commencez à le voir : la langue du Père peut être « parlée » et tous Ses désirs pour vous réalisés sans apprendre tous les détails de la structure qui fascine tant l’ingénieur en vous deux. Une fois que le vocabulaire peut être compris, l’histoire peut être racontée et elle le sera par les niveaux sur lesquels l’histoire se déroule – comme elle l’a fait. Oui, même maintenant, quand vous lisez le travail de M. Padgett, il vous emmène dans des endroits où vous n’êtes pas allés les premières fois.
 
@@ -46,4 +46,4 @@ Nous t’aimons – nous tous, tes gardiens – et nous apprécions chacune de t
 
 Je t’aime, ton père, et tes amis pour qui il parle en ce moment.
 
-*Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Voici le [prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-3-1-pjr-jesus/), et voici le [premier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-28-1-pjr-psr/).*
+*Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Voici le [prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-3-1-pjr-jesus/), et voici le [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-28-1-pjr-psr/).*

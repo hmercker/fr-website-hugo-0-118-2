@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### F,D. Roosevelt parle sur ses expériences spirituelles
+### Theordore Roosevelt parle sur ses expériences spirituelles
 
-Franklin D Roosevelt - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
+Theodore Roosevelt - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 
 
 
