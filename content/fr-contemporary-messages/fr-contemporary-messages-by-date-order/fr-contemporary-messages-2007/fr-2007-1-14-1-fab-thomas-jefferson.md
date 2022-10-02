@@ -9,7 +9,7 @@ weight:
 ---
 ### Un changement spirituel dans la politique américaine
 
-Thomas Jefferson - reçu par FAB le 14 Janvier 2007, Santa Cruz, Californie, USA.
+Thomas Jefferson <sup id="a1">[1](#f1)</sup> - reçu par FAB le 14 Janvier 2007, Santa Cruz, Californie, USA.
 
 C’est moi, Thomas Jefferson.
 
@@ -21,8 +21,9 @@ Le changement va venir, et il sera glorieux. Nous avons prévu cela depuis des d
 
 Dieu bénisse l’Amérique.
 
-=======================================================================
+*Thomas Jefferson a également [été canalisé par James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-9-1-jep-thomas-jefferson/) et a été mentionné dans un certain nombre de ses autres messages.*
+<small>
 
-Thomas Jefferson (13 avril 1743 (Nouvelle-Écosse) – 4 juillet 1826) fut le troisième président des Etats-Unis (1801-1809), principal auteur de la déclaration d’indépendance (1776) et l’un des pères fondateurs les plus influents pour sa promotion des idéaux de Républicanisme aux États-Unis. Événements majeurs au cours de sa présidence incluent l’achat de la Louisiane (1803), la Lewis et Clark Expedition (1804-1806) et la Loi d’Embargo ratée de 1807. (Source : Wikipédia)
+1. <large id="f1"> Thomas Jefferson (13 avril 1743 (Nouvelle-Écosse) – 4 juillet 1826) fut le troisième président des Etats-Unis (1801-1809), principal auteur de la déclaration d’indépendance (1776) et l’un des pères fondateurs les plus influents pour sa promotion des idéaux de Républicanisme aux États-Unis. Événements majeurs au cours de sa présidence incluent l’achat de la Louisiane (1803), la Lewis et Clark Expedition (1804-1806) et la Loi d’Embargo ratée de 1807. (Source : Wikipédia)[↩](#a1)
 
-Thomas Jefferson a également été canalisé par James Padgett et a été mentionné dans un certain nombre de ses autres messages.
+
