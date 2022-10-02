@@ -9,7 +9,7 @@ weight:
 ---
 ### Le vent du changement souffle
 
-Judas - reçu par Helge Mercker le 9 Décembre 2012, Elim, Namibia
+Judas - reçu par Helge Mercker le 9 Décembre 2012, Elim, Namibie
 
 Ma chère sœur, c’est ton ami angélique Judas. Ne t’encombre pas de choses qui sont faites, de choses de ta construction mentale, – sens-toi en sécurité et en sûreté, car tout suivra comme Dieu l’a prévu. Ressens avec confiance que tout ira bien, que toutes les prières seront exaucées, aie confiance, aie confiance maintenant, car nous sommes ici avec toi et voyons tes luttes. Sois dans la joie de connaître les vérités, c’est la vraie richesse et elle est utilisée pour l’éternité. C’est à nous qu’il revient de le dire, car nous en sommes les témoins. Prépare-toi à vivre des situations plus « difficiles », mais reste forte dans ta foi, ma chère.
 

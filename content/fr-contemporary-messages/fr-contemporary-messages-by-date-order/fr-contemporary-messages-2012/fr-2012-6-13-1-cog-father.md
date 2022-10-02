@@ -11,7 +11,7 @@ weight:
 
 Père - reçu par Enfant de Dieu le 13 Juin 2012
 
-Mon enfant bien aimé.
+Mon enfant bien aimé,
 
 Nous avons parlé du besoin humain d’amour humain et tu étais un peu déconcerté.
 

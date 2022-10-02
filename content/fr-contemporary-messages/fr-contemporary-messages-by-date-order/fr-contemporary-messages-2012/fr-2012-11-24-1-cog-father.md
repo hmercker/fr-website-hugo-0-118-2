@@ -11,7 +11,6 @@ weight:
 
 Père - reçu par Enfant de Dieu le 24 Novembre 2012
 
-
 Je parle à ceux qui entendent.
 
 Vous êtes mes enfants. Je vous aime tous et chacun d’entre vous. Mon amour et ma sagesse sont pour tous. Je suis la douce voix intérieure qui murmure des mots d’amour à votre oreille. Écoutez et entendez. Ressentez ma présence dans chaque souffle que vous prenez. Laissez-moi vous encourager. Si seulement vous me laissiez faire. Je ne suis pas aussi distant que vous le pensez. Je suis ici même. Ouvrez votre cœur et votre âme et laissez-nous ne faire qu’un.

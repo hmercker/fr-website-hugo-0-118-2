@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### le plan de Dieu
+### Le plan de Dieu
 
 Jésus - reçu par FAB le 28 Juin 2011, Santa Cruz, Californie, USA.
 

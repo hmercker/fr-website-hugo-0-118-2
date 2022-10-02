@@ -11,7 +11,7 @@ weight:
 
 Père - reçu par Enfant de Dieu le 5 Mai 2012
 
-Cher enfant.
+Cher enfant,
 
 Tes sentiments expriment le désir de ton âme. Quand tu fais attention à tes sentiments, tu écoutes ton âme. Tes sentiments sont les sens de ton âme. Sois sensible et sois en contact avec ton âme. Tu ne peux pas connaître ton âme si tu ne peux pas ressentir.
 

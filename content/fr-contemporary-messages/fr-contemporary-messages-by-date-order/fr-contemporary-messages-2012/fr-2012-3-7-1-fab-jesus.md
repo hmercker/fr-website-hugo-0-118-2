@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 7 Mars 2012, Santa Cruz, Californie, USA
 
 C’est moi, Jésus.
 
-Permettez-moi de poursuivre [la canalisation d’hier](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2012\fr-2012-3-6-2-fab-jesus.md). J’ai dit que nous ne sommes pas naïfs, et nous ne le sommes pas. Mais en tant qu’agents de Dieu, nous ne cherchons que le bien. C’est pourquoi nous sommes intensément conscients des horreurs et des souffrances de la guerre, même si notre préoccupation principale est notre souci spirituel de l’âme humaine.
+Permettez-moi de poursuivre [la canalisation d’hier]\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2012\fr-2012-3-6-2-fab-jesus). J’ai dit que nous ne sommes pas naïfs, et nous ne le sommes pas. Mais en tant qu’agents de Dieu, nous ne cherchons que le bien. C’est pourquoi nous sommes intensément conscients des horreurs et des souffrances de la guerre, même si notre préoccupation principale est notre souci spirituel de l’âme humaine.
 
 Dans votre propre expérience avec nous, vous avez vu que nous n’avons jamais violé votre libre arbitre. Nous ne pouvons pas, et ne voulons pas. Et pourtant, nous avons été capables de réussir avec vous pendant toute une vie. Pourquoi ? Parce que votre âme était fondamentalement bonne, et que vous recherchiez la vérité. Cela a établi un rapport puissant. Et lorsque ta conscience de l’Amour Divin et des vérités de Dieu est devenue consciente, cela a intensifié notre rapport. Et maintenant, vous voulez nous servir, donc votre volonté est alignée sur la nôtre, ce qui entraîne un succès accru en raison de ce meilleur rapport.
 

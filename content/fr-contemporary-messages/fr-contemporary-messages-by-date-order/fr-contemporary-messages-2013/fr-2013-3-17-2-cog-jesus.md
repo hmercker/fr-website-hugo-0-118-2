@@ -11,7 +11,6 @@ weight:
 
 Jésus - reçu par Enfant de Dieu le 17 Mars 2013
 
-
 Je suis ici, votre frère dans l’Amour, Jésus. Vous avez fait appel à moi pour vous éclairer sur le sujet de l’interrelation entre votre relation avec vos parents humains et votre relation avec Notre Père.
 En effet, votre relation avec Notre Père est le reflet de votre relation avec vos parents. Vos parents sont votre premier amour, et d’eux vous prenez leurs ombres et leurs blessures. De leur manière inconsciente de vivre et d’aimer, votre amour est façonné. Vous voyez le monde à travers leurs yeux, jusqu’à ce que vous vous réveilliez vous-même de leur illusion.
 

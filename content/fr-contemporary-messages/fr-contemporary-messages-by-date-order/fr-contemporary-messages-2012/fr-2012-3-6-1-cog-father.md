@@ -30,6 +30,6 @@ Ta question : « Pourquoi t’es-tu séparé de moi ? » Il n’est pas possible
 
 Tu es fatigué, tu ne dors pas bien ces jours-ci. Tu devrais sortir dans la nature et te remplir de nature, ouvrir tous tes sens aux sens de la nature – fais cela.
 
-Amour de ton Père dans les Cieux
+Amour de ton Père dans les Cieux.
 
 

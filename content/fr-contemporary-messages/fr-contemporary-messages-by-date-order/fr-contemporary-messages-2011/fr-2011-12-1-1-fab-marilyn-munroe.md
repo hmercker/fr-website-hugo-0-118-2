@@ -37,8 +37,6 @@ Où suis-je maintenant ? Dans la cinquième sphère. J’ai l’air en forme, me
 
 Je veux dire au monde que ce que vous exprimez vous reviendra, alors mettez-y les bonnes choses.
 
-Sur la vie de Marilyn Monroe :
-
 Marilyn Monroe, née Norma Jeane Mortenson, mais baptisée et élevée sous le nom de Norma Jeane Baker, du 1er juin 1926 au 5 août 1962, est une actrice, chanteuse, mannequin et showgirl américaine qui est devenue un important sex-symbol, jouant dans un certain nombre de films à succès dans les années 1950.
 
 Après avoir passé une grande partie de son enfance dans des foyers d’accueil, Marilyn Monroe a commencé une carrière de mannequin, ce qui lui a valu un contrat de cinéma en 1946. Ses premières apparitions au cinéma sont mineures, mais ses prestations dans The Asphalt Jungle et All About Eve (tous deux en 1950) attirent l’attention sur elle – ses cheveux sont désormais teints en blond. Elle reçoit un Golden Globe Award pour son interprétation dans Certains l’aiment chaud (1959). Le dernier film terminé de Monroe est The Misfits, avec Clark Gable, dont le scénario a été écrit par son mari de l’époque, Arthur Miller. Les dernières années de la vie de Monroe ont été marquées par la maladie, des problèmes personnels et une réputation d’être peu fiable et d’un caractère peu coopératif.
@@ -47,5 +45,5 @@ Les circonstances de sa mort, due à une overdose de barbituriques, ont fait l�
 
 En 1999, l’American Film Institute a classé Monroe comme la sixième plus grande star féminine de tous les temps. Dans les années et les décennies qui ont suivi sa mort, Monroe a souvent été citée à la fois comme une icône pop et culturelle et comme la quintessence du sex-symbol féminin américain. (Source : Wikipedia)
 
-Note : lire le [témoignage de Billy Wilder au sujet de Marilyn Monroe](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2012\fr-2012-3-12-1-fab-billy-wilder.md)
+**Note** : lire le [témoignage de Billy Wilder au sujet de Marilyn Monroe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-12-1-fab-billy-wilder)
 

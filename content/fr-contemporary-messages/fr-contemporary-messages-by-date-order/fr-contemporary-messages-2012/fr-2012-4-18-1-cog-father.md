@@ -24,7 +24,7 @@ Ton corps est entier, beau et parfaitement fait. Tout ton être est parfait et a
 
 Lorsque tu as des relations sexuelles sans ressentir d’amour, ton âme meurt un peu. Si l’âme pouvait faire un choix, elle préférerait vivre sans sexe plutôt que de faire l’amour sans amour.
 
-L’acte de faire l’amour est une image de l’univers entier. C’est un petit « Big Bang » qui reflète ma création de l’ensemble. Lorsque tu fais l’amour avec ton âme sœur1, tu as la possibilité de ressentir pour toi-même l’acte de création.
+L’acte de faire l’amour est une image de l’univers entier. C’est un petit « Big Bang » qui reflète ma création de l’ensemble. Lorsque tu fais l’amour avec ton âme sœur<sup id=”a1”>[1](#f1)</sup>, tu as la possibilité de ressentir pour toi-même l’acte de création.
 
 Tu peux faire l’amour sans amour, il n’y a pas de loi contre cela, mais ce ne sera qu’une expérience physique et ton âme sera endommagée. Une âme endommagée entraînera un corps endommagé, ce qui signifie la maladie.
 
@@ -34,9 +34,11 @@ Tu as ta propre histoire et la façon dont tu as vécu ta vie a ses conséquence
 
 Je t’aime dans mon cœur,
 
-Père
+Père.
 
-1 Le médium a confirmé que l’utilisation du mot « âme-sœur » ici n’était pas destinée à être interprétée littéralement comme le font les Messages de James Padgett. Il s’agit plutôt ici d’un « partenaire que vous aimez profondément ».
+<small>
+
+   1.<large id=”f1”>Le médium a confirmé que l’utilisation du mot « âme-sœur » ici n’était pas destinée à être interprétée littéralement comme le font les Messages de James Padgett. Il s’agit plutôt ici d’un « partenaire que vous aimez profondément ».[↩](#a1) 
 
 
 

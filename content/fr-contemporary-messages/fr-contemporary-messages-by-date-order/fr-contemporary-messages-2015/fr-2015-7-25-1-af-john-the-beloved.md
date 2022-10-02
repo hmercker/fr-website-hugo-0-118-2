@@ -13,7 +13,6 @@ Jean le Bien Aimé - reçu par Al Fike le 25 Juillet 2015, Gibsons, Colombie-Bri
 
 !(https://lanouvellenaissance.files.wordpress.com/2021/10/spiritualite-21.jpg)
 
-
 C’est Jean qui vous parle. Le Souffle de Dieu se déverse sur votre monde, mes bien-aimés. Son contact touche tout et Son Souffle se répand sur les sommets des montagnes et dans les vallées, les ruisseaux et les lacs, les océans, les créatures du monde. Toute la création dans ce monde, mes bien-aimés, est touchée par Dieu.
 
 En ce moment, il y a un grand changement à venir de son contact. Il y a un grand changement, et le monde va changer, mes bien-aimés. Le monde va changer et vous devez être suffisamment forts et alignés avec la volonté de Dieu dans Son Amour pour faire partie de ce changement de toutes les manières, pour vous permettre d’être transformés par Son Amour, pour permettre à vos corps d’être touchés par cette bénédiction spéciale qui est transformatrice sur cette Terre, pour permettre à vos esprits de refléter la Lumière dans vos âmes et pour permettre à vos esprits d’être réceptifs à la connaissance que Dieu vous donne dans vos âmes par Son Amour.

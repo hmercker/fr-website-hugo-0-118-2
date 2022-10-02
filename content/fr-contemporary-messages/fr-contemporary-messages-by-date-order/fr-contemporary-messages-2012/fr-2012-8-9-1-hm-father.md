@@ -9,7 +9,7 @@ weight:
 ---
 ### Prends une profonde respiration de Mon Amour
 
-Le Père - reçu par Helge Mercker le 9 Août 2012, Elim, Namibia
+Le Père - reçu par Helge Mercker le 9 Août 2012, Elim, Namibie
 
 Je suis là mon enfant, c’est ton Père.
 

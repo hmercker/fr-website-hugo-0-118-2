@@ -27,9 +27,7 @@ Mes enfants m’aiment d’un amour profond et vrai, et ils ne souhaitent que pr
 
 <small>
 
-   1.<large id=”f1”> Il y a eu trois autres messages de Judy garland qui furent communiqués le 19 Mai 2008, le19 Septembre 2008 et le 12 Octobre 2008.[↩](#a1)
-
-
+   1.<large id=”f1”> Il y a eu cinq autres messages de Judy garland qui furent communiqués le [19 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-2-fab-judy-garland), le [19 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-19-1-fab-judy-garland), le [27 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-27-1-fab-judy-garland),[12 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-judy-garland) et le [29 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-29-1-fab-judy-garland).[↩](#a1)
 
 
 

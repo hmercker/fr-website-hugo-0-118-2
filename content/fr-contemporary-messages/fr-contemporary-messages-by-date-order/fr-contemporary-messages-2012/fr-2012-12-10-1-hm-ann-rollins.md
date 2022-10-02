@@ -9,8 +9,7 @@ weight:
 ---
 ### Sur le Foi
 
-Anne Rollins - reçu par Helge Mercker le 10 Décembre 2012, Elim, Namibia
-
+Anne Rollins - reçu par Helge Mercker le 10 Décembre 2012, Elim, Namibie
 
 Ma chère, très chère sœur, tu es en effet aimée, laisse couler tes larmes, les larmes de l’amour, car tu nous sens si proches et si près de toi.
 

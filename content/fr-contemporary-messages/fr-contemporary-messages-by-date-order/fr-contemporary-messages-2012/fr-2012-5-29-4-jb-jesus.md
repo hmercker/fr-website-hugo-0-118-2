@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA
 
-C’est moi Jésus..
+C’est moi Jésus.
 
 Aujourd’hui a été une glorieuse journée de prière pour les personnes du monde entier. Plus de personnes que vous ne le pensez se sont jointes à cet effort de prière. Vos prières, ainsi que celles de tous les autres participants qui se sont joints à Brenda Foster, ont eu et continueront d’avoir un impact considérable.
 

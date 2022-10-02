@@ -23,5 +23,5 @@ Beaucoup d’entre vous tombent malades parce que vous ne faites pas confiance �
 
 Je vous aime dans Mon Cœur.
 
-Père
+Père.
 

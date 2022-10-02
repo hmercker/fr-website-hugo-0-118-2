@@ -11,7 +11,7 @@ weight:
 
 Père - reçu par Enfant de Dieu le 23 Avril 2012
 
-Cher enfant
+Cher enfant,
 
 Aujourd’hui, nous allons parler de ce moment.
 

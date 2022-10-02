@@ -11,7 +11,6 @@ weight:
 
 Judas - reçu par Al Fike le 14 Mars 2013, Gibsons, Colombie-Britannique, Canada.
 
-
 Une discussion récente sur les émotions et les pensées a porté sur ce qui vient en premier. A-t-on une pensée, puis crée-t-on une émotion, ou l’émotion elle-même donne-t-elle lieu à des pensées ? En réponse à une suggestion selon laquelle les émotions sont le fruit de l’esprit, une citation d’un message délivré par Judas le 8 Mai 2002 a été proposée à la réflexion :
 
 *L’âme humaine a été décrite à plusieurs reprises par divers esprits. Jésus explique que l’âme est une création de Dieu, une entité distincte et différente, et qu’elle n’est pas une émanation de l’Être suprême, comme l’enseignent certaines religions. Le Maître explique également que l’âme est le siège des « émotions spirituelles », en utilisant le mot « émotions », car l’âme ne « pense » pas comme l’esprit. L’activité intelligente de l’âme se développe au niveau spirituel, et non au niveau de la raison. Elle échappe donc à toute description, de la même manière que les émotions de la nature animale échappent à l’intention de les articuler en mots. Les mots sont les formes et les structures de l’esprit « matériel », auxquelles les émotions ajoutent couleur et vie.*
@@ -26,4 +25,4 @@ En ce qui concerne les pensées et leur relation avec l’émotion. Elles ne son
 
 Je suis Judas, Dieu vous bénit et nous sommes heureux que vous vous penchiez sur ces questions avec un profond intérêt et une volonté de partager et d’apprendre. Nous allons tenter de répondre à ces questions dans la mesure où cet instrument est en état de le faire. Ne cessez pas de poser des questions, car c’est une voie de plus vers la croissance de l’âme. La connaissance vous apporte la force. L’amour vous apporte la paix et la joie. Ensemble, ils forment un canal magnifique et efficace pour l’amour et la vérité de Dieu. Je vous aime comme tant d’autres. Que Dieu vous bénisse.
 
-Un autre excellent message sur ce sujet a été reçu par un autre médium le [jour suivant](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2013\fr-2013-3-15-1-jr-richard.md).
+Un autre excellent message sur ce sujet a été reçu par un autre médium le [jour suivant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-1-jr-richard).

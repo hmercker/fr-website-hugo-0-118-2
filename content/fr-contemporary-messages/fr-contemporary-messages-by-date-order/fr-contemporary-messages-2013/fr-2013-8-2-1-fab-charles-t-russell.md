@@ -17,7 +17,7 @@ Mon organisation, les Témoins de Jéhovah, va s’effondrer et mourir. Ils ne p
 
 Oui, je veux que vous publiiez ceci, car c’est tout simplement vrai.
 
-Lorsque j’ai prédit que [Jésus reviendrait en 1914](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1914\fr-1914-9-12-1-jep-jesus.md), j’ai dit la vérité, car c’est cette année-là exactement que Jésus a commencé à canaliser les messages que je vois maintenant comme étant la vérité de ses enseignements, et aussi la vérité sur cette vie des esprits.
+Lorsque j’ai prédit que [Jésus reviendrait en 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/\fr-padgett-messages-1914/fr-1914-9-12-1-jep-jesus), j’ai dit la vérité, car c’est cette année-là exactement que Jésus a commencé à canaliser les messages que je vois maintenant comme étant la vérité de ses enseignements, et aussi la vérité sur cette vie des esprits.
 
 **Note :** C’est fascinant d’avoir cette communication. J’avais déjà remarqué que les témoins de Jéhovah avaient fait cette prédiction, mais je sais aussi qu’ils l’ont maintenant commodément oubliée, car ils ont évidemment conclu qu’elle n’a pas eu lieu et il n’est pas possible de trouver l’énoncé de cette croyance dans la version actuelle de Wikipedia citée ci-dessous :
 
@@ -27,7 +27,7 @@ Lorsque j’ai prédit que [Jésus reviendrait en 1914](content\fr-james-padgett
 
 Après la mort de Charles Russell, une crise a éclaté autour de la direction de la société par Rutherford, qui a abouti à un schisme à l’échelle du mouvement. Les trois quarts des quelque 50 000 étudiants de la Bible qui s’étaient associés en 1917 avaient quitté le mouvement en 1931, ce qui a entraîné la formation de plusieurs groupes qui ont conservé des variantes du nom d’étudiants de la Bible. Ceux qui sont restés en communion avec la Watch Tower Society (Société de la Tour de Garde) ont adopté le nom de Témoins de Jéhovah en 1931, tandis que ceux qui ont rompu les liens avec la Société ont formé leurs propres groupes, notamment le Pastoral Bible Institute (Institut Biblique Pastoral) en 1918, le Laymen’s Home Missionary Movement (le Mouvement Missionnaire Familial des Laïcs) en 1919 et la Dawn Bible Students Association (Association des étudiants de la Bible de l’Aube) en 1929.
 
-Le pasteur Russel a également communiqué par l’intermédiaire de James Padgett [peu après sa propre mort en 1916](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-11-6-2-jep-charles-russel.md) et [à nouveau en 1918](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1918\fr-1918-7-31-1-jep-charles-russell.md).
+Le pasteur Russel a également communiqué par l’intermédiaire de James Padgett [peu après sa propre mort en 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-6-2-jep-charles-russel) et [à nouveau en 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-7-31-1-jep-charles-russell).
 
 
 

@@ -19,7 +19,7 @@ Ajusteur de Pensée - reçu par Oscar le 31 Juillet 2012
 
 « Je vous suggère de commencer votre méditation par une prière sincère, une conversation avec votre Père exprimant ce dont vous avez besoin et vos désirs profonds. Oui, le Père le sait mieux que vous, mais cet exercice clarifiera les idées dans votre esprit et, au fur et à mesure de votre progression spirituelle, ces désirs deviendront un reflet plus fidèle de ce dont votre âme a réellement besoin.
 
- » Le Père travaille sans cesse et sans repos à travers Ses multiples agents pour l’élévation de votre âme afin de vous transformer en ce que vous pouvez aspirer à être de mieux. Votre prière ne fera pas travailler davantage le Père, mais elle vous préparera à recevoir ce que le Père vous offre. La véritable adoration – accorder l’âme à la fréquence de celle de votre Père – est le moyen par lequel ces bénédictions peuvent être reçues et par lequel vous pouvez apprendre à mieux connaître votre Père – en apprenant à vivre sa volonté. »
+ « Le Père travaille sans cesse et sans repos à travers Ses multiples agents pour l’élévation de votre âme afin de vous transformer en ce que vous pouvez aspirer à être de mieux. Votre prière ne fera pas travailler davantage le Père, mais elle vous préparera à recevoir ce que le Père vous offre. La véritable adoration – accorder l’âme à la fréquence de celle de votre Père – est le moyen par lequel ces bénédictions peuvent être reçues et par lequel vous pouvez apprendre à mieux connaître votre Père – en apprenant à vivre sa volonté. »
 
 
 © The 11:11 Progress Group.

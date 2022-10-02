@@ -18,9 +18,9 @@ Oui, je possède l’Amour de Dieu, comme vous l’avez deviné. Je viendrai bie
 
 Mais laissez-moi juste dire pour le moment que vous avez bien agi en achetant ces deux livres ce matin et qu’une nouvelle façon de gagner de l’argent arrive très bientôt.
 
-=======================================================================
+=================================================================================================================================
 
-Natalie Wood a fait ses débuts au cinéma en 1943 et connaît ses premiers succès en tant qu’actrice-enfant en 1947 dans Le Miracle de la 34e rue. Son second rôle dans La Fureur de vivre (Rebel Without a Cause, 1955), où elle donne la réplique à James Dean, lui permet d’être nommée aux Oscars et de remporter un Golden Globe en tant que révélation. Elle enchaîne l’année suivante avec La Prisonnière du désert, l’un des plus mémorables films de John Ford où elle incarne le rôle d’une enfant de fermiers enlevée par les Indiens et élevée par eux, jusqu’à ce que son oncle (John Wayne) la retrouve.
+**Natalie Wood** a fait ses débuts au cinéma en 1943 et connaît ses premiers succès en tant qu’actrice-enfant en 1947 dans Le Miracle de la 34e rue. Son second rôle dans La Fureur de vivre (Rebel Without a Cause, 1955), où elle donne la réplique à James Dean, lui permet d’être nommée aux Oscars et de remporter un Golden Globe en tant que révélation. Elle enchaîne l’année suivante avec La Prisonnière du désert, l’un des plus mémorables films de John Ford où elle incarne le rôle d’une enfant de fermiers enlevée par les Indiens et élevée par eux, jusqu’à ce que son oncle (John Wayne) la retrouve.
 
 Les récompenses de début de carrière l’aident à accomplir la transition vers l’incroyable actrice adulte qu’elle sera, avec notamment une deuxième nomination aux Oscars en 1961 pour Splendor In The Grass (La Fièvre dans le sang) d’Elia Kazan. La même année, elle tourne dans la comédie musicale West Side Story, et l’année suivante dans Gypsy, Vénus de Broadway. Suit une troisième nomination aux Oscars en 1963, pour Une certaine rencontre. Sa carrière se poursuit le long des années 1960 avec notamment Bob et Carole et Ted Alice (1969).
 

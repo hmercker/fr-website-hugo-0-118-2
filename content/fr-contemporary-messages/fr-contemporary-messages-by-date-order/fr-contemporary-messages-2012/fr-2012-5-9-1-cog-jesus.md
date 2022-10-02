@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Enfant de Dieu le 9 Mai 2012
 
-!(spiritualite-21.jpg)
+!(https://lanouvellenaissance.files.wordpress.com/2021/10/spiritualite-21.jpg)
 
 Ma chère sœur,
 
@@ -23,7 +23,7 @@ Ce sont mes enseignements qui sont importants, pas moi en tant que personne. Je 
 
 La vérité est simple. La vérité est libre.
 
-Votre frère dans l’amour,
+Ton frère dans l’amour,
 
 Jésus.
 

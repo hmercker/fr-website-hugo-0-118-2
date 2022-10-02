@@ -9,8 +9,7 @@ weight:
 ---
 ### Pas de solution pour les Rockefeller
 
-Nelson Rockefeller - reçu par FAB le 11 Mars 2013, Santa Cruz, Californie, USA.
-
+Nelson Rockefeller - reçu par FAB le 11 Mars 2013, Santa Cruz, Californie, USA
 
 Je suis Nelson Rockefeller. Il n’y a aucun moyen pour ma famille de gagner cette affaire, pas contre Dieu tout-puissant. Alors reposez-vous, et soyez reconnaissant de ne pas avoir à endurer ce que je souffre. Ne soyez pas découragé par la taille de l’opposition. Elle est éclipsée par Dieu.
 

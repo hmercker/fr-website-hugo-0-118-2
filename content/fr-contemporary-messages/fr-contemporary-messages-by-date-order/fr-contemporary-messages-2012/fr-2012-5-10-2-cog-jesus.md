@@ -11,9 +11,9 @@ weight:
 
 Jésus - reçu par Enfant de Dieu le 10 Mai 2012
 
-Aujourd’hui, nous allons parler des faux et des vrais enseignants. Vous vous demandez s’il y a de vrais enseignants depuis Jésus et comment il est possible pour les humains de discerner les faux enseignants des vrais enseignants.
+Aujourd’hui, nous allons parler des faux et des vrais enseignants. Tu te demandes s’il y a de vrais enseignants depuis Jésus et comment il est possible pour les humains de discerner les faux enseignants des vrais enseignants.
 
-C’est en effet un bon sujet. Vous me posez cette question et je laisserai Jésus parler.
+C’est en effet un bon sujet. Tu me poses cette question et je laisserai Jésus parler.
 
 Vous reconnaîtrez un véritable enseignant à ses actions aimantes et bienveillantes. Un véritable enseignant ne vous fera jamais sentir petit. Il verra toujours la grandeur en vous, même si vous vous sentez petit. Il saura toujours reconnaître votre grand potentiel. Il sera toujours honnête et dira la vérité d’une manière aimable et aimante. La vérité peut vous déranger, vous bouleverser et remettre en question vos croyances, mais il la dit avec amour. L’humilité est une autre propriété d’un enseignant de la Vérité. La responsabilité aussi. Un enseignant de la Vérité assume toujours la responsabilité de ses propres paroles et actions. Un véritable enseignant ne violera jamais votre libre arbitre. Un véritable enseignant ne vous menacera jamais.
 

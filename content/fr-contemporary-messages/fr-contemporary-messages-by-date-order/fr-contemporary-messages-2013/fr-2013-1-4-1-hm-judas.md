@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils personnels
 
-Judas - reçu par Helge Mercker le 4 Janvier 2013, Elim, Namibie.
+Judas - reçu par Helge Mercker le 4 Janvier 2013, Elim, Namibie
 
 C’est Judas, je suis heureux que tu écrives. Reconnais que tu es la force exécutante pour réaliser ta volonté et tes désirs. Aspire à ce que cela soit en accord avec la Volonté de notre Père. Mais tu dois exprimer les désirs profonds de ton âme et tes passions et en être conscient. Il ne s’agit pas de faire ce que tu crois devoir faire, mais de ressentir ce que tu veux faire. Donne-toi du temps et de l’espace pour trouver la clarté, tout en t’imposant une certaine pression pour faire ce qui est juste et correct.
 

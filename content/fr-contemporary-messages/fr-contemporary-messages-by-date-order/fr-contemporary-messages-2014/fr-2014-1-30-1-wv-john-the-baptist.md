@@ -13,7 +13,7 @@ Jean-Baptiste - reçu par WV le 30 Janvier 2014, Schoten, Belgique
 
 Je suis là, Jean le Baptiste.
 
-Je suis si heureux que mon ami, Sri Yukteswar, [ait pu vous délivrer son message](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2014\fr-2014-1-30-2-fab-sri-yarisupta.md). Pour que vous sachiez que les Cieux sont ouverts à tous.
+Je suis si heureux que mon ami, Sri Yukteswar, [ait pu vous délivrer son message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta.md). Pour que vous sachiez que les Cieux sont ouverts à tous.
 
 Il y a beaucoup plus de nationalités dans les Cieux que vous ne pouvez l’imaginer. Il y a tellement d’origines culturelles et religieuses différentes qu’il me serait difficile de les énumérer toutes. Il serait plus facile pour moi de vous donner une liste de ceux qui ne le sont pas. Que vous soyez un bushman, un Indien, un Catholique, un Juif, un Hindou, un Témoin de Jéhovah, un Mormon et tous ces autres types d’origines religieuses, cela n’a pas d’importance une fois que vous entrez dans les Sphères Célestes. Cela n’a même pas d’importance ici sur terre car l’Amour Divin est disponible pour tous.
 

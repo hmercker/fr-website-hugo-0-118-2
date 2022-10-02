@@ -40,4 +40,4 @@ Je t’aime.
 
 Ton père
 
-Note. Ce message a été retenu initialement, en raison de la suggestion ci-dessus que Moïse n’a pas reçu le « texte » des Dix Commandements de Père. Nous avons tendance à penser que c’est possible, et c’est ce qu’il a dit, mais que ce message fait plutôt référence au fait que les humains ont interprété ces commandements à leur convenance.
+**Note :** Ce message a été retenu initialement, en raison de la suggestion ci-dessus que Moïse n’a pas reçu le « texte » des Dix Commandements de Père. Nous avons tendance à penser que c’est possible, et c’est ce qu’il a dit, mais que ce message fait plutôt référence au fait que les humains ont interprété ces commandements à leur convenance.

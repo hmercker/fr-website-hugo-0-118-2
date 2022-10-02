@@ -9,7 +9,7 @@ weight:
 ---
 ### La joie de l'Amour
 
-Judas - reçu par Helge Mercker le 5 Janvier 2013, Elim, Namibie.
+Judas - reçu par Helge Mercker le 5 Janvier 2013, Elim, Namibie
 
 Bonjour, bonjour ma chère sœur, oh oui, je suis heureux !
 

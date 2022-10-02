@@ -21,7 +21,7 @@ En tant que mortel, je ne pouvais pas la comprendre, mais j’avoue que je n’a
 
 Au moment où je l’ai rencontrée en tant qu’esprit, elle était déjà sortie de l’obscurité, donc je ne pouvais pas ignorer la bonté en elle. Ce fut une surprise, mais j’avais eu beaucoup d’autres surprises sur la nature humaine.
 
-=======================================================================
+===============================================================================================================================
 
-Billy Wilder (22 June 1906 – 27 March 2002) était un réalisateur américain d’origine Austro-Hongrois, scénariste, producteur, artiste et journaliste dont la carrière s’est déroulée sur une période de 50 années et plus de 60 films. Il est considéré comme un des plus brillants et versatile réalisateur de l’âge d’or d’Hollywood. Wilder est une des cinq personnes à avoir reçu l’Academy Awards en tant que producteur, réalisateur et metteur en scène for le film (L’appartement). (Source Wikipedia) 
+**Billy Wilder** (22 Juin 1906 – 27 Mars 2002) était un réalisateur américain d’origine Austro-Hongrois, scénariste, producteur, artiste et journaliste dont la carrière s’est déroulée sur une période de 50 années et plus de 60 films. Il est considéré comme un des plus brillants et versatile réalisateur de l’âge d’or d’Hollywood. Wilder est une des cinq personnes à avoir reçu l’Academy Awards en tant que producteur, réalisateur et metteur en scène for le film (L’appartement). (Source Wikipedia) 
 

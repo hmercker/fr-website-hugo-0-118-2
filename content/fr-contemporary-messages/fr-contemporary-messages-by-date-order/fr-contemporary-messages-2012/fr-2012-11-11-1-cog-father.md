@@ -13,7 +13,6 @@ Père - reçu par Enfant de Dieu le 11 Novembre 2012
 
 Mon cher enfant,
 
-
 Je connais tes doutes. Je sais que tes pensées te jouent des tours et qu’elles interfèrent avec notre communication. Tu ne dois pas perdre espoir. Je suis là comme toujours. Tu dois accepter les offres aimables qui te sont faites. Je sais que c’est très difficile pour toi. Tu dois développer ta capacité à recevoir. L’équilibre doit être rétabli. Il y a un grand cadeau dans la réception que tu n’as pas encore ouvert.
 
 Je ressens ta peur. Tu dois laisser Mon amour guérir ta peur. Demande Mon Amour. Tu ne te sens pas digne de recevoir. Tu mérites d’être aimé. Tu mérites d’être heureux. Tu as peur d’être aimé. Je t’aime. Il y a de vieilles blessures et des pertes que tu n’as pas encore touchées. Avec Mon Amour et ta volonté, tu es capable de toucher ces blessures. Je te demande seulement d’être honnête et volontaire. Ensemble, nous allons guérir tes blessures et tu seras capable d’aimer encore plus.

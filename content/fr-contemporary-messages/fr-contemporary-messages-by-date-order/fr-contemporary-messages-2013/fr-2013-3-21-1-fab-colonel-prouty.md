@@ -11,7 +11,6 @@ weight:
 
 Colonel Prouty - reçu par FAB le 21 Mars 2013, Santa Cruz, Californie, USA
 
-
 Je suis le Colonel Prouty.
 
 J’ai vécu et je suis mort en tant que militaire, bien qu’au fur et à mesure que ma vie se poursuivait, je fus un militaire très inhabituel qui est sorti du rang afin de dire la vérité au pouvoir en place.<sup id=”a1”>[1](#f1)</sup> C’est ce que vous n’êtes pas censé faire dans l’armée. Mais je l’ai fait, volontairement et avec joie. Car j’ai vu un grand mal qui dépassait la simple horreur de la guerre elle-même, pour atteindre quelque chose de bien pire : un plan véritablement diabolique dont tant de gens n’ont aucune idée, et qui a un impact sur tous les habitants de la planète.
@@ -28,7 +27,7 @@ C’est tout ce que je souhaite dire maintenant. Je vous souhaite bonne chance d
 
 <small>
 
-    <large id=”f1”> Il semble s’agir d’un idiome propre à l’Amérique du Nord. Il signifie dire la vérité à ceux qui sont au pouvoir..[↩](#a1)
+   1.<large id=”f1”> Il semble s’agir d’un idiome propre à l’Amérique du Nord. Il signifie dire la vérité à ceux qui sont au pouvoir..[↩](#a1)
 
 
 
