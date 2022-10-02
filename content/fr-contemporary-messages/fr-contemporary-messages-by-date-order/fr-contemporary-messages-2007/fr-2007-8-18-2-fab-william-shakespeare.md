@@ -1,18 +1,20 @@
 ---
-title: "Shakespeare - autres auteurs contemporains"
+title: "Shakespeare - commentaires sur les messages passés"
 menu_title: ""
-description: "Shakespeare - autres auteurs contemporains"
-date: 2022-06-01 06:00:01+00:148
+description: "Shakespeare - commentaires sur les messages passés"
+date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True
 weight:
 ---
-### Shakespeare - autres auteurs contemporains
+### Shakespeare - commentaires sur les messages passés
 
 William Shakespeare - reçu par FAB le 18 Août 2007, Santa Cruz, Californie, USA.
 
-C'est moi, William Shakespeare.
-M. Ackroyd fait un superbe travail, au chapitre 26, pour décrire l'état de l'art dramatique, et les influences de ces dramaturges contemporains, à Londres lorsque je m'y suis installé.
-J'ajouterai que même si j'ai beaucoup copié en termes d'idées et de duplications verbales, j'ai toujours eu, même à cette époque précoce, ma propre et unique vision. Cette vision a été amplifiée et élargie lorsque je suis entré en contact avec mes collègues dramaturges. Ce fut, en effet, une révélation.
-Je n'ai pas fréquenté ces dramaturges parce que la plupart d'entre eux étaient irresponsables, dissolus et sauvages, alors que j'étais un père et un mari responsable. Mais les influences étaient là. Je les ai cependant fréquentés à titre professionnel, et j'ai joué dans certaines de leurs pièces.
-La Tragédie espagnole de Thomas Kyd a inspiré une première version de Hamlet, qu'il a lui-même écrite. Je l'ai adapté et me l'ai appropriée plus tard, mais en conservant de nombreux éléments de l'intrigue.
+Je suis ici, William Shakespeare.
+
+Lorsque j'ai dit dans [mon message du 14 Août 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-2-fab-william-shakespeare/) que *« mon premier emploi dans le théâtre fut en tant que doublure d'acteur »*, cette expérience à Londres fut mon entrée professionnelle officielle dans le théâtre. Mon expérience précédente, en tant qu'adolescent à Rufford Hall, fut un apprentissage en vue de ce qui allait suivre.
+
+J'ai dit, dans mon message du 13 août 2007, *« J'ai beaucoup apprécié et absorbé ma formation scolaire d'enfant. Il nous a été enseigné de nombreuses choses qui furent inestimables pour ma future carrière dans le théâtre. J'ai absorbé tout cela avec enthousiasme ....»*
+
+Mais, enfant, j'étais également irrité par les restrictions de l'expérience en classe. Il y avait d'autres aspects de la salle de classe que je n'aimais pas. Ce qui me soutenait, cependant, c'était mon amour de la connaissance.

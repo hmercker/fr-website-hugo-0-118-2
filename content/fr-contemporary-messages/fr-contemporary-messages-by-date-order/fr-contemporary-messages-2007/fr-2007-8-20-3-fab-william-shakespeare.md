@@ -12,6 +12,9 @@ weight:
 William Shakespeare - reçu par FAB le 20 Août 2007, Santa Cruz, Californie, USA.
 
 C'est moi, William Shakespeare.
+
 Lorsque ma mère m'a recommandé à Beauchamps Court pour être maître d'école, elle a recommandé Sir Fulke Greville à l'un de mes professeurs à l'école que je fréquentais, et cette référence a été fructueuse.
+
 J'ai attendu environ un an après la naissance de mes jumeaux avant de m'installer à Londres, car je devais mettre mes affaires en ordre. Cela a constitué un temps d'adaptation nécessaire pour Anne et moi. De plus, la confirmation de ma première résidence à Londres n'est pas venue immédiatement.
+
 Vous avez lu que le spécialiste de Shakespeare Douglas Hamer a déclaré que je "réapparaissais en 1587 en tant que 'joueur' ... au service de Sir Thomas Hesketh dans le Lancashire". Mais l'année est fausse, même si oui, j'ai joué avec le groupe de Sir Hesketh.
