@@ -11,7 +11,7 @@ weight:
 
 St Jean - reçu par WV le 19 Janvier 2015, Schoten, Belgique
 
-Mon cher ami, il est si bon de te revoir, prêt et désireux de recevoir plus d’informations. Je voudrais reprendre [là où nous nous sommes arrêtés précédemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-1-2-1-wv-st-john.md).
+Mon cher ami, il est si bon de te revoir, prêt et désireux de recevoir plus d’informations. Je voudrais reprendre [là où nous nous sommes arrêtés précédemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-1-2-1-wv-st-john/).
 
 Comme je l’ai dit : la dualité est un concept simple qui n’est pas vraiment compris par beaucoup et qui existera aussi longtemps que l’esprit n’aura pas atteint les sphères de l’âme. Savoir cela nous donne un avantage. Par exemple : lorsque quelqu’un décide d’agir en dehors de l’amour, cela aura deux (= double) conséquences: 1) l’énergie envoyée ne contiendra pas l’énergie de l’amour parce que l’individu a décidé de bloquer son âme à contribuer son énergie 2) l’âme elle-même ne pourra pas se remplir de l’amour naturel dont elle a besoin pour se sentir « normale » car un (partiel) blocage a été créé. Donc, tu vois, lorsque quelqu’un décide d’agir en dehors de l’amour envers quelqu’un d’autre, cela a également un impact immédiat sur soi-même (car un blocage fonctionne dans les deux sens). De cette façon, les gens verront que l’expression – traiter les autres comme soi-même – a une signification plus profonde et plus compréhensible.
 

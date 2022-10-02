@@ -13,7 +13,7 @@ Daniel Samuels - reçu par FAB le 26 Février 2012, Santa Cruz, Californie, USA
 
 C’est moi, Daniel Samuels.<sup id=”a1”>[1](#f1)</sup> 
 
-Nous sommes tous si heureux que vous ayez été soulagé de voir la vérité. Vous avez lu ceci dans [la Révélation #7](/fr-samuels-messages/fr-revelations/fr-rev-7-1955-11-7-samuels-jesus) dans laquelle Jésus explique ce que signifie l’expression le « Royaume de Dieu est en vous  » :
+Nous sommes tous si heureux que vous ayez été soulagé de voir la vérité. Vous avez lu ceci dans [la Révélation #7](/fr-samuels-messages/fr-revelations/fr-rev-7-1955-11-7-samuels-jesus/) dans laquelle Jésus explique ce que signifie l’expression le « Royaume de Dieu est en vous  » :
 
 > Je tiens à vous écrire au sujet de la phrase : « Le Royaume de Dieu est en vous », comme il apparaît dans Luc, chapitre 17, versets 20-21, laquelle a conduit à une fausse compréhension dont je veux vous entretenir. Le fait est que, lorsque certains porte-paroles des Pharisiens m’ont demandé quand le Royaume de Dieu viendrait, ma réponse fut que, en moi, il était déjà venu, car partout où j’allais, j’apportais avec moi le Royaume. Tel est le sens des versets 
 <br>

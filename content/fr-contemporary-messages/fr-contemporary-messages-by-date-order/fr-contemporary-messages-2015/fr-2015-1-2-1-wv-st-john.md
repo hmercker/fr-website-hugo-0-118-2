@@ -97,7 +97,7 @@ Il y a encore beaucoup à dire mais  je vois que tu as très faim, laisses-moi a
 
 Nous savons. Mais la patience est nécessaire parce que l’esprit humain a besoin d’être en mesure de traiter ce que nous donnons. Et si nous ne construisons pas correctement cette information, les choses essentielles pourraient se perdre dans le processus et ce ne serait pas bon. C’est pourquoi nous introduisons la notion de dualité maintenant ; de façon à ce que les gens puissent obtenir une meilleure compréhension de son travail et commencer à l’utiliser à leur avantage.
 
-Mais j’ai peur que je doive arrêter maintenant. S’il te plaît, reste ouvert d’esprit [afin que nous puissions continuer à t’aider (et les autres) afin de mieux comprendre ces choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015\fr-2015-1-19-1-wv-st-john).
+Mais j’ai peur que je doive arrêter maintenant. S’il te plaît, reste ouvert d’esprit [afin que nous puissions continuer à t’aider (et les autres) afin de mieux comprendre ces choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015\fr-2015-1-19-1-wv-st-john/).
 
 Avec mon amour pour toi, Jean.
 
