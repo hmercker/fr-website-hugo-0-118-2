@@ -13,7 +13,7 @@ Jack Kerouac - reçu par FAB le 9 Mai 2008, Santa Cruz, Californie, USA.
 
 C'est moi, Jack Kerouac.
 
-Je vous ai dit dans ma canalisation du 18 Avril que j'ai suivi le conseil d'un Ange et accepté, par conséquent, la voie divine.
+Je vous ai dit dans [ma canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) que j'ai suivi le conseil d'un Ange et accepté, par conséquent, la voie divine.
 
 Vous en doutez, puisque vous saviez que j'étais très porté sur le bouddhisme. Mais ce qui m'a motivé, c'est que mes croyances bouddhistes n'étaient pas efficaces pour lever les négativités de mon âme. J'ai eu beaucoup de mal au début, comme vous pouvez l'imaginer, et les spéculations d'une vie entière ne pouvaient pas faire face à une réalité que je trouvais écrasante.
 
