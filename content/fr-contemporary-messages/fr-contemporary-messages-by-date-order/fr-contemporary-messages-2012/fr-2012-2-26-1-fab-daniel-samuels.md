@@ -11,9 +11,9 @@ weight:
 
 Daniel Samuels - reçu par FAB le 26 Février 2012, Santa Cruz, Californie, USA
 
-C’est moi, Daniel Samuels.1
+C’est moi, Daniel Samuels.<sup id=”a1”>[1](#f1)</sup> 
 
-Nous sommes tous si heureux que vous ayez été soulagé de voir la vérité. Vous avez lu ceci dans [la Révélation #7](content\fr-samuels-messages\fr-revelations\fr-rev-7-1955-11-7-samuels-jesus.md) dans laquelle Jésus explique ce que signifie l’expression le « Royaume de Dieu est en vous  » :
+Nous sommes tous si heureux que vous ayez été soulagé de voir la vérité. Vous avez lu ceci dans [la Révélation #7](/fr-samuels-messages/fr-revelations/fr-rev-7-1955-11-7-samuels-jesus/) dans laquelle Jésus explique ce que signifie l’expression le « Royaume de Dieu est en vous  » :
 
 > Je tiens à vous écrire au sujet de la phrase : « Le Royaume de Dieu est en vous », comme il apparaît dans Luc, chapitre 17, versets 20-21, laquelle a conduit à une fausse compréhension dont je veux vous entretenir. Le fait est que, lorsque certains porte-paroles des Pharisiens m’ont demandé quand le Royaume de Dieu viendrait, ma réponse fut que, en moi, il était déjà venu, car partout où j’allais, j’apportais avec moi le Royaume. Tel est le sens des versets 
 <br>
@@ -28,5 +28,7 @@ Vous avez ensuite découvert que « entos » signifie bien « à l’intérieur 
 
 Ainsi, tout ce que la phrase implique, c’est que, dans cette phrase particulière, « entos » signifiait « au milieu de ». Non, « entos » ne signifiait pas « au sein de, ou « à l’intérieur de » comme ce fut le cas dans d’autres contextes.
 
-Note 1 : Daniel G Samuels fut un médium prolifique dans les années 1950 et 1960, et le médium original par lequel le message lié a été reçu.
+<small>
+
+   1.<large id=”f1”>Daniel G Samuels fut un médium prolifique dans les années 1950 et 1960, et le médium original par lequel le message lié a été reçu.[↩](#a1)
 

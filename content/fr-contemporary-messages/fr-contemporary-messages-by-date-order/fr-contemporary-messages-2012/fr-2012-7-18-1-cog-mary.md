@@ -11,7 +11,7 @@ weight:
 
 Marie - reçu par Enfant de Dieu le 18 Juillet 2012
 
-Je suis là, la Mère de Jésus.
+C'est moi, Marie, la Mère de Jésus.
 
 Sache que j’ai toujours été avec toi. Tends la main et sens ma présence. Je suis la chaleur de ton cœur. Laisse-moi te tenir la main dans les moments difficiles. Je sais que tu as l’impression que tu ne peux presque plus tenir et que tu souhaites tellement que tes luttes cessent et que tu aies un peu de paix et de joie dans ta vie.
 

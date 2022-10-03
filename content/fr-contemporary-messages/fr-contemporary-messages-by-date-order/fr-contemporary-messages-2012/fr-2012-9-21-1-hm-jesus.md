@@ -9,7 +9,7 @@ weight:
 ---
 ###  Fais partie de notre voyage
 
-Jésus - reçu par Helge Mercker le 21 Septembre 2012, Tokat, Namibia
+Jésus - reçu par Helge Mercker le 21 Septembre 2012, Tokat, Namibie
 
 C’est moi, Jésus.
 

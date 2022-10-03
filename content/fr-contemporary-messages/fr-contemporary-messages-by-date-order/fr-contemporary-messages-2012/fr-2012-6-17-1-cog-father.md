@@ -11,7 +11,7 @@ weight:
 
 Père - reçu par Enfant de Dieu le 17 Juin 2012
 
-Mon cher enfant
+Mon cher enfant,
 
 Je suis heureux que tu te sois assis pour recevoir mon réconfort et mon soutien. Notre relation est authentique et vraie. Tu peux me faire confiance. Tu ressens beaucoup de douleur en ces temps. Tant de vieilles blessures sont déchirées. C’est douloureux et tous tes corps réagissent à cela.
 

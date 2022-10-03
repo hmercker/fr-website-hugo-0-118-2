@@ -13,7 +13,7 @@ St Jean - reçu par WV le 2 Janvier 2015, Schoten, Belgique
 
 Rebonjour, mon ami. Je veux commencer ce message avec une déclaration très importante  : « Tout est Simple »
 
-Lorsque nous te donnerons des informations nous ferons en sorte qu’elles conduisent vers quelque chose. Nous avons tout d’abord dû [définir la notion de volonté et de libre arbitre](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2014\fr-2014-12-21-1-wv-st-john.md) ; le fait qu’elles soient différentes et situées, l’une dans l’âme, l’autre dans le mental – (spirituel et physique), toi (et les autres) avez saisi ce concept de base.
+Lorsque nous te donnerons des informations nous ferons en sorte qu’elles conduisent vers quelque chose. Nous avons tout d’abord dû [définir la notion de volo/fr-2014-12-21-1-wv-st-john.md) ; le fait qu’elles soient différentes et situées, l’une dans l’âme, l’autre dans le mental – (spirituel et physique), toi (et les autres) avez saisi ce concept de base.
 
 Maintenant, tout a une structure cohérente basée sur une logique simple que même un cerveau physique – qui travaille seulement à 10 % de sa capacité – peut facilement comprendre. [Rires]
 
@@ -97,7 +97,7 @@ Il y a encore beaucoup à dire mais  je vois que tu as très faim, laisses-moi a
 
 Nous savons. Mais la patience est nécessaire parce que l’esprit humain a besoin d’être en mesure de traiter ce que nous donnons. Et si nous ne construisons pas correctement cette information, les choses essentielles pourraient se perdre dans le processus et ce ne serait pas bon. C’est pourquoi nous introduisons la notion de dualité maintenant ; de façon à ce que les gens puissent obtenir une meilleure compréhension de son travail et commencer à l’utiliser à leur avantage.
 
-Mais j’ai peur que je doive arrêter maintenant. S’il te plaît, reste ouvert d’esprit [afin que nous puissions continuer à t’aider (et les autres) afin de mieux comprendre ces choses](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2015\fr-2015-1-19-1-wv-st-john.md).
+Mais j’ai peur que je doive arrêter maintenant. S’il te plaît, reste ouvert d’esprit [afin que nous puissions continuer à t’aider (et les autres) afin de mieux comprendre ces choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-1-19-1-wv-st-john/).
 
 Avec mon amour pour toi, Jean.
 

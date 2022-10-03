@@ -13,7 +13,6 @@ Jackie Gleason - reçu par FAB le 15 Mars 2013, Santa Cruz, Californie, USA.
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-jackie-gleason-1-2013.jpg)
 
-
 Je suis là, Jackie Gleason.
 
 Maintenant, je vous ai pour moi tout seul, comme je le voulais. Oui, je veux transmettre un message.

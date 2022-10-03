@@ -11,7 +11,7 @@ weight:
 
 Clarence Streit - reçu par FAB le 8 Juin 2012, Santa Cruz, Californie, USA
 
-C’est moi, .
+C’est moi, Clarence Strait.
 
 Je vois que vous lisez mon livre « Union Now », et je tiens à le commenter, autrement dit, à commenter l’idée, qui est en arrière plan, d’un gouvernement mondial. Mais, tout d’abord, permettez-moi de vous dire que vous ne devez pas craindre l’exactitude de cette canalisation, parce que le rapport est fort, et que  vous êtes en bonne forme en cette belle après-midi ensoleillée à Berkeley où vous habitez actuellement.
 
@@ -23,7 +23,7 @@ Vous avez commencé cette canalisation avec l’idée préconçue que j’étais
 
 Cependant, je n’ai pas échappé à la Loi de l’indemnisation. Aucun esprit ne le peut.
 
-==================================================================================================================
+=================================================================================================================================
 
 **Clarence Kirschmann Streit** : Né le 21 janvier 1896 à California dans le Missouri, il est décédé le 6 Juillet 1986 à Washington D.C. Streit. Il fut dès sa jeunesse un Américain sui generis. Volontaire durant la [Première Guerre mondiale](https://fr.wikipedia.org/wiki/Premi%C3%A8re_Guerre_mondiale), membre de la délégation américaine à la [conférence de Versailles](https://fr.wikipedia.org/wiki/Trait%C3%A9_de_Versailles), et étudiant à l’université d’Oxford en 1920 avec une bourse Rhodes. Il se marie à Paris  avec Jeanne Defrance en 1921 et commence une longue carrière de reporter dans le monde entier qui le conduisit du Moyen Orient jusqu’en [Amérique latine](https://fr.wikipedia.org/wiki/Am%C3%A9rique_latine). En [1929](https://fr.wikipedia.org/wiki/1929), il devient le correspondant du New York Times auprès de la Société des nations dont il suit avec attention la lente et inexorable crise.
 

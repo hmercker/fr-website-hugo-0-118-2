@@ -11,8 +11,8 @@ weight:
 
 Anne Rollins - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA
 
-Je suis Anne Rollins
-.
+Je suis Anne Rollins.
+
 Je suis venue pour confirmer le message de votre ami et guide, Martin.
 
 Il est vrai que des changements sont en cours sur vous et votre monde ; vous et d’autres personnes dans le monde ont déjà vu de nombreux changements, pourtant, vous êtes toujours là, et vous continuerez à être là. Ne concentrez pas votre attention sur ceux-ci ou sur d’autres possibilités de changement. N’envisagez pas de changer d’endroit. Vous serez en sécurité là où vous êtes.

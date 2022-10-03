@@ -19,13 +19,11 @@ Tu as pris des mesures pour guérir les blessures du passé et tu as fait un cho
 
 De nombreuses vérités sont en train d’être révélées maintenant. Tu le ressens. Tu te demandes pourquoi tu as l’impression qu’il n’y a rien de nouveau. La vérité n’a pas d’âge, mais la vérité a son temps.
 
-Vous avez tous un but. Vous avez été créés pour un sens. Certains d’entre vous sont plus braves et plus courageux et on leur confie donc des tâches plus importantes. Mais chacun d’entre vous a un but. C’est à vous d’utiliser votre libre arbitre et d’assumer votre tâche. Je ne vous demande pas plus, mais je vous demande de faire ce que vous pouvez. Pas plus mais certainement pas moins.
+Vous avez tous un but. Vous avez été créés audacieux. Certains d’entre vous sont plus braves et plus courageux et on leur confie donc des tâches plus importantes. Mais chacun d’entre vous a un but. C’est à vous d’utiliser votre libre arbitre et d’assumer votre tâche. Je ne vous demande pas plus, mais je vous demande de faire ce que vous pouvez. Pas plus mais certainement pas moins.
 
 Vous êtes tous porteurs des péchés du passé. Vous êtes une partie de l’ensemble. Lorsque vous reconnaissez vos blessures et donc vos péchés passés et vos erreurs contre l’amour, vous reconnaissez les blessures et les péchés de l’humanité. Lorsque vous guérissez vos propres blessures, vous guérissez les blessures de l’humanité.
 .
-Cela commence par vous. Vous pouvez vous changer. Vous pouvez vous guérir. Il n’y a qu’un seul vous.
-
-Toi seul peut faire ton travail. Je suis avec toi mais je ne ferai pas ton travail. Parfois je suis silencieux mais je suis toujours avec toi. Continue à faire du bon travail. N’oubliez pas que je vous t’aime.
+Cela commence par vous. Vous pouvez vous changer. Vous pouvez vous guérir. Il n’y a qu’un seul vous. Vous seul pouvez faire votre travail. Je suis avec vous mais je ne ferai pas votre travail. Parfois je suis silencieux mais je suis toujours avec vous. Continue à faire du bon travail. N’oubliez pas que je vous t’aime.
 
 Votre Père Céleste qui vous sourit dans votre faiblesse.
 

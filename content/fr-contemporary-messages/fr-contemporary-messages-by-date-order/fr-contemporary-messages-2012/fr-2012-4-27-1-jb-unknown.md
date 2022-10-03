@@ -11,7 +11,7 @@ weight:
 
 Inconnu - reçu par Jospeh B. le 27 Avril 2012, Arizona, USA
 
-*Je me suis réveillé après seulement 4 heures de sommeil. Un mot m’est venu, et ce mot était le suivant : **Ne me dis pas ce qui ne peut pas être… Mais dis-moi ce qui peut être.**
+*Je me suis réveillé après seulement 4 heures de sommeil. Un mot m’est venu, et ce mot était le suivant : ***Ne me dis pas ce qui ne peut pas être… Mais dis-moi ce qui peut être.***
 
 J’ai donc écouté, puis je me suis habillé et je suis allé à mon bureau, d’abord pour prier, puis pour écrire. Et voici ce que j’ai écrit :*
 

@@ -23,5 +23,5 @@ Je veux que tu t’assoies chaque matin et que tu cherches les trésors au fond 
 
 Aime-toi toujours en premier. Développe cette capacité. Je sais que tu aspires à servir l’humanité et ton heure viendra, mais tu dois d’abord t’aimer toi-même. Retrouve ta joie et ton sens de l’émerveillement. Développe cela et quand tu auras assez d’amour et de confiance, le reste suivra. Je te montrerai ton chemin et tu sauras quand ton heure viendra. Jusque-là, aime et fais confiance.
 
-Ton Père dans les Cieux
+Ton Père dans les Cieux.
 

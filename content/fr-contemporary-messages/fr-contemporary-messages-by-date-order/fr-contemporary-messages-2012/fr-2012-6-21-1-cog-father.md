@@ -9,7 +9,7 @@ weight:
 ---
 ### Essuie les larmes
 
-Le Père - reçu pa Enfant de Dieu le 21 Juin 2012.
+Le Père - reçu pa Enfant de Dieu le 21 Juin 2012
 
 Je suis là, mon enfant c’est ton Père.
 

@@ -13,7 +13,7 @@ Père - reçu par Enfant de Dieu le 8 Mai 2012
 
 Une âme peut-elle mourir ?
 
-Mon cher enfant ,
+Mon cher enfant,
 
 Ce matin, tu as réfléchi à la question de savoir si une âme peut mourir ? La réponse à cette question est oui et non.
 

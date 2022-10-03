@@ -11,7 +11,7 @@ weight:
 
 Jean le bien-aimé - reçu par Al Fike le 16 Mars 2015, Gibsons, Colombie-Britannique, Canada.
 
-e suis Jean le Bien-Aimé.
+Je suis Jean le Bien-Aimé.
 
 Chacun de vous désire voir la Vérité, pour comprendre la nature de la vie et la nature de votre propre être. Pour saisir ces réalités sans risque de confusion, de voir clairement, de marcher dans ce monde avec le point de vue qui apportera en vous l’harmonie et une compréhension profonde de ce monde et de ceux qui vous rencontrerez dans ce monde. Et c’est l’esprit qui permet à la réalité la plus profonde d’entrer en lui et de l’embrasser ou de rejeter ces consciences et cette réalité.
 

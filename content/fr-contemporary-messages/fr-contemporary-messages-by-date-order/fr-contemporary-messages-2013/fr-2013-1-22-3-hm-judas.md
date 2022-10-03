@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par Helge Mercker le 22 Janvier 2013, Elim, Namibie
 
-C’est moi, ma sœur, c’est Judas, permet mois d’écrire, car cela fait longtemps que je n’ai pas écrit, et je suis heureux que tu sois ouverte à le faire ce matin. En ce qui concerne la bonne pratique de l’écriture, il suffit de s’asseoir quand tu te sens le plus à l’aise et ouverte. Ne te mets pas la pression, car je vois que tu ne sais pas quel est le meilleur moment pour le faire. Le moment de la journée n’a pas d’importance, mais sens quand tu es proche de nous. Maintenant, c’est bien et c’est ce que je t’ai demandé. Cela demande du temps et de la pratique, sois prête à pratiquer. Je me réjouis de tes efforts pour être proche de Dieu.
+C’est moi, ma sœur, c’est Judas, permet moi d’écrire, car cela fait longtemps que je n’ai pas écrit, et je suis heureux que tu sois ouverte à le faire ce matin. En ce qui concerne la bonne pratique de l’écriture, il suffit de s’asseoir quand tu te sens le plus à l’aise et ouverte. Ne te mets pas la pression, car je vois que tu ne sais pas quel est le meilleur moment pour le faire. Le moment de la journée n’a pas d’importance, mais sens quand tu es proche de nous. Maintenant, c’est bien et c’est ce que je t’ai demandé. Cela demande du temps et de la pratique, sois prête à pratiquer. Je me réjouis de tes efforts pour être proche de Dieu.
 
 Continue et communique avec Lui aussi souvent que possible, prie souvent. Tu ne prieras jamais assez. Mon amour, je suis Judas, ton ami proche, et tu es profondément aimé et nécessaire dans notre avenir pour être une lumière dans le monde.
 

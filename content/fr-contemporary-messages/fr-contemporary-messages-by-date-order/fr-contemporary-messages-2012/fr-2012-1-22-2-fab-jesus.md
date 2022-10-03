@@ -18,4 +18,4 @@ Dites à Geoff que je lui donne mon plein accord quant à la publication des mes
 Avec tout mon amour pour ses fidèles efforts,
 
 Jésus,
-Maître des Cieux Célestes
+Maître des Cieux Célestes.

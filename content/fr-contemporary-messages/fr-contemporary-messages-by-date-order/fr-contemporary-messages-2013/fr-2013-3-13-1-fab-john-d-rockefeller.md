@@ -9,7 +9,7 @@ weight:
 ---
 ### John D. Rockefeller se décrit lui-même - 2
 
-John D Rockefeller - reçu par FAB le 13 Mars 2013, Santa Cruz, Californie, USA.
+John D Rockefeller - reçu par FAB le 13 Mars 2013, Santa Cruz, Californie, USA
 
 C’est moi, John D. Rockefeller.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Aimer la création de Dieu
 
-Père - reçu par Helge Mercker le 27 Novembre 2012, Elim, Namibia4
+Père - reçu par Helge Mercker le 27 Novembre 2012, Elim, Namibie
 
 Je veux parler, c’est ton Père.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La communication requiert de la dévotion et de l'engagement
 
-Anne Rollins - reçu par Helge Mercker le 2 Janvier 2013, Elim, Namibie.
+Anne Rollins - reçu par Helge Mercker le 2 Janvier 2013, Elim, Namibie
 
 Ma chère sœur, je suis là, c’est Anne Rollins ; et oui, en effet, beaucoup d’autres leçons t’attendent, et je me réjouis de ton désir d’écrire nos ‘lettres d’amour’, comme tu dis. Cela demande du dévouement et de l’engagement pour accomplir cette tâche de communication. Nous t’aiderons et te guiderons, comme tu sais que c’est une extension de Dieu qui te montre le chemin qu’Il veut suivre avec toi et le développement de tes dons et de tes talents. Détends-toi et ressens simplement mes paroles. Je suis tout le temps à tes côtés et je t’aiderai, tout comme Judas, qui aimerait beaucoup écrire plus souvent et développer ainsi tes « capacités d’écoute ». Je m’engage pour ton développement en tant que bel enfant dans l’Amour de notre Père et je ressens une telle joie lorsque tu fais un pas de plus et que tu veux intensifier ta relation avec Lui. Je suis à côté de toi, nous t’entourons pour t’aider à te rapprocher de notre Père, afin que tu puisses ressentir Son amour et Sa guidance pour toi.
 

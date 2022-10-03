@@ -11,7 +11,7 @@ weight:
 
 Père - reçu par Enfant de Dieu le 4 Septembre 2012
 
-Mon cher enfant.
+Mon cher enfant,
 
 Continue à écrire. Il y en a beaucoup d’autres à venir et cela arrivera. Sois patient avec toi-même. Tu te prépares et en ce moment même tu nettoies et déblaies pour devenir un canal plus raffiné pour Mon Amour. Ensemble, nous allons faire des miracles, il suffit d’attendre et de voir. Tout vient en son temps et ton temps est venu. Tu vas ressentir Mon Amour de plus en plus et comme cela se produit, tu rayonneras davantage Mon Amour pour le bénéfice des autres. Tu es une étoile brillante. Continue simplement ce que tu fais maintenant. Ressentir tes sentiments et libérer toutes les choses qui ne te servent plus. Chercher des conseils et laisser les autres t’aider. Jusqu’à présent, tu as écouté attentivement et pris conseil auprès de personnes sincères qui t’ont été d’une grande aide et d’un grand soutien. Continue.
 
