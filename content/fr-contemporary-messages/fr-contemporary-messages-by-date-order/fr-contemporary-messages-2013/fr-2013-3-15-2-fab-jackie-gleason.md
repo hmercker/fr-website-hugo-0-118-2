@@ -11,7 +11,7 @@ weight:
 
 Jackie Gleason - reçu par FAB le 15 Mars 2013, Santa Cruz, Californie, USA.
 
-!(https://lanouvellenaissance.files.wordpress.com/2022/01/jackie-gleason-1.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-jackie-gleason-1-2013.jpg)
 
 
 Je suis là, Jackie Gleason.

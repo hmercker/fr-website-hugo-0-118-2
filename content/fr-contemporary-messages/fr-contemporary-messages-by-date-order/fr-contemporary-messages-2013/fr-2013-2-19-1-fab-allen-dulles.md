@@ -11,7 +11,7 @@ weight:
 
 Allen Dulles - reçu par FAB le 19 Février 2013, Santa Cruz, Californie, USA
 
-!(https://lanouvellenaissance.files.wordpress.com/2022/01/guatemala.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-guatemala-2013.jpg)
 
 Je suis, Allen Dulles.
 
