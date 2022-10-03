@@ -29,6 +29,8 @@ Le groupe de progrès 11 : 11. « Le don de soi, l’illumination de la vérité
 <small>
 
    1. <large id=”f1”>Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
-   2.< large id=”f1”>Cela indique clairement que les rapports sexuels tels que nous les connaissons ne peuvent avoir lieu dans d’autres royaumes.[↩](#a2)
+   2. <large id=”f2”>Cela indique clairement que les rapports sexuels tels que nous les connaissons ne peuvent avoir lieu dans d’autres royaumes.[↩](#a2)
+   
+
   
 

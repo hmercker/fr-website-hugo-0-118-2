@@ -19,6 +19,9 @@ Suivez-moi mes enfants, suivez-moi dans des pâturages plus verts où Dieu resta
 
 <small>
 
-   1. <large id=”f1”>Cette phrase particulière est très significative et n’est pas souvent utilisée par Jésus. Sa signification est qu’elle ANNONCE à tous ceux qui se trouvent dans les Cieux qu’il est bien celui qu’il prétend être, et qu’il n’est pas un imposteur. C’est un bon test pour tout esprit qui prétend être Jésus, que de lui demander de faire cette déclaration. Elle a sans doute été utilisée ici pour s’assurer que la déclaration n’est pas faite, que ce n’est pas Jésus.(#a1)
+   1. <large id=”f1”>Cette phrase particulière est très significative et n’est pas souvent utilisée par Jésus. Sa signification est qu’elle ANNONCE à tous ceux qui se trouvent dans les Cieux qu’il est bien celui qu’il prétend être, et qu’il n’est pas un imposteur. C’est un bon test pour tout esprit qui prétend être Jésus, que de lui demander de faire cette déclaration. Elle a sans doute été utilisée ici pour s’assurer que la déclaration n’est pas faite, que ce n’est pas Jésus.[↩](#a1)
+
+
+
 
 
