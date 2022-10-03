@@ -12,5 +12,8 @@ weight:
 George Washington - reçu par FAB le 23 Juillet 2008, Santa Cruz, Californie, USA.
 
 C'est moi, George Washington.
-Oui, je n'ai pas affronté le jugement de Dieu avec une conscience complètement tranquille.1 J'avais ordonné l'exécution de quelques soldats qui s'étaient mutinés. Je me suis rendu compte qu'ils s'étaient mutinés parce qu'ils avaient été mal traités, et j'ai donc compris que j'avais commis une injustice dans ces cas-là.
-1 Ce commentaire ne doit pas être pris trop au pied de la lettre, car une telle chose n'existe pas, bien qu'il y ait certainement des lois spirituelles qui agissent sur la condition de notre âme qui est le résultat direct de nos actes au cours de notre vie. Sur ce site, cette loi est appelée la loi de compensation.
+
+Oui, je n'ai pas affronté le jugement de Dieu avec une conscience complètement tranquille <sup id="a1">[1](#f1)</sup>. J'avais ordonné l'exécution de quelques soldats qui s'étaient mutinés. Je me suis rendu compte qu'ils s'étaient mutinés parce qu'ils avaient été mal traités, et j'ai donc compris que j'avais commis une injustice dans ces cas-là.
+<small>
+
+1. <large id="f1"> Ce commentaire ne doit pas être pris trop au pied de la lettre, car une telle chose n'existe pas, bien qu'il y ait certainement des lois spirituelles qui agissent sur la condition de notre âme qui est le résultat direct de nos actes au cours de notre vie. Sur ce site, cette loi est appelée la [loi de compensation](*************Law of compensation*****************************************).[↩](#a1)

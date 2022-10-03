@@ -11,5 +11,6 @@ weight:
 
 Andrew Carnegie - reçu par FAB le 14 Avril 2008, Santa Cruz, Californie, USA.
 
+C'est moi, Andrew Carnegie.
 
-
+Oui, j'ai écrit une critique du système de libre entreprise intitulée L'Évangile de la richesse, et cela m'a aidé ici. Mais cela n'a pas pu effacer les souffrances qui ont résulté de mes activités, qui ne m'ont apporté que du chagrin.

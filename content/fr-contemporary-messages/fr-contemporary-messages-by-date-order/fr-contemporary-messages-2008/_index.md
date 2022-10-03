@@ -16,11 +16,11 @@ Uharu | [Un concept amérindien de Dieu](/fr-contemporary-messages/fr-contempora
 Jack London | [La Loi Morale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-9-1-fab-jack-london/) | 9 Janvier 2008
 Aman | [Les facultés intellectuelles des premiers parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-1-fab-aman/) | 10 Janvier 2008
 Jésus | [La loi morale comme loi de compensation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) | 10 Janvier 2008
-Andrew Jackson | [Un changement de perspective](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-1-fab-andrew-jackson/) | 11 Janvier 2008
-Jésus | [Guerre et paix et le plan de Dieu Partie 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-2-fab-jesus/) | 11 Janvier 2008
+Thomas Alva Edison | [Matière et invention dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-1-fab-thomas-alva-edison/) | 11 Janvier 2008
+Thomas Alva Edison | [La bonté de Dieu et de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-2-fab-thomas-alva-edison/) | 11 Janvier 2008
 John Adams | [La crise de la liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-3-fab-john-adams/) | 11 Janvier 2008
-Thomas Alva Edison | [Matière et invention dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-4-fab-thomas-alva-edison/) | 11 Janvier 2008
-Thomas Alva Edison | [La bonté de Dieu et de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-5-fab-thomas-alva-edison/) | 11 Janvier 2008
+Andrew Jackson | [Un changement de perspective](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-4-fab-andrew-jackson/) | 11 Janvier 2008
+Jésus | [Guerre et paix et le plan de Dieu Partie 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-5-fab-jesus/) | 11 Janvier 2008
 Charles Grandison Finney | [La prédestination est fausse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-13-1-fab-charles-grandison-finney/) | 13 Janvier 2008
 Jésus | [Le regard positif de Jésus sur l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-14-1-fab-jesus/) | 14 Janvier 2008
 Tristiana | [J’ai fait un long voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-17-1-na-tristiana/) | 17 Janvier 2008
@@ -32,17 +32,17 @@ Jésus | [Quelle est la vérité sur l'évolution - 3](/fr-contemporary-messages
 Jésus | [Quelle est la vérité sur l'évolution - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-6-2-fab-jesus/) | 6 Février 2008
 Phil Ochs | [L'expérience d'un chanteur populaire américain dans le monde de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-8-1-fab-phil-ochs/) | 8 Février 2008
 Élias | [La véritable âme sœur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/) | 11 Février 2008
-Charles I | [Un roi anglais fait le bilan de son règne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-1-fab-charles-i/) | 21 Février 2008
-George Bernard Shaw | [Shaw a réexaminé sa vie sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-2-fab-george-bernard-shaw/) | 21 Février 2008
-James I | [Un roi anglais est humble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-3-fab-james-i/) | 21 Février 2008
+George Bernard Shaw | [Shaw a réexaminé sa vie sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-1-fab-george-bernard-shaw/) | 21 Février 2008
+Charles I | [Un roi anglais fait le bilan de son règne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-2-fab-charles-i/) | 21 Février 2008
+Jacques Ier | [Un roi anglais est humble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-3-fab-james-i/) | 21 Février 2008
 Jésus | [L’holocauste Nazi et l’Empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-4-fab-jesus/) | 21 Février 2008
 Jésus | [Les sociétés et les transactions financières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-26-1-fab-jesus/) | 26 Février 2008
 Cornelius Vanderbilt | [Un industriel américain est perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-1-fab-cornelius-vanderbilt/) | 1 Mars 2008
 Jay Gould | [Un industriel américain est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-2-fab-jay-gould/) | 1 Mars 2008
 Andrew Carnegie | [Souffrances d’un industriel américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/) | 3 Mars 2008
-Albert Einstein | [Lumière et obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-1-fab-albert-einstein/) | 5 Mars 2008
+Phil Ochs | [Un Folksinger est heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-1-fab-phil-ochs/) | 5 Mars 2008
 Pablo Neruda | [Un poète inspiré et heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-2-fab-pablo-neruda/) | 5 Mars 2008
-Phil Ochs | [Un Folksinger est heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-3-fab-phil-ochs/) | 5 Mars 2008
+Albert Einstein | [Lumière et obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-3-fab-albert-einstein/) | 5 Mars 2008
 Pablo Neruda | [Le voyage d’un poète vers la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-1-fab-pablo-neruda/) | 6 Mars 2008
 Pablo Neruda | [Communistes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-2-fab-pablo-neruda/) | 6 Mars 2008
 Pablo Neruda | [La tristesse d’un poète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-7-1-fab-pablo-neruda/) | 7 Mars 2008
@@ -55,7 +55,7 @@ Roger Williams | [Un dissident colonial](/fr-contemporary-messages/fr-contempora
 Cotton Mather | [La conscience dans le procès des sorcières de Salem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-24-1-fab-cotton-mather/) | 24 Mars 2008
 Jésus | [La sagesse ancienne et la sagesse moderne sont toutes deux nécessaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-24-2-fab-jesus/) | 24 Mars 2008
 Smedley Butler | [Le dégoût d'un marine américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-27-1-fab-smedley-butler/) | 27 Mars 2008
-John | [Jean et la Culture Grecque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-7-1-fab-john/) | 7 Avril 2008
+St Jean | [Jean et la Culture Grecque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-7-1-fab-st-john/) | 7 Avril 2008
 Andrew Carnegie | [La souffrance d'un industriel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-14-1-fab-andrew-carnegie/) | 14 Avril 2008
 Abraham Lincoln | [La sélection de Lincoln, et la pensée positive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-abraham-lincoln/) | 16 Avril 2008
 Andrew Carnegie | [La loi morale est exacte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-2-fab-andrew-carnegie/) | 16 Avril 2008
