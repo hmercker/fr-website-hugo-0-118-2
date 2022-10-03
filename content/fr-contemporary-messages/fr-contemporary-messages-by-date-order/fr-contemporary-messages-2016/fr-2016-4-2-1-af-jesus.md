@@ -46,7 +46,6 @@ Et vous commencez à avoir des aperçus du mental de votre âme. Vous commencez 
 Beaucoup tourneront leurs regards vers vous, mes bien-aimés, et vous leur parlerez en toute vérité. Votre présence même sera utilisée pour enflammer leurs âmes qui aspirent à une ouverture et un changement de leur mental. Ceci est en train de se produire. Vous avez chacun une grande destinée. Continuez sur votre route, si magnifiquement façonnée par votre Père Céleste. Marchez droit, marchez avec impatience et avec joie, car vous êtes tous vraiment bénis.
 
 Je suis votre ami, je suis votre frère, et je vous aime tendrement. Je suis Jésus. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous sur votre chemin et j’aide à éclairer le chemin alors que vous marchez sur cette Voie. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
 <small>
 
    1. <large id=”f1”>Pour une raison quelconque, ceci n’a pas été couvert à ce moment.[↩](#a1)

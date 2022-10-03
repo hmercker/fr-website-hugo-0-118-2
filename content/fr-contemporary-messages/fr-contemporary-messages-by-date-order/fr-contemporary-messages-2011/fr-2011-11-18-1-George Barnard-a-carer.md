@@ -24,7 +24,6 @@ L’échec global pour atteindre la vie éternelle comme il vous a été enseign
 **George** : Oui, je reconnaîtrai certainement votre voix. Je vous remercie.
 
 © The 11:11 Progress Group. Vous avez allumé une flamme, et elle deviendra un feu ardent-ABC-22. http://www.1111ProgressGroup.com
-
 <small>
 
    1. <large id=”f1”>Autrement connu sous le nom de Première Sphère de l’Esprit. Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est très différent, du fait qu’il parle presque exclusivement à des êtres angéliques, par opposition à des ex-mortels. Néanmoins, ce message est tout à fait compréhensible.[↩](#a1)

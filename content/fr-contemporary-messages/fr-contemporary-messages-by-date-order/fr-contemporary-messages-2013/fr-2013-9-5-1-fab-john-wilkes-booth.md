@@ -30,7 +30,6 @@ Ainsi, lorsque la libération est arrivée, et que je suis entré dans l’autre
 Vous n’êtes pas un fanatique, c’est pourquoi il vous est difficile de comprendre. Quand un fanatique commet un acte, ce fanatique doit justifier cet acte horrible. Il est vrai que cela continue ici. Mais ce ne fut pas le cas pour moi. Oui, j’ai justifié le meurtre jusqu’à la fin. Mais il y a aussi eu un changement à un niveau plus profond. Ce changement était subtil et pas totalement conscient. C’est à ce changement plus profond que je faisais référence.
 
 Vous savez par expérience que la maladie et la souffrance font changer les gens. C’est ce qui est arrivé au fanatique John Wilkes Booth, qui ne pouvait pas échapper à sa conscience, qui lui disait que le meurtre est l’un des pires péchés à expier. Alors oui, j’affichais une façade immuable, mais à un autre niveau, je n’étais plus convaincu d’avoir fait ce qu’il fallait. Cela vous montre la nature complexe de l’humanité, comment nous pouvons avoir des états contradictoires. Les deux réalités étaient donc vraies, et la contradiction s’explique. Je suis heureux d’offrir cette explication à celui qui n’aime que la vérité.
-
 <small>
 
    1. <large id=”f1”> John Wilkes Booth fut le meutrier d’Abraham Licoln.[↩](#a1)

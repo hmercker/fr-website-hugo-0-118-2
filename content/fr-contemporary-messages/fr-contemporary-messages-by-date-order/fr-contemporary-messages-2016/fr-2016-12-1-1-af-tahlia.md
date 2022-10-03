@@ -30,7 +30,6 @@ Et je suis avec vous, âmes bien-aimées, et je continuerai à faire partie de v
 Soyez toujours ouverts à la guidance de Dieu, permettez au flux de Sa Volonté de vous porter dans la rivière de Son Amour et tout ira bien. De nombreuses surprises vous attendent. N’êtes-vous pas surpris d’être tous ensemble aujourd’hui, en ce lieu ? Cependant ceci est mineur comparé à ce qui est à venir. Tant de choses vous attendent.
 
 Que Dieu vous bénisse, Tahlia vous aime.
-
 <small>
 
    1. <large id=”f1”>Il faut probablement voir, dans cette remarque, une allusion à la publication des messages sur Internet par Geoff Cutler, webmaster des sites https://new-birth.net/ et https://soultruth.ca/ où les divers messages ont été originellement publiés.[↩](#a1) 

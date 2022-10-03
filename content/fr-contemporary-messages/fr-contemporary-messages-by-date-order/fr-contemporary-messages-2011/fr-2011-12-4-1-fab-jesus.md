@@ -24,7 +24,6 @@ Donc oui, certaines expériences oniriques, qui ne sont peut-être même pas enr
 Les rêves qui ne jouent pas un rôle important dans le voyage d’un mortel ne sont pas retenus, tout comme de nombreuses choses que les mortels font sont oubliées parce qu’elles n’ont rien à voir avec le chemin moral et spirituel, sauf lorsqu’il y a une raison spéciale de s’en souvenir, comme dans le cas de personnages politiques importants ou de grands artistes.
 
 Je souhaite dire à Geoff que nous travaillons très dur pour lui. Il est sous notre responsabilité. Il le sait, mais j’ai pensé qu’il aimerait l’entendre directement.<sup id=”a1”>[1](#f1)</sup>
-
 <small>
 
    1. <large id=”f1”>Bien qu’il s’agisse d’une affaire personnelle dont je ne souhaite pas discuter publiquement, elle s’est produite. Elle a nécessité de très nombreuses années de soutien angélique.[↩](#a1)

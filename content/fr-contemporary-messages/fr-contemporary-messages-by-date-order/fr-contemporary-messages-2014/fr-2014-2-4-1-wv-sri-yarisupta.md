@@ -30,7 +30,6 @@ Je sais que tout cela peut paraître un peu confus au début, mais lorsque vous 
 Je vais m’arrêter ici pour le moment et j’espère que vous trouverez de l’intérêt dans ce que je vous ai donné. Garde l’esprit ouvert afin que nous puissions déverser nos connaissances dans votre conscience, mon cher ami.
 
 Au revoir, votre ami et aide, Sri Yukteswar.
-
 <small>
 
    1. <large id=”f1”>Un avatar, dans la religion Hindoue, est une incarnation de Vishnou.[↩](#a1) 

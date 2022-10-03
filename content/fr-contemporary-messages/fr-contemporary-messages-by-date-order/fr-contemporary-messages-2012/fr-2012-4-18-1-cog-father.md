@@ -35,7 +35,6 @@ Tu as ta propre histoire et la façon dont tu as vécu ta vie a ses conséquence
 Je t’aime dans mon cœur,
 
 Père.
-
 <small>
 
    1. <large id=”f1”>Le médium a confirmé que l’utilisation du mot « âme-sœur » ici n’était pas destinée à être interprétée littéralement comme le font les Messages de James Padgett. Il s’agit plutôt ici d’un « partenaire que vous aimez profondément ».[↩](#a1) 

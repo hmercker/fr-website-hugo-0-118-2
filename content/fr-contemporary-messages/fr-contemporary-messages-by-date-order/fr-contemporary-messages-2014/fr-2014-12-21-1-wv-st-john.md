@@ -60,7 +60,6 @@ Ainsi les spéculations de certains des esprits dans la sixième sphère qu’un
 Je suis heureux que nous ayons eu l’occasion de partager nos connaissances de nouveau avec toi . Je te remercie pour le temps et les efforts que tu y consacres. Que Dieu te bénisse mon ami. Je te souhaite de belles et agréables (affectueuses) vacances, profite de ton temps sur cette terre. Jean
 
 **Notes du Webmaster du site New-Birth.net :** 
-
 <small>
 
    1. <large id=”f1”>Je dois avouer que, pour autant que je suis concerné, ce message est un exemple parfait de cela. Dans nos échanges avec le médium, il n’a pas été utilisé le mot « Satan » d’une manière autre que celle utilisée par les Chrétiens orthodoxes, c’est à dire pour désigner une entité maléfique égale en puissance (ou presque) à Dieu. Étant un "elevenelevener" (adepte du groupe [11:11](http://board.1111angels.com/index.php)), j’ai une opinion très différente sur ce sujet.[↩](#a1)

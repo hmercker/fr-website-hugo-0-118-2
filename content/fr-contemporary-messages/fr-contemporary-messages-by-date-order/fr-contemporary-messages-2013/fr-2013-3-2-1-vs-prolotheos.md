@@ -21,7 +21,6 @@ weight:
 « Par conséquent, mon élève, l’évolution reflète le dessein de Dieu de faire naître des êtres aptes à recevoir leur personnalité du Père, et même à accueillir les merveilleux Fragments de Dieu, les Ajusteurs de Pensée. Certains religieux ne peuvent accepter la réalité de l’évolution car son explication provient principalement de la Science qui ne peut rendre compte de l’existence et de l’action de Dieu dans les Univers. Néanmoins, l’évolution a son propre témoignage dans l’histoire géologique d’Urantia, même si elle est interprétée de façon erronée par de nombreux scientifiques partiaux. Seule une religiosité aveugle peut nier l’évolution, tout comme une science arrogante nie Dieu. Je suis Prolotheos. Paix à tous ».
 
 © The 11:11 Progress Group. « Le don de soi, l’illumination de la vérité et le soulagement de la souffrance sont les voies les plus nobles vers la conscience supérieure. » – Enseignant Ophelius, 2009. [Référence](http://www.1111ProgressGroup.com).
-
 <small>
 
    1. <large id=”f1”>Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
