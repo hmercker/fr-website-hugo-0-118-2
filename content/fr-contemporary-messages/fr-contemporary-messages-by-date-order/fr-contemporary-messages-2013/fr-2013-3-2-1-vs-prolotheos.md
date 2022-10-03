@@ -24,7 +24,7 @@ weight:
 
 <small>
 
-   1.<large id=”f1”>Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
+   1. <large id=”f1”>Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
 
 
 

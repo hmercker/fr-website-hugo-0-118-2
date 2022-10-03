@@ -30,5 +30,5 @@ Ainsi, tout ce que la phrase implique, c’est que, dans cette phrase particuli�
 
 <small>
 
-   1.<large id=”f1”>Daniel G Samuels fut un médium prolifique dans les années 1950 et 1960, et le médium original par lequel le message lié a été reçu.[↩](#a1)
+   1. <large id=”f1”>Daniel G Samuels fut un médium prolifique dans les années 1950 et 1960, et le médium original par lequel le message lié a été reçu.[↩](#a1)
 

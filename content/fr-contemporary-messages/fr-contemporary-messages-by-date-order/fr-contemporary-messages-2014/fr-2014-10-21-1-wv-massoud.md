@@ -33,7 +33,7 @@ Bonsoir. Profitez de cette belle musique relaxante. Elle vous fera du bien.
 
 <small>
 
-   1.<large id=”f1”>Le mot utilisé dans le texte originel était *« abreact »* qui est un terme psychanalytique désignant le fait de revivre une expérience afin de la purger de ses excès émotionnels ; une sorte de catharsis qui signifie défoulement et purification.[↩](#a1) 
+   1. <large id=”f1”>Le mot utilisé dans le texte originel était *« abreact »* qui est un terme psychanalytique désignant le fait de revivre une expérience afin de la purger de ses excès émotionnels ; une sorte de catharsis qui signifie défoulement et purification.[↩](#a1) 
 
 
 

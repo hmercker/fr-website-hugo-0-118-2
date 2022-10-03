@@ -33,7 +33,7 @@ Vous savez par expérience que la maladie et la souffrance font changer les gens
 
 <small>
 
-   1.<large id=”f1”> John Wilkes Booth fut le meutrier d’Abraham Licoln.[↩](#a1)
+   1. <large id=”f1”> John Wilkes Booth fut le meutrier d’Abraham Licoln.[↩](#a1)
 
 
 

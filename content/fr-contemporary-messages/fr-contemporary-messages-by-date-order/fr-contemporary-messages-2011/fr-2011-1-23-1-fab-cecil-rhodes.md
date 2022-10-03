@@ -23,5 +23,5 @@ Dieu trouvera un moyen de sortir de l’impasse actuelle, et votre propre vie se
 
 <small>
 
-   1.<large id=”f1”> Cecil Rhodes a communiqué un autre message le 31 Mai 2012 et ce message peut-être lu [ici](\fr-c ontemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2012\fr-2012-5-31-1-fab-cecil-rhodes)[↩](#a1)
+   1. <large id=”f1”> Cecil Rhodes a communiqué un autre message le 31 Mai 2012 et ce message peut-être lu [ici](\fr-c ont emporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2012\fr-2012-5-31-1-fab-cecil-rhodes)[↩](#a1)
 
