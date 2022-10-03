@@ -55,7 +55,7 @@ Roger Williams | [Un dissident colonial](/fr-contemporary-messages/fr-contempora
 Cotton Mather | [La conscience dans le procès des sorcières de Salem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-24-1-fab-cotton-mather/) | 24 Mars 2008
 Jésus | [La sagesse ancienne et la sagesse moderne sont toutes deux nécessaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-24-2-fab-jesus/) | 24 Mars 2008
 Smedley Butler | [Le dégoût d'un marine américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-27-1-fab-smedley-butler/) | 27 Mars 2008
-John | [Jean et la Culture Grecque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-7-1-fab-john/) | 7 Avril 2008
+St Jean | [Jean et la Culture Grecque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-7-1-fab-st-john/) | 7 Avril 2008
 Andrew Carnegie | [La souffrance d'un industriel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-14-1-fab-andrew-carnegie/) | 14 Avril 2008
 Abraham Lincoln | [La sélection de Lincoln, et la pensée positive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-abraham-lincoln/) | 16 Avril 2008
 Andrew Carnegie | [La loi morale est exacte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-2-fab-andrew-carnegie/) | 16 Avril 2008
