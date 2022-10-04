@@ -26,7 +26,7 @@ Les rêves qui ne jouent pas un rôle important dans le voyage d’un mortel ne 
 Je souhaite dire à Geoff que nous travaillons très dur pour lui. Il est sous notre responsabilité. Il le sait, mais j’ai pensé qu’il aimerait l’entendre directement.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-   1. <large id=”f1”>Bien qu’il s’agisse d’une affaire personnelle dont je ne souhaite pas discuter publiquement, elle s’est produite. Elle a nécessité de très nombreuses années de soutien angélique.[↩](#a1)
+1. <large id=”f1”> Bien qu’il s’agisse d’une affaire personnelle dont je ne souhaite pas discuter publiquement, elle s’est produite. Elle a nécessité de très nombreuses années de soutien angélique.[↩](#a1)
 
 
 

@@ -23,7 +23,7 @@ weight:
 © The 11:11 Progress Group. « Le don de soi, l’illumination de la vérité et le soulagement de la souffrance sont les voies les plus nobles vers la conscience supérieure. » – Enseignant Ophelius, 2009. [Référence](http://www.1111ProgressGroup.com).
 <small>
 
-   1. <large id=”f1”>Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
+1. <large id=”f1”> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
 
 
 

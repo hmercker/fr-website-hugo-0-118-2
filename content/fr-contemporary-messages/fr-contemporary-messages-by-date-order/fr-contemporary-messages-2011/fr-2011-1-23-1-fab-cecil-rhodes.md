@@ -22,5 +22,5 @@ Dieu trouvera un moyen de sortir de l’impasse actuelle, et votre propre vie se
 **Cecil John Rhodes** (5 Juillet 1853 – 26 Mars 1902) était un homme d’affaires, magnat de l’industrie minière et homme politique d’origine anglaise en Afrique du Sud. Il est le fondateur de la société diamantaire De Beers, qui commercialise aujourd’hui 40 % des diamants bruts du monde et en a un temps commercialisé 90 %. Fervent partisan du colonialisme et de l’impérialisme, il est le fondateur de l’État de Rhodésie, qui porte son nom. Après l’indépendance, la Rhodésie s’est séparée en deux nations, la Rhodésie du Nord et la Rhodésie du Sud, rebaptisées plus tard respectivement Zambie et Zimbabwe. L’université Rhodes d’Afrique du Sud porte son nom. Il a mis en place les dispositions de la bourse Rhodes, qui est financée par sa succession. (Source Wikipédia)
 <small>
 
-   1. <large id=”f1”> Cecil Rhodes a communiqué un autre message le 31 Mai 2012 et ce message peut-être lu [ici](/fr-c ont emporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-31-1-fab-cecil-rhodes/)[↩](#a1)
+1. <large id=”f1”> Cecil Rhodes a communiqué un autre message le 31 Mai 2012 et ce message peut-être lu [ici](/fr-c ont emporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-31-1-fab-cecil-rhodes/)[↩](#a1)
 

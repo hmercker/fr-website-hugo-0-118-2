@@ -27,8 +27,8 @@ Le Cercle des Sept.
 Le groupe de progrès 11 : 11. « Le don de soi, l’illumination de la vérité et le soulagement de la souffrance sont les chemins les plus nobles vers la conscience supérieure. » – Enseignant Ophelius, 2009. http://www.1111ProgressGroup.com
 <small>
 
-   1. <large id=”f1”>Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
-   2. <large id=”f2”>Cela indique clairement que les rapports sexuels tels que nous les connaissons ne peuvent avoir lieu dans d’autres royaumes.[↩](#a2)
+1. <large id=”f1”> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
+2. <large id=”f2”> Cela indique clairement que les rapports sexuels tels que nous les connaissons ne peuvent avoir lieu dans d’autres royaumes.[↩](#a2)
    
 
   

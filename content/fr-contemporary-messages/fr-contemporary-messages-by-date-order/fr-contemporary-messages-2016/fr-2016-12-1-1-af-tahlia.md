@@ -32,7 +32,7 @@ Soyez toujours ouverts à la guidance de Dieu, permettez au flux de Sa Volonté 
 Que Dieu vous bénisse, Tahlia vous aime.
 <small>
 
-   1. <large id=”f1”>Il faut probablement voir, dans cette remarque, une allusion à la publication des messages sur Internet par Geoff Cutler, webmaster des sites https://new-birth.net/ et https://soultruth.ca/ où les divers messages ont été originellement publiés.[↩](#a1) 
+1. <large id=”f1”> Il faut probablement voir, dans cette remarque, une allusion à la publication des messages sur Internet par Geoff Cutler, webmaster des sites https://new-birth.net/ et https://soultruth.ca/ où les divers messages ont été originellement publiés.[↩](#a1) 
 
 
 

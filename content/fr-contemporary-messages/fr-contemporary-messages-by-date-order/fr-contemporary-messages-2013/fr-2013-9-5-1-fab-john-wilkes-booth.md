@@ -32,7 +32,7 @@ Vous n’êtes pas un fanatique, c’est pourquoi il vous est difficile de compr
 Vous savez par expérience que la maladie et la souffrance font changer les gens. C’est ce qui est arrivé au fanatique John Wilkes Booth, qui ne pouvait pas échapper à sa conscience, qui lui disait que le meurtre est l’un des pires péchés à expier. Alors oui, j’affichais une façade immuable, mais à un autre niveau, je n’étais plus convaincu d’avoir fait ce qu’il fallait. Cela vous montre la nature complexe de l’humanité, comment nous pouvons avoir des états contradictoires. Les deux réalités étaient donc vraies, et la contradiction s’explique. Je suis heureux d’offrir cette explication à celui qui n’aime que la vérité.
 <small>
 
-   1. <large id=”f1”> John Wilkes Booth fut le meutrier d’Abraham Licoln.[↩](#a1)
+1. <large id=”f1”> John Wilkes Booth fut le meutrier d’Abraham Licoln.[↩](#a1)
 
 
 

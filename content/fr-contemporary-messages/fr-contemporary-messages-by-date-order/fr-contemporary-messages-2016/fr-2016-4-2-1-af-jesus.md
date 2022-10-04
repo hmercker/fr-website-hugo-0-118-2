@@ -48,7 +48,7 @@ Beaucoup tourneront leurs regards vers vous, mes bien-aimés, et vous leur parle
 Je suis votre ami, je suis votre frère, et je vous aime tendrement. Je suis Jésus. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous sur votre chemin et j’aide à éclairer le chemin alors que vous marchez sur cette Voie. Que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
 
-   1. <large id=”f1”>Pour une raison quelconque, ceci n’a pas été couvert à ce moment.[↩](#a1)
+1. <large id=”f1”> Pour une raison quelconque, ceci n’a pas été couvert à ce moment.[↩](#a1)
    
 
 
