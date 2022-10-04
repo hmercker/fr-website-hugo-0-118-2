@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 17 Mai 2014, Gibsons, Colombie-Britannique, Canada
 
-C’est Jésus, oui je suis Jésus de la Bible, et Maître des Cieux Célestes<sup id=”a1”>[1](#f1)</sup>. Je suis heureux que vous soyez venus ensemble pour prier pour l’Amour de Dieu, pour être ensemble dans la paix et l’harmonie, pour partager les uns avec les autres de manière aimante, et pour avoir confiance qu’ensemble vous trouverez votre chemin vers Dieu, avec certaines des réponses que vous cherchez qui viendront à vous.
+C’est Jésus, oui je suis Jésus de la Bible, et Maître des Cieux Célestes <sup id=”a1”>[1](#f1)</sup>. Je suis heureux que vous soyez venus ensemble pour prier pour l’Amour de Dieu, pour être ensemble dans la paix et l’harmonie, pour partager les uns avec les autres de manière aimante, et pour avoir confiance qu’ensemble vous trouverez votre chemin vers Dieu, avec certaines des réponses que vous cherchez qui viendront à vous.
 
 Et je vous bénis, je vous bénis dans vos aspirations, et votre désir de Vérité et votre volonté de vous ouvrir de cette façon, et je veux que vous sachiez que chaque âme qui cherche cet Amour, sera aimée, sera soignée par Dieu, sera réclamée par Dieu comme Ses enfants et vous serez protégés et guidés et aimés, et soignés, enveloppés dans ce contact saint, cette étreinte aimante, aimante.
 
