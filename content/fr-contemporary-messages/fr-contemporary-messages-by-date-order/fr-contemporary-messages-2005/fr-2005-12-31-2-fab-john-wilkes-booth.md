@@ -11,7 +11,7 @@ weight:
 
 John Wilkes Booth - reçu par FAB le 31 Décembre 2005, Santa Cruz, Californie, USA.
 
-!(/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-lotus-1205631_1280.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-lotus-1205631_1280.jpg)
 
 C'est moi, John Wilkes Booth *[l'assassin d'Abraham Lincoln]*.
 

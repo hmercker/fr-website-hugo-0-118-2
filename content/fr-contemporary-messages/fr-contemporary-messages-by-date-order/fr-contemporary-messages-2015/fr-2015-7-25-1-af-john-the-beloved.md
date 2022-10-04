@@ -11,7 +11,7 @@ weight:
 
 Jean le Bien Aimé - reçu par Al Fike le 25 Juillet 2015, Gibsons, Colombie-Britannique, Canada
 
-!(https://lanouvellenaissance.files.wordpress.com/2021/10/spiritualite-21.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/spiritualite-21.jpg)
 
 C’est Jean qui vous parle. Le Souffle de Dieu se déverse sur votre monde, mes bien-aimés. Son contact touche tout et Son Souffle se répand sur les sommets des montagnes et dans les vallées, les ruisseaux et les lacs, les océans, les créatures du monde. Toute la création dans ce monde, mes bien-aimés, est touchée par Dieu.
 

@@ -11,6 +11,8 @@ weight:
 
 Care Derby Walsh - reçu par Al Fike le 29 Novembre 2016, Gibsons, Colombie-Britannique, Canada
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/bouquet-of-roses.jpg)
+
 Moi aussi, je me joindrai à vous dans vos prières et vos efforts. Mon cher compagnon, mon bien-aimé, je suis souvent avec toi et je me joins à toi dans tes prières. Il y a beaucoup de travail à faire pour vous, mes bien-aimés. Cela vient, vous allez tous sentir ce qui vient. (Référence à J.W. L’esprit est Care avec qui il était marié).
 
 Vous devez tous apprendre à laisser aller ces choses dans votre esprit, vos attentes de ce qui sera, de ce qui doit être. Vous devez permettre à Dieu d’orchestrer vos efforts, de permettre à sa belle volonté de se manifester dans vos vies et dans vos efforts ensemble. C’est comme si vous voyiez le bourgeon de la rose qui est fermé, alors vous voyez la couleur et vous voyez une indication de la forme mais jusqu’à ce que la rose s’ouvre vous ne pouvez pas vraiment voir ses détails et sa beauté et c’est ainsi avec ce travail, le bourgeon se gonfle. Il commence à s’ouvrir, pétale par pétale, mais vous ne voyez pas vraiment la forme, l’intention de Dieu, la beauté que Dieu a créée et le plan que Dieu a pour chacun de vous et pour vous tous ensemble.

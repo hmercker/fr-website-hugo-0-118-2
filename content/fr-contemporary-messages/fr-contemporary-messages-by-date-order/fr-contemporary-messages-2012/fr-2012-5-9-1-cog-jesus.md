@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Enfant de Dieu le 9 Mai 2012
 
-!(https://lanouvellenaissance.files.wordpress.com/2021/10/spiritualite-21.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/spiritualite-21.jpg)
 
 Ma chère sœur,
 

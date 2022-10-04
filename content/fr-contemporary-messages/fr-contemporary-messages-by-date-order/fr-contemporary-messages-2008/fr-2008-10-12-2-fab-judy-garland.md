@@ -11,7 +11,7 @@ weight:
 
 Judy Garland - reçu par FAB le 12 Octobre 2008, Santa Cruz, Californie, USA
 
-!(https://lanouvellenaissance.files.wordpress.com/2021/08/eveil-spirituel8.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/eveil-spirituel8.jpg)
 
 C’est moi, Judy Garland.
 
