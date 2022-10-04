@@ -13,7 +13,7 @@ Sri Yarisupta - reçu par WV le 4 Février 2014, Schoten, Belgique
 
 Je suis ici, votre ami et votre aide, Sri Yukteswar. Je suis venu parce que je voulais répondre à la question de savoir qui était (Sathya) Sai Baba.
 
-Laissez-moi commencer par dire qu’il n’était pas un avatar<sup id=”a1”>[1](#f1)</sup>. Lorsqu’il est mort, il est entré dans ce que l’on appelle la quatrième sphère. Il n’était pas plus spécial que n’importe quel autre homme sur terre. Il est né d’une femme et il est mort comme tout autre homme, une fois.
+Laissez-moi commencer par dire qu’il n’était pas un avatar <sup id=”a1”>[1](#f1)</sup>. Lorsqu’il est mort, il est entré dans ce que l’on appelle la quatrième sphère. Il n’était pas plus spécial que n’importe quel autre homme sur terre. Il est né d’une femme et il est mort comme tout autre homme, une fois.
 
 La raison pour laquelle il était capable de faire certaines choses que d’autres ne pouvaient pas faire, c’est qu’il comprenait les lois de la création. Ces lois régissent la façon dont les choses sont créées et aussi comment elles sont détruites. Lorsque vous apprendrez comment votre libre arbitre peut interagir avec ces lois, vous comprendrez leur fonctionnement.
 
@@ -30,10 +30,9 @@ Je sais que tout cela peut paraître un peu confus au début, mais lorsque vous 
 Je vais m’arrêter ici pour le moment et j’espère que vous trouverez de l’intérêt dans ce que je vous ai donné. Garde l’esprit ouvert afin que nous puissions déverser nos connaissances dans votre conscience, mon cher ami.
 
 Au revoir, votre ami et aide, Sri Yukteswar.
-
 <small>
 
-   <large id=”f1”>Un avatar, dans la religion Hindoue, est une incarnation de Vishnou.(#a1)
+<large id=”f1”>Un avatar, dans la religion Hindoue, est une incarnation de Vishnou.(#a1)
 
 
 
