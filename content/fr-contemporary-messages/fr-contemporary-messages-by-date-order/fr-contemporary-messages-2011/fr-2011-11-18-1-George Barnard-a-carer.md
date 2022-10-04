@@ -27,3 +27,4 @@ L’échec global pour atteindre la vie éternelle comme il vous a été enseign
 <small>
 
 1. <large id=”f1”> Autrement connu sous le nom de Première Sphère de l’Esprit. Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est très différent, du fait qu’il parle presque exclusivement à des êtres angéliques, par opposition à des ex-mortels. Néanmoins, ce message est tout à fait compréhensible.[↩](#a1)
+
