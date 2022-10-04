@@ -32,7 +32,7 @@ Je vais m’arrêter ici pour le moment et j’espère que vous trouverez de l�
 Au revoir, votre ami et aide, Sri Yukteswar.
 <small>
 
-   1. <large id=”f1”>Un avatar, dans la religion Hindoue, est une incarnation de Vishnou.[↩](#a1) 
+1. <large id=”f1”> Un avatar, dans la religion Hindoue, est une incarnation de Vishnou.[↩](#a1) 
 
 
 
