@@ -1,15 +1,15 @@
 ---
-title: "Robert Kennedy dans le monde des esprits"
+title: "La famille Kennedy"
 menu_title: ""
-description: "Robert Kennedy dans le monde des esprits"
-date: 2022-06-01 06:00:01+00:92
+description: "La famille Kennedy"
+date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True
 weight:
 ---
-### Robert Kennedy dans le monde des esprits
+### La famille Kennedy
 
 Robert Kennedy - reçu par FAB le 4 Décembre 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Robert Kennedy.
-Lorsque je suis arrivé dans le monde des esprits, je n'étais absolument pas préparé, et malgré mes forces et mes vertus, j'ai hérité d'une obscurité considérable. Ma pugnacité, ma tendance à affronter les gens, m'est revenue, et j'ai été surpris de constater que mes voisins avaient tous exactement le même trait de caractère.
+Il est évident, pour quiconque connaît ma vie, que j'ai été dominé par mon père et mes frères, et cela a rendu extrêmement difficile, pour moi, d'être indépendant dans le vrai sens du terme. Mais en grandissant, j'ai pris conscience de qui j'étais. La mort de mon frère Joe m'a enlevé une partie de la pression que mon père exerçait sur moi. Mais la mort de Jacques m'a brisé encore plus que celle de Joe. Mais avec la mort de Jacques, j'étais à un âge où je pouvais plus facilement être moi-même.

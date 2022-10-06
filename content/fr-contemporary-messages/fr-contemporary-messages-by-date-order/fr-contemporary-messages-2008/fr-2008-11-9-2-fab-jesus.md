@@ -12,4 +12,5 @@ weight:
 Jésus - reçu par FAB le 9 Novembre 2008, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
+
 Oui, comme vous l'avez compris, mon programme économique était basé sur l'approche Juive de la vie parce que c'était mon contexte culturel, et aussi parce que mon désir passionné de bien-être humain était exactement en harmonie avec le meilleur de cet héritage Juif.
