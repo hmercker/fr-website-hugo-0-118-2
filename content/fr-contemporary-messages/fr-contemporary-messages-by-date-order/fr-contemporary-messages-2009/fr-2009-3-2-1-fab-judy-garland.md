@@ -12,5 +12,7 @@ weight:
 Judy Garland - reçu par FAB le 2 Mars 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Judy Garland.
+
 J'aimais vraiment me produire sur scène, préférant toujours les spectacles et les concerts, même s'ils ne se passaient pas toujours bien.
-Judy Garland a délivré un certain nombre de messages au cours de l'année 2008.
+
+***Note :*** *Judy Garland a délivré un certain nombre de [messages au cours de l'année 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/).*

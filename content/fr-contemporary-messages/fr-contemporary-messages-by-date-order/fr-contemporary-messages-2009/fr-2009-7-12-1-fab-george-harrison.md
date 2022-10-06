@@ -12,4 +12,6 @@ weight:
 George Harrison - reçu par FAB le 12 Juillet 2009, Santa Cruz, Californie, USA.
 
 
-
+<sup id="a1">[1](#f1)</sup>
+<small>
+1. <large id="f1"> xxx[↩](#a1)

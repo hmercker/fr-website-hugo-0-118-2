@@ -12,4 +12,5 @@ weight:
 Jonathan Edwards - reçu par FAB le 28 Février 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Jonathan Edwards.
-Oui, j'ai écrit et cru beaucoup de choses qui étaient positives et utiles. Mais je n'ai pas pu échapper au jugement concernant ces croyances qui étaient fausses et nuisibles (voir son message du 07-01-2008).
+
+Oui, [j'ai écrit et cru beaucoup de choses qui étaient positives et utiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-1-fab-jonathan-edwards/). Mais je n'ai pas pu échapper au jugement concernant ces croyances qui étaient fausses et nuisibles.
