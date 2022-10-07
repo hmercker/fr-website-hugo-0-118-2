@@ -9,7 +9,11 @@ weight:
 ---
 ### Un conseil de Goldie : « Soyez joyeux »
 
-Goldie - reçu par Al Fike le 14 Juin 2017, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Al Fike le 14 Juin 2017, Gibsons, Colombie-Britannique, Canada
+
+La vie est joie, beauté et amour. N’oubliez pas cela. Ne vous prenez pas trop au sérieux. Soyez joyeux et continuez à vous aimer et à vous soutenir les uns les autres. Nous serons toujours vos amis, vos aides et nous vous aimons tendrement.
+
+Je suis Goldie. Que Dieu vous bénisse. Soyez bénis, âmes bien-aimées. Vous êtes précieuses pour nos cœurs. Vous nous donnez de la joie. Que Dieu vous bénisse.
 
 
 
