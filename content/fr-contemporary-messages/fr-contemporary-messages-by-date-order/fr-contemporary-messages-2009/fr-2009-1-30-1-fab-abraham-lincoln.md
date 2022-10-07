@@ -1,15 +1,24 @@
 ---
-title: "Lincoln gagne en confiance"
+title: "Le début de la guerre civile Américaine"
 menu_title: ""
-description: "Lincoln gagne en confiance"
-date: 2022-06-01 06:00:01+00:08
+description: "Le début de la guerre civile Américaine"
+date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True
 weight:
 ---
-### Lincoln gagne en confiance
+### Le début de la guerre civile Américaine
 
 Abraham Lincoln - reçu par FAB le 30 Janvier 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Abraham Lincoln.
-Au fur et à mesure que la guerre avançait, je devenais de plus en plus à l'aise dans le commandement. La crise de Fort Sumter a amorcé le processus qui m'a donné suffisamment de confiance pour prendre mes propres décisions. Cela a été facilité par les nombreuses années  où il a exercé le métier d'avocat au cours desquelles il lui a fallu faire preuve de créativité et d'originalité.
+
+Permettez-moi de commenter la crise qui a conduit à la guerre civile, à l'affrontement à Fort Sumter.
+
+Ce fut le premier véritable test de ma présidence. Dans mon cœur, je ne voulais pas la guerre. Je l'ai dit clairement à plusieurs reprises. Mais en tant que leader de la nation, j'ai senti que je ne pouvais pas rester les bras croisés, même si la plupart des membres de mon cabinet conseillaient la non-intervention. Je savais très bien que la guerre était très possible, mais je savais aussi que je devais assumer le commandement. La crise m'a permis de trouver les qualités de leadership en tant que président dont j'avais douté par le passé.
+
+L'histoire est interprétée en fonction du point de vue de celui qui l'interprète. Je sais que l'on peut très facilement dire que j'ai provoqué la guerre en envoyant des provisions à Fort Sumter. Mais ce n'était pas un acte hostile. Il ne s'agissait pas d'une agression. Mais le Sud l'a interprété de cette façon, et c'est ainsi que la guerre est arrivée.
+
+Vous m'avez bien canalisé [lorsque j'ai dit que j'avais fait tout ce que je pouvais pour empêcher la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/), et que je ne l'avais pas déclenchée. Je ne l'ai pas commencée.
+
+Oui, vous avez raison de penser que les enseignements de Jésus sont vrais, que nous devons aimer nos ennemis. J'ai agi, comme je le voyais, en pure autodéfense, sans aucun désir de provoquer ou de blesser le Sud. Dieu a vu mon motif intérieur, et cela m'a aidé lorsque je suis devenu un esprit.

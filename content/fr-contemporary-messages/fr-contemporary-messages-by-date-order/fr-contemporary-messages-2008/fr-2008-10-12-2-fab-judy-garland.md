@@ -11,7 +11,11 @@ weight:
 
 Judy Garland - reçu par FAB le 12 Octobre 2008, Santa Cruz, Californie, USA
 
+<<<<<<< Updated upstream
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/eveil-spirituel8.jpg)
+=======
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-eveil-spirituel-08-2008.jpg)
+>>>>>>> Stashed changes
 
 C’est moi, Judy Garland.
 
@@ -24,11 +28,3 @@ Alors oui, comme vous le savez, une tentative de suicide, même si elle n’abou
 Au début, le monde des esprits fut un grand choc, mais après avoir pris mes marques, j’ai vu que je pouvais m’échapper de ma prison des ténèbres. Il m’a été dit comment faire, et j’ai suivi. J’ai toujours été une âme ambitieuse. Cela a été partiellement contrecarré par ma confusion et par les pressions injustes d’une carrière dans le show-business. Mais je n’ai jamais perdu cette étincelle d’espoir qu’un jour, je trouverais le bonheur et la paix.
 
 Nous, les esprits, nous ne sommes pas éternellement condamnés aux ténèbres. C’est la toute première chose que ce cher Ange m’a dite. Il l’a dit avec une telle conviction que je ne pouvais que le croire. Bien sûr, au début, la lutte a été très difficile. Mais comme je persistais à prier pour l’Amour de Dieu (car c’était la méthode pour sortir de ma misère qu’il m’avait expliquée), certains changements se sont produits en moi. Ce processus s’est accéléré – plus j’essayais, plus cela devenait facile. Je sais que vous avez tendance à douter qu’un péché aussi grave qu’une tentative de suicide puisse être réparé aussi rapidement, mais le progrès dépend de la volonté d’un esprit, et si la volonté est forte, comme l’était la mienne, alors le succès est plus rapide. C’est mon désir passionné de bonheur et de paix, qui a été continuellement contrecarré sur terre, qui a été le moteur qui m’a poussé, car j’ai perçu que j’avais une chance de posséder ce qui n’a jamais été à moi – une vie entière de désir frustré m’a poussé à m’efforcer, jusqu’à ce que le prix soit à moi. Et combien je fus reconnaissante que finalement, ce que je désirais ardemment se soit réalisé.
-
-
-
-
-
-
-
-
