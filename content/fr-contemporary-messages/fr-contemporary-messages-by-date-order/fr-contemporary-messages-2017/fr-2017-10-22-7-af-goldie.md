@@ -9,7 +9,11 @@ weight:
 ---
 ### Ne vous prenez pas trop au sérieux
 
-Goldie - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+
+Je suis Goldie. Je vais chuchoter à vos oreilles et vous chatouiller. (Câlins du ventre… pour Jeanne) Je vais chatouiller votre ventre.
+
+Ne vous prenez pas trop au sérieux, mes amis. Soyez joyeux dans vos efforts. Vous êtes aimés, tous, précieux aux yeux de Dieu. Moi aussi, je vous aime. Que Dieu vous bénisse.
 
 
 

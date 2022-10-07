@@ -9,7 +9,9 @@ weight:
 ---
 ### S'avancer pour Dieu
 
-Joan d'Arc - reçu par Al Fike le 15 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Jeanne d'Arc - reçu par Al Fike le 15 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+
+Je suis Jeanne d'Arc et je vais mettre en avant ma passion pour Dieu en m'adressant avec mes propres mots à tous dans ce monde. J'ai un profond désir d'apporter des changements à votre monde qui a tant besoin du réconfort de Dieu, de l'Amour de Dieu. Je ferai tout mon possible pour vous aider en cela, pour marcher avec vous afin d'apporter le salut de l'humanité à ce monde. Que Dieu vous bénisse. Dieu vous bénisse, frères et sœurs bien-aimés.
 
 
 
