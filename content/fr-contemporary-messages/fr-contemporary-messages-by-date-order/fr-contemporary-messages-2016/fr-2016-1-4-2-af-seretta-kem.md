@@ -9,7 +9,7 @@ weight:
 ---
 ### Être un réconfort dans ce monde
 
-Seretta Kem - reçu par Al Fike le 4 Janvier 2016, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 4 Janvier 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem et je viens vous guider sur ces questions et ces efforts que vous avez faits pour apporter la guérison dans ce monde. Je vous demande de réfléchir, mes bien-aimés, à ce qui vous motive lorsque vous vous réunissez de cette façon pour apporter la guérison au monde ? Est-ce vos esprits ou vos âmes ?
 
