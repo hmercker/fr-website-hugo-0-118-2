@@ -1,13 +1,13 @@
 ---
-title: "Le monde a besoin de vous maintenant"
+title: "Nul besoin d'avoir honte de ce que vous êtes"
 menu_title: ""
-description: "Le monde a besoin de vous maintenant"
+description: "Nul besoin d'avoir honte de ce que vous êtes"
 date: 2022-06-01 06:00:01+00:227
 draft: False
 hidden: True
 weight:
 ---
-### Le monde a besoin de vous maintenant
+### Nul besoin d'avoir honte de ce que vous êtes
 
 Rock Hudson - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
