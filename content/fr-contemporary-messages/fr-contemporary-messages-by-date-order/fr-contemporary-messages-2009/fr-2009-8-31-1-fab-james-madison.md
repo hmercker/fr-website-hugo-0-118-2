@@ -12,4 +12,5 @@ weight:
 James Madison - reçu par FAB le 31 Août 2009, Santa Cruz, Californie, USA.
 
 Je suis ici, James Madison.
+
 J'ai travaillé très dur pour créer et promouvoir la Constitution, et cela m'a apporté beaucoup de bonheur ici.
