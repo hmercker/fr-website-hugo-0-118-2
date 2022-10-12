@@ -9,7 +9,7 @@ weight:
 ---
 ### Les conseils du vieux sage
 
-Confucius - reçu par Al Fike le 24 Juin 2017, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 24 Juin 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Confucius. Je suis venu vous prêter mon amour et mes bénédictions, mes bien-aimés, alors que vous vous réunissez dans vos efforts pour vous rapprocher de Dieu et pour travailler ensemble à votre petite aventure dans ce monde. Je souhaite que vous sachiez que moi aussi, je suis impliqué dans cet effort et que j’aiderai à apporter la guérison et à mélanger les produits chimiques, à prendre soin de chacun d’entre vous alors que vous continuez à apporter plus d’harmonie à vos corps physiques, à votre esprit et à votre âme.
 

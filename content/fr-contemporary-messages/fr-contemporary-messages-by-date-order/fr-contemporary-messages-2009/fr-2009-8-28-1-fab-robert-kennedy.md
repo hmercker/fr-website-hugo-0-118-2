@@ -12,6 +12,9 @@ weight:
 Robert Kennedy - reçu par FAB le 28 Août 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Robert Kennedy.
-Je souhaite te dire quelques mots ce soir, alors que notre famille accueille dans ce monde l'un des nôtres. [Son frère Edward Kennedy venait de décéder].
-Vous m'avez canalisé correctement lors de canalisations passées. J'avais en effet le sentiment d'une destinée supérieure qui n'était pas liée à mon milieu privilégié.
+
+Je souhaite te dire quelques mots ce soir, alors que notre famille accueille dans ce monde l'un des nôtres. *[Son frère Edward Kennedy venait de décéder.]*
+
+Vous m'avez canalisé correctement lors de [canalisations passées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-30-1-fab-robert-kennedy/). J'avais en effet le sentiment d'une destinée supérieure qui n'était pas liée à mon milieu privilégié.
+
 Mais malgré mes efforts sincères pour la justice et pour un monde meilleur, je n'ai pas pu échapper aux mauvaises choses que j'ai faites. Aucun d'entre nous ne le peut.

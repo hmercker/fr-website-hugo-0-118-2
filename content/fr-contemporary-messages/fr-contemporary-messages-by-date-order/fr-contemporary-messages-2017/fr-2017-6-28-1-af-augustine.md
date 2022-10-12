@@ -9,7 +9,7 @@ weight:
 ---
 ### Le voyage de l’éveil de l’âme
 
-Augustin - reçu par Al Fike le 28 Juin 2017, FUSC<sup id=”a1”>[1](#f1)</sup> - Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 28 Juin 2017, FUSC <sup id=”a1”>[1](#f1)</sup> - Gibsons, Colombie-Britannique, Canada.
 
 Il y a quelque chose qui s’agite au fond de vous, un nouvel éveil, une ouverture de ces parties de votre âme qui ont longtemps été endormies et vous ressentez la puissance de cela et vous êtes enthousiasmés par cela. Car ce sont des temps passionnants pour vos âmes bien-aimées, lorsque ces facultés au plus profond de vous prennent vie et que vous en venez à connaître votre véritable moi, votre véritable potentiel, les grandes possibilités qui viennent avec une âme éveillée.
 

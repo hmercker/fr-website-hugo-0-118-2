@@ -98,6 +98,7 @@ Confucius | [L'amour dissout toutes les barrières](/fr-contemporary-messages/fr
 Augustin | [Comment vos dons vont émerger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-20-1-af-augustine/) | 20 Août 2017
 Seretta Kem | [De nombreux dons vont apparaître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-20-2-af-seretta-kem/) | 20 Août 2017
 St Matthieu | [Seule l'âme peut connaître l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-21-1-af-st-matthew/) | 21 Août 2017
+Martin Luther | [Les Salutations de Martin Luther](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-22-1-af-martin-luther/) | 22 Août 2017
 Mère Terre-Gaïa | [C’est le temps de la purification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-8-1-anyas-mother-earth-gaia/) | 8 Septembre 2017
 St Paul | [Restaurer l'harmonie de la création](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-10-1-af-st-paul/) | 10 Septembre 2017
 Seretta Kem | [Les différents objectifs de la prochaine retraite](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-10-2-af-seretta-kem/) | 10 Septembre 2017
@@ -168,7 +169,6 @@ Martin Luther | [Les salutations de Martin Luther](/fr-contemporary-messages/fr-
 Keea Atta Kem, St Matthieu, Lotus Blossom, Thomas d'Aquin & Martha | [Les guides alloués prennent la parole](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-22-5-af-keea-atta-kem-st-matthew-lotus-blossom-st-thomas-aquinas-martha/) | 22 Octobre 2017
 Jésus | [Je parlerai en voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-22-6-af-jesus/) | 22 Octobre 2017
 Goldie | [Ne vous prenez pas trop au sérieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-22-7-af-goldie/) | 22 Octobre 2017
-Martin Luther | [Se débarrasser des peurs et des jugements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-22-8-af-martin-luther/) | 22 Octobre 2017
 Augustin | [Libérer le contrôle de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-23-1-af-augustine/) | 23 Octobre 2017
 Seretta Kem | [Vous travaillez pour apporter une plus grande harmonie dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-24-1-af-seretta-kem/) | 24 Octobre 2017
 Seretta Kem | [Créer une condition de base pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-25-1-af-seretta-kem/) | 25 Octobre 2017
@@ -236,7 +236,7 @@ Marie | [Soyez un canal transportant les eaux de l'amour](/fr-contemporary-messa
 Seretta Kem | [Apportez à la Chambre votre sens du jeu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-2-af-seretta-kem/) | 21 Novembre 2017
 Ludwig van Beethoven | [Le don de la musique fera partie de ce plan](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-3-af-ludwig-van-beethoven/) | 21 Novembre 2017
 Frédéric Chopin | [Je souhaite apporter ma musique à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-4-af-frederick-chopin/) | 21 Novembre 2017
-Rock Hudson | [Le monde a besoin de vous maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-5-af-rock-hudson/) | 21 Novembre 2017
+Rock Hudson | [Nul besoin d'avoir honte de ce que vous êtes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-5-af-rock-hudson/) | 21 Novembre 2017
 Dame Nellie Melba | [Le monde a besoin de vous maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-6-af-dame-nellie-melba/) | 21 Novembre 2017
 Marilyn Munroe | [J'ai une histoire à raconter !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-7-af-marilyn-munroe/) | 21 Novembre 2017
 Elizabeth Taylor | [Nous souhaitons partager ces vérités de belles manières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-8-af-elizabeth-taylor/) | 21 Novembre 2017

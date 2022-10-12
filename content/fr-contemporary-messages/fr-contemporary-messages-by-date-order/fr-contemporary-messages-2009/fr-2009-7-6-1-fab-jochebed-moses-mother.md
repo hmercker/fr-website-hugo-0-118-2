@@ -11,5 +11,9 @@ weight:
 
 Jochebed, la mère de Moïse - reçu par FAB le 6 Juillet 2009, Santa Cruz, Californie, USA.
 
+C’est moi, Jochebed.
 
+Permettez-moi de commenter la déclaration que j’ai faite dans [ma canalisation du 23 Mai 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-23-1-fab-jochebed-moses-mother/) :  *« Et ma vie d’esclave en Égypte ne m’accordait pas le luxe de la réflexion. »*
+
+Vous vous êtes demandé, sûrement, tard le soir, avant de dormir, j’ai dû penser à mon fils Moïse. Eh bien, ce que vous ne comprenez pas, c’est que nous, les esclaves, étions soumis à un travail sans merci.
 

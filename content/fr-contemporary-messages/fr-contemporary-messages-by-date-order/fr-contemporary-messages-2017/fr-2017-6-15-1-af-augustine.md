@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon sur le jugement
 
-Augustin - reçu par Al Fike le 15 Juin 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Juin 2017, Gibsons, Colombie-Britannique, Canada.
 
 Vous avez demandé un message sur le jugement. Je vais donc parler de l’envie de juger vos frères et sœurs dans ce monde.
 

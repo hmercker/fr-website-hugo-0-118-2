@@ -9,7 +9,7 @@ weight:
 ---
 ### Préparation à la voix directe
 
-Augustin - reçu par Al Fike le 17 Juin 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 17 Juin 2017, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi Augustine Je souhaite commenter vos débats concernant votre futur projet commun. Vous avez été implorés de nombreuses, nombreuses fois de rechercher le Plus Haut, de chercher à Aimer. Vous poursuivez ce voyage de découverte et de mise en œuvre de ce qu’est réellement l’Amour, en vous et dans votre vie. Vous luttez avec vos jugements, vos sentiments de blessure, vos vulnérabilités, le stress qui s’accumule dans votre vie. Ce sont les conditions qui vous affectent, parfois avec beaucoup de force. Pourtant, Dieu est toujours là pour vous relever. Vous avez une âme qui est dans la Lumière et qui respire la Lumière et l’Amour.
 
