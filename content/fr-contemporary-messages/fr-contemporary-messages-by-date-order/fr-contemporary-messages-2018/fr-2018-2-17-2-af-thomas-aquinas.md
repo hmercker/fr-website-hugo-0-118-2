@@ -11,7 +11,7 @@ weight:
 
 Thomas d'Aquin - reçu par Al Fike le 17 Février 2018, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/eveil-spirituel3.jpg
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/eveil-spirituel3.jpg)
 
 Je m’appelle Thomas d’Aquin et je suis membre du Royaume Céleste. Mon âme a été transformée par l’Amour du Père. Je réside maintenant dans ce bel endroit rempli d’amour et de joie. Je suis venu vous dire, âmes bien-aimées, comment Dieu désire toucher chaque âme jamais créée avec Son Amour, avec le toucher de Son Amour pour amener la guérison profonde de l’âme, pour amener les potentiels de l’âme à sortir et à s’exprimer dans ce monde qui a tellement besoin, tellement besoin d’Amour.
 
