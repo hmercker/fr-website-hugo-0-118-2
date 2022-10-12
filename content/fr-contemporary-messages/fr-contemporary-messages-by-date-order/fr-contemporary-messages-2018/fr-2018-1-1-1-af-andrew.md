@@ -9,7 +9,19 @@ weight:
 ---
 ### Vous vous éveillez
 
-André - reçu par Al Fike le 1 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 1 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+
+C’est votre maître Augustin. Vous entrez dans une nouvelle phase de votre service à Dieu, car c’est un temps où des portes s’ouvriront pour vous mes âmes bien-aimées, des portes de conscience dans votre âme, des portes de service dans ce monde. Alors que vos esprits s’ajustent aux éveils de vos âmes, vous serez en mesure de percevoir et d’accepter ce qui vient pour chacun d’entre vous. Il n’y aura aucun doute, aucune confusion, aucun malentendu. La volonté de Dieu sera exposée clairement devant vous, mes âmes bien-aimées, dans toute sa puissance et sa simplicité. C’est à vous d’accepter et de permettre avec joie à la volonté de Dieu de se manifester à travers vous. Vous êtes prêts pour cela, mes bien-aimés. Vous avez prié pour cela et vous avez cherché l’Amour du Père pour faire ces guérisons et ces changements en vous et vous commencez à vous réveiller et à comprendre votre but tel qu’il vous a été donné par Dieu.
+
+Oui, de nombreux changements sont à venir, non seulement dans ce monde, mais en vous, dans vos perspectives, dans les domaines de votre service à l’humanité. Vous serez attirés par de nombreuses âmes, comme de nombreuses âmes seront attirées par vous. Rappelez-vous, mes bien-aimés, que ces choses viennent de Dieu et que vous devez vous adresser à Dieu pour être guidés afin de vous maintenir en équilibre, en harmonie, dans la Lumière, afin que vous ne soyez pas submergés par l’intensité de la clameur de l’humanité. Tant de personnes dans votre monde cherchent l’amour. Ils cherchent à ce que leur vie leur soit dictée. Ils cherchent à comprendre la Vérité et ils cherchent à faire porter aux autres la responsabilité d’apporter l’harmonie en eux-mêmes.
+
+Vous devez enseigner le pouvoir de chaque âme à aller vers Dieu, à connaître le don de Son Amour, à connaître le don de Ses Bénédictions. Vous devez résister à la tentation d’une sorte d’adulation de la part de ceux qui reconnaissent votre Lumière et vos dons, plutôt que de pointer humblement vers la Source du Tout et dire : « C’est de là que viennent tous mes dons et cette Lumière et cet Amour. Cela vient de notre Créateur, c’est à chaque enfant de demander à Dieu de recevoir ces dons d’Amour, la source de toute abondance et de toute bonté. L’amour et le pouvoir viennent de Dieu. Laissez Dieu déverser ses bénédictions sur vos frères et sœurs« . Cherchez à inspirer, à enseigner ces vérités de manière simple, cherchez à être un canal de Son Amour, cherchez à vous maintenir toujours plus près de la Source de tout. De cette façon, tout ce qui est censé être sera en harmonie et en grâce, dans le flux de Sa Volonté, dans le timing qui est censé être.
+
+Il n’y a pas besoin de douter de Dieu, il y a seulement besoin d’être en prière chaque jour, et d’écouter avec votre cœur et votre âme les doux chuchotements de Dieu et d’agir selon les vérités et les conseils que vous recevez dans vos moments de prière et de communion avec Dieu. Beaucoup de vos questions recevront une réponse, mes bien-aimés. Elles viendront de temps en temps, lorsqu’il sera nécessaire que vous sachiez. Soyez patients mes bien-aimés, soyez fidèles et continuez à prier sincèrement pour que l’Amour du Père se déverse dans vos âmes à chaque moment de chaque respiration de chaque jour.
+
+Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin continue à marcher à vos côtés pour vous aider à comprendre les réveils de vos âmes, les bénédictions de Dieu et l’émerveillement de Sa Création. Mon amour continue d’être avec chacun de vous. Il vous accompagnera pour toujours, car mon amour est l’Amour de Dieu et l’Amour de Dieu est mon amour et ainsi nous nous unissons tous ensemble dans cette merveilleuse Lumière, cette belle bénédiction de Dieu. Il en sera ainsi pour toujours, mes bien-aimés. Dieu vous bénit et je vous aime. Votre maître Augustin est avec vous. Que Dieu vous bénisse.
+
+
 
 
 

@@ -12,6 +12,7 @@ weight:
 Bertrand Russell - reçu par Al Fike le 24 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Bertrand Russell. Je fus un philosophe à mon époque. Je me suis rendu compte que tant de mes pensées et tant de constructions de mon esprit n'étaient pas productives pour la découverte de mon âme. Je souhaite donc venir et parler de la simplicité de la Vérité plutôt que de la complexité de l'esprit.
+
 Faire émerger le pouvoir de l'âme dans votre monde est ce qui doit se produire pour parvenir à une profonde conscience de l'âme. Le génie de l'âme, si vous voulez, est ce qui manque dans votre monde. 
 
 Tant de personnes ne se fient qu'à leur esprit et se retrouvent dans des endroits sombres, contrevenant aux lois de la Création et aux lois de Dieu. Ainsi, ceux d'entre nous qui ont découvert le fonctionnement de l'âme, avec la beauté de Son Amour qui allume tant de Vérités et de compréhensions, ont le désir de partager cette Vérité avec l'humanité. Nous devons tous travailler dans ce sens, car le temps presse et l'humanité continue à se diriger vers l'obscurité, la confusion et le chaos. Nous devons tous travailler dur, travailler avec diligence pour apporter cette Vérité à l'humanité de toutes les manières possibles.
@@ -24,7 +25,7 @@ Cela arrive pour chacun d'entre vous, vous avez pris cet engagement et vous voya
 
 C'est le plan, c'est ce qui est prévu. Puissiez-vous venir à cet endroit, mes chers amis, où cela sera possible. Nous avons besoin de vous, nous avons besoin que vous travailliez dur. Que vous y mettiez tout ce que vous avez et que vous arriviez à cet endroit où tout fonctionnera en parfaite harmonie. Et ces manifestations qui sont censées être sanctionnées par Dieu se réaliseront. C'est un plan glorieux mes amis. Un plan magnifique. Puissiez-vous tous vous lever et en faire partie, dans l'Amour, dans le désir de servir avec la capacité de connaître la volonté de Dieu. Dieu vous bénisse mes amis, je suis Bertrand Russell et je réside dans la 5ème sphère après beaucoup d'efforts en effet. Quelle lutte c'est quand on croit si fort au pouvoir de l'esprit plutôt qu'à la grâce de l'âme. Nous devons aider ceux qui sont coincés dans leur esprit à se libérer dans la grâce de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse et vous garde toujours dans son amour. Je suis avec vous et je prie pour vous chaque jour, pour chacun d'entre vous. Je suis avec vous. Que Dieu vous bénisse.
 
-Bertrand Arthur William Russell, 3e comte Russell, né le 18 mai 1872 à Trellech (Monmouthshire, pays de Galles), et mort le 2 février 1970 près de Penrhyndeudraeth, au pays de Galles, est un mathématicien, logicien, philosophe, épistémologue, homme politique et moraliste britannique.
+**Bertrand Arthur William Russell**, 3e comte Russell, né le 18 mai 1872 à Trellech (Monmouthshire, pays de Galles), et mort le 2 février 1970 près de Penrhyndeudraeth, au pays de Galles, est un mathématicien, logicien, philosophe, épistémologue, homme politique et moraliste britannique.
 
 Russell est considéré comme l'un des philosophes les plus importants du XXe siècle.
 
