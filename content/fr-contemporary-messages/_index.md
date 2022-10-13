@@ -9,7 +9,7 @@ weight: 60
 ---
 # Messages Contemporains
 
-1. [Contemporary messages by date order](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+1. [Messages Contemporains par ordre chronologique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 2. [Messages Contemporains selon le médium de réception](/fr-contemporary-messages/fr-contemporary-messages-per-medium/)
 3. [Messages des frères de l'espace](/fr-contemporary-messages/fr-comtemporary-messages-from-space-brothers/)
 4. [Personnalités Religieuses](/fr-contemporary-messages/fr-religious-spiritual-figures/)
