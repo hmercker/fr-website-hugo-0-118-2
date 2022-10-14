@@ -1,15 +1,44 @@
 ---
-title: "Retraite de médiumnité du message d'ouverture"
+title: "Message d'ouverture de la retraite de médiumnité"
 menu_title: ""
-description: "Retraite de médiumnité du message d'ouverture"
+description: "Message d'ouverture de la retraite de médiumnité"
 date: 2022-06-01 06:00:01+00:449
 draft: False
 hidden: True
 weight:
 ---
-### Retraite de médiumnité du message d'ouverture
+### Message d'ouverture de la retraite de médiumnité
 
-Augustin - reçu par Al Fike le 26 Août 2018, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 26 Août 2018, Gibsons, Colombie-Britannique, Canada
+
+Je suis votre enseignant Augustin. Sommes-nous prêts à commencer ce voyage de découverte de l’éveil des potentiels qui sont en vous ? Avez-vous la foi qui vous dit que vous pouvez en effet être utilisé comme un canal d’amour dans ce monde, que vous avez des dons que Dieu vous a donnés et que vous souhaitez utiliser ces dons pour le bénéfice des autres ? Puis-je marcher dans ce monde avec l’amour comme élan et comme désir ? Est-ce que je connais Dieu et sa volonté pour moi ? Puis-je être ouvert et innocent, humble et rempli de gratitude ?
+
+Vous êtes tous des âmes bien-aimées dignes, et chacun d’entre vous a un grand potentiel. Beaucoup d’entre vous peuvent parler comme je parle à travers cet instrument. Beaucoup d’entre vous peuvent communiquer avec nous en esprit d’une manière ou d’une autre afin que nous puissions établir une connexion, un lien qui soit réel et palpable dans vos vies. Cela peut être accompli parce que vous avez aspiré et reçu les bénédictions de l’Amour Divin, la grande essence de Dieu qui coule dans vos âmes et la puissance de cette essence est ce qui rend ces choses possibles.
+
+Chacun de vous dans votre âme, mes bien-aimés, a un profond désir d’être avec Dieu, d’aimer Dieu, de servir dans l’amour et d’apporter des bénédictions à vos frères et sœurs en tant que canaux vivants d’Amour de Dieu dans ce monde. Ce canal peut commencer comme une faible lueur, une ouverture dans la fissure de votre conscience, mais il s’étendra et grandira à mesure que cette bénédiction de l’Amour de Dieu s’étendra et grandira dans vos âmes. Il le faut, car avec la Loi de l’Amour vient ce flux d’Amour, non seulement en vous, mais autour de vous et à travers vous. Votre vie sera éclairée par la Lumière de l’Amour de Dieu. De votre être émanera l’amour et sera transformé par ce grand cadeau de l’Amour.
+
+Dans cette transformation, l’éveil de l’âme comme nous l’avons appelé, de nombreux dons se manifestent. Un réveil de beaucoup de choses en vous, des choses dont vous n’êtes pas conscients et que vous n’avez pas anticipées. Vous ne vous rendez pas compte de ce qui se trouve dans votre âme, des graines plantées par Dieu au début de votre création, prêtes à germer, prêtes à prendre vie et à être vivantes en vous.
+
+Tout est possible grâce à ce grand don des eaux vives de Dieu, que vous devez boire et boire avec ardeur, comme un homme assoiffé dans le désert. En effet, vous vivez dans une sorte de désert qui est desséché et qui manque d’amour, qui manque de ces eaux vives et de l’abondance que Dieu a prévue pour ce monde mais qui a été détruite et rejetée. Les hommes se sont détournés de l’essence même qui nourrit leurs âmes. Mes chers amis, c’est votre âme qui est votre véritable moi. C’est votre âme qui est le plus grand cadeau que Dieu vous a fait. Au sein de l’âme, tous les potentiels et les dons résident et attendent votre choix et vos efforts pour leur apporter la vie, la vie qui vient de Dieu, Sa grande âme qui nourrit vos âmes précieuses et tendres.
+
+Dieu est votre jardinier et vous êtes tous des fleurs dans son jardin. Chacun de vous a un profond désir de s’épanouir dans ce jardin, d’être beau pour Dieu, de montrer à Dieu l’émerveillement de Sa propre création, la beauté qui est vous, unique et merveilleuse, glorieuse dans la Lumière de Son Amour.
+En ce moment même, vous puisez dans ces eaux vivantes, vous nourrissez vos âmes, en espérant qu’en effet, ces potentiels cachés seront réalisés et que cette beauté émergera. C’est un processus qui demande du temps et des efforts. Comme toute chose dans l’univers de Dieu, il y a des étapes à franchir, une croissance progressive, une lente réalisation de ce qui peut être jusqu’à ce stade. Vous venez donc à ces cercles. Certains viennent avec curiosité, d’autres avec un but précis, d’autres encore avec la certitude d’être guidés, tous avec le désir de s’unir dans cette élévation et cette lumière, afin que Dieu puisse vous bénir tous et vous faire avancer dans votre voyage d’éveil.
+
+Vous êtes assis, implorant Dieu de bénir votre âme et, en effet, Dieu répond à vos prières. En effet, Dieu y répond avec une telle abondance qu’Il remplit ce lieu de lumière et d’amour, de toutes les énergies et de la nourriture pour cultiver vos âmes et vos êtres afin que vous puissiez atteindre un lieu plus élevé de conscience et de réalisation de vos dons. L’expansion de vos âmes dans l’amour, mes bien-aimés, est ce qui apporte ce que vous recherchez. C’est le fondement même de ce que vous appelez la médiumnité de l’Amour Divin. Sans cela, elle ne peut être réalisée.
+
+Oui, le don de médiumnité est en chaque individu dans une certaine mesure. Mais pour atteindre le plus haut, bien-aimés, ce que vous faites, il faut ce don d’Amour Divin. C’est le carburant qui fait avancer le potentiel et en fait une réalité. Chacun d’entre vous est à un endroit différent sur le continuum de la réalisation de ces potentiels. De manière surprenante, certains d’entre vous ont ouvert de grands potentiels, mais luttent encore avec leur mental qui leur refuse ces dons. Pourtant, ils sont assis, attendant votre permission d’être exprimés dans votre vie.
+
+Vos pensées ont un tel pouvoir sur vous, âmes bien-aimées. C’est un reflet de la condition humaine dans laquelle vous vivez, et des nombreuses distractions qui vous éloignent de votre moi simple et innocent, et de cet endroit de l’âme. C’est notre espoir dans ces jours à venir, que les couches de résistance, les couches du mental, puissent être éliminées et que vous parveniez à une reconnaissance et une acceptation plus étroites de votre âme, que tous les potentiels qui se trouvent en vous puissent être acceptés par vous et que vous désiriez les nourrir, les rendre réels dans votre conscience. Car sans votre acceptation, votre désir et votre foi, ils ne peuvent être réalisés et restent cachés derrière un rideau.
+
+Le monde a besoin de l’éveil de vos dons et de tous les dons de toutes les âmes, afin que l’équilibre et la balance puissent être atteints, ce qui est si désespérément nécessaire dans le monde. Car le monde doit reconnaître une autre voie, une autre approche de la vie. Une approche qui inclut l’âme. Une approche qui permet à l’âme de réaliser son profond désir d’être avec Dieu. Dans cette union de l’âme et de Dieu, de l’âme et de la Grande Âme, ces nombreux dons prennent vie. En cela, chacun exprime son unicité et sa beauté dans le monde.
+
+Il n’y a pas de plus grand voyage, mes bien-aimés. Pas d’expérience et d’éveil plus merveilleux que celui-ci. C’est pourquoi Dieu vous a donné la vie et c’est l’accomplissement du désir de Dieu que vous viviez la vie et que vous viviez la vie en abondance. Tout ce dont vous avez besoin vous sera donné par Dieu si vous êtes prêts à accepter Ses dons et à accepter les vôtres. Âmes bien-aimées, marchez dans la lumière de l’Amour de Dieu. Réalisez les grands potentiels qui sont en vous. Reconnaissez vos propres âmes. Reconnaissez la vérité de l’existence de Dieu et la réalité de Dieu et de toute Sa création. C’est cet éveil à la conscience de Dieu qui apporte tout.
+
+Considérez ceci, âmes bien-aimées, considérez comment le monde est endormi et manque de ces prises de conscience. Il est désensibilisé à l’âme tendre et vibrante et accorde plutôt une grande crédibilité au mental et à l’intellect. Pourtant, chacun dans votre monde sent qu’il manque quelque chose de vital. Cela les incite à rechercher des distractions, à rechercher l’amour et la satisfaction des autres plutôt que de tourner leurs yeux vers Dieu, où tout est donné, car avec cette grande bénédiction, tout coule en abondance et en plénitude.
+
+Vous continuez à ouvrir vos yeux et à les tourner vers Dieu, et en cela, vous forgez un chemin pour les autres. Beaucoup d’entre vous ici seront utilisés par Dieu pour aider les autres à trouver leur chemin. Dieu allume une grande lumière en chacun de vous et la puissance et la beauté de cette lumière toucheront de nombreuses âmes lorsque vous irez dans le monde. Ici, en vous réunissant, vous allumez une plus grande lumière en vous. Dieu continue à ouvrir les nombreuses avenues et possibilités de vos âmes, créant un lien plus profond, une connexion puissante et une compréhension de Sa présence, de Son être. Cela se poursuivra pour toute l’éternité, mes bien-aimés, alors que vous continuez le voyage avec toute sa beauté et ses découvertes, son pouvoir et sa grâce, apportant une joie profonde dans votre âme, sachant que votre âme a trouvé sa marque, sa place, qui est avec Dieu.
+
+Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse profondément de son amour. Je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse.
 
 
 
