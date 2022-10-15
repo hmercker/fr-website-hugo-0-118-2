@@ -11,6 +11,8 @@ weight:
 
 Augustin - reçu par Al Fike le 20 Août 2018, Gibsons, Colombie-Britannique, Canada
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/st-augustin1.jpg)
+
 Je suis Jésus et je viens vous bénir, âmes bien-aimées, enfants de Dieu. Quelle joie cela nous donne à nous, en esprit, de vous voir vous réunir de cette façon, d’explorer les possibilités de votre service pour Dieu dans l’amour, d’arriver à connaître vos vraies natures et de partager votre amour. Que les bénédictions du don de l’amour du Père vous remplissent en si grande abondance qu’une grande joie s’échappe de votre cœur et que la sagesse grandisse en vous, et que vous puissiez servir le Père Céleste dans tout ce que vous faites, dans tout ce que vous êtes, pour aider à la transition de l’humanité des ténèbres à la lumière.
 
 Chacun d’entre vous porte des dons spéciaux, de grands potentiels qui sont éveillés par vos prières pour l’amour du Père. Vous découvrirez que vous serez élevés et guidés sur votre chemin. Je suis avec vous à chaque étape de ce voyage, de cette merveille qu’est l’éveil de votre âme. Vous serez profondément bénis, mes bien-aimés. Vous êtes mes disciples dans ce monde.
