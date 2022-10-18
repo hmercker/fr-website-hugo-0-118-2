@@ -9,7 +9,7 @@ weight:
 ---
 ### N’oublie pas que nous sommes UN
 
-Père - reçu par Enfant de Dieu le 27 Août 2012
+Père - reçu par Enfant de Dieu le 27 Août 2012.
 
 Ceci est un message personnel pour toi.
 
@@ -23,11 +23,8 @@ Je t’aime et ce que nous sommes sur le point de mettre au monde sera facile et
 
 Aime-toi complètement. Aime-toi comme je t’aime. Regarde-toi à travers mes yeux. Tu es magnifique. Tu es la plus merveilleuse de toutes mes créations. Tu es celle que j’adore. T’aimer toi-même est ton plus beau cadeau pour Moi.
 
-Commençons,
-
-Ton Père.
-
+Commençons, ton Père.
+<sup id="a1">[1](#f1)</sup>
+<small>
+1. <large id="f1"> xxx[↩](#a1)
 **Note du Webmaster du site "New-Birth.net" :** Bien que ce message soit noté comme étant personnel, le même message a été délivré à tous ceux qui ont participé à la retraite de l'Amour Divin  qui s'est tenue à Vancouver en Juillet 2012. Le message était que le moment est venu. Le temps d'aller de l'avant et de tendre la main au monde. 
-
-
-

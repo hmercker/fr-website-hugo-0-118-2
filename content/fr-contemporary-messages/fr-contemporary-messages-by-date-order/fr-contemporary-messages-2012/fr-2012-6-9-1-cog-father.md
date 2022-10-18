@@ -9,7 +9,7 @@ weight:
 ---
 ### Révéler ce qui est caché
 
-Père - reçu par Enfant de Dieu le 9 Juin 2012
+Père - reçu par Enfant de Dieu le 9 Juin 2012.
 
 Mon cher enfant bien aimé.
 
@@ -24,6 +24,3 @@ Sache que ce cycle prendra bientôt fin. Aujourd’hui, tu te sens déjà mieux.
 Tu y es presque. Je suis avec toi. Mon amour illuminera ta vie et ensemble nous rendrons ta vie merveilleuse. Aie confiance.
 
 Ton père.
-
-
-

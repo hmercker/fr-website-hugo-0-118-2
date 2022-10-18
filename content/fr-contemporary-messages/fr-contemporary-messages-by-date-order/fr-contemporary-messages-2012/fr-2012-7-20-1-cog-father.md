@@ -9,11 +9,9 @@ weight:
 ---
 ### Ta résistance te fait souffrir
 
-Père - reçu par Enfant de Dieu le 20 Juillet 2012
+Père - reçu par Enfant de Dieu le 20 Juillet 2012.
 
-Cher enfant,
-
-Tu me demandes un conseil et je vais te le donner en ce moment. Tu devrais aller parler à J. Cela te donnera l’occasion de le voir comme l’ami qu’il est pour toi maintenant. Il t’aime toujours. Pas de la manière dont il t’aimait auparavant, mais comme un ami. Il est là pour toi et c’est la vérité.
+Cher enfant, tu me demandes un conseil et je vais te le donner en ce moment. Tu devrais aller parler à J. Cela te donnera l’occasion de le voir comme l’ami qu’il est pour toi maintenant. Il t’aime toujours. Pas de la manière dont il t’aimait auparavant, mais comme un ami. Il est là pour toi et c’est la vérité.
 
 Tu dois respecter son désir d’intimité et ne pas poser de questions sur des choses qui relèvent désormais de sa vie privée. Il te fera savoir quand il se sentira prêt pour cela. Mais tu peux lui parler de tes problèmes et tu sauras qu’il peut t’aider et qu’il le veut. Il n’a pas changé en ce qui concerne cet aspect sincère et loyal.
 
@@ -25,9 +23,4 @@ Je t’assure, tu ne dois pas avoir peur. Ton avenir est brillant et tu vas conn
 
 C’est le début d’une nouvelle période dans votre relation. Il vous faudra du courage à tous les deux pour franchir cette nouvelle étape. Mais vous devez le faire. Vous en éprouverez bientôt tous deux la valeur.
 
-Avec tout mon amour,
-
-Ton Père.
-
-
-
+Avec tout mon amour, ton Père.

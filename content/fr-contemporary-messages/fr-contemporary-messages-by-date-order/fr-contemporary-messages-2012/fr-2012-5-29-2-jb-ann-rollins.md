@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Les changements sont à votre portée
+### Les changements sont à votre portée <sup id="a1">[1](#f1)</sup>
 
-Anne Rollins - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA
+Anne Rollins - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA.
 
 Je suis Anne Rollins.
 
@@ -19,12 +19,7 @@ Il est vrai que des changements sont en cours sur vous et votre monde ; vous et 
 
 Nous, dans les Cieux Célestes, nous vous aimons, vous et tous les merveilleux enfants de Dieu. Nous continuons à prier pour que vous grandissiez dans l’amour du Père. Son amour a de plus grands avantages que ceux que vous voyez ou expérimentez actuellement. Ne vous évanouissez pas et n’éteignez pas vos désirs d’une plus grande part de Son Amour. Restez ouverts, comme vous l’êtes maintenant.
 
-Bénédictions à vous et à tous ceux qui lisent ceci,
+Bénédictions à vous et à tous ceux qui lisent ceci, Anne Rollins.
+<small>
 
-Anne Rollins.
-
-**Note du Webmaster du site New-Birth.net :** Ce message, tout comme le précédent communiqué par Martin Luther et les deux suivants communiqués par d'une part Martin Luther et d'autre part par Jésus, ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.
-
-
-
-
+1. <large id="f1"> Ce message, tout comme le précédent communiqué par Martin Luther et les deux suivants communiqués par d'une part Martin Luther et d'autre part par Jésus, ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.[↩](#a1)

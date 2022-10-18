@@ -9,11 +9,9 @@ weight:
 ---
 ### Sentir Mon Amour
 
-Père - reçu par Enfant de Dieu le 4 Septembre 2012
+Père - reçu par Enfant de Dieu le 4 Septembre 2012.
 
-Mon cher enfant,
-
-Continue à écrire. Il y en a beaucoup d’autres à venir et cela arrivera. Sois patient avec toi-même. Tu te prépares et en ce moment même tu nettoies et déblaies pour devenir un canal plus raffiné pour Mon Amour. Ensemble, nous allons faire des miracles, il suffit d’attendre et de voir. Tout vient en son temps et ton temps est venu. Tu vas ressentir Mon Amour de plus en plus et comme cela se produit, tu rayonneras davantage Mon Amour pour le bénéfice des autres. Tu es une étoile brillante. Continue simplement ce que tu fais maintenant. Ressentir tes sentiments et libérer toutes les choses qui ne te servent plus. Chercher des conseils et laisser les autres t’aider. Jusqu’à présent, tu as écouté attentivement et pris conseil auprès de personnes sincères qui t’ont été d’une grande aide et d’un grand soutien. Continue.
+Mon cher enfant, continue à écrire. Il y en a beaucoup d’autres à venir et cela arrivera. Sois patient avec toi-même. Tu te prépares et en ce moment même tu nettoies et déblaies pour devenir un canal plus raffiné pour Mon Amour. Ensemble, nous allons faire des miracles, il suffit d’attendre et de voir. Tout vient en son temps et ton temps est venu. Tu vas ressentir Mon Amour de plus en plus et comme cela se produit, tu rayonneras davantage Mon Amour pour le bénéfice des autres. Tu es une étoile brillante. Continue simplement ce que tu fais maintenant. Ressentir tes sentiments et libérer toutes les choses qui ne te servent plus. Chercher des conseils et laisser les autres t’aider. Jusqu’à présent, tu as écouté attentivement et pris conseil auprès de personnes sincères qui t’ont été d’une grande aide et d’un grand soutien. Continue.
 
 Souviens-toi que tu n’es pas seul. Je suis avec toi. Mais il y a aussi d’autres personnes dans votre monde qui ont le même désir que toi. Nous sommes connectés et il y a des fils invisibles entre nous. L’amour voyage à travers le temps et l’espace sans effort, donc la distance dans ton monde ne signifie rien. C’est pourquoi tu sens tes nouveaux amis si proches de ton cœur, même s’ils sont physiquement éloignés. C’est la toile de l’Amour Divin.
 
@@ -29,6 +27,3 @@ Maintenant que tu sais ce que tu vis, sache aussi que cela passera dès que tu o
 Je te garde dans Mon Étreinte amoureuse.
 
 Ton Père.
-
-
-

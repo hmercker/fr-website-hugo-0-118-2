@@ -9,11 +9,11 @@ weight:
 ---
 ### Qu’est-ce que le péché ?
 
-Père - reçu par Enfant de Dieu le 27 Avril 2012
+Père - reçu par Enfant de Dieu le 27 Avril 2012.
 
 Mon cher enfant.
 
-Tu as profité de ces derniers jours pour réfléchir à  » qu’est-ce qu’un péché ?  » et tu as eu des problèmes parce que tu as beaucoup trop compliqué cette question.
+Tu as profité de ces derniers jours pour réfléchir à « qu’est-ce qu’un péché ? » et tu as eu des problèmes parce que tu as beaucoup trop compliqué cette question.
 
 Un péché est un acte de désamour. C’est aussi simple que cela. Un acte non aimant est ressenti par vous ou par un autre humain, envers qui vous agissez de manière non aimante. Si vous êtes fidèle à vos sentiments, vous reconnaîtrez toujours un acte de manque d’amour. Il est ressenti au plus profond de votre cœur.
 
@@ -26,6 +26,3 @@ Lorsque vous avez péché – et vous l’avez tous fait – vous pouvez demande
 Mais pour que je puisse te le donner, tu dois sentir au plus profond de ton cœur que tu as fait du tort à quelqu’un. Il ne s’agit pas de culpabilité, mais de conscience et de responsabilité. Dès que tu reconnais dans ton cœur que tu as péché, tu as la capacité de demander mon pardon. Et je te le donnerai.
 
 Ton Père aimant.
-
-
-

@@ -11,7 +11,6 @@ weight:
 
 Jésus - reçu par FAB le 5 Février 2011, Santa Cruz, Californie, USA.
 
-
 C’est moi, Jésus.
 
 Je viens en cette belle matinée pour délivrer un message sur un sujet avec lequel vous avez manqué de clarté. Je veux le clarifier pour vous.

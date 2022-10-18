@@ -9,8 +9,7 @@ weight:
 ---
 ### Habiter la Maison Blanche
 
-Franklin D Roosevelt - reçu par FAB le 25 Mars 2012, Santa Cruz, Californie, USA
-
+Franklin D Roosevelt - reçu par FAB le 25 Mars 2012, Berkeley, Californie, USA.
 
 Je suis Franklin Roosevelt.
 

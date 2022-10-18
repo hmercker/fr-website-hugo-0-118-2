@@ -9,7 +9,7 @@ weight:
 ---
 ### Le sens moral de Walt Disney
 
-Walt Disney - reçu par FAB le 21 Juin 2012, Santa Cruz, Californie, USA
+Walt Disney - reçu par FAB le 21 Juin 2012, Berkeley, Californie, USA.
 
 C’est moi, Walt Disney.
 
@@ -22,6 +22,3 @@ L’influence de mon père m’a appris que le bien doit être recherché, quels
 Naturellement, le triomphe du bien apporte toujours un certain épanouissement et même de la joie. Je le savais. Mais dans un sens plus profond, je savais que je créais une certaine conscience, et j’ai essayé d’amener cette conscience à un sens de la moralité.
 
 Vous m’avez donc canalisé correctement. Un geste d’amour et de bonne volonté ne doit pas nécessairement entrer en conflit avec une carrière commerciale, si cette dernière contribue à un monde meilleur.
-
-
-

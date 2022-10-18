@@ -42,3 +42,5 @@ Mon cher frère, nous sommes impatients d’obtenir ce contact étroit avec toi,
 Réfléchis à tout ceci, écoute -moi, et que Dieu vous bénisse tous.
 
 Jésus.
+
+*© Geoff Cutler 2013*

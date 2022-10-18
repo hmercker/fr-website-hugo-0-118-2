@@ -9,8 +9,7 @@ weight:
 ---
 ### Théorie sans pratique
 
-Inconnu - reçu par WV le 2 Février 2011, Schoten, Belgique.
-
+Inconnu - reçu par WV le 2 Février 2011, Gavere, Belgique.
 
 Bonsoir. Comme vous l’avez remarqué, toutes ces entités avaient quelque chose en commun. Elles ont toutes demandé de l’aide et il était également important que vous sachiez qu’elles avaient toutes des nationalités différentes. Pourquoi ? Eh bien, parce que nous voulons que vous compreniez que l’origine, le lieu de naissance, le lieu de décès ou la résidence géographique n’ont aucune importance une fois que vous entrez dans le monde des esprits. Même la langue n’est pas importante.
 

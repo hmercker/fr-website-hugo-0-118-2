@@ -9,11 +9,9 @@ weight:
 ---
 ### Un nouveau départ est à venir
 
-Père - reçu par Enfant de Dieu le 17 Juin 2012
+Père - reçu par Enfant de Dieu le 17 Juin 2012.
 
-Mon cher enfant,
-
-Je suis heureux que tu te sois assis pour recevoir mon réconfort et mon soutien. Notre relation est authentique et vraie. Tu peux me faire confiance. Tu ressens beaucoup de douleur en ces temps. Tant de vieilles blessures sont déchirées. C’est douloureux et tous tes corps réagissent à cela.
+Mon cher enfant, je suis heureux que tu te sois assis pour recevoir mon réconfort et mon soutien. Notre relation est authentique et vraie. Tu peux me faire confiance. Tu ressens beaucoup de douleur en ces temps. Tant de vieilles blessures sont déchirées. C’est douloureux et tous tes corps réagissent à cela.
 
 Tu ne dois pas t’inquiéter. Toutes les choses sont à la bonne place. Toutes les choses travaillent ensemble parfaitement pour faire prendre conscience des endroits sombres de ton âme. En même temps, de nombreux anges sont avec vous pour t’aider à libérer ton passé. Tu n’as pas besoin de demander aux autres ce qui t’arrive ou si cela va bientôt se terminer. Demande-moi, car je le sais et je te le dirai.
 
@@ -23,8 +21,4 @@ Je veux que tu sois au service de l’amour et donc que tu me serves. Ce voyage 
 
 Fais-moi confiance en cela, même si tu te sens maintenant dévasté. Un nouveau départ est juste devant toi.
 
-Dans l’amour,
-
-Ton père.
-
-
+Dans l’amour, ton père.

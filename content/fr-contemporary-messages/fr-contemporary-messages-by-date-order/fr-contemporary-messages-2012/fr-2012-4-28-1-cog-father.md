@@ -9,11 +9,9 @@ weight:
 ---
 ### Comment corriger un péché ?
 
-Père - reçu par Enfant de Dieu le 28 Avril 2012
+Père - reçu par Enfant de Dieu le 28 Avril 2012.
 
-Mon enfant bien-aimé,
-
-Comment corriger un péché ?
+Mon enfant bien-aimé, comment corriger un péché ?
 
 Comme je te l’ai dit hier, tu dois d’abord reconnaître que tu as péché, et sentir dans ton cœur que tu as agi sans amour, puis demander Mon amour et Mon pardon. Je ne te laisserai jamais tomber.
 
@@ -26,6 +24,3 @@ Maintenant, cet Amour Divin est disponible pour tous les humains et si vous suiv
 L’amour est simple. Ne le complique pas (sourire).
 
 Ton Père aimant.
-
-
-

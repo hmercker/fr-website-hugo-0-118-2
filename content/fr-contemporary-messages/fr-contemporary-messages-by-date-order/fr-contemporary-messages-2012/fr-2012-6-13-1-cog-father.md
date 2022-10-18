@@ -9,11 +9,9 @@ weight:
 ---
 ### Aime-toi d’abord
 
-Père - reçu par Enfant de Dieu le 13 Juin 2012
+Père - reçu par Enfant de Dieu le 13 Juin 2012.
 
-Mon enfant bien aimé,
-
-Nous avons parlé du besoin humain d’amour humain et tu étais un peu déconcerté.
+Mon enfant bien aimé, nous avons parlé du besoin humain d’amour humain et tu étais un peu déconcerté.
 
 L’amour entre humains est précieux et il peut être pur. C’est lorsque tu es avec d’autres humains que tu ressens l’amour, mais aussi, et c’est très important, que tu ressens aussi tout ce qui n’est pas de l’amour. Dans tes relations humaines se trouvent tous les trésors d’une vie parfaite dans l’amour pur. L’amour entre humains est un voyage de découverte de soi et de croissance.
 
@@ -24,8 +22,3 @@ Lorsque tu grandiras dans l’amour de toi-même, tes relations humaines deviend
 Tu dois d’abord t’aimer toi-même. Ton amour pour toi-même ne peut être remplacé. Apprends à t’aimer comme je t’aime. Sans limite. Sans conditions. Je t’aime.
 
 Ton Père, toujours.
-
-
-
-
-

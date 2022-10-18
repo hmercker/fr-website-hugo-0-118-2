@@ -9,7 +9,7 @@ weight:
 ---
 ### Se mettre en condition
 
-Le Père - reçu par Enfant de Dieu le 16 Avril 2012
+Le Père - reçu par Enfant de Dieu le 16 Avril 2012.
 
 Cher enfant, je t’aime. Je le dis souvent car tu as besoin de l’entendre tous les jours et plusieurs fois dans la journée. Tu n’as jamais vécu auparavant l’amour d’un père et maintenant tu vis à la fois le mien et l’amour d’un père sur terre. C’est magnifique et cela te fera beaucoup de bien.
 
@@ -17,7 +17,7 @@ Tu n’as pas été capable de faire confiance, mais maintenant tu le peux. C’
 
 Tu résistes parce que j’ai essayé de parler de quelque chose que tu ne comprends pas encore. Ton mental s’est interrompu. Ce n’est pas grave. Nous laisserons cela à plus tard. Tout viendra en temps voulu. C’est aussi pour cela que tu dois t’asseoir chaque jour, car cela te préparera à recevoir davantage de mes vérités. Puisque tu reçois ces messages par l’intermédiaire de ton mental, tu dois être en bonne condition. Et la bonne condition est une âme pure et tu dois faire un effort pour le devenir afin de recevoir correctement mes messages.
 
-Tu m’interroges sur ta fille et sur la possibilité de recevoir une prière pour elle, car tu trouves « La prière pour l’Amour Divin » difficile pour un enfant. Je t’en délivrerai une prochainement.
+Tu m’interroges sur ta fille et sur la possibilité de recevoir une prière pour elle, car tu trouves [« La prière pour l’Amour Divin »](/fr-the-way-of-divine-love/fr-the-divine-love-prayer/) difficile pour un enfant. Je t’en délivrerai une prochainement.
 
 Tu réfléchis beaucoup à l’amour humain ces jours-ci, car tu en as tellement envie. Tu sens maintenant que l’amour entre toi et Moi vient en premier, mais tu as aussi besoin de l’amour humain. Et tu souffres depuis longtemps, je le reconnais et je veux que tu fasses aussi l’expérience de l’amour humain.
 
@@ -28,6 +28,3 @@ Tu agis de manière responsable en t’examinant toujours dans chaque situation 
 Si tu ne peux pas aimer, si ta capacité à aimer est endommagée, tu dois faire quelque chose pour y remédier. C’est ta responsabilité. Ne blâme pas les autres. C’est ta vie et ta responsabilité. Tu peux toujours me demander de l’aide dans ces domaines. Je t’ai donné cette vie, elle est sacrée, ne la gaspille pas.
 
 Ton Père Céleste, qui t’aime.
-
-
-

@@ -11,5 +11,10 @@ weight:
 
 Woodrow Wilson - reçu par FAB le 16 Janvier 2010, Santa Cruz, Californie, USA.
 
+C’est moi, Woodrow Wilson.
 
+J’ai dit, dans [ma canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-4-fab-woodrow-wilson/), que je reconnaissais un but supérieur pour l’Amérique, et que je reconnaissais un rôle central pour l’Amérique dans le plan de Dieu. Vous êtes en train de lire les choses horribles que j’ai faites, comme l’adoption de la loi sur l’espionnage. J’étais faible, et rien n’a été oublié.
 
+J’ai dit, dans cette précédente canalisation, que lorsque la mort m’a trouvé, j’ai senti que j’avais fait de mon mieux pour représenter quelque chose de bien. Mais, pour citer un cliché, mon mieux n’était pas assez bon. Oui, je n’ai pas pu soutenir pleinement mon idéalisme face aux forces cupides et avides que j’ai, hélas, encouragées. Et j’ai souffert en conséquence. Parfois, je me dis que j’étais peut-être pire que ceux qui n’avaient pas d’idéal du tout.
+
+Oui, Alice Paul est venue me voir, et j’ai dû faire face à ma culpabilité. *[C’était une objecteur de conscience de la Première Guerre mondiale qui a été emprisonnée.]*

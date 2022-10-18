@@ -9,8 +9,7 @@ weight:
 ---
 ### Faire confiance au cœur
 
-Le Père - reçu par Enfant de Dieu le 21 Mars 2012
-
+Le Père - reçu par Enfant de Dieu le 21 Mars 2012.
 
 Je veux te parler et je veux que tu écrives ce que tu reçois.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Aimer la création de Dieu
 
-Père - reçu par Helge Mercker le 27 Novembre 2012, Elim, Namibie
+Père - reçu par Helge Mercker le 27 Novembre 2012, Elim, Namibie.
 
 Je veux parler, c’est ton Père.
 
@@ -19,9 +19,4 @@ Comme tu le sais, je suis lié par Mon Amour pour tout ce que j’ai créé. J�
 
 Reconnais le côté créatif en toi, l’accomplissement et l’honneur des dons que je t’ai accordés lorsque je t’ai créé. Aspire à l’épanouissement de tes talents et de tes dons, mon enfant. Je souhaite tellement que Mes enfants s’éveillent aux véritables beaux êtres pour lesquels je les ai créés. Touche ton cœur comme Je le touche, et ressens la douceur de l’amour avec lequel je t’ai créé ; et laisse derrière toi le cœur de pierre qui est devenu le cœur de l’humanité.
 
-Fais partie de cela, Mon enfant, d’avoir un cœur de chair et un amour qui coule doucement pour toutes mes créatures et la création. C’est ton père qui te parle maintenant et te soutient avec des bras d’amour. Je t’aime,
-
-Ton père.
-
-
-
+Fais partie de cela, Mon enfant, d’avoir un cœur de chair et un amour qui coule doucement pour toutes mes créatures et la création. C’est ton père qui te parle maintenant et te soutient avec des bras d’amour. Je t’aime, ton père.

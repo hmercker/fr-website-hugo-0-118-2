@@ -73,7 +73,7 @@ N’utilise pas les termes juste ou injuste. Nous vivons dans un monde où la ju
 
 Bonne nuit et que Dieu te bénisse, ton frère, Judas.
 
-© Geoff Cutler 2013
+*© Geoff Cutler 2013*
 <small>
 
 1. <large id="f1"> Voir une explication sur Dieu et la justice dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-2-28-1-fab-jesus/).[↩](#a1)

@@ -9,12 +9,9 @@ weight:
 ---
 ### Offrez-vous vous-même votre amour
 
-Père - reçu par Enfant de Dieu le 7 Mai 2012
+Père - reçu par Enfant de Dieu le 7 Mai 2012.
 
-Mon enfant,
-
-
-Tu étais [un peu confus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-5-1-cog-father/) quant au lien entre les sentiments et ton âme et mon âme. Nous parlerons de ce sujet à une autre occasion. Aujourd’hui, nous allons parler de ta capacité à recevoir Mon amour. Nous en avons parlé plus tôt, et nous le ferons à nouveau aujourd’hui.
+Mon enfant, tu étais [un peu confus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-5-1-cog-father/) quant au lien entre les sentiments et ton âme et mon âme. Nous parlerons de ce sujet à une autre occasion. Aujourd’hui, nous allons parler de ta capacité à recevoir Mon amour. Nous en avons parlé plus tôt, et nous le ferons à nouveau aujourd’hui.
 
 Si tu peux demander, tu peux recevoir. Il en est ainsi dans ton monde et il en est ainsi avec mon amour. Si vous demandez Mon Amour, mais que vous ne vous sentez pas digne, alors vous ne serez pas en mesure de recevoir. Lorsque votre cœur et votre âme souffrent d’expériences non aimantes qui vous laissent un sentiment d’indignité, peut-être même le sentiment que vous avez mérité toutes les difficultés et les punitions, il est difficile de ressentir et de recevoir mon amour.
 
@@ -27,6 +24,3 @@ Il est vrai que c’est en donnant que l’on reçoit. Beaucoup d’entre vous p
 Donne-toi ton amour et reçois le mien.
 
 Ton père.
-
-
-

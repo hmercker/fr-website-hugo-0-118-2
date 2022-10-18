@@ -9,11 +9,11 @@ weight:
 ---
 ### Dites-moi ce qui peut être
 
-Inconnu - reçu par Jospeh B. le 27 Avril 2012, Arizona, USA
+Inconnu - reçu par Jospeh B. le 27 Avril 2012, Arizona, USA.
 
-*Je me suis réveillé après seulement 4 heures de sommeil. Un mot m’est venu, et ce mot était le suivant : ***Ne me dis pas ce qui ne peut pas être… Mais dis-moi ce qui peut être.***
+*[Je me suis réveillé après seulement 4 heures de sommeil. Un mot m’est venu, et ce mot était le suivant : ***Ne me dis pas ce qui ne peut pas être… Mais dis-moi ce qui peut être.***
 
-J’ai donc écouté, puis je me suis habillé et je suis allé à mon bureau, d’abord pour prier, puis pour écrire. Et voici ce que j’ai écrit :*
+*J’ai donc écouté, puis je me suis habillé et je suis allé à mon bureau, d’abord pour prier, puis pour écrire. Et voici ce que j’ai écrit :]*
 
 Parle-moi.
 
@@ -70,7 +70,4 @@ Le monde attend les enfants de Dieu pour montrer ce que l’Amour Divin fera et 
 
 La voix de nombreux esprits qui écoutent la voix du Père.
 
-**Note du Webmaster du site « New-Birth.Net » :** Il s’agit sans aucun doute d’un résultat direct des conversations sur quelques forums remettant en question la série actuelle de messages de l’Enfant de Dieu. Tout simplement parce que la convention au sein du mouvement de l’Amour Divin a soutenu que le Père ne peut pas parler directement à Ses enfants.
-
-
-
+***Note du Webmaster du site « New-Birth.Net » :*** *Il s’agit sans aucun doute d’un résultat direct des conversations sur quelques forums remettant en question la série actuelle de messages de l’Enfant de Dieu. Tout simplement parce que la convention au sein du mouvement de l’Amour Divin a soutenu que le Père ne peut pas parler directement à Ses enfants.*

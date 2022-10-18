@@ -9,7 +9,7 @@ weight:
 ---
 ### Je parle à ceux qui entendent
 
-Père - reçu par Enfant de Dieu le 24 Novembre 2012
+Père - reçu par Enfant de Dieu le 24 Novembre 2012.
 
 Je parle à ceux qui entendent.
 
@@ -26,6 +26,3 @@ Parfois, vous vous sentez loin de la belle créature que vous êtes. Vous criez 
 Aimez-vous comme je vous aime.
 
 Votre Père.
-
-
-

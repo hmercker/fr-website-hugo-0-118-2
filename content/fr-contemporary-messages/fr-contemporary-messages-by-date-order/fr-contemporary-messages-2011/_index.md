@@ -41,6 +41,6 @@ Victor Summers | [Message de Victor Summers](/fr-contemporary-messages/fr-contem
 Jésus | [Le sommeil et la responsabilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-22-1-fab-jesus/) | 22 Novembre 2011
 Victor Summers | [Transition de Victor Summers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-27-1-fab-victor-summers/) | 27 Novembre 2011
 St Jean | [Logos et pensée Juive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-30-1-fab-st-john/) | 30 Novembre 2011
-Marilyn Munroe | [Les expériences de Marilyn Monroe de l’autre côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-1-1-fab-marilyn-munroe/) | 1 Décembre 2011
+Marilyn Monroe | [Les expériences de Marilyn Monroe de l’autre côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-1-1-fab-marilyn-monroe/) | 1 Décembre 2011
 Jésus | [Mémoire des rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-4-1-fab-jesus/) | 4 Décembre 2011
 Jésus | [Puissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-6-1-fab-jesus/) | 6 Décembre 2011
