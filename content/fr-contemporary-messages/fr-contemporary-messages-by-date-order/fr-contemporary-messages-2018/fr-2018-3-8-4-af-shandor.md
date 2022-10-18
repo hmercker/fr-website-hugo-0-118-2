@@ -106,9 +106,7 @@ J1 : Eh bien, c’est fascinant… regarder… comment cela peut-il être si mau
 Al : J’ai toujours trouvé G fascinant, alors vous savez …
 <small>
 
- 1. <large id=”f1”> Voir [le message de Kentor du 12 Août 1969]() : les communications précédentes étaient avec un extraterrestre appelé « Kentor » et il n’est donc pas du tout certain que Shandor vienne de leur planète.[↩](#a1)
-
-Note 1 .
+ 1. <large id=”f1”> Voir [le message de Kentor du 08 Décembre 1969](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-41-1969-12-8-anonymous-kentor-of-another-galaxy/) : les communications précédentes étaient avec un extraterrestre appelé « Kentor » et il n’est donc pas du tout certain que Shandor vienne de leur planète.[↩](#a1)
 
 
 

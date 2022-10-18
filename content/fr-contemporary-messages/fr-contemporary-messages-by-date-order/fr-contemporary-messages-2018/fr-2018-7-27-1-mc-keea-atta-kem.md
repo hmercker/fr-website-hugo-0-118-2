@@ -9,7 +9,9 @@ weight:
 ---
 ### La loyauté envers Dieu et votre âme
 
-Keea Atta Kem - reçu par Maureen Cardoso le 27 Juillet 2018, Abbotsford, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Maureen Cardoso le 27 Juillet 2018, Abbotsford, Colombie-Britannique, Canada
+
+
 
 
 
