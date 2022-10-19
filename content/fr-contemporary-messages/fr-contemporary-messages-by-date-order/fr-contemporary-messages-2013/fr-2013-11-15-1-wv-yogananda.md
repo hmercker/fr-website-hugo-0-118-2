@@ -9,7 +9,7 @@ weight:
 ---
 ### Transcender ses émotions
 
-Yogananda - reçu par WV le 15 Novembre 2013, Schoten, Belgique
+Yogananda - reçu par WV le 15 Novembre 2013, Schoten, Belgique.
 
 Bonsoir. Je suis ici, Paramahansa Yogananda.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Te connaître pour me connaître
 
-Père - reçu par Enfant de Dieu le 19 Janvier 2013
+Père - reçu par Enfant de Dieu le 19 Janvier 2013.
 
 Te connaitre pour Me connaitre.
 
@@ -22,6 +22,3 @@ L’amour est partout et l’amour est tout ce qui compte.
 Un désir éternel.
 
 Ton Créateur.
-
-
-

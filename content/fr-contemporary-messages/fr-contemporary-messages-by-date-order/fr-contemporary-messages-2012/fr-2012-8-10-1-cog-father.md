@@ -9,7 +9,7 @@ weight:
 ---
 ### L’illusion que nous sommes séparés
 
-Père - reçu par Enfant de Dieu le 10 Août 2012
+Père - reçu par Enfant de Dieu le 10 Août 2012.
 
 Bel enfant, oui, nous allons parler du rejet. Comme tu l’as maintenant compris, le rejet est une blessure majeure chez tous les humains et une blessure qu’aucun humain ne peut éviter ? C’est un très bon sujet et il y a beaucoup de choses à dire et à réaliser.
 

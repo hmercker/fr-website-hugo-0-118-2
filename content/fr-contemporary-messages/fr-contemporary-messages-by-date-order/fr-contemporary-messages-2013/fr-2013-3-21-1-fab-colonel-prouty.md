@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Colonel Prouty décrit son travail
 
-Colonel Prouty - reçu par FAB le 21 Mars 2013, Santa Cruz, Californie, USA
+Colonel Prouty - reçu par FAB le 21 Mars 2013, Berkeley, Californie, USA.
 
 Je suis le Colonel Prouty.
 
@@ -22,15 +22,11 @@ Mais très tôt, j’ai vu des choses qui ont complètement changé ma perspecti
 J’ai donc écrit mes livres pour révéler ce monstre, ce vampire, qui continue à sucer le sang de la race humaine, sans que rien ne s’y oppose – jusqu’au moment, où Dieu le décrète, où une réponse indéniable viendra d’en haut. Et alors, il sera arrêté pour de bon.
 
 C’est tout ce que je souhaite dire maintenant. Je vous souhaite bonne chance dans votre vie, et je sais que Dieu tout-puissant bénira votre chemin.
-
+<sup id="a1">[1](#f1)</sup>
+<small>
+1. <large id="f1"> xxx[↩](#a1)
 **Leroy Fletcher Prouty** (24 Janvier 1917 – 5 Juin 2001) a servi comme chef des opérations spéciales pour les chefs d’état-major interarmées sous le président John F. Kennedy. Ancien colonel de l’armée de l’air américaine, il s’est retiré du service militaire pour devenir banquier, puis est devenu un critique de la politique étrangère des États-Unis, en particulier des activités secrètes de la Central Intelligence Agency (CIA), dont il avait une connaissance intime considérable. le Colonel Prouty, ainsi que Richard Case Nagell, ont inspiré le personnage de « M. X » dans le film JFK d’Oliver Stone. (Source : Wikipedia)
 
 <small>
 
-   1.<large id=”f1”> Il semble s’agir d’un idiome propre à l’Amérique du Nord. Il signifie dire la vérité à ceux qui sont au pouvoir..[↩](#a1)
-
-
-
-
-
-
+1.<large id=”f1”> Il semble s’agir d’un idiome propre à l’Amérique du Nord. Il signifie dire la vérité à ceux qui sont au pouvoir..[↩](#a1)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Tu dois te donner du temps
 
-Père - reçu par Enfant de Dieu le 26 Janvier 2013
+Père - reçu par Enfant de Dieu le 26 Janvier 2013.
 
 Mon cher enfant,
 
@@ -20,4 +20,3 @@ Tu dois te donner du temps. Tu dois t’honorer pour ta volonté de me connaîtr
 Profite de la croissance de votre âme. Profite de ta vie et ne te juge pas. Je ne le fais certainement pas. Je t’aime.
 
 Ton Père.
-

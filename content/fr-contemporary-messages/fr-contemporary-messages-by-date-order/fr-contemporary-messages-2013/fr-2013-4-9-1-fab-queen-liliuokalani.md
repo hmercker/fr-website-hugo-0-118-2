@@ -9,7 +9,7 @@ weight:
 ---
 ### Un message de réconfort d’une Reine
 
-Reine Liliuokalani - reçu par FAB le 9 Avril 2013, Santa Cruz, Californie, USA
+Reine Liliuokalani - reçu par FAB le 9 Avril 2013, Berkeley, Californie, USA.
 
 C'est moi, la Reine Liliuokalani.
 
@@ -32,7 +32,9 @@ Cela signifie qu'il y aura un démantèlement de l'empire et de toutes les struc
 De plus, Dieu doit et respectera le libre arbitre de tous les intéressés, car c'est ainsi. C'est le chemin de Dieu. Donc, bien que des difficultés surgiront, elles ne pourront pas entraver le plan de Dieu au fur et à mesure de son dévoilement à l'humanité car Dieu aime les humains avec un Amour infini.
 
 C'est le message que je souhaite transmettre, un message d'espoir et de foi dans un Dieu qui est toujours fidèle.
-
+<sup id="a1">[1](#f1)</sup>
+<small>
+1. <large id="f1"> xxx[↩](#a1)
 =================================================================================================================================
 
 **Lili'uokalani** (2 Septembre 1838 - 11 Novembre 1917), né Lydia Lili'u Loloku Walanie Wewehi Kamaka'eha, fut la dernière monarque et la seule reine régnante du Royaume d'Hawaï. Elle était également connue sous le nom de Lydia Kamaka'eha Paki, avec le nom royal choisi de Lili'uokalani, son nom de mariage était Lydia K. Dominis.
@@ -40,6 +42,3 @@ C'est le message que je souhaite transmettre, un message d'espoir et de foi dans
 Le 14 janvier 1893, un groupe composé d'Américains et d'Européens a formé un Comité de Sécurité visant à renverser le Royaume de Hawaï, déposer la Reine et à annexer Hawaï aux États-Unis. Alors que le coup d'état se déroulait le 17 janvier, le Comité de Sécurité s'est dit préoccupé par la sécurité et la propriété des citoyens Américains. En réponse, le représentant du gouvernement des États-Unis, John L. Stevens, appela une compagnie de marines américaines de l'USS Boston et deux compagnies de marins de la marine américaine pour prendre position à la Légation des États-Unis, au Consulat et à Arion Hall. Au cours de l'après-midi du 16 janvier 1893, 162 marins et marines américains à bord de l'USS Boston ont débarqué dans la baie d'Honolulu, ces troupes devaient respecter une stricte neutralité. L'historien William Russ a noté que la présence de ces troupes, censées faire respecter la neutralité et prévenir la violence, ont empêché que la monarchie puisse se protéger par elle-même.
 
 La reine fut déposée le 17 janvier 1893 et elle abandonna temporairement son trône aux « forces militaires supérieures ». Elle avait espéré que les États-Unis, comme la Grande-Bretagne plus tôt dans l'histoire hawaïenne, rétabliraient la souveraineté d'Hawaï à son titulaire légitime. (Source : Wikipédia)
-
-
-

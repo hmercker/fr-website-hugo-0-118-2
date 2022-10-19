@@ -9,7 +9,7 @@ weight:
 ---
 ### Sois Mon Amour pour changer le monde
 
-Père - reçu par Enfant de Dieu le 1 Mai 2013
+Père - reçu par Enfant de Dieu le 1 Mai 2013.
 
 Cherche-moi dans ton cœur et tu Me trouveras. Laisse Mon Amour rayonner sur toi. Tu rayonnes et tu entraînes beaucoup de monde. Sois assez courageux pour rester seul. Sois assez courageux pour demander de l’aide. Tenez vos cœurs, ma famille d’amour. Vous tissez un filet d’amour et êtes l’espoir de tant de personnes. Vous êtes mon espoir. Je ressens le désir de votre âme d’être mon amour. Je ressens votre douleur et votre combat. Vos larmes sont les miennes alors que vous marchez sur le chemin de l’amour. Nous vous tenons, nous vous élevons, mes chercheurs de Vérité.
 
@@ -22,6 +22,3 @@ Soyez mon espoir de changement. Soyez mon amour pour changer le monde.
 En remerciement de votre amour,
 
 Votre Père.
-
-
-

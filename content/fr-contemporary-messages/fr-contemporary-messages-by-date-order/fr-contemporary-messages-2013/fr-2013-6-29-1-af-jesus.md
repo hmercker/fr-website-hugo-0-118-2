@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Esprit de Vérité
 
-Jésus - reçu par Al Fike le 29 Juin 2013, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 29 Juin 2013, Gibsons, Colombie-Britannique, Canada.
 
 Je viens. C’est Jésus. Je viens pour être avec vous, mes enfants, de belles âmes qui se rassemblent pour être à la lumière de l’Amour du Père, qui viennent pour comprendre la vérité, qui viennent pour nourrir leur âme par leur relation avec Dieu, notre Créateur et Père Céleste. Et je viens parce que je vous aime et que vous êtes très aimés ; chaque âme ici est très aimée de Dieu et de nous en esprit qui pouvons voir vos lumières qui sont belles, belles à voir. Pour tant de personnes ici, il vous est difficile de voir votre lumière, de reconnaître cette lumière intérieure, mais elle existe néanmoins, sa beauté brille et, un jour, vous pourrez la voir en priant pour que l’Amour ouvre vos facultés et vos perceptions, vous verrez alors avec les yeux de votre âme ; vous saurez, et cette connaissance sera infaillible et forte.
 
@@ -22,6 +22,3 @@ Au fur et à mesure que cela se déroule dans vos vies, dans vos êtres, dans vo
 Nous prions pour que vous mettiez cela de côté, que vous choisissiez la lumière à chaque respiration, que vous soyez un canal d’amour à chaque instant. Bénissez-vous, mes enfants, car vous faites cet effort, et vous le désirez, et il le sera. L’Amour de Dieu tout puissant coule dans vos âmes en ce moment. Soyez ouverts à cette grande et puissante bénédiction. Il changera le monde, mes enfants, il changera le monde. Que Dieu vous bénisse.
 
 Je suis Jésus et je vous aime. Chacun d’entre vous m’est précieux. Chacun de vous est beau et aimé, aimé de Dieu, d’une manière si grande et si puissante, que, si vous pouviez comprendre et expérimenter cet amour, vous seriez essoufflés, humbles et émerveillés de découvrir toute la force et puissance avec lesquelles Dieu vous aime. Que cet éveil se produise pour chaque âme ici. Il est fait pour vous. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour du Père
 
-Père - reçu par Helge Mercker le 7 Janvier 2013, Elim, Namibie
+Père - reçu par Helge Mercker le 7 Janvier 2013, Elim, Namibie.
 
 Mon enfant, c’est moi, ton Père aimant.
 
@@ -20,8 +20,3 @@ Mon cher enfant. Tu sais à quel point je t’aime. Tu sais à quel point Je pre
 Je t’aime. Cherches-en plus, car J’ai tant d’amour à donner, à tous et à chacun. Une source d’amour infinie, à donner éternellement. Pour étancher la soif des âmes assoiffées. Laisse-toi étreindre par mes bras d’amour et entends le murmure quand j’appelle.
 
 C’est ton Père.
-
-
-
-
-

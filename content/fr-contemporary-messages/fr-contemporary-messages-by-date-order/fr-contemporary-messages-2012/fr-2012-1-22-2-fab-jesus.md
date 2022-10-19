@@ -9,7 +9,7 @@ weight:
 ---
 ### Approbation de la publication des messages de Judas
 
-Jésus - reçu par FAB le 22 Janvier 2012, Berkeley, Californie, USA
+Jésus - reçu par FAB le 22 Janvier 2012, Berkeley, Californie, USA.
 
 C’est moi, Jésus.
 

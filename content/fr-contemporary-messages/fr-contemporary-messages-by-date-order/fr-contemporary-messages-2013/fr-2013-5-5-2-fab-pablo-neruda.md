@@ -9,7 +9,7 @@ weight:
 ---
 ### Communistes – 2
 
-Pablo Neruda - reçu par FAB le 5 Mai 2013, Santa Cruz, Californie, USA
+Pablo Neruda - reçu par FAB le 5 Mai 2013, Berkeley, Californie, USA.
 
 C’est moi, Pablo Neruda.
 
@@ -19,6 +19,3 @@ Ces communistes voulaient donc s’opposer au mal. Ils voulaient aussi aider les
 La voie la plus excellente est d’aimer ses ennemis et de pratiquer la non-violence. Mais ces gens, étant athées, n’avaient que faire de Jésus, car il symbolisait pour eux l’oppression même qu’ils combattaient, grâce au contrôle du clergé.
 
 Je poursuivrai cette discussion à un autre moment.
-
-
-

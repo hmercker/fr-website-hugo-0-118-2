@@ -9,12 +9,11 @@ weight:
 ---
 ### Seul l’amour peut dissoudre l’illusion
 
-Père - reçu par Enfant de Dieu le 16 Janvier 2013
+Père - reçu par Enfant de Dieu le 16 Janvier 2013.
 
 Sentez-vous Mon bonheur ? Mon amour déborde pour vous Mes chers enfants qui allez bientôt vous rassembler en Mon Nom et Mon Amour. Sentez le tissage du grand amour entre nous. Imaginez le monde inondé de notre amour. Sentez comme nous sommes reliés dans l’Amour.
 
 Lorsque vous vous reposerez dans l’amour l’un pour l’autre, la paix viendra. Lorsque je sens votre bonheur et votre enthousiasme d’être ensemble, de partager mon amour ainsi que le vôtre, nous sommes Un. Par vos pensées mêmes, nous sommes connectés.
-
 
 Mon amour voyage avec vous. Si vous ne me preniez pas dans vos cœurs et vos âmes, mon amour n’aurait aucun sens. J’ai besoin de vous. J’ai besoin de vous plus que jamais. Je vous honore d’ouvrir votre cœur et votre âme et de Me laisser entrer. Je vous aime pour avoir suivi le désir de votre âme. Je sais combien il est difficile dans votre monde de garder votre cœur ouvert au vrai message de votre cœur.
 
@@ -23,6 +22,3 @@ Du plus profond de votre âme, votre désir grandit. Votre désir est le mien. L
 Je veille sur vous. Rien ne peut vous faire du mal.
 
 Votre Père.
-
-
-

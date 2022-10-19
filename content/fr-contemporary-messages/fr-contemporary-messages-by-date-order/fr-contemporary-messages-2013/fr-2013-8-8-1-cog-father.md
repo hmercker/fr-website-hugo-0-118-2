@@ -9,7 +9,7 @@ weight:
 ---
 ### Je vous ai entendu et j'ai répondu à votree appel
 
-Père - reçu par Enfant de Dieu le 8 Août 2013
+Père - reçu par Enfant de Dieu le 8 Août 2013.
 
 Maintenant tu vois. Tu peux me faire confiance. Je t’ai entendu et j’ai répondu à ton appel. Tu acceptes que sous tes blessures se cachent des cadeaux et des opportunités de croissance. Ton âme s’ouvre à plus d’amour, plus de joie et plus de bonheur. Tu assumes ce qui t’appartient et tu grandis à travers tes responsabilités. Il y a toujours un apprentissage, toujours une part qui vous revient dans chaque situation.
 
@@ -18,6 +18,3 @@ Lorsque tu le reconnais et que tu l’acceptes, tu grandis. Tu te rapproches un 
 Il y a toujours un cadeau. Regarde bien et tu le trouveras. Il est à toi. Accepte-le avec gratitude et va de l’avant.
 
 Ton Père qui t’aime.
-
-
-

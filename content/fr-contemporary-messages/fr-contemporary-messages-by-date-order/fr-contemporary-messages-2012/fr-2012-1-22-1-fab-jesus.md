@@ -9,7 +9,7 @@ weight:
 ---
 ### Un appel à la préparation
 
-Jésus - reçu par FAB le 22 Janvier 2012, Berkeley, Californie, USA
+Jésus - reçu par FAB le 22 Janvier 2012, Berkeley, Californie, USA.
 
 C’est moi, Jésus.
 

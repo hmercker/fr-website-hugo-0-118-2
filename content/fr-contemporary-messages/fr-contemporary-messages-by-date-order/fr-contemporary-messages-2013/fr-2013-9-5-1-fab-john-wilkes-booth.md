@@ -9,7 +9,7 @@ weight:
 ---
 ### Comprendre un fanatique
 
-John Wilkes Booth - reçu par FAB le 5 Septembre 2013, Santa Cruz, Californie, USA
+John Wilkes Booth - reçu par FAB le 5 Septembre 2013, Berkeley, Californie, USA.
 
 !(https://lanouvellenaissance.files.wordpress.com/2021/08/spiritualite-11.jpg)
 
@@ -33,8 +33,3 @@ Vous savez par expérience que la maladie et la souffrance font changer les gens
 <small>
 
 1. <large id=”f1”> John Wilkes Booth fut le meutrier d’Abraham Licoln.[↩](#a1)
-
-
-
-
-

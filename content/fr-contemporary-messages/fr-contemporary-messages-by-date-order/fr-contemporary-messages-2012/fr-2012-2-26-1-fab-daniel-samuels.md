@@ -9,9 +9,9 @@ weight:
 ---
 ### Une clarification du Nouveau Testament
 
-Daniel Samuels <sup id="a1">[1](#f1)</sup> - reçu par FAB le 26 Février 2012, Berkeley, Californie, USA
+Daniel Samuels <sup id="a1">[1](#f1)</sup> - reçu par FAB le 26 Février 2012, Berkeley, Californie, USA.
 
-C’est moi, Daniel Samuels.1
+C’est moi, Daniel Samuels.
 
 Nous sommes tous si heureux que vous ayez été soulagé de voir la vérité. Vous avez lu ceci dans la [Révélation #7](/fr-samuels-messages/fr-revelations/fr-rev-7-1955-11-7-samuels-jesus/) dans laquelle Jésus explique ce que signifie l’expression le « Royaume de Dieu est en vous  » :
 
@@ -21,7 +21,7 @@ Nous sommes tous si heureux que vous ayez été soulagé de voir la vérité. Vo
 >Lorsque les pharisiens demandèrent à Jésus quand viendrait le Royaume de Dieu. Il leur répondit : Le Royaume de Dieu ne vient pas de manière à frapper les regards. On ne dira point : Il est ici, ou Il est là. Car voici, le royaume de Dieu est en vous.
 <br>
 <br>
-> Le mot grec « entos » (entov), cependant, ne signifie pas « en vous », mais « au milieu de vous. » La traduction incorrecte vient du fait que le traducteur a cherché, n’ont pas à écrire pas ce que le mot Grec signifie en réalité, mais ce qui semblait logique pour lui à la lumière de sa propre compréhension imparfaite de ce que ces versets signifiaient pour lui, car il pensait que le simple la foi en Jésus et la fidélité au rite de la communion permettaient d’atteindre l’union avec Jésus – et donc avec Dieu.1
+> Le mot grec « entos » (entov), cependant, ne signifie pas « en vous », mais « au milieu de vous. » La traduction incorrecte vient du fait que le traducteur a cherché, n’ont pas à écrire pas ce que le mot Grec signifie en réalité, mais ce qui semblait logique pour lui à la lumière de sa propre compréhension imparfaite de ce que ces versets signifiaient pour lui, car il pensait que le simple la foi en Jésus et la fidélité au rite de la communion permettaient d’atteindre l’union avec Jésus – et donc avec Dieu.
 
 Vous avez ensuite découvert que « entos » signifie bien « à l’intérieur », mais qu’un autre sens de ce mot est « au milieu de ».
 
