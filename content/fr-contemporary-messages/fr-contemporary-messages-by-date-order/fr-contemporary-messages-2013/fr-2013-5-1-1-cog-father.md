@@ -19,6 +19,4 @@ Faites confiance à leur cœur qui aspire. Faites confiance à leur âme qui asp
 
 Soyez mon espoir de changement. Soyez mon amour pour changer le monde.
 
-En remerciement de votre amour,
-
-Votre Père.
+En remerciement de votre amour, Votre Père.

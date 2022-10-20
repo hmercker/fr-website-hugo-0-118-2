@@ -17,4 +17,4 @@ Laisse tes ailes de la foi porter ton désir vers les cieux. Je suis la brise. J
 
 Je suis toujours proche et je t’aime.
 
-Ton Père Céleste
+Ton Père Céleste.

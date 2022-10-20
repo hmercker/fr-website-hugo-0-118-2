@@ -9,7 +9,7 @@ weight:
 ---
 ###  N’ayez pas peur de marcher sur le chemin
 
-Jésus - reçu par  Bright Soul le 2 Juin 2013.
+Jésus - reçu par Bright Soul le 2 Juin 2013.
 
 C’est moi, Jésus. À tous ceux qui lisent ce message : Je vous aime. S’il vous plaît, écoutez, car mes paroles sont des réponses à vos prières.
 
