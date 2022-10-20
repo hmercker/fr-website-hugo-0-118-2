@@ -9,7 +9,7 @@ weight:
 ---
 ### Pourquoi Jésus était sans péché ?
 
-St Jean - reçu par WV le 28 Novembre 2014, Schoten, Belgique
+St Jean - reçu par WV le 28 Novembre 2014, Schoten, Belgique.
 
 Bonjour encore une fois mon ami.
 
@@ -30,7 +30,3 @@ Je pense que c’est un bon endroit pour s’arrêter et je suis heureux que nou
 Merci d’être un si bon ami. (Jean)
 
 **Note :** Ce message est intéressant, et d'autant plus quand on sait qu'il y a 2000 ans, les théologiens sont arrivés à cette conclusion eux aussi, mais malheureusement leur manque total de compréhension de la métaphysique les a amenés à élaborer au moins deux doctrines totalement en désaccord avec les lois spirituelles. Et ce sont bien sûr le "péché originel" et la "naissance virginale". Tout cela parce qu'ils voulaient "prouver" que Jésus était différent de nous d'un point de vue spirituel, si ce n'est physique...
-
-
-
-

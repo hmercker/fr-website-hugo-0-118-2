@@ -9,7 +9,7 @@ weight:
 ---
 ### Le libre arbitre fait que le monde est libre. Rien n’est garanti
 
-Augustin - reçu par Al Fike le 26 Juillet 2014, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 26 Juillet 2014, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant, Augustin. Donc comme vous le voyez les événements du monde ne se déroulent pas selon la volonté de Dieu mais selon la volonté de l’homme. Et en effet, il est facile de blâmer Dieu pour les mauvais agissements de l’humanité mais ce n’est pas correct. Dieu donne à tous le don du libre arbitre. Dieu donne à tous ce pouvoir de choisir et, de cette façon, il peut y avoir à la fois beaucoup de bien et beaucoup de mal dans le monde, à cause de ce choix, à cause des efforts de l’homme. En effet, vous souhaitez vous aligner sur la volonté de Dieu et vous le faites dans vos prières et vous le faites souvent dans vos actions et pour cela vous êtes puissamment bénis.
 
@@ -24,6 +24,3 @@ N’est-ce pas là un chemin merveilleux, un voyage glorieux ? Oui, parfois pars
 Je sais qu’il est difficile d’accepter tout ce qui se trouve dans vos vies. Je sais qu’il y a des luttes. Je sais que parfois vous vous sentez inadéquats et délaissés, mais ce n’est pas vrai. Vous avez tout ce dont vous avez besoin pour avancer sur votre chemin et vous êtes vraiment aimés et pris en charge. Si seulement vous saviez, mes enfants, si seulement vous saviez le pouvoir de cette vérité, la grâce qui est donnée, la protection, la lumière, comment nous travaillons diligemment pour vous inspirer, pour vous conduire en avant comme la grande main de Dieu touche tout. Si vous saviez, vous tomberiez à genoux de joie, d’émerveillement, car vous êtes vraiment aimés et Dieu a réclamé vos âmes comme Ses enfants, comme Ses belles Créations et vous êtes en train de le comprendre. Vos yeux s’ouvrent lentement, les écailles se détachent, et chaque jour apporte un peu plus de vision et de compréhension. Faites vos choix, mes enfants. Désirez l’amour en toutes choses, marchez sur ce chemin de lumière et d’amour et Dieu s’occupera du reste. Vraiment, Dieu prendra soin de vous tous.
 
 Que Dieu vous bénisse. Votre maître Augustin est toujours à vos côtés et désire que vous appreniez chaque jour un peu plus de vérité, que vous vous rapprochiez chaque jour un peu plus de Dieu, que vous vous ouvriez un peu plus largement à Sa présence intérieure. Et c’est ce que vous ferez, tout cela, afin que vous soyez sur le chemin, les pieds fermement placés et qu’il vous soit donné tout ce dont vous avez besoin. Ne doutez pas de cela, mais réjouissez-vous de cela. Réjouissez-vous de chaque jour qui vous est donné, de chaque opportunité qui vous est offerte, de chaque parcelle de vie qui vous est offerte, le plus grand des cadeaux. Que Dieu vous bénisse. Que Dieu vous bénisse. Je vous aime.
-
-
-

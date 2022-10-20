@@ -38,6 +38,3 @@ C’est pourquoi il est si important de se mettre à l’écoute de la Grande Â
 Je vais m’arrêter maintenant. Merci pour votre dévouement. Merci d’avoir accepté de nous écouter.
 
 Votre ami et frère, Paramahansa Yogananda.
-
-
-

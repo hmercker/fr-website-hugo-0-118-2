@@ -9,7 +9,7 @@ weight:
 ---
 ### Marchez dans la lumière
 
-Jean le Bien Aimé - reçu par Al Fike le 21 Mai 2014, Gibsons, Colombie-Britannique, Canada
+Jean le Bien Aimé - reçu par Al Fike le 21 Mai 2014, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes bien-aimées, vous marchez dans la lumière en ce jour, et vous priez en présence de notre Père bien-aimé qui vous aime tant et vous embrasse de Son Amour. Respirez cet amour, qu’il repose dans cet endroit profond en vous et permettez à son toucher de vous transformer et de faire de vous son enfant précieux, car vous êtes sa création bien-aimée, digne de toutes les bénédictions, de tout l’amour, de toute la guérison, de toute la paix que vous pouvez vous permettre de recevoir.
 
@@ -26,6 +26,3 @@ C’est simple, c’est beau et c’est votre but mes enfants dans ce monde, de 
 Mettez de côté vos différences, vos peurs, vos préjugés, vos jugements et soyez dans l’Amour, et tout ira bien et beaucoup de travail vous attend pour chaque âme qui veut et accepte la volonté de Dieu, l’Amour de Dieu et accepte que Dieu les aime comme il aime chacun – chaque âme.
 
 Que Dieu vous bénisse. Je suis Jean le Bien-Aimé et je vous aime. Que Dieu vous bénisse et que Son grand amour vous porte vers de grandes hauteurs, vers la voie la plus élevée, le plus grand service et le plus joyeux déploiement de votre amour. Que Dieu vous bénisse et que je vous aime.
-
-
-

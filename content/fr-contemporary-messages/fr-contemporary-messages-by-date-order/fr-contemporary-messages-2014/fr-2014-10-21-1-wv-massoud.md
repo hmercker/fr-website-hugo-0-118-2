@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne prenez pas les choses personnellement
 
-Massoud - reçu par WV le 21 Octobre 2014, Schoten, Belgique
+Massoud - reçu par WV le 21 Octobre 2014, Schoten, Belgique.
 
 Bonsoir, mes chers amis. C’est un honneur d’être ici avec vous. Mon nom est Massoud. C’est la première fois que je m’adresse à vous. La raison pour laquelle je suis ici est que vous m’êtes tous très chers, car je vois tout ce que vous essayez d’accomplir dans ce monde.
 
@@ -33,6 +33,3 @@ Bonsoir. Profitez de cette belle musique relaxante. Elle vous fera du bien.
 <small>
 
 1. <large id=”f1”> Le mot utilisé dans le texte originel était « abreact » qui est un terme psychanalytique désignant le fait de revivre une expérience afin de la purger de ses excès émotionnels ; une sorte de catharsis qui signifie défoulement et purification.[↩](#a1) 
-
-
-

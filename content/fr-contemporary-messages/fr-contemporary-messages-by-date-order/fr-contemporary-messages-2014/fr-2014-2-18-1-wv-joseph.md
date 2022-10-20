@@ -9,7 +9,7 @@ weight:
 ---
 ### Récupérer des souvenirs traumatiques
 
-Joseph - reçu par WV le 18 Février 2014, Schoten, Belgique
+Joseph - reçu par WV le 18 Février 2014, Schoten, Belgique.
 
 C’est moi, Joseph.
 
@@ -34,6 +34,3 @@ Je t’aime mon cher ami et je sais que tu peux le sentir. Que Dieu bénisse ton
 Ce message aborde de nombreuses choses qui m’ont laissé perplexe ces derniers temps. Tout d’abord, il y avait évidemment la question de savoir s’il fallait revoir ces souvenirs pour être guéri de leurs effets.
 
 La deuxième question, qui n’a pas été posée, est celle de savoir **QUAND** cela doit se produire. Il est très clair qu’il y a un bon moment pour le faire, et que cela nécessite une certaine maturité spirituelle. Il est également évident que ce n’est pas la première étape sur le chemin de la croissance spirituelle, comme certains le suggèrent et l’enseignent.
-
-
-

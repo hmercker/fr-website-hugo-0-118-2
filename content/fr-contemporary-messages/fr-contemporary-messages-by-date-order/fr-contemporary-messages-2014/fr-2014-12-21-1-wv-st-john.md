@@ -9,7 +9,7 @@ weight:
 ---
 ### Volonté et Libre Arbitre et le sens de 666
 
-St Jean - reçu par WV le 21 Décembre 2014, Schoten, Belgique
+St Jean - reçu par WV le 21 Décembre 2014, Schoten, Belgique.
 
 Rebonjour, mon ami. Je suis très heureux de voir que tu profites de moments comme celui-ci, de façon à ce que nous puissions aider à clarifier les choses dont nous parlons et que tu as appris à voir comme des occasions (de croître et de progresser), et non comme une nuisance ; aussi dans l’espoir que d’autres en bénéficieront eux aussi.
 

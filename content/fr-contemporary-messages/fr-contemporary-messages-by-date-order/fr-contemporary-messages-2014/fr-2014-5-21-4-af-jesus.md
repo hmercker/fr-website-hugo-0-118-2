@@ -9,7 +9,7 @@ weight:
 ---
 ### Quand vous marchez dans la lumière, vous marchez avec moi
 
-Jésus - reçu par Al Fike le 21 Mai 2014, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 21 Mai 2014, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus et je bénis chacun d’entre vous pour tous les efforts que vous faites pour recevoir l’Amour du Père dans vos âmes, pour marcher dans la lumière et pour être dans cette lumière. Car lorsque vous marchez dans cette lumière, vous marchez avec moi. Lorsque vous vous efforcez et vous étirez pour être avec votre Père Céleste, vous êtes dans cette sainte grâce, ce flux d’amour, et vous faites la volonté du Père alors que vous marchez dans cette lumière.
 
@@ -21,6 +21,3 @@ Je vous exhorte à prier avec ferveur, à prier de tout votre cœur et de toute 
 Êtes-vous prêts ? Voulez-vous vous avancer, marcher avec moi et suivre la volonté de Dieu pour guérir ce monde de toutes les terribles privations, du manque d’amour et de la cruauté qui sont si répandus ? Il est temps, il est temps, de marcher dans ce monde dans l’amour et de partager la vérité de l’amour, car c’est l’amour qui guérira ce monde et l’amènera à l’harmonie et à l’équilibre. Chaque âme est requise dans cet effort puissant et chaque âme a un rôle à jouer, des cadeaux à donner. Laissez aller votre résistance, laissez aller votre résistance, laissez aller votre doute et permettez à Dieu de vous toucher profondément et de vous faire avancer dans le flux de Son Amour et je serai avec vous. Je serai toujours avec toi.
 
 Que Dieu vous bénisse avec un puissant afflux de Son Essence Divine et qu’il vous porte vers ce lieu de communion profonde où nous nous rencontrerons et partagerons ce cadeau céleste. Que Dieu vous bénisse.
-
-
-

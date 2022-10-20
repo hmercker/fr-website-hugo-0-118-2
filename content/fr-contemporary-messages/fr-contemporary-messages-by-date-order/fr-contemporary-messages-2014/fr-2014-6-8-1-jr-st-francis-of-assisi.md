@@ -9,7 +9,7 @@ weight:
 ---
 ### Vivre dans l’Amour
 
-St François d'Assise - reçu par  James Reid le 8 Juin 2014, Caloundra, QLD, Australie
+St François d'Assise - reçu par  James Reid le 8 Juin 2014, Caloundra, QLD, Australie.
 
 *Chers amis Bonjour. Je ne me sens pas très bien, mais je ressens le besoin de vous écrire car il semble se passer tellement de choses. Beaucoup résulte du rassemblement qui produira probablement beaucoup de changements en chacun de nous. Il y a beaucoup de curiosité au sujet de vos remarques, Francis, en ce qui concerne le rassemblement et j’aimerais que, si possible, vous développiez. Beaucoup considèrent vos commentaires comme certainement des plus importants parmi ceux qui ont été reçus ces derniers temps. (Propos de James)*
 
@@ -46,6 +46,3 @@ Tout ce que vous entreprenez fait partie d’un processus évolutif merveilleux 
 Mes frères et sœurs, j’aime chacun d’entre vous et je le ferai toujours. Je bénis chacun d’entre vous et tous vos efforts et je vous assure de notre soutien continu, de nos encouragements et de nos conseils. Il n’y a aucune raison de trébucher comme nous l’avons fait sur terre lorsque nous pouvons vous guider à travers les embûches et les écueils.
 
 Je suis François et je vous laisse avec mes bénédictions et mon amour.
-
-
-
