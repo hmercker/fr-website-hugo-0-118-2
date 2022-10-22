@@ -90,7 +90,7 @@ C’est à l’humanité de s’élever au-delà de cette condition humaine et d
 Merci, âmes bien-aimées. Que Dieu vous bénisse profondément de Son Amour. Mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Ces questions ont été posées auparavant avec des informations légèrement différentes. Peut-être que l’apport humain des médiums est la cause de la différence ? Ou peut-être que le sujet est simplement un peu fluide ?
+Note 1. <large id=”f1”> Ces questions ont été posées auparavant avec des informations légèrement différentes. Peut-être que l’apport humain des médiums est la cause de la différence ? Ou peut-être que le sujet est simplement un peu fluide ?
 
 [1] [Jésus parle de l’avortement et de l’abandon d’enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/)
 
@@ -99,7 +99,7 @@ Merci, âmes bien-aimées. Que Dieu vous bénisse profondément de Son Amour. Mo
 [3] [Quand l’âme s’incarne-t-elle ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/)[↩](#a1)
 <small>
 
-2. <large id=”f2”>Là encore, d’autres médiums ont eu une saveur quelque peu différente de la mort assistée. D’autres messages sur le suicide et la mort assistée sont disponibles ici :
+Note 2. <large id=”f2”>Là encore, d’autres médiums ont eu une saveur quelque peu différente de la mort assistée. D’autres messages sur le suicide et la mort assistée sont disponibles ici :
 
 [1] [Suicide assisté et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/)7
 
