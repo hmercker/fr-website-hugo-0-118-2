@@ -9,7 +9,7 @@ weight:
 ---
 ### La différence entre Amour Divin et l’Amour naturel et comment l’obtenir
 
-Confucius - reçu par Al Fike le 11 Octobre 2014, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 11 Octobre 2014, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, Confucius est venu vous voir et prier avec vous en ce jour. Oui, ma fille (B), je t’ai effectivement appelée à ce groupe, car ton âme désirait ardemment faire partie de ce cercle bien-aimé et apprendre à connaître plus pleinement l’Amour du Père en toi et recevoir toujours plus de cette bénédiction. Bienvenue à vous tous, voyageurs, qui avez parcouru une certaine distance pour être ensemble dans l’amour. Cher et bien-aimé groupe, bienvenue. En effet, vos âmes désirent ardemment être ensemble de cette façon dans la lumière, et dans cette lumière bien-aimée du toucher de Dieu.
 
@@ -26,6 +26,3 @@ Je vous en conjure donc, mes bien-aimés, cherchez l’Amour de Dieu. Faites le 
 Vous êtes tous venus ici parce que vous désirez ce cadeau et vous serez tous dotés de ce cadeau parce que vous y êtes ouverts. Et je souhaite simplement clarifier la différence, la différence entre ce qui est accordé en vous par Dieu et ce que vous possédez de manière innée à votre naissance, votre création, l’Amour Divin et l’amour naturel.
 
 Bien-aimés, continuez dans vos prières, votre communion, vos efforts pour être ensemble et je continuerai à venir et à prier avec vous et à parler avec vous comme le feront tant d’autres Anges qui ont votre soin et votre tutelle comme leur bénédiction et leur désir de vous soutenir et de vous aimer tous. Âmes précieuses, Dieu vous bénit. Confucius vous aime, mes chéris, mes précieux chéris.
-
-
-

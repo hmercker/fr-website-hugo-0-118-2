@@ -9,8 +9,7 @@ weight:
 ---
 ### Le point de vue de Franklin Roosevelt
 
-Franklin D Roosevelt - reçu par FAB le 13 Janvier 2011, Santa Cruz, Californie, USA.
-
+Franklin D Roosevelt - reçu par FAB le 13 Janvier 2011, Berkeley, Californie, USA.
 
 C’est moi, Franklin Roosevelt.
 

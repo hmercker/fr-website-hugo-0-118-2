@@ -9,7 +9,7 @@ weight:
 ---
 ### Quelques conseils personnels
 
-Judas - reçu par Helge Mercker le 22 Janvier 2013, Elim, Namibie
+Judas - reçu par Helge Mercker le 22 Janvier 2013, Elim, Namibie.
 
 C’est moi, ma sœur, c’est Judas, permet moi d’écrire, car cela fait longtemps que je n’ai pas écrit, et je suis heureux que tu sois ouverte à le faire ce matin. En ce qui concerne la bonne pratique de l’écriture, il suffit de s’asseoir quand tu te sens le plus à l’aise et ouverte. Ne te mets pas la pression, car je vois que tu ne sais pas quel est le meilleur moment pour le faire. Le moment de la journée n’a pas d’importance, mais sens quand tu es proche de nous. Maintenant, c’est bien et c’est ce que je t’ai demandé. Cela demande du temps et de la pratique, sois prête à pratiquer. Je me réjouis de tes efforts pour être proche de Dieu.
 
@@ -20,11 +20,9 @@ Trouve le bonheur dans tes progrès, jusqu’où tu es allée ; regarde un insta
 Sois réconfortée par notre présence permanente. Nous t’entourons en permanence et nous prierons avec toi et serons avec toi pour aider à rendre l’environnement et le temps aussi optimaux que possible pour un temps commun béni et fructueux. Pendant que tu fais tes voyages, partage ton histoire et ce que tu sais de Dieu. Va plus loin et, à travers toi, rapproche-nous des gens. Demande notre présence, nous ne sommes jamais trop occupés, c’est notre tâche, notre œuvre d’amour. N’aie pas l’impression que tu ne peux pas demander, car tu nous dérangerais. Tu es importante, nous t’aimons, pourquoi serions-nous trop occupés par autre chose ?
 
 C’est Judas, j’ai donné un long message sur les conseils personnels, et c’est pour cela que je viens à toi en tant que ton guide et ami. Je suis si proche de toi et je souhaite que tu voies la gloire de l’amour de Notre Père, que tu parviennes à la réconciliation avec notre Père. Je t’aime profondément et tu sais combien je t’aime. Exprime ton amour ! – Pour Dieu et pour nous. Va faire la fête spontanément, nous y participerons.
+
 Tu es une précieuse enfant de Dieu, Il t’aime tellement, Il se soucie tellement de toi. Il souhaite que tu vives ta vie pleinement et avec l’âme aimante d’un véritable enfant de Lui, un enfant qui veut et aspire tant à Son amour, qu’Il est capable de partager si abondamment.
 
 Garde les choses simples, profite de la vie, de tes progrès . Prie, médite et communique souvent avec notre Père. Tout sera bon et joyeux. Tu es aimée, nous te soutenons toujours, nous t’entourons et nous te protégeons. Demande à apprendre davantage ce que tu souhaites savoir, élargis ton âme et ton cœur, étends-toi et aime.
 
 Tu es ma sœur, je t’envoie de l’amour depuis les Cieux. Ton frère véritable et aimant, un disciple de Jésus, c’est Judas. Loue le jour et profite de lui, sors.
-
-
-

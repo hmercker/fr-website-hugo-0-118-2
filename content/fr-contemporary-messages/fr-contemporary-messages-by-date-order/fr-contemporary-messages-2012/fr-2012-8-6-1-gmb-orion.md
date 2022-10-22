@@ -9,7 +9,7 @@ weight:
 ---
 ### Création et évolution revisitées
 
-Orion - reçu par George Barnard le 6 Août 2012, Illawarra District, Australia.
+Orion - reçu par George Barnard <sup id="a1">[1](#f1)</sup> le 6 Août 2012, Illawarra District, Australia.
 
 **Orion :** Voici Orion, votre ami et porte-parole régulier du contingent local des Porteurs de Vie. Nous transportons la vie humaine, animale, y compris les insectes, et même la vie végétale, de planète en planète, mais évidemment pas dans cet ordre, non. En ce qui concerne la vie végétale, il faut beaucoup de choses pour soutenir la vie humaine, donc de longues périodes sont nécessaires avant qu’une planète ne soit enfin adaptée à l’habitation humaine. Sur la plupart des mondes, les espèces introduites sont les plantes, les insectes, puis les petits animaux, les animaux plus grands, et enfin les meilleures espèces humaines des mondes peuplés.
 
@@ -23,6 +23,7 @@ La création et l’évolution s’appliquent toutes deux à votre monde, qui es
 
 Devons-nous alors partir et laisser cela se produire dans votre monde ? Pas du tout ! Nous pouvons énergiser et améliorer les organismes les plus prometteurs, ce qui n’est guère évolutif, et nous pouvons retenir cette énergie de ceux qui ont peu de chances de progresser. Vous voyez, mon ami, ce n’est ni l’évolution ni la création, mais les deux, le choix du Créateur, et la façon dont d’innombrables serviteurs peuvent aider, vivre des vies passionnantes, et progresser dans l’espace-temps, pour être finalement semblables à Dieu. C’est Orion qui vous remercie pour votre hospitalité et votre attention à mes mots. Adieu.
 
-© The 11:11 Progress Group. Vous avez allumé une flamme, et elle deviendra un feu furieux-ABC-22.
+*© The 11:11 Progress Group. Vous avez allumé une flamme, et elle deviendra un feu furieux-ABC-22.*
+<small>
 
-**-Note du Webmaster du site New-Birth.net :** "Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est très différent, du fait qu’il parle presque exclusivement à des êtres angéliques, par opposition à des ex-mortels. Néanmoins, ce message est tout à fait compréhensible."
+1. <large id="f1"> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est très différent, du fait qu’il parle presque exclusivement à des êtres angéliques, par opposition à des ex-mortels. Néanmoins, ce message est tout à fait compréhensible.[↩](#a1)

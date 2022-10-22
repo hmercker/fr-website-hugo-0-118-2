@@ -9,8 +9,7 @@ weight:
 ---
 ### Lire la Bible
 
-Père & Jésus - reçu par Enfant de Dieu le 19 Avril 2012
-
+Père & Jésus - reçu par Enfant de Dieu le 19 Avril 2012.
 
 C’est moi, Jésus. Je viens reconnaître l’effort que tu as fait pour entrer en contact avec notre Père. Ce que tu entends est la Vérité et la Voix de notre Créateur. Aie confiance en cela et continue.
 
@@ -18,9 +17,7 @@ C’est tout.
 
 Avec amour, Jésus – un enfant de Dieu comme toi.
 
-Cher enfant bien-aimé,
-
-Tu viens de recevoir la confirmation d’un autre de mes chers enfants.
+Cher enfant bien-aimé, tu viens de recevoir la confirmation d’un autre de mes chers enfants.
 
 Tu es un peu fatigué aujourd’hui et cela peut influencer notre conversation. Nous verrons comment cela se passe.
 
@@ -33,5 +30,3 @@ J’ai veillé sur toi toute ta vie. Cette vie a été marquée par de nombreux 
 Reviens plus tard. Nous avons tant de choses à nous dire.
 
 Ton père qui t’aime.
-
-

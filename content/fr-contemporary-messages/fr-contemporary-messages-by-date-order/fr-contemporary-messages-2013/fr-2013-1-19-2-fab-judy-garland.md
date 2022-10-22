@@ -9,7 +9,7 @@ weight:
 ---
 ### Judy Garland ajoute à son channeling
 
-Judy Garland - reçu par FAB le 19 Janvier 2013, Santa Cruz, Californie, USA
+Judy Garland - reçu par FAB le 19 Janvier 2013, Berkeley, Californie, USA.
 
 C’est moi, Judy Garland.
 
@@ -17,7 +17,7 @@ Vous avez regardé des choses sur Internet à propos de ma vie, et vous avez vu 
 
 Eh bien, laissez-moi vous dire que j’avais un bon sens de l’humour et que j’aimais rire. Tous les moments de ma vie n’ont pas été tristes et tragiques. Il y a eu de nombreuses périodes de bons moments.
 
-Les différents messages que je vous ai transmis<sup id=”a1”>[1](#f1)</sup> reflètent ma pensée sur ce côté de la vie, qui est si différente. Même s’il est vrai que je n’étais pas un zombie incohérent, je ne me connaissais pas. De plus, il m’est arrivée beaucoup de choses qui furent vraiment tragiques. Il fut difficile de mener de front une carrière dans le show-business et une dépendance.
+Les différents messages que je vous ai transmis <sup id=”a1”>[1](#f1)</sup> reflètent ma pensée sur ce côté de la vie, qui est si différente. Même s’il est vrai que je n’étais pas un zombie incohérent, je ne me connaissais pas. De plus, il m’est arrivée beaucoup de choses qui furent vraiment tragiques. Il fut difficile de mener de front une carrière dans le show-business et une dépendance.
 
 Votre propre expérience vous a montré que lorsque vous avez vécu certaines choses, vous ne pouviez pas (sur le moment) les identifier clairement, mais avec le recul, tout devient clair. Ce fut l’esprit avec lequel j’ai transmis ces choses à travers vous.
 
@@ -26,7 +26,4 @@ J’avais une énergie et une joie que rien ne pouvait supprimer ou tuer. Et cet
 Mes enfants m’aiment d’un amour profond et vrai, et ils ne souhaitent que préserver le meilleur de ce que je fus. Pour cela, ils ont mes éternels remerciements.
 <small>
 
-1. <large id=”f1”> Il y a eu cinq autres messages de Judy garland qui furent communiqués le [19 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-2-fab-judy-garland/), le [19 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-19-1-fab-judy-garland/), le [27 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-27-1-fab-judy-garland/),[12 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-judy-garland/) et le [29 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-29-1-fab-judy-garland/).[↩](#a1)
-
-
-
+1. <large id=”f1”> Il y a eu cinq autres messages de Judy garland qui furent communiqués le [19 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-1-fab-judy-garland/), le [19 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-19-1-fab-judy-garland/), le [27 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-27-1-fab-judy-garland/),[12 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-judy-garland/) et le [29 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-29-1-fab-judy-garland/).[↩](#a1)

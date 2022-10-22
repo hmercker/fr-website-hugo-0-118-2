@@ -9,7 +9,7 @@ weight:
 ---
 ### Les expériences de H.G. Wells dans le monde des esprits
 
-H.G. Wells - reçu par FAB le 13 Septembre 2011, Santa Cruz, Californie, USA.
+H.G. Wells <sup id="a1">[1](#f1)</sup> - reçu par FAB le 13 Septembre 2011, Santa Cruz, Californie, USA.
 
 Je suis H.G. Wells.
 
@@ -28,5 +28,6 @@ Depuis ce choc initial, j’ai eu l’occasion de m’adapter et, à présent, j
 Ce monde des esprits est encore plus merveilleux que la nature qui m’émerveillait sur Terre. J’ai vu qu’il y a ici des lois auxquelles tous les esprits doivent obéir. J’ai passé mon temps (mais bien sûr, nous ne connaissons pas le temps !) à apprendre ces lois, et j’ai été heureux dans cette poursuite. Quant à ce que vous appelez l’Amour Divin, je ne l’ai pas trouvé. C’est un concept intéressant, mais beaucoup de mes croyances terrestres sont restées en moi, même si d’autres croyances, comme je l’ai dit, ont été immédiatement remises en question.
 
 Voilà donc un peu de mon histoire.
+<small>
 
-**Herbert George Wells** (21 Septembre 1866 – 13 Août 1946) était un auteur anglais, connu en tant qu’écrivain sous le nom de H.G. Wells. (Source : Wikipedia). Il est surtout connu pour ses romans de science fiction dont le plus connu est la guerre des mondes. Il est également l’auteur de nombreux romans de satire sociale, d’œuvres de prospective, de réflexions politiques et sociales ainsi que d’ouvrages de vulgarisation touchant aussi bien à la biologie et à l’histoire qu’aux questions sociales. Il est considéré comme le père de la science-fiction contemporaine.
+1. <large id="f1"> **Herbert George Wells** (21 Septembre 1866 – 13 Août 1946) était un auteur anglais, connu en tant qu’écrivain sous le nom de H.G. Wells. (Source : Wikipedia). Il est surtout connu pour ses romans de science fiction dont le plus connu est la guerre des mondes. Il est également l’auteur de nombreux romans de satire sociale, d’œuvres de prospective, de réflexions politiques et sociales ainsi que d’ouvrages de vulgarisation touchant aussi bien à la biologie et à l’histoire qu’aux questions sociales. Il est considéré comme le père de la science-fiction contemporaine.[↩](#a1)

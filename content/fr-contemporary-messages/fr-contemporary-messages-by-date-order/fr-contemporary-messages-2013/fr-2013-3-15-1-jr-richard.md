@@ -9,9 +9,9 @@ weight:
 ---
 ### Donner, recevoir, émotions et pensées
 
-Richard - reçu par  James Reid le 15 Mars 2013, Caloundra, QLD, Australie
+Richard - reçu par  James Reid le 15 Mars 2013, Caloundra, QLD, Australie.
 
-Bonjour Richard et autres chers amis. Je vous remercie tous pour votre amour constant et votre attention que j’apprécie beaucoup. Vous m’aidez dans ma connexion avec Notre Père. Nous avons parlé des émotions à plusieurs reprises et récemment il y a eu quelques discussions concernant la pensée et l’émotion et la relation entre les deux. J’ai l’impression qu’il est difficile de vraiment comprendre ce qui se passe avec deux fonctions humaines fondamentales et primaires, car nous avons développé tellement de croyances concernant ces deux-là en particulier. J’apprécierais toute clarification que vous pourriez m’apporter.
+*[Bonjour Richard et autres chers amis. Je vous remercie tous pour votre amour constant et votre attention que j’apprécie beaucoup. Vous m’aidez dans ma connexion avec Notre Père. Nous avons parlé des émotions à plusieurs reprises et récemment il y a eu quelques discussions concernant la pensée et l’émotion et la relation entre les deux. J’ai l’impression qu’il est difficile de vraiment comprendre ce qui se passe avec deux fonctions humaines fondamentales et primaires, car nous avons développé tellement de croyances concernant ces deux-là en particulier. J’apprécierais toute clarification que vous pourriez m’apporter.]*
 
 Bonjour, cher frère. Nous apprécions votre gratitude qui vous est vraiment bénéfique. Nous sommes également très reconnaissants de votre participation à cet exercice commun. Je dis que votre gratitude vous profite car c’est un fait. Toute véritable expression de gratitude augmente le sentiment d’amour en vous. Dans cet état, tout en vous fonctionnera plus facilement et avec un meilleur équilibre.
 
@@ -101,11 +101,8 @@ Ton frère qui t’aime,
 
 Richard.
 
-Ce message est protégé par un copyright.
+***Note :*** *Ce message est protégé par un copyright.*
 
-Ce message est inclus dans le livre « The Richard Messages » en tant qu’article numéro 44. Le livre peut être acheté sur Lulu ou Amazon. Il est intéressant de noter que les conseils donnés ici sur la meilleure façon d’aborder la question des émotions troublantes sont tout à fait contraires à ceux d’un autre enseignant qui prétend que le flux d’Amour divin est inhibé par les émotions.
+*Ce message est inclus dans le livre « The Richard Messages » en tant qu’article numéro 44. Le livre peut être acheté sur [Lulu](https://www.lulu.com/shop/james-reid/the-richard-messages/paperback/product-21354445.html?page=1&pageSize=4) ou Amazon. Il est intéressant de noter que les conseils donnés ici sur la meilleure façon d’aborder la question des émotions troublantes sont tout à fait contraires à ceux d’un autre enseignant qui prétend que le flux d’Amour divin est inhibé par les émotions.*
 
-Un autre message sur les émotions a été reçu [la veille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-14-1-af-judas/), via un autre médium.
-
-
-
+*Un autre message sur les émotions a été reçu [la veille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-14-1-af-judas/), via un autre médium.*

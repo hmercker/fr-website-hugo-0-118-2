@@ -9,9 +9,9 @@ weight:
 ---
 ### Idéalisme brisé
 
-Clarence Streit - reçu par FAB le 8 Juin 2012, Santa Cruz, Californie, USA
+Clarence Streit <sup id="a1">[1](#f1)</sup> - reçu par FAB le 8 Juin 2012, Berkeley, Californie, USA.
 
-C’est moi, Clarence Strait.
+C’est moi, Clarence Streit.
 
 Je vois que vous lisez mon livre « Union Now », et je tiens à le commenter, autrement dit, à commenter l’idée, qui est en arrière plan, d’un gouvernement mondial. Mais, tout d’abord, permettez-moi de vous dire que vous ne devez pas craindre l’exactitude de cette canalisation, parce que le rapport est fort, et que  vous êtes en bonne forme en cette belle après-midi ensoleillée à Berkeley où vous habitez actuellement.
 
@@ -22,18 +22,6 @@ Alors maintenant vous connaissez la vérité que j’ai souhaité un monde meill
 Vous avez commencé cette canalisation avec l’idée préconçue que j’étais un monstre en regard de ces plans. Mais vous avez permis à mes pensées de s’exprimer correctement, je vous félicite donc pour cela.
 
 Cependant, je n’ai pas échappé à la Loi de l’indemnisation. Aucun esprit ne le peut.
+<small>
 
-=================================================================================================================================
-
-**Clarence Kirschmann Streit** : Né le 21 janvier 1896 à California dans le Missouri, il est décédé le 6 Juillet 1986 à Washington D.C. Streit. Il fut dès sa jeunesse un Américain sui generis. Volontaire durant la [Première Guerre mondiale](https://fr.wikipedia.org/wiki/Premi%C3%A8re_Guerre_mondiale), membre de la délégation américaine à la [conférence de Versailles](https://fr.wikipedia.org/wiki/Trait%C3%A9_de_Versailles), et étudiant à l’université d’Oxford en 1920 avec une bourse Rhodes. Il se marie à Paris  avec Jeanne Defrance en 1921 et commence une longue carrière de reporter dans le monde entier qui le conduisit du Moyen Orient jusqu’en [Amérique latine](https://fr.wikipedia.org/wiki/Am%C3%A9rique_latine). En [1929](https://fr.wikipedia.org/wiki/1929), il devient le correspondant du New York Times auprès de la Société des nations dont il suit avec attention la lente et inexorable crise.
-
-Streit n’était pas un journaliste qui croyait sa tâche accomplie après avoir relaté le cours des événements. Aussi, la crise de la Société des Nations ne le laisse pas indifférent. II se préoccupe, par conséquent, d’en identifier les raisons et d’y chercher les remèdes. Selon Ira Straus, secrétaire général de l’AUD (Association to Unite the Democracies- Association pour unir les démocraties) qui a poursuivi l’action politique de Streit.
-
-C’est  ce qui l’a conduit à écrire son livre « Union Now » qui fut publié en 1928 à la veille de la première guerre mondiale. Ce livre s’était vendu, en 1972, à 300 000 exemplaires. La première thèse du livre précise que l’objectif principal est le gouvernement mondial. Selon Streit, étant donné que la fédération – en tant que forme de gouvernement démocratique des relations internationales – suppose la démocratie, la responsabilité historique de promouvoir la création du gouvernement mondial revient aux États démocratiques de l’Europe de l’Ouest (y compris leur colonies) et les autres pays de langue anglaise du moment (États Unis, Canada, Australie, Nouvelle Zélande et Afrique du sud). Malgré le grand succès éditorial remporté par le livre, le dessein de Streit de répondre à l’arrogance des autocraties par l’unité fédérale des démocraties n’exerça aucune influence appréciable sur le cours de la politique mondiale. (Selon Wikipédia)
-
-
-
-
-
-
-
+1. <large id="f1"> **Clarence Kirschmann Streit** : Né le 21 janvier 1896 à California dans le Missouri, il est décédé le 6 Juillet 1986 à Washington D.C. Streit. Il fut dès sa jeunesse un Américain sui generis. Volontaire durant la [Première Guerre mondiale](https://fr.wikipedia.org/wiki/Premi%C3%A8re_Guerre_mondiale), membre de la délégation américaine à la [conférence de Versailles](https://fr.wikipedia.org/wiki/Trait%C3%A9_de_Versailles), et étudiant à l’université d’Oxford en 1920 avec une bourse Rhodes. Il se marie à Paris  avec Jeanne Defrance en 1921 et commence une longue carrière de reporter dans le monde entier qui le conduisit du Moyen Orient jusqu’en [Amérique latine](https://fr.wikipedia.org/wiki/Am%C3%A9rique_latine). En [1929](https://fr.wikipedia.org/wiki/1929), il devient le correspondant du New York Times auprès de la Société des nations dont il suit avec attention la lente et inexorable crise. Streit n’était pas un journaliste qui croyait sa tâche accomplie après avoir relaté le cours des événements. Aussi, la crise de la Société des Nations ne le laisse pas indifférent. II se préoccupe, par conséquent, d’en identifier les raisons et d’y chercher les remèdes. Selon Ira Straus, secrétaire général de l’AUD (Association to Unite the Democracies- Association pour unir les démocraties) qui a poursuivi l’action politique de Streit. C’est  ce qui l’a conduit à écrire son livre « Union Now » qui fut publié en 1928 à la veille de la première guerre mondiale. Ce livre s’était vendu, en 1972, à 300 000 exemplaires. La première thèse du livre précise que l’objectif principal est le gouvernement mondial. Selon Streit, étant donné que la fédération – en tant que forme de gouvernement démocratique des relations internationales – suppose la démocratie, la responsabilité historique de promouvoir la création du gouvernement mondial revient aux États démocratiques de l’Europe de l’Ouest (y compris leur colonies) et les autres pays de langue anglaise du moment (États Unis, Canada, Australie, Nouvelle Zélande et Afrique du sud). Malgré le grand succès éditorial remporté par le livre, le dessein de Streit de répondre à l’arrogance des autocraties par l’unité fédérale des démocraties n’exerça aucune influence appréciable sur le cours de la politique mondiale. (Selon Wikipédia)[↩](#a1)

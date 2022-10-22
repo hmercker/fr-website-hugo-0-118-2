@@ -9,7 +9,7 @@ weight:
 ---
 ### Evolution
 
-**Prolotheos** - reçu par Valdir Soares <sup id=”a1”>[1](#f1)</sup> le 2 Mars 2013
+**Prolotheos** - reçu par Valdir Soares <sup id=”a1”>[1](#f1)</sup> le 2 Mars 2013.
 
 **Prolotheos :**  » L’évolution est un moyen par lequel les Dieux  » impriment leur dessin  » sur la création spatio-temporelle. En effet, ce n’est pas le seul moyen par lequel la création apparaît dans les Univers. Il y a la création par fiat, par génération et par évolution. L’évolution de la vie sur Urantia a commencé avec la formulation de la vie par les Porteurs de Vie, et elle se poursuivra dans les ères de Lumière et de Vie par la « synthèse » progressive de la Déité Suprême Planétaire résidente. L’évolution est un processus complexe qui ne peut être entièrement compris, même par les êtres humains qu’il produit. Malheureusement, la religion évolutionniste ne se laisse pas comprendre, tandis que l’ignorance la déforme grossièrement.
 
@@ -20,16 +20,7 @@ weight:
 « Une dernière idée fausse sur l’évolution est de vouloir tout expliquer en termes d’évolution. L’évolution est assez bien faite sur Urantia, surtout chez les êtres humains. L’évolution ne produira pas une espèce différente plus intelligente que les êtres humains. Les progrès de la civilisation humaine sont dus à l’augmentation des connaissances en sciences biologiques et physiques qui sont acquises, améliorées et transmises aux nouvelles générations. L’évolution est un processus biologique et ne se veut pas un système philosophique pour tout expliquer. L’évolution n’explique pas Dieu, ni la foi, ni les valeurs morales chez les humains ; seule la personnalité, « un don précieux de Dieu », peut expliquer ces concepts.
 « Par conséquent, mon élève, l’évolution reflète le dessein de Dieu de faire naître des êtres aptes à recevoir leur personnalité du Père, et même à accueillir les merveilleux Fragments de Dieu, les Ajusteurs de Pensée. Certains religieux ne peuvent accepter la réalité de l’évolution car son explication provient principalement de la Science qui ne peut rendre compte de l’existence et de l’action de Dieu dans les Univers. Néanmoins, l’évolution a son propre témoignage dans l’histoire géologique d’Urantia, même si elle est interprétée de façon erronée par de nombreux scientifiques partiaux. Seule une religiosité aveugle peut nier l’évolution, tout comme une science arrogante nie Dieu. Je suis Prolotheos. Paix à tous ».
 
-© The 11:11 Progress Group. « Le don de soi, l’illumination de la vérité et le soulagement de la souffrance sont les voies les plus nobles vers la conscience supérieure. » – Enseignant Ophelius, 2009. [Référence](http://www.1111ProgressGroup.com).
+*© The [11:11 Progress Group](http://www.1111ProgressGroup.com). « Le don de soi, l’illumination de la vérité et le soulagement de la souffrance sont les voies les plus nobles vers la conscience supérieure. » – Enseignant Ophelius, 2009.*
 <small>
 
 1. <large id=”f1”> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
-
-
-
-
-
-
-
-
-

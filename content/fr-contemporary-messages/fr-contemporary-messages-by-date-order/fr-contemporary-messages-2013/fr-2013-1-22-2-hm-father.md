@@ -9,7 +9,7 @@ weight:
 ---
 ### Amour et Vérité
 
-Père - reçu par Helge Mercker le 22 Janvier 2013, Elim, Namibie
+Père - reçu par Helge Mercker le 22 Janvier 2013, Elim, Namibie.
 
 C’est ton père, Je veux écrire.
 
@@ -18,6 +18,3 @@ La vérité exige l’amour. Pour aimer, il faut être dans la vérité. Un amou
 Oh mes enfants, la vérité est simple, l’amour est simple. Vous l’avez en vous, soyez prêts à le vivre.
 
 C’est votre Père, avec une vérité aimante et un amour vrai, qui vous aime, Père.
-
-
-

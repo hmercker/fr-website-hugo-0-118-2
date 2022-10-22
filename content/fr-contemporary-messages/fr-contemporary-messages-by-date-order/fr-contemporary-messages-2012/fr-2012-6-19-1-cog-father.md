@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Il y a de grands changements en vous
+### Il y a de grands changements en vous <sup id="a1">[1](#f1)</sup>
 
-Père - reçu par Enfant de Dieu le 19 Juin 2012
+Père - reçu par Enfant de Dieu le 19 Juin 2012.
 
 Chers enfants.
 
@@ -25,8 +25,7 @@ Ceux d’entre vous qui se déplacent déjà avec amour feront l’expérience d
 Vous ne devez pas avoir peur. Tout se passe comme prévu.
 
 Votre Père.
+<small>
 
-**Note du webmaster "New-Birth.net" :** Ce message s'adresse à nous tous. C'est bien au-delà de la coïncidence que, littéralement, chaque médium que je connais personnellement, et cela inclut beaucoup plus que les adeptes de l'"Amour Divin", a reçu à peu près le même message - cette année.
-
-
+1. <large id="f1"> Ce message s'adresse à nous tous. C'est bien au-delà de la coïncidence que, littéralement, chaque médium que je connais personnellement, et cela inclut beaucoup plus que les adeptes de l'« Amour Divin », a reçu à peu près le même message - cette année.[↩](#a1)
 

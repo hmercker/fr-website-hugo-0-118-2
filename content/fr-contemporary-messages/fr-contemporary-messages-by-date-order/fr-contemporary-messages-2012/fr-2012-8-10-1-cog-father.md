@@ -9,11 +9,9 @@ weight:
 ---
 ### L’illusion que nous sommes séparés
 
-Père - reçu par Enfant de Dieu le 10 Août 2012
+Père - reçu par Enfant de Dieu le 10 Août 2012.
 
-Bel enfant,
-
-Oui, nous allons parler du rejet. Comme tu l’as maintenant compris, le rejet est une blessure majeure chez tous les humains et une blessure qu’aucun humain ne peut éviter ? C’est un très bon sujet et il y a beaucoup de choses à dire et à réaliser.
+Bel enfant, oui, nous allons parler du rejet. Comme tu l’as maintenant compris, le rejet est une blessure majeure chez tous les humains et une blessure qu’aucun humain ne peut éviter ? C’est un très bon sujet et il y a beaucoup de choses à dire et à réaliser.
 
 La blessure du rejet remonte à loin, au début des temps, lorsque vous avez décidé de vous passer de mon amour. Tu as rejeté Mon amour et maintenant tu vis dans l’illusion que nous sommes séparés. Pourtant, tu ne peux pas te séparer de Moi. Je t’ai créé à partir de ma propre âme et ainsi nous sommes Un. Ta décision a créé une profonde blessure en toi, mais c’est une blessure sacrée.
 
@@ -29,11 +27,4 @@ Le rejet est une blessure fondamentale et une blessure de l’humanité. Pourtan
 
 Il n’y a pas de secrets. Il n’y a que la Vérité. Et la Vérité est que nous sommes un.
 
-Tu es aimé,
-
-Tu es mon enfant,
-
-Ton Père Céleste.
-
-
-
+Tu es aimé, tu es mon enfant, ton Père Céleste.

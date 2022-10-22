@@ -9,13 +9,10 @@ weight:
 ---
 ### Quelques autres réflexions de FDR
 
-Franklin D Roosevelt - reçu par FAB le 24 Juillet 2012, Santa Cruz, Californie, USA
+Franklin D Roosevelt - reçu par FAB le 24 Juillet 2012, Berkeley, Californie, USA.
 
 C’est moi, Franklin Roosevelt.
 
 Vous lisez que j’en savais plus sur ces choses conspiratrices cachées que ce qui est généralement reconnu, et c’est vrai. Certaines influences ont pesé sur moi et ont abouti à mes actions.
 
 Mais je me souciais du pays.
-
-
-

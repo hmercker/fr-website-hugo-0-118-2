@@ -9,8 +9,7 @@ weight:
 ---
 ### La Loi de l’Amour
 
-Le Père - reçu par Enfant de Dieu le 6 Mars 2012
-
+Le Père - reçu par Enfant de Dieu le 6 Mars 2012.
 
 Il serait sage de s’asseoir pendant une heure chaque jour pour donner du temps à Dieu. Du temps pour nourrir la flamme qui brûle dans ta poitrine, pour l’étendre et remplir ton âme. Tu es trop occupé par des choses qui n’ont pas d’importance et qui t’éloignent de moi.
 
@@ -31,5 +30,3 @@ Ta question : « Pourquoi t’es-tu séparé de moi ? » Il n’est pas possible
 Tu es fatigué, tu ne dors pas bien ces jours-ci. Tu devrais sortir dans la nature et te remplir de nature, ouvrir tous tes sens aux sens de la nature – fais cela.
 
 Amour de ton Père dans les Cieux.
-
-

@@ -11,5 +11,8 @@ weight:
 
 Woodrow Wilson - reçu par FAB le 15 Juin 2010, Santa Cruz, Californie, USA.
 
+C’est moi, Woodrow Wilson.
 
+Vous vous demandez comment je me suis comporté par rapport au règlement de la guerre à Versailles. Pas bien du tout. Certains de mes objectifs dans les Quatorze Points ont été respectés, mais il n’y a eu aucune tentative de remplir la promesse des Alliés de négocier. Cela a créé de la colère, du ressentiment et de la haine, qui se sont manifestés plus tard, et qui m’ont obligé à entendre les plaintes furieuses des esprits qui me disaient avoir été trahis.
 
+Les conséquences de ne pas être fidèle à soi-même sont graves, et je voudrais que chaque mortel comprenne cette grande vérité.

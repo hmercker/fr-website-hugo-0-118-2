@@ -9,11 +9,9 @@ weight:
 ---
 ### Le pardon est un art délicat
 
-Père - reçu par Enfant de Dieu le 24 Avril 2012
+Père - reçu par Enfant de Dieu le 24 Avril 2012.
 
-Cher enfant,
-
-Au milieu de la nuit, tu t’es réveillé en hurlant à cause d’un rêve. Il s’agissait de ta mère et tu étais perplexe parce que tu te sentais si bouleversé et en colère, et que tu te sentais trahi par elle. Tu n’avais pas eu de tels sentiments depuis longtemps et tu avais l’impression d’avoir laissé cela derrière toi il y a longtemps.
+Cher enfant, au milieu de la nuit, tu t’es réveillé en hurlant à cause d’un rêve. Il s’agissait de ta mère et tu étais perplexe parce que tu te sentais si bouleversé et en colère, et que tu te sentais trahi par elle. Tu n’avais pas eu de tels sentiments depuis longtemps et tu avais l’impression d’avoir laissé cela derrière toi il y a longtemps.
 
 Le pardon est un art délicat. Le pardon doit émaner de ton cœur. Tu peux prendre la décision de pardonner, mais cela ne te servira à rien si tu ressens encore de la haine dans ton cœur. Ce que tu as vécu ce soir est un morceau de non-pardon qui repose encore dans ton cœur. Tu aimes beaucoup ta mère, tu l’as toujours aimée et ton désir de lui pardonner t’a fait faire un long chemin. Tu viens de ressentir les émotions de ton enfance lorsque tu avais l’impression que les anges t’avaient tourné le dos alors que tu te sentais très seul. Je sens tes larmes.
 
@@ -26,6 +24,3 @@ Tu dois toujours faire confiance à tes sentiments. Ils feront apparaître au gr
 Je t’aime, mon enfant.
 
 Ton père.
-
-
-

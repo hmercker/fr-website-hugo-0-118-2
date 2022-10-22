@@ -9,11 +9,9 @@ weight:
 ---
 ### Volonté
 
-Père - reçu par Enfant de Dieu le 1 Mai 2012
+Père - reçu par Enfant de Dieu le 1 Mai 2012.
 
-Mon enfant bien aimé,
-
-La communication d’aujourd’hui porte sur la volonté. Ta volonté d’accepter tout ce qui est. Ta volonté de tout abandonner à la Vérité.
+Mon enfant bien aimé, la communication d’aujourd’hui porte sur la volonté. Ta volonté d’accepter tout ce qui est. Ta volonté de tout abandonner à la Vérité.
 
 Sois courageux. Sois courageux. Tu en as besoin. Je t’ai donné tout ce dont tu as besoin pour vivre une vie dans l’Amour et la Vérité. C’est juste ici devant toi. Mais tu dois te débarrasser de tes fausses croyances et pour cela, tu dois être courageux. Laisse la place à la Vérité. Vide-toi de tout ce que vous pensez savoir. Soyez comme un nouveau-né qui voit le monde pour la première fois.
 
@@ -24,6 +22,3 @@ Mais d’abord tu dois tout abandonner. C’est douloureux. Tu vas avoir peur. C
 Je suis avec toi.
 
 Père.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le point de vue d’une star de cinéma dans le monde des esprits
 
-Tony Curtis - reçu par FAB le 5 Octobre 2011, Santa Cruz, Californie, USA.
+Tony Curtis <sup id="a1">[1](#f1)</sup> - reçu par FAB le 5 Octobre 2011, Santa Cruz, Californie, USA.
 
 Je suis Tony Curtis.
 
@@ -36,10 +36,8 @@ Pourquoi quelqu’un attacherait-il son étoile à quelque chose d’aussi incon
 En conclusion, mon message au monde est le suivant : ne tuez pas votre âme, mais nourrissez-la et entretenez-la, car elle est la seule chose que vous ayez.
 
 Je vous remercie pour ce grand privilège. J’espère que ce message sera entendu par certains et qu’il apportera du réconfort à ma famille et à mes enfants.
+<small>
 
-**Tony Curtis** (né Bernard Schwartz ; 3 Juin 1925 – 29 Septembre 2010) était un acteur de cinéma américain dont la carrière s’est étendue sur six décennies, mais a connu sa plus grande popularité dans les années 1950 et au début des années 1960. Il a joué dans plus de 100 films dans des rôles couvrant un large éventail de genres, de la comédie légère au drame sérieux. Dans ses dernières années, Curtis a fait de nombreuses apparitions à la télévision.
+1. <large id="f1"> **Tony Curtis** (né Bernard Schwartz ; 3 Juin 1925 – 29 Septembre 2010) était un acteur de cinéma américain dont la carrière s’est étendue sur six décennies, mais a connu sa plus grande popularité dans les années 1950 et au début des années 1960. Il a joué dans plus de 100 films dans des rôles couvrant un large éventail de genres, de la comédie légère au drame sérieux. Dans ses dernières années, Curtis a fait de nombreuses apparitions à la télévision. Bien que ses premiers rôles au cinéma soient en partie dus à son physique, il devient, dans la seconde moitié des années 1950, une présence notable et forte à l’écran. Il commence à faire ses preuves en tant que « bon acteur dramatique », ayant la capacité de jouer de nombreux rôles dramatiques et comiques. À ses débuts, il joue dans une série de films « médiocres », notamment des films de cape et d’épée, des westerns, des comédies légères, des films sportifs et une comédie musicale. Cependant, lorsqu’il joue dans Houdini (1953) avec sa femme Janet Leigh, « son premier succès évident », note le critique David Thomson, son jeu a énormément progressé. Curtis fut le père des actrices Jamie Lee Curtis et Kelly Curtis par sa première femme, l’actrice Janet Leigh.(Source : Wikipedia)[↩](#a1)
 
-Bien que ses premiers rôles au cinéma soient en partie dus à son physique, il devient, dans la seconde moitié des années 1950, une présence notable et forte à l’écran. Il commence à faire ses preuves en tant que « bon acteur dramatique », ayant la capacité de jouer de nombreux rôles dramatiques et comiques. À ses débuts, il joue dans une série de films « médiocres », notamment des films de cape et d’épée, des westerns, des comédies légères, des films sportifs et une comédie musicale. Cependant, lorsqu’il joue dans Houdini (1953) avec sa femme Janet Leigh, « son premier succès évident », note le critique David Thomson, son jeu a énormément progressé.
-
-Curtis fut le père des actrices Jamie Lee Curtis et Kelly Curtis par sa première femme, l’actrice Janet Leigh.(Source : Wikipedia)
 

@@ -9,9 +9,9 @@ weight:
 ---
 ### Expériences dans le monde des esprits d’une star de cinéma - 2
 
-Natalie Wood - reçu par FAB le 1 Mars 2012, Santa Cruz, Californie, USA
+Natalie Wood - reçu par FAB le 1 Mars 2012, Berkeley, Californie, USA.
 
-C’est moi, Natasha [Natalie Wood].
+C’est moi, Natasha *[Natalie Wood]*.
 
 Oui, je suis ici pour transmettre le message promis, et je sais que vous le recevrez juste comme je le veux.
 

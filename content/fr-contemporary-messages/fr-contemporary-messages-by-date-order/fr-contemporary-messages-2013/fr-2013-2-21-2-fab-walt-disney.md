@@ -9,7 +9,7 @@ weight:
 ---
 ### La mentalité de guerre
 
-Walt Disney - reçu par FAB le 21 Février 2013, Santa Cruz, Californie, USA
+Walt Disney - reçu par FAB le 21 Février 2013, Berkeley, Californie, USA.
 
 C’est moi, Walt Disney.
 
@@ -24,6 +24,3 @@ Les messages de James Padgett vous ont appris que le militarisme est une mauvais
 Alors on peut discuter, mais les militaires ont pris le contrôle de mon studio ! Je n’avais pas le choix. Mais j’ai soutenu l’effort des Alliés, non pas parce que j’étais favorable aux effusions de sang et aux tueries, mais parce que je pensais qu’il était nécessaire de gagner la guerre pour préserver la liberté de mon pays. Et je l’ai fait de manière désintéressée, comme le révèlent les faits.
 
 Mais cela n’a pas empêché la perspicacité que j’ai expliquée, et toute l’ignorance et l’obstination du monde ne peuvent changer le fait qu’avec la mentalité de guerre, il y a toujours un prix à payer dans l’équilibre moral de la vie.
-
-
-

@@ -9,11 +9,11 @@ weight:
 ---
 ### John D. Rockefeller se décrit lui-même
 
-John D Rockefeller - reçu par FAB le 11 Mars 2013, Santa Cruz, Californie, USA
+John D Rockefeller - reçu par FAB le 11 Mars 2013, Berkeley, Californie, USA.
 
 C’est moi, John D. Rockefeller.
 
-Oui, je désire dire un mot, à la lumière du fait que vous venez de terminer la lecture de ce chapitre me concernant [« Le syndrome Rockefeller » par Ferdinand Lundberg, chapitre deux]. Vous vous demandez comment j’ai pu faire autant de mal, ce que je vois maintenant, et pourtant sembler en être inconscient.
+Oui, je désire dire un mot, à la lumière du fait que vous venez de terminer la lecture de ce chapitre me concernant *[« Le syndrome Rockefeller » par Ferdinand Lundberg, chapitre deux.]* Vous vous demandez comment j’ai pu faire autant de mal, ce que je vois maintenant, et pourtant sembler en être inconscient.
 
 Je me voyais comme un homme d’affaires qui construisait une entreprise. Tout ce que je faisais devait profiter à l’entreprise. Je ne pouvais pas comprendre toutes les objections et les critiques. Après tout, n’étais-je pas en train de fournir un excellent service au public et de le faire mieux que quiconque ? De plus, le fait que j’offrais des cadeaux ne démontrait-il pas que j’avais conscience des autres ? J’avais l’habitude de donner généreusement. Cela satisfaisait un besoin profond. L’auteur présente la thèse selon laquelle j’avais une personnalité obsessionnelle-compulsive. Vous vous demandez ce que je pense de cela.
 
@@ -26,8 +26,3 @@ Alors, vous vous demandez si mes cadeaux étaient de la générosité ou de la c
 Je suis heureux de la façon dont vous avez reçu ce message, et vous l’êtes vous-même, puisque vous êtes l’un de ceux qui ont fortement contesté mon comportement. Mais vous êtes aussi un disciple de Jésus qui aime la vérité. J’ai dit la vérité dans cette canalisation, et vous l’avez reprise telle que je l’ai transmise.
 
 Je conclurai en disant que l’erreur humaine, et tout le mal qui en découle, ne peut résister aux Anges de Dieu.
-
-
-
-
-

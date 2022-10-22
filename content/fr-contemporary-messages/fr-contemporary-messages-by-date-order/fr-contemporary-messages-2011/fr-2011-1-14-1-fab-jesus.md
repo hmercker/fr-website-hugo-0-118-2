@@ -9,8 +9,7 @@ weight:
 ---
 ### Les faits, pas la naïveté
 
-Jésus - reçu par FAB le 14 Janvier 2011, Santa Cruz, Californie, USA.
-
+Jésus - reçu par FAB le 14 Janvier 2011, Berkeley, Californie, USA.
 
 C’est moi Jésus.
 

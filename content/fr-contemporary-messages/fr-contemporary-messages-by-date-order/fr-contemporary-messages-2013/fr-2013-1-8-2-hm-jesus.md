@@ -9,7 +9,7 @@ weight:
 ---
 ### Devenez un adepte de mes enseignements
 
-Jésus - reçu par Helge Mercker le 8 Janvier 2013, Elim, Namibie
+Jésus - reçu par Helge Mercker le 8 Janvier 2013, Elim, Namibie.
 
 Je suis ici, ma chère sœur dans l’Amour de notre Père. N’hésite pas à nous appeler, car nous voulons t’aider dans toutes les décisions ou déclarations que tu souhaites exprimer. Fais appel à nous.
 
@@ -22,6 +22,3 @@ Laisse ton cœur ouvert, laisse l’amour couler, Dieu s’occupera du reste, c�
 Nous avons besoin de vous pour sentir notre présence permanente, nous vous aidons, nous vous soutenons. Ne vous sentez jamais seuls ou abandonnés, car nous travaillons ensemble. Gardiens des vérités, ayez du courage, persévérez dans la prière, aspirez à chaque instant à Dieu, aspirez à faire Sa volonté. Restez engagés dans la prière, soyez cohérents. La force est dans la prière, Dieu est toujours à l’écoute.
 
 Nous vous aimons et ressentons notre amour pour chacun, c’est Jésus, votre frère et guide sur le chemin droit et étroit vers notre Père. Au revoir !
-
-
-

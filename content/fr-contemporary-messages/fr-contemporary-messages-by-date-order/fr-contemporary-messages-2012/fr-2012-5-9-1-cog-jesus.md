@@ -9,13 +9,11 @@ weight:
 ---
 ### La vérité est simple. La vérité est libre
 
-Jésus - reçu par Enfant de Dieu le 9 Mai 2012
+Jésus - reçu par Enfant de Dieu le 9 Mai 2012.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/spiritualite-21.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-spiritualite-21.jpg)
 
-Ma chère sœur,
-
-Je suis ton frère, je suis Jésus. Je suis venu te parler de moi, puisque tu as posé quelques questions sur moi et mes enseignements.
+Ma chère sœur, je suis ton frère, je suis Jésus. Je suis venu te parler de moi, puisque tu as posé quelques questions sur moi et mes enseignements.
 
 Je suis un enfant de Dieu, comme toi. Je suis un enfant de Dieu, comme tous les humains. J’ai été mal compris, et l’un des plus grands malentendus est celui de me vénérer. Mon intention a toujours été de servir notre Père, aussi bien sur terre il y a des années que maintenant dans les Cieux. Je n’ai jamais voulu d’admiration. Je n’ai jamais voulu qu’on tue en mon nom. Jamais. J’étais un humain comme vous, même si je suis né sans péché. J’avais des sentiments.
 
@@ -23,9 +21,4 @@ Ce sont mes enseignements qui sont importants, pas moi en tant que personne. Je 
 
 La vérité est simple. La vérité est libre.
 
-Ton frère dans l’amour,
-
-Jésus.
-
-
-
+Ton frère dans l’amour, Jésus.

@@ -9,13 +9,10 @@ weight:
 ---
 ### Un président s’explique
 
-Woodrow Wilson - reçu par FAB le 6 Mars 2013, Santa Cruz, Californie, USA
+Woodrow Wilson - reçu par FAB le 6 Mars 2013, Berkeley, Californie, USA.
 
 Je suis, Woodrow Wilson.
 
 J’avais un certain idéalisme. Pourquoi me suis-je excusé auprès du peuple américain pour avoir signé le Federal Reserve Act ? Ce fut la preuve.
 
 Oui, j’ai dû répondre de beaucoup de choses, plus que je ne l’imaginais. Donc votre ami avait raison dans un sens – au niveau de mon âme, j’étais dans les ténèbres.
-
-
-

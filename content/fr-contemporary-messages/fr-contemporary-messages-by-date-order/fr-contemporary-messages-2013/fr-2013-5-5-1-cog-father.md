@@ -9,7 +9,7 @@ weight:
 ---
 ### Je touche ton âme avec un baiser silencieux
 
-Père - reçu par Enfant de Dieu le 5 Mai 2013
+Père - reçu par Enfant de Dieu le 5 Mai 2013.
 
 Mon cher enfant. Sens mon amour embrasser ton beau cœur. Je suis près de toi. Je touche ton âme avec un baiser silencieux. Je vois à travers tes yeux et je sais. Je connais tes luttes et ta douleur et je te serre toujours très fort. Tu ne dois jamais douter de Mon Amour pour toi. Mon amour est là pour toi, toujours, pour que ton âme grandisse, pour que ton cœur aime encore plus.
 
@@ -17,7 +17,4 @@ Laisse tes ailes de la foi porter ton désir vers les cieux. Je suis la brise. J
 
 Je suis toujours proche et je t’aime.
 
-Ton Père Céleste
-
-
-
+Ton Père Céleste.

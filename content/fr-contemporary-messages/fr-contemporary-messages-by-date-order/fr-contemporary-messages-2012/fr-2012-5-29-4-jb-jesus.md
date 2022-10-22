@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-###  Une glorieuse journée de prière
+###  Une glorieuse journée de prière <sup id="a1">[1](#f1)</sup>
 
-Jésus - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA
+Jésus - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA.
 
 C’est moi Jésus.
 
@@ -32,10 +32,6 @@ Recevoir plus d’Amour Divin préparera tout le monde pour le travail qui se d�
 Je vous laisse, vous et tous mes amis, avec mon amour et ma bénédiction.
 
 Jésus avec toute la compagnie du ciel Céleste.
+<small>
 
-**Note du Webmaster du site New-Birth.net :** Ce message, et les trois précédents communiqués par Martin Luther et Anne Rollins, ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.
-
-
-
-
-
+1. <large id="f1"> Ce message, et les trois précédents communiqués par Martin Luther et Anne Rollins, ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.[↩](#a1)

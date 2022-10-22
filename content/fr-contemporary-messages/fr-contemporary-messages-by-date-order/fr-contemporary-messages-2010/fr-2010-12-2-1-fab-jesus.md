@@ -12,4 +12,5 @@ weight:
 Jésus - reçu par FAB le 2 Décembre 2010, Berkeley, Californie, USA.
 
 C'est moi, Jésus.
+
 À côté de toute la folie et de l'obscurité, vous voyez aussi beaucoup de lumière, des personnes du monde entier qui se soucient des autres et se lèvent. Eh bien, oui, nous voyons cela aussi. Et c'est précisément pour cela que nos efforts seront couronnés de succès.

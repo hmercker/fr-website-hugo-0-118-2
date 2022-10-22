@@ -9,7 +9,7 @@ weight:
 ---
 ### Vrais et faux enseignants
 
-Jésus - reçu par Enfant de Dieu le 10 Mai 2012
+Jésus - reçu par Enfant de Dieu le 10 Mai 2012.
 
 Aujourd’hui, nous allons parler des faux et des vrais enseignants. Tu te demandes s’il y a de vrais enseignants depuis Jésus et comment il est possible pour les humains de discerner les faux enseignants des vrais enseignants.
 
@@ -22,6 +22,3 @@ Vous vous demandez pourquoi tant de gens croient en de faux enseignants ? C’es
 La vérité est simple. La vérité est libre. La vérité est pour chaque homme et chaque femme. Connaissez Dieu, notre Père, et vous ne vous sentirez jamais seuls.
 
 Ton frère Jésus.
-
-
-

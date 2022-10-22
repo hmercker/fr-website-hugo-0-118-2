@@ -9,7 +9,7 @@ weight:
 ---
 ### Je suis la chaleur de ton cœur
 
-Marie - reçu par Enfant de Dieu le 18 Juillet 2012
+Marie - reçu par Enfant de Dieu le 18 Juillet 2012.
 
 C'est moi, Marie, la Mère de Jésus.
 
@@ -20,6 +20,3 @@ Tes enfants ont été pendant longtemps la chose la plus importante pour toi. Gr
 Tu te sens épuisée et tu as besoin de prendre soin de toi maintenant. J’ai encore beaucoup de choses à te dire et je le ferai lorsque tu seras en meilleure forme. Sache que je t’aime et que je suis là pour toi, si seulement tu me laisses faire.
 
 Mère Marie.
-
-
-

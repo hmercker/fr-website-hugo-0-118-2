@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde n’est qu’une illusion de notre imagination
 
-Yogananda - reçu par WV le 31 Mai 2014, Schoten, Belgique
+Yogananda - reçu par WV le 31 Mai 2014, Schoten, Belgique.
 
 Bonsoir mes chers et aimables amis. Je m’appelle Paramahansa Yogananda et j’ai l’honneur de m’adresser à vous ce soir.
 
@@ -30,10 +30,3 @@ Si vous réfléchissez à ce que je viens de dire, vous verrez que cela s’appl
 Rappelez-vous cela, la prochaine fois que quelqu’un vous contrarie, la prochaine fois que quelqu’un vous attriste, la prochaine fois que quelqu’un vous fait du mal. Le peuvent-ils vraiment ? Bien sûr que non, car vous êtes qui vous êtes et seul l’Amour peut vous voir tel que vous êtes. La seule façon de créer de la lumière, de l’amour, du bonheur et de l’harmonie dans vos vies, c’est d’être qui vous êtes vraiment, d’être l’amour.
 
 Je tiens à vous remercier pour l’opportunité de vous parler. Soyez bénis mes amis. Soyez celui que vous devez être, celui que vous êtes. Bonne nuit.
-
-
-
-
-
-
-

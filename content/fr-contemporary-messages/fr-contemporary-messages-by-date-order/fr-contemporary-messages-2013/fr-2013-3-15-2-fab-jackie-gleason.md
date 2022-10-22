@@ -9,7 +9,7 @@ weight:
 ---
 ### Les expériences d’un grand comédien, Jackie Gleason, comme esprit
 
-Jackie Gleason - reçu par FAB le 15 Mars 2013, Santa Cruz, Californie, USA.
+Jackie Gleason <sup id="a1">[1](#f1)</sup> - reçu par FAB le 15 Mars 2013, Berkeley, Californie, USA.
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-jackie-gleason-1-2013.jpg)
 
@@ -31,5 +31,6 @@ Le choix était le mien, et je l’ai pris. J’ai été affligé par mes péch�
 Voilà donc l’expérience d’un type qui n’a jamais eu de problème d’humilité.
 
 Je suis tellement heureux d’avoir pu transmettre tout cela, et oui, je veux que vous le diffusiez sur Internet.
+<small>
 
-**John Herbert Gleason** (26 Février 1916 – 24 Juin 1987) connu professionnellement comme Jackie Gleason fut un comique, acteur et musicien américain. Il fut connu pour son style de comédie visuelle et verbale effrontée, illustrée par son personnage Ralph Kramden dans The Honeymooners. Parmi ses rôles notables au cinéma, citons Minnesota Fats dans le drame The Hustler en 1961 (avec Paul Newman) et Buford T. Justice dans la série Smokey and the Bandit. (Source : Wikipedia)
+1. <large id="f1"> **John Herbert Gleason** (26 Février 1916 – 24 Juin 1987) connu professionnellement comme Jackie Gleason fut un comique, acteur et musicien américain. Il fut connu pour son style de comédie visuelle et verbale effrontée, illustrée par son personnage Ralph Kramden dans The Honeymooners. Parmi ses rôles notables au cinéma, citons Minnesota Fats dans le drame The Hustler en 1961 (avec Paul Newman) et Buford T. Justice dans la série Smokey and the Bandit. (Source : Wikipedia)[↩](#a1)

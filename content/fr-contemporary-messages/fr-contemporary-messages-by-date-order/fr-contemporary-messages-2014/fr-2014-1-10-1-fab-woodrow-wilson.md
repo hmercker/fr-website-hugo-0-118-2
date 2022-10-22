@@ -11,7 +11,6 @@ weight:
 
 Woodrow Wilson - reçu par FAB le 10 Janvier 2014, Santa Cruz, Californie, USA.
 
-
 C’est moi, Woodrow Wilson.
 
 J’ai fait référence dans mes canalisations passées à mon idéalisme, et pourtant vous lisez, dans The Untold History of the United States (l’histoire inédite) d’Oliver Stone et Peter Kuznick, une attitude réactionnaire après l’autre, que j’ai malheureusement eue.

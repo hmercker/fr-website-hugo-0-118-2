@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Tes prières ont été entendues
+### Tes prières ont été entendues <sup id="a1">[1](#f1)</sup>
 
-Martin Luther - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA
+Martin Luther - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA.
 
 Je suis ton ami et guide spirituel, Martin.
 
@@ -26,6 +26,7 @@ Mon message pour toi et pour tous les autres est bref : Apprenez la leçon de l�
 Nous sommes un, Joseph.
 
 Ton ami, Martin.
+<small>
 
-**Note du Webmaster du site New-Birth.net :** Ce message, les deux précédents communiqués également par Martin Luther et Anne Rollins ainsi que le suivant communiqué par Jésus, ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.
+1. <large id="f1"> Ce message, les deux précédents communiqués également par Martin Luther et Anne Rollins ainsi que le suivant communiqué par Jésus, ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.[↩](#a1)
 

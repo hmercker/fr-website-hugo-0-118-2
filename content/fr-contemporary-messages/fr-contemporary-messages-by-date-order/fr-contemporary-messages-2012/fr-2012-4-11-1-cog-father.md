@@ -9,8 +9,7 @@ weight:
 ---
 ### L’extraordinaire se cache dans l’ordinaire
 
-Père - reçu par Enfant de Dieu le 11 Avril 2012
-
+Père - reçu par Enfant de Dieu le 11 Avril 2012.
 
 Enfant de Dieu, tu ne peux pas croire ce que tu entends même si tu sens que c’est vrai. Tu dois cesser de comprendre avec ton mental et libérer ton âme. Je suis toujours là et tu me sens près de toi dans tes activités quotidiennes même lorsque tu ne peux pas capable écrire ce que tu entends. Parfois, tu changes les mots pour qu’ils te conviennent davantage et c’est bien ainsi, tant que le sens n’est pas déformé de quelque manière que ce soit. Et je te dirai si c’est le cas. Il est important que les mots te conviennent, car cette langue ne t’est pas totalement familière.
 

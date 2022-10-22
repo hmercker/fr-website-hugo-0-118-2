@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Monde de l’Illusion
 
-Père - reçu par Enfant de Dieu le 2 Décembre 2012
+Père - reçu par Enfant de Dieu le 2 Décembre 2012.
 
 Mon désir le plus profond est pour toi.
 
@@ -20,6 +20,3 @@ Votre message est le suivant : Je suis là. Je parle à ceux qui entendent. Je s
 Écoute-moi. Je suis là.
 
 Ton père.
-
-
-

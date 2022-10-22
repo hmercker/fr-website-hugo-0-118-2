@@ -60,3 +60,5 @@ Votre monde est une ombre du monde des esprits. Le monde des esprits est seuleme
 Je ne suis pas Jésus, mais tu me connais. J’ai passé beaucoup de temps avec toi, et tu connais mon identité.
 
 Que Dieu te bénisse.
+
+*© Geoff Cutler 2013*

@@ -9,7 +9,7 @@ weight:
 ---
 ### Lâche prise sur tes vieilles croyances
 
-Père - reçu par Enfant de Dieu le 2 Mai 2012
+Père - reçu par Enfant de Dieu le 2 Mai 2012.
 
 Tu es ici avec moi. J’aime beaucoup nos petites séances matinales.
 
@@ -35,9 +35,7 @@ La croyance ne te mènera nulle part à la fin. La croyance a toujours besoin de
 *Ou il vous apprendra à voler ».*
 
 Tu ne peux pas avoir ce que tu ne peux pas ressentir. Ton cœur doit être ton gardien. Ton esprit est son serviteur. Tu souhaites que nous parlions davantage de ce sujet et nous le ferons, mais un autre jour.
+
 Je t’aime comme toujours.
 
 Ton Père.
-
-
-

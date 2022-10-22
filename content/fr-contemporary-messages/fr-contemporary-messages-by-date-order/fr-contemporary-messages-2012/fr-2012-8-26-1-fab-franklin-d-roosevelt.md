@@ -9,7 +9,7 @@ weight:
 ---
 ### Clarification de FDR
 
-Franklin D Roosevelt - reçu par FAB le 26 Août 2012, Santa Cruz, Californie, USA
+Franklin D Roosevelt - reçu par FAB le 26 Août 2012, Berkeley, Californie, USA.
 
 C’est moi, Franklin Roosevelt.
 
@@ -18,6 +18,3 @@ Vous venez de lire que j’ai dit, à propos de la nomination de personnes liée
 J’avais une partie de moi avec le peuple, mais j’étais moi-même de l’élite. Je jouais dans les deux mondes.
 
 De plus, le personnel était recrutée parmi l’élite.
-
-
-
