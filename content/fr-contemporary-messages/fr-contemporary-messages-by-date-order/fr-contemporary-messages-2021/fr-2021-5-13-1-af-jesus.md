@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 13 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/spiritualite13.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/spiritualite-13.jpg)
 
 Âmes bien-aimées, je viens une fois de plus délivrer un message au monde. Aujourd’hui, je souhaite parler des luttes personnelles que beaucoup ont à mener pour comprendre et mettre en œuvre les désirs de leur âme en contradiction avec ce que sont souvent les désirs du mental.
 
