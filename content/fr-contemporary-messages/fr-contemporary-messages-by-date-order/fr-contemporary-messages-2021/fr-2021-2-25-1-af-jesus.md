@@ -90,7 +90,7 @@ C’est à l’humanité de s’élever au-delà de cette condition humaine et d
 Merci, âmes bien-aimées. Que Dieu vous bénisse profondément de Son Amour. Mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Ces questions ont été posées auparavant avec des informations légèrement différentes. Peut-être que l’apport humain des médiums est la cause de la différence ? Ou peut-être que le sujet est simplement un peu fluide ?.
+1. <large id=”f1”> Ces questions ont été posées auparavant avec des informations légèrement différentes. Peut-être que l’apport humain des médiums est la cause de la différence ? Ou peut-être que le sujet est simplement un peu fluide ?
 
 [1] [Jésus parle de l’avortement et de l’abandon d’enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/)
 [2] [Jésus parle de l’avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/)

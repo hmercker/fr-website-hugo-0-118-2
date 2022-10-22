@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 6 Août 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/eveil-spirituel2.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/eveil-spirituel2.jpg)
 
 Que Dieu vous bénisse et apporte Son Amour au plus profond de votre âme. Je suis Jésus et je viens une fois de plus pour parler des questions relatives à votre plan terrestre, pour inspirer ceux qui sont prêts à écouter mes paroles afin qu’ils puissent apporter des changements dans leur vie et dans ce monde.
 

@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 8 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/chaos-st-brieuc.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/chaos-st-brieuc.jpg)
 
 Je suis votre frère et ami, Jésus, et je viens vous encourager à creuser au plus profond de votre âme pour déterrer ces parties de vous-même qui désirent profondément les bénédictions de Dieu. C’est dans ce désir profond et sincère de Dieu que les puissantes bénédictions de Son Amour viennent en vous. Chacun d’entre vous continue sur ce chemin à sa manière et à son propre rythme, mais notre désir est que votre rythme s’accélère à chaque respiration, chaque jour, afin que vous puissiez vous rapprocher de votre Père Céleste, que vous puissiez vous trouver en plus grande harmonie avec tout ce qui est de la Création de Dieu et avec les lois de l’Amour de Dieu, afin que chaque jour, Dieu puisse utiliser vos dons et vos efforts pour être un instrument de lumière et d’amour, de guérison et de confort pour vos frères et sœurs. La lumière se répandra avec des actes d’amour, de bonté, en embrassant vos frères et sœurs, en mettant de côté vos propres jugements, et en permettant au grand Amour de Dieu de couler à travers vous sans entrave.
 

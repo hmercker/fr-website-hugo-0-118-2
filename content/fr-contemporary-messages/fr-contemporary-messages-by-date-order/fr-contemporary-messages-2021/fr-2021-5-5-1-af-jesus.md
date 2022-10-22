@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 5 Mai 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/lumiere-spirituelle1.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/lumiere-spirituelle1.jpg)
 
 Âmes bien-aimées, je suis Jésus. Je viens faire un commentaire sur une question que vous avez étudiée, à savoir vos efforts en matière de voix directe dans le monde. Il y a certains individus et groupes dans le monde qui sont sérieux dans ces efforts. Divers esprits du monde spirituel et certains d’entre nous qui sommes au Royaume Céleste travaillons avec ces individus afin de développer ce don. En effet, ces dons peuvent être d’une grande utilité pour vos efforts visant à enseigner à l’humanité le grand don de l’Amour Divin, car lorsque cela est fait aux niveaux les plus élevés, ceux d’entre nous qui sont au Royaume Céleste peuvent se matérialiser devant une foule d’individus en plein jour. C’est notre objectif et je sais que c’est le vôtre à cet égard.
 
