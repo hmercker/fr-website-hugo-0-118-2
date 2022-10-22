@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez l'essence divine de Dieu
 
-André - reçu par Al Fike le 11 Mai 2015, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 11 Mai 2015, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem. Lorsque j’étais sur Terre, je vivais dans ce que vous appelez l’Égypte, il y a de très nombreuses générations, lorsque mon pays et ma culture étaient à leur apogée, et j’ai étudié l’art de la guérison depuis très longtemps et je marche sur le Chemin Divin et j’habite le Royaume Céleste.
 
@@ -32,6 +32,3 @@ Vous êtes tous en voyage pour apprendre à vous connaître, à connaître votre
 Quelle est l’importance de ce don ? Et combien il est nécessaire que vous compreniez la puissance de ce don et que vous choisissiez. Dieu ne donne pas son amour à ceux qui ne choisissent pas de le recevoir. C’est votre choix. C’est votre prière. C’est votre désir ardent. Et au fur et à mesure que l’Amour s’écoule dans votre âme, il amène à votre conscience une plus grande conscience de ce qui n’est pas en harmonie avec cet Amour. Encore une fois, vous devez choisir de changer, de marcher dans une plus grande harmonie, d’être dans une condition d’Amour plus grande et plus élevée. Et de répondre aux besoins de vos corps qui permettraient une plus grande harmonie avec ce temple dans lequel Dieu a placé vos âmes.
 
 Oui, la vie n’est pas facile. Il y a beaucoup, beaucoup d’aspects de la vie qui défient chacun d’entre vous, et il y a beaucoup de gens autour de vous qui vous défient, et il y a beaucoup de besoins dans ce monde, un grand besoin et un désir de puiser en vous. Mes frères, mes frères et sœurs, écoutez mes paroles et comprenez que vous êtes vraiment aimés. Vous êtes vraiment aimés. Dans la grâce, dans la beauté, dans la paix de l’Amour de Dieu. Que Dieu vous bénisse.
-
-
-

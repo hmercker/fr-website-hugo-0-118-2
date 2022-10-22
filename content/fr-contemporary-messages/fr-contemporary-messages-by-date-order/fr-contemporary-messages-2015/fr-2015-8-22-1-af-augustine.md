@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour Divin est le chemin pour guérir le Monde
 
-Augustin - reçu par Al Fike le 22 Août 2015, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 22 Août 2015, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, mes âmes bien-aimées, c’est Augustin, votre enseignant, et je vous ai promis quelques commentaires sur les changements dans le monde et les changements dans vos âmes, alors je vais commencer.
 
@@ -46,6 +46,3 @@ Vous devez tous prier pour votre monde, pour tous vos frères et sœurs car ils 
 Je ne dis pas ces choses pour vous effrayer, mes bien-aimés, mais pour vous dire que Dieu veut que tous Ses enfants vivent dans un monde qui est beau et en équilibre. C’est censé être ainsi et vous, mes bien-aimés, vivrez dans ce monde, vous vous épanouirez et saurez avec une profonde sagesse ce que vous devez faire, car vos âmes informent vos esprits et Dieu informe votre âme. C’est simple, et pourtant, tellement illusoire pour beaucoup. Mais vous, mes bien-aimés, vous avez la clé, vous avez les dons, vous avez les capacités. Vous exercerez tout ce que vous êtes dans cette belle Lumière et vous trouverez l’épanouissement et un but profond de cette manière. En étant vraiment qui vous avez été créés pour être et en vivant comme vous êtes censés vivre. Des changements sont à venir, mais le changement est bon. Le changement apporte la guérison et différentes opportunités et changements dans la façon de penser et de faire. Le changement est bon. N’évitez pas le changement, mais accueillez-le avec amour, en sachant que c’est la guérison de Dieu pour le monde. Cela va apporter la Lumière à vos enfants et à leurs enfants à travers les générations d’enfants. Une grande guérison et un bel équilibre dans ce monde. Et toutes les créatures qui se cachent et ne prospèrent pas trouveront leur place dans ce monde une fois de plus et elles seront aimées. Tout ce monde sera aimé par tous ceux qui l’habitent. C’est le cadeau qui sera donné.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et qu’il vous garde toujours dans son attention, sa protection et son amour. Il sera donné à toute âme qui le désire. Que Dieu vous bénisse, mes bien-aimés. Votre maître Augustin vous aime. Je vous aime aussi. Que Dieu vous bénisse.
-
-
-

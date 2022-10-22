@@ -9,7 +9,7 @@ weight:
 ---
 ### L’amour est la chose la plus importante
 
-Confucius - reçu par Al Fike le 21 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 21 Mai 2014, Caloundra, QLD, Australie.
 
 Soyez bénis, mes enfants, c’est Confucius. Soyez bénis dans vos cheminements, dans vos efforts pour vous rapprocher du Père Céleste qui vous aime tant.
 

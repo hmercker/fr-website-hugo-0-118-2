@@ -9,7 +9,7 @@ weight:
 ---
 ### Il y a le destin sans avoir le destin
 
-Augustin - reçu par Al Fike le 24 Mars 2015, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 24 Mars 2015, New York, NY, USA.
 
 Mes âmes bien aimées, c’est votre maître, Augustin. Nous nous embarquons donc ensemble dans une autre aventure, qui s’ouvrira avec le temps sur un chapitre entier et de nombreuses séries d’événements que vous n’anticiperez pas mais qui se dérouleront au fur et à mesure que la volonté de Dieu se manifestera dans vos vies et en ce lieu. N’essayez pas d’anticiper ces événements mais acceptez et suivez votre guidance, permettez à ce flux de la volonté de Dieu de se manifester comme il se doit dans toute sa beauté, sa grâce et sa perfection. En effet, cet instrument a remercié Dieu pour toute la série d’événements qui l’ont amené ici, lui et sa chère compagne, et c’est une prière de gratitude perspicace car beaucoup de choses, beaucoup d’actes et d’actions ont dû se produire afin que vous arriviez à ce moment précis, et les anges sont en effet très occupés à orchestrer beaucoup, beaucoup de choses dans ce monde et parfois, pour permettre aux résultats nécessaires d’avoir lieu, il faut des routes détournées, plus de temps que prévu et différents acteurs.
 
@@ -28,6 +28,3 @@ Et vous, mes bien-aimés, au sein de vos âmes, vous savez que vous avez une par
 Chaque jour apporte ses défis et ses opportunités et chaque jour où vous surmontez ce qui vous retient dans la condition humaine, nous nous réjouissons lorsque vous vous tournez vers la lumière, lorsque vous aspirez au plus haut, lorsque vous suppliez votre Père céleste de recevoir Son Amour. Nous nous réjouissons et nous marchons avec vous sur ce chemin éclairé de grandes possibilités, d’événements merveilleux alors que la volonté de Dieu se déploie dans vos vies.
 
 Mes bien-aimés, bénissez-vous. Sachez que vous êtes vraiment aimées et dans les soins de Dieu. Soyez en paix et sachez que ce que vous faites ici est une étape de plus dans la manifestation de la volonté de Dieu et réjouissez-vous en cela, mes bien-aimés. Réjouissez-vous en cela. Car celui qui sert Dieu est puissamment béni. Dans le don vient la réception. Dans cet apprentissage et cette croissance vient le renforcement. Dans l’amour vient la connaissance sûre de la Vérité et la réunion joyeuse avec votre Père céleste. Continuez, mes bien-aimés, continuez. Une grande route vous attend, beaucoup de choses à faire et de nombreuses bénédictions à recevoir pour vous et pour tant d’autres. Que Dieu vous bénisse, votre enseignant Augustin vous aime et est souvent avec vous dans vos efforts. Soyez bénis.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### L’importance de permettre l’expiation de vos âmes dans l’Amour de Dieu
 
-André - reçu par Al Fike le 5 Janvier 2015, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 5 Janvier 2015, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Il y a beaucoup de détails et d’aspects de ce monde qui doivent être pris en charge pourtant ce sont vos âmes, mes bien-aimés, vos âmes qui crient pour avancer dans vos vies vers la progression spirituelle et vos efforts pour être un canal d’Amour pour les autres, pour marcher sur ce Chemin Divin sans encombre.
 
@@ -22,7 +22,3 @@ Ce chemin, mes bien-aimés, vous attend tous, ce processus de nettoyage et de pu
 Ne résistez pas aux changements qui s’opèrent en vous, mes bien-aimés, mais acceptez avec joie que Dieu vous change et que vous parveniez à la nouvelle naissance de votre âme, mes bien-aimés. C’est le plus grand cadeau de Dieu pour vous et en vous le donnant, vous apporterez la lumière dans le monde. Et en apportant la lumière dans le monde, vous apportez les possibilités d’expérimenter cette nouvelle naissance, ce réveil de l’âme.
 
 Beaucoup de choses vous attendent, mes bien-aimés. Le temps est court et le travail est grand. Préparez-vous, acceptez votre Père céleste de toutes les manières profondément et purement dans votre être. Acceptez dans l’amour votre Créateur. Des changements se produisent, mes bien-aimés, à la fois en vous et autour de vous. Marchez joyeusement sur votre chemin et Dieu vous conduira dans la lumière et vous accomplirez effectivement votre but. Beaucoup vous attend, beaucoup vous attend et vous êtes vraiment aimés. Que Dieu vous bénisse, mes bien-aimés. André est avec vous. Oui, je suis avec vous et je vous aime. Que Dieu vous bénisse.
-
-
-
-

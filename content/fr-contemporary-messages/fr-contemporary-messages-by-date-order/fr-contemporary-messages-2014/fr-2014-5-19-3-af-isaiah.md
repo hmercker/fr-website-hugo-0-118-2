@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous aurez besoin les uns des autres dans les temps à venir
 
-Isaïe - reçu par Al Fike le 19 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Isaïe - reçu par Al Fike le 19 Mai 2014, Caloundra, QLD, Australie.
 
 Enfants bien-aimés, porteurs de l’amour du Père en vous. Bénédictions pour vous, je suis Isaïe et je viens parler avec des mots d’amour et de reconnaissance de vos efforts et de vos âmes précieuses alors que vous marchez ce temps ensemble dans la prière et la conversation, alors que vous apprenez à vous connaître et à forger les liens de l’amour.
 

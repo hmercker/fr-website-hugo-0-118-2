@@ -9,7 +9,7 @@ weight:
 ---
 ### Recevoir l’amour
 
-Confucius - reçu par Al Fike le 17 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 17 Mai 2014, Caloundra, QLD, Australie.
 
 Vous avez faim de l’Amour du Père et chaque âme dans ce monde est digne de recevoir l’Amour de Dieu – cette bénédiction intérieure, mes enfants. Chaque âme qui supplie le Père de recevoir ce cadeau le recevra si elle prie sincèrement et envoie ses désirs au Créateur pour recevoir ce cadeau qui apportera la guérison et la paix, la transformation intérieure, et la joie, une joie profonde et durable, mes enfants.
 

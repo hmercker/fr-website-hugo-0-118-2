@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde change
 
-Alec Gaunt - reçu par Al Fike le 6 Juillet 2015, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 6 Juillet 2015, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, Alec. Dieu vous bénit mes amis et que vos âmes soient pleines à ras bord de l’Amour de Dieu. Vous avez discuté des changements sur la Terre et je suis triste de dire que ces changements vont continuer à s’accélérer. Le climat de ce monde va changer de façon dramatique, comme vous en avez déjà été témoins. La Terre va se réchauffer et cela déclenchera des réactions en chaîne qui feront fondre la glace et provoqueront un réchauffement supplémentaire et de plus grandes perturbations. Et le noyau même de la Terre est en train de se déplacer et de changer, ce qui provoquera de nouvelles perturbations.
 
@@ -24,6 +24,3 @@ Beaucoup de choses vous attendent. Nous, en esprit, sommes en alignement avec vo
 Beaucoup de choses n’en sont qu’à leurs débuts et il y a beaucoup plus à connaître et à apprendre. Il y a beaucoup plus d’Amour à avoir en vous, une expansion de votre conscience qui vient de l’âme remplie de l’Amour de Dieu, et nous vous assisterons à chaque étape du chemin, chaque respiration que vous prenez, chaque pensée que vous avez aura en elle une partie de notre influence, une graine de Vérité, un grain de Lumière.
 
 Continuez à prier, cherchez votre Père Céleste de tous vos cœurs et de toutes vos âmes, de toutes vos aspirations et de tous vos désirs, et il vous sera donné, et vous serez soutenus, et bénis puissamment, car votre temps est venu. Dieu vous donne ce dont vous avez besoin pour être Ses instruments de Lumière, de changement et d’Amour dans ce monde. Ouvrez vos oreilles, ouvrez vos yeux, priez vos prières avec un désir sincère et sérieux et mes mots sonneront vrai et vous arriverez à connaître votre vrai moi et votre vrai but dans ce monde. Que Dieu vous bénisse, votre ami bien-aimé Alec est toujours avec vous et je vous aime tendrement. Que Dieu vous bénisse.
-
-
-

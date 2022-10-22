@@ -9,7 +9,7 @@ weight:
 ---
 ### Détails de la vie de James Padgett
 
-James Padgett - reçu par Al Fike le 17 Juillet 2014, Gibsons, Colombie-Britannique, Canada.
+James Padgett - reçu par Al Fike le 17 Juillet 2014, Vancouver, Colombie-Britannique, Canada.
 
 Mes amis et compagnons de route sur la voie Divine, je vous envoie mes salutations de notre côté de la vie et mes salutations envers vos efforts visant à apporter les vérités de l’Amour de notre Père bien-aimé au reste du monde. Chacune et chacun d’entre vous qui êtes impliqués dans cette entreprise, en priant pour cet Amour et en répandant la bonne parole de son existence, est mon frère et sœur bien-aimé. Vous êtes engagés à poursuivre le travail commencé par mes collègues et moi-même toutes ces années en arrière. En fait, le travail a commencé avec notre Maître Jésus et fut complété des années plus tard, mais maintenant, nous, c’est à dire les esprits qui sont alignés avec vous sur la terre, nous témoignons une forme de renaissance pour apporter une fois de plus ces vérités à l’humanité. Nous travaillons ensemble pour renverser la marée des ténèbres et l’ignorance dont la majeure partie de l’humanité souffre depuis si longtemps. Nous commençons une nouvelle ère. Un temps où tous les peuples auront le choix de suivre les vérités de Dieu ou de continuer leurs méfaits et d’agir dans l’erreur. Dieu s’implique dans ce travail afin de faciliter la venue de nombreux résultats, miraculeux et effectifs dans les années à venir, qui étourdiront les têtes des personnes même les plus sceptiques. Vous ferez tous partie de ce travail si vous le souhaitez. C’est un mandat Divin qui attire chacune d’entre vous chères âmes à vous unir à cette cause d’apporter à l’humanité la clé de son salut.
 

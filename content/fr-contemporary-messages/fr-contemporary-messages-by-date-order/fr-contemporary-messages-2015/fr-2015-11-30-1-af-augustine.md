@@ -9,7 +9,7 @@ weight:
 ---
 ### Commencez à connaître votre but
 
-Augustin - reçu par Al Fike le 30 Novembre 2015, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 30 Novembre 2015, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, votre enseignant Augustin est avec vous dans vos prières du matin dans votre petit rassemblement d’Amour.
 
@@ -26,6 +26,3 @@ Et vous ne connaîtrez pas la peur, vous n’aurez pas peur d’être qui vous �
 Âmes précieuses, continuez dans vos prières, dans vos efforts pour atteindre Dieu et ouvrir vos âmes à Sa bénédiction, à Son Essence Divine. Il n’y a pas de plus grande quête. De cette façon, tout ce dont je parle sera révélé et exprimé et entrera dans votre réalité et vous serez guidés ainsi à travers votre vie. Vous marchez déjà fermement sur ce chemin de la vie divine, de la compréhension et de la révélation de la Vérité, de la connaissance de ce qu’est vraiment l’Amour, de ce qu’est vraiment Dieu, de ce que vous êtes vraiment. Vous continuez à progresser et nous continuerons à vous aider dans votre progression et nous ne vous quitterons jamais, mes bien-aimés, et nous ne vous avons jamais quittés, même ceux d’entre vous qui se sont sentis abandonnés n’ont pas été abandonnés car l’Amour de Dieu continue à brûler dans chaque âme de ce cercle et continuera pour toute l’éternité, mes bien-aimés, toute l’éternité. Car la puissance de cet Amour en vous vous amènera à votre harmonisation avec Dieu alors que vous marchez sur votre Chemin vers la Lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin a un grand, profond et durable amour pour chacun d’entre vous. Chaque belle âme de ce cercle. Je vous aime, je veille sur vous et je vous guide et vous êtes le cadeau de Dieu pour moi, d’avoir cette opportunité d’être l’une de vos lumières de guidage. C’est ma bénédiction et je m’en réjouis, âmes bien-aimées. Je m’en réjouis et je vous aime. Que Dieu vous bénisse.
-
-
-

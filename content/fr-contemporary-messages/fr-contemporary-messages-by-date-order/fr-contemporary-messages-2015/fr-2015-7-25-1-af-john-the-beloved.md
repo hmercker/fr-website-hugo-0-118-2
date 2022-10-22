@@ -9,9 +9,9 @@ weight:
 ---
 ### Les vents du changement soufflent sur ce monde
 
-Jean le Bien Aimé - reçu par Al Fike le 25 Juillet 2015, Gibsons, Colombie-Britannique, Canada
+Jean le Bien Aimé - reçu par Al Fike le 25 Juillet 2015, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/spiritualite-21.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-spiritualite-21.jpg)
 
 C’est Jean qui vous parle. Le Souffle de Dieu se déverse sur votre monde, mes bien-aimés. Son contact touche tout et Son Souffle se répand sur les sommets des montagnes et dans les vallées, les ruisseaux et les lacs, les océans, les créatures du monde. Toute la création dans ce monde, mes bien-aimés, est touchée par Dieu.
 
@@ -26,6 +26,3 @@ Il vient, le Souffle de Dieu se répand et affecte tout le monde et continuera �
 Âmes bien-aimées, vous êtes entourées d’anges, à chaque instant de votre vie, vous êtes entourées d’anges et la main de Dieu est sur vous. Marchez dans la connaissance sûre de cela, mes âmes bien-aimées, mes âmes bien-aimées et cherchez le Père Céleste en toutes choses, de toutes les manières, dans tout ce que vous faites, dans tout ce que vous êtes, soyez avec Dieu et Dieu vous montrera le chemin et nourrira votre âme avec Son Amour et marchera avec vous alors que vous vivez vos vies dans la Lumière et la plénitude, dans l’Amour et la beauté. Dieu vous bénit, mes bien-aimés, je suis Jean et je vous aime.
 
 Le Toucher de Dieu atteint vos âmes et des influx puissants de Son Amour s’ouvrent, mes bien-aimés, attirez-le en vous. C’est la manne du Ciel. Que Dieu vous bénisse.
-
-
-

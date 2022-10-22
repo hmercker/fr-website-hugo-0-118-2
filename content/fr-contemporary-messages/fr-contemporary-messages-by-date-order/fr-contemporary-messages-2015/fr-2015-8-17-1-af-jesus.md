@@ -9,9 +9,9 @@ weight:
 ---
 ###  Le monde s’approche rapidement d’une période de chaos
 
-Jésus - reçu par Al Fike le 17 Août 2015, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 17 Août 2015, Gibsons, Colombie-Britannique, Canada.
 
-!(https://lanouvellenaissance.files.wordpress.com/2021/08/chaos-st-brieuc.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-chaos-st-brieuc.jpg)
 
 Bénis soient les enfants qui cherchent à guérir ce monde,
 Bénis soient les enfants qui aspirent à l’Amour du Père,
@@ -57,6 +57,3 @@ Mes bien-aimés, le temps est compté. Il y a urgence et il y a nécessité de m
 Que Dieu vous bénisse, mes bien-aimés. J’espère que maintenant vous êtes en paix. J’espère que maintenant vous comprenez pourquoi vous avez été réunis. J’espère que vous pourrez travailler ensemble dans une harmonie aimante. Et chacun jouera son rôle, chacun apportera sa véritable personnalité, les dons de sa véritable âme dans ce grand effort pour guérir ce monde.
 
 Je suis Jésus, et je suis votre ami et votre frère, et je suis avec vous dans tout ce que vous faites, dans chaque effort que vous faites. Car c’est vraiment de l’origine de vos âmes et chaque effort que vous ferez dans ce sens sera vraiment béni. Marchez avec moi et j’éclairerai le chemin.
-
-
-

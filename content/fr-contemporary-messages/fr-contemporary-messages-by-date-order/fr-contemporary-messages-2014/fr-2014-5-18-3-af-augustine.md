@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher sur le chemin Divin
 
-Augustin - reçu par Al Fike le 18 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 18 Mai 2014, Caloundra, QLD, Australia.
 
 ’est André. Je viens vous bénir sur votre voyage et vos luttes pour recevoir l’Amour, pour marcher dans la lumière, pour arriver à connaître Dieu et toute Sa plénitude et beauté et amour et lumière.
 

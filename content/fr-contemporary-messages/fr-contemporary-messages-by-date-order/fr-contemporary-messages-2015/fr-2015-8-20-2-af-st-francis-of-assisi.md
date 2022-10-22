@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez un phare et une source de Lumière
 
-St François d'Assise - reçu par Al Fike le 20 Août 2015, Gibsons, Colombie-Britannique, Canada
+St François d'Assise - reçu par Al Fike le 20 Août 2015, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis François, connu sous le nom de Saint François d’Assise, et je viens à vous, mes frères et sœurs bien-aimés, pour vous encourager à construire dans votre vie des Cercles de Lumière, à construire tout autour de vous la Lumière, à être ce phare et cette source de Lumière comme les canaux du Père pour l’amour et la vérité, la paix et la guérison. J’ai quitté une vie remplie de toutes les richesses matérielles et de réconfort pour faire cela, pour communier avec Dieu. Pour repartir dans l’innocence dans mon amour pour mon Père Céleste, je me suis retiré. Et dans cet acte de rejet de la situation humaine qu’était ma vie, je me suis engagé envers mon Père Céleste à faire Sa Volonté, à être dans Sa Grâce, à aimer. Et en cela, mes dons ont fleuri et j’ai trouvé la satisfaction, j’ai trouvé la joie, j’ai trouvé la simplicité dans ma vie, et toutes ces choses qui m’en ont empêché sont tombées et j’ai connu profondément mon Dieu qui m’aimait.
 
@@ -20,7 +20,3 @@ Vous ne devez pas douter de vous, mes bien-aimés. Vous ne devez pas vous remett
 Beaucoup d’entre vous voient à travers les yeux de vos pensées et ce que vous voyez n’est pas tout à fait la Vérité. Mais quand les yeux de vos âmes s’ouvriront, quand les facultés de vos âmes fonctionneront de manière consciente, le monde prendra un autre aspect. Vous marcherez différemment dans le monde. Ce que vous désirez maintenant, vous ne le désirerez pas en ces temps-là, et ce que vous faites maintenant, vous ne le ferez pas en ces temps de grâce et d’harmonie. Vous saurez, à partir d’un lieu de sagesse et de vérité, ce que vous êtes destinés à faire dans ce monde et vous aurez un sentiment profond et durable de paix et de joie.
 
 Tout ceci vous attend, mes bien-aimés. Les anges sont prêts à vous porter, à vous inspirer, à vous aider et à vous assister dans ce voyage de découverte. Le Chemin est éclairé. Il est droit. Vous devez simplement mettre un pas devant l’autre en vous libérant de votre manteau, et en étant nus dans la Lumière de l’Amour de Dieu, sachant que, dans cette innocence, vous découvrirez tout et tout viendra à vous. Vous serez en sécurité. Vous serez sécurisés dans le flot de l’Amour de Dieu. Vous serez qui vous êtes, que vous êtes une belle âme qui attend de s’exprimer dans votre être et dans l’être de Dieu. Que Dieu vous bénisse, mes bien-aimés, je suis François et je vous aime, et j’aime ce monde avec toutes ses belles créatures, tout ce que Dieu a créé. Aimez ce monde, mes bien-aimés. Aimez ce monde, car l’œuvre de Dieu est grande et belle. Que Dieu vous bénisse, que Dieu vous bénisse, je suis François et je vous aime. Que Dieu vous bénisse.
-
-
-
-
