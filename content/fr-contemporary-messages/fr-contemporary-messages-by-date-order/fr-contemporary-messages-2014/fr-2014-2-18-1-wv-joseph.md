@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Récupérer des souvenirs traumatiques
+### Récupérer des souvenirs traumatiques <sup id="a1">[1](#f1)</sup>
 
-Joseph - reçu par WV le 18 Février 2014, Schoten, Belgique.
+Joseph - reçu par WV le 18 Février 2014, Gavere, Belgique.
 
 C’est moi, Joseph.
 
@@ -30,7 +30,6 @@ Les souvenirs doivent être vides d’émotions, ce qui ne veut pas dire qu’il
 L’amour est une énergie universelle qui résonne dans toute création. **Ce n’est pas une émotion**, qui peut être aussi volatile que l’acétone, c’est une énergie qui imprègne tout dans l’univers, qui est présente dans tout et qui existera toujours. C’est une énergie qui n’est pas créée par l’esprit de l’homme (comme une émotion) mais qui est intrinsèque à l’existence de l’âme, qu’il s’agisse d’amour naturel ou d’Amour divin. L’âme est toujours la source de l’amour. L’amour ne peut être créé par l’esprit, seules les émotions le peuvent. **Et l’âme ne peut pas créer d’émotions**, seul le mental le peut. Vous voyez donc à quel point c’est simple, comme toujours. La vérité n’est jamais difficile à comprendre, vous devez seulement être ouvert pour la recevoir et utiliser votre esprit seulement pour traduire ce que nous vous disons, c’est tout.
 
 Je t’aime mon cher ami et je sais que tu peux le sentir. Que Dieu bénisse ton ouverture à la réception. Que Sa Lumière brille à travers toi et illumine cet univers. Je suis ton ami Céleste, Joseph, père de Jésus.
+<small>
 
-Ce message aborde de nombreuses choses qui m’ont laissé perplexe ces derniers temps. Tout d’abord, il y avait évidemment la question de savoir s’il fallait revoir ces souvenirs pour être guéri de leurs effets.
-
-La deuxième question, qui n’a pas été posée, est celle de savoir **QUAND** cela doit se produire. Il est très clair qu’il y a un bon moment pour le faire, et que cela nécessite une certaine maturité spirituelle. Il est également évident que ce n’est pas la première étape sur le chemin de la croissance spirituelle, comme certains le suggèrent et l’enseignent.
+1. <large id="f1"> Ce message aborde de nombreuses choses qui m’ont laissé perplexe ces derniers temps. Tout d’abord, il y avait évidemment la question de savoir s’il fallait revoir ces souvenirs pour être guéri de leurs effets. La deuxième question, qui n’a pas été posée, est celle de savoir **QUAND** cela doit se produire. Il est très clair qu’il y a un bon moment pour le faire, et que cela nécessite une certaine maturité spirituelle. Il est également évident que ce n’est pas la première étape sur le chemin de la croissance spirituelle, comme certains le suggèrent et l’enseignent.[↩](#a1)

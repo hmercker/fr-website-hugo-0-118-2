@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chemin le moins parcouru et conseils pour le voyage
 
-Augustin - reçu par Al Fike le 18 Août 2015, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 18 Août 2015, Gibsons, Colombie-Britannique, Canada.
 
 C'’est votre enseignant Augustin. Il vous a été donné beaucoup de choses ces derniers jours, beaucoup de conseils et beaucoup de bénédictions. Vos âmes rayonnent de l’amour que vous avez reçu, et celui-ci continuera à vous guider et à vous soutenir dans le développement de votre âme et dans l’épanouissement de ces facultés de l’âme qui sont enflammées par cet amour. Chacun de vous recevra des copies de ces messages qui ont été donnés ces derniers jours. Je vous demande de lire et de relire ces messages, car je vous promets qu’à chaque fois que vous lirez ces informations, vous en tirerez quelque chose de nouveau. Il y a beaucoup de choses dans ces messages, beaucoup de choses dans les mots que nous avons prononcés, et il faut du temps pour que l’âme laisse pénétrer dans la conscience de votre esprit la signification de ces mots et la profondeur de ce qui est communiqué par les anges.
 
@@ -26,6 +26,3 @@ C’est un chemin qui est rarement emprunté, mes bien-aimés, mais c’est un c
 C’est la voie du monde. Ce n’est pas ce qui doit être dans ce monde, mais c’est ce qui est dans ce monde. Et c’est pourquoi Dieu envoie Ses anges pour vous soutenir, pour vous apporter leur lumière, Sa sollicitude aimante, afin que vous ayez le soutien et l’aide pour surmonter les difficultés de cette vie et pour construire en vous-mêmes une lumière si brillante et si belle que vous rayonnerez dans ce monde et apporterez à beaucoup le réconfort, la vérité et l’amour. Cherchez le Royaume, mes bien-aimés, et tout viendra à vous. L’amour de Dieu se déverse en vous. Sa grâce vous apporte la paix et la consolation. Sa sollicitude vous porte à travers toutes les conditions de ce monde, et Dieu ne vous abandonne jamais. Dieu est toujours avec vous. Soyez avec Dieu, mes bien-aimés. Soyez avec Dieu et la vraie et profonde compréhension sera vôtre.
 
 Que Dieu vous bénisse, votre enseignant Augustin continuera à être avec vous et à vous aider dans votre voyage, car je vous aime profondément et je serai là, je serai avec vous dans mon amour, comme beaucoup d’autres, que Dieu vous bénisse.
-
-
-

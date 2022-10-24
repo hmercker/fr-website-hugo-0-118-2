@@ -9,7 +9,7 @@ weight:
 ---
 ### Marchez dans la lumière
 
-Jean le Bien Aimé - reçu par Al Fike le 21 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Jean le Bien Aimé - reçu par Al Fike le 21 Mai 2014, Caloundra, QLD, Australie.
 
 Chères âmes bien-aimées, vous marchez dans la lumière en ce jour, et vous priez en présence de notre Père bien-aimé qui vous aime tant et vous embrasse de Son Amour. Respirez cet amour, qu’il repose dans cet endroit profond en vous et permettez à son toucher de vous transformer et de faire de vous son enfant précieux, car vous êtes sa création bien-aimée, digne de toutes les bénédictions, de tout l’amour, de toute la guérison, de toute la paix que vous pouvez vous permettre de recevoir.
 

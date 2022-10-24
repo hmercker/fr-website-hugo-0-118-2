@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### « S’aimer les uns les autres »
+### « S’aimer les uns les autres » <sup id="a1">[1](#f1)</sup>
 
 St François d'Assise - reçu par  James Reid le 26 Mai 2014, Caloundra, QLD, Australie.
 
-*Chers amis Bonjour. J’essaie toujours de me mettre en règle après le rassemblement et tout ce qui se passe. J’ai eu connaissance des bribes de communication avec vous et de quelques messages plus longs. Certaines fois j’ai eu l’impression que vous vouliez prendre la parole et je n’ai pas parlé en votre nom. J’estime que la réunion s’est bien déroulée et a soulevé de nombreuses questions de la part des participants. Je pense que vous avez des messages pour ceux qui étaient là et que nous les écrirons la prochaine fois. J’ai l’impression que je serai si occupé pour les temps à venir que je me demande quand viendra le moment. Cependant, je suis certain que nous nous en sortirons bien. (Propos de James)*
+*[Chers amis Bonjour. J’essaie toujours de me mettre en règle après le rassemblement et tout ce qui se passe. J’ai eu connaissance des bribes de communication avec vous et de quelques messages plus longs. Certaines fois j’ai eu l’impression que vous vouliez prendre la parole et je n’ai pas parlé en votre nom. J’estime que la réunion s’est bien déroulée et a soulevé de nombreuses questions de la part des participants. Je pense que vous avez des messages pour ceux qui étaient là et que nous les écrirons la prochaine fois. J’ai l’impression que je serai si occupé pour les temps à venir que je me demande quand viendra le moment. Cependant, je suis certain que nous nous en sortirons bien. (Propos de James)]*
 
 Bonjour mon cher frère. Le travail que vous avez tous investi dans le Rassemblement porte beaucoup de fruits et continuera à le faire pendant encore longtemps. Tous ceux qui étaient là, peu importe le moment où ils étaient présents, sont partis avec beaucoup de choses à considérer et à régler. Ce fut vraiment un lieu d’apprentissage pour tous ceux qui étaient présents, dans la mesure où ils ont permis que cela se produise. Rassembler un groupe de personnes en un seul endroit est toujours une expérience car il n’y a aucune certitude quant au résultat, même si nous sommes très actifs pour sa réussite. Le libre arbitre humain est un élément puissant de la vie et ne doit jamais être nié ou ignoré. Vous avez également parlé du discernement, et il s’agit d’un élément important dans la croissance et le développement de chacun.
 
@@ -40,7 +40,6 @@ Veuillez recevoir mes paroles dans l’esprit avec lequel elles sont données et
 Nous soutiendrons tous vos futurs projets. Nous avons le grand désir de vous aider à construire la meilleure structure possible qui a besoin d’avoir la plus grande pureté que vous pouvez lui donner, ce qui signifie le faire de l’intérieur de votre moi individuel.
 
 Je suis François, je vous aime et je vous bénis tous.
-<sup id="a1">[1](#f1)</sup>
 <small>
-1. <large id="f1"> xxx[↩](#a1)
-**Note :** Ce message a été reçu après la Retraite Australienne.
+
+1. <large id="f1"> Ce message a été reçu après la Retraite Australienne.[↩](#a1)

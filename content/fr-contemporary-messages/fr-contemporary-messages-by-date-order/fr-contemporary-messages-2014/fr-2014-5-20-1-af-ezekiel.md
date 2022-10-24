@@ -9,7 +9,7 @@ weight:
 ---
 ### Heureux ceux qui sont prêts à aimer
 
-Ezéchiel - reçu par Al Fike le 20 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Ezéchiel - reçu par Al Fike le 20 Mai 2014, Caloundra, QLD, Australie.
 
 Dieu vous bénit et vous conduit vers une plus grande lumière et une compréhension plus complète de votre Père Céleste qui vous tend la main à chaque respiration que vous prenez. Son Amour vous atteint et vous enveloppe et le Père est impatient que vous respiriez cet Amour, que vous priiez pour cet Amour, que vous absorbiez cet Amour afin qu’il devienne un afflux constant dans vos âmes ; une lumière intense et brillante autour de vous, âmes bien-aimées et belles.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Êtes-vous prêts à faire briller votre lumière dans les moments d’obscurité ?
 
-Yogananda - reçu par WV le 6 Septembre 2014, Schoten, Belgique.
+Yogananda - reçu par WV le 6 Septembre 2014, Frankfurt, Allemagne.
 
 Bonsoir mes amis. Je m’appelle Paramahansa Yogananda.
 

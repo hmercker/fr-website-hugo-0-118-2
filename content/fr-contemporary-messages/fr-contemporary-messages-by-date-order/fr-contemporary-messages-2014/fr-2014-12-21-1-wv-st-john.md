@@ -9,13 +9,13 @@ weight:
 ---
 ### Volonté et Libre Arbitre et le sens de 666
 
-St Jean - reçu par WV le 21 Décembre 2014, Schoten, Belgique.
+St Jean - reçu par WV le 21 Décembre 2014, Anvers, Belgique.
 
 Rebonjour, mon ami. Je suis très heureux de voir que tu profites de moments comme celui-ci, de façon à ce que nous puissions aider à clarifier les choses dont nous parlons et que tu as appris à voir comme des occasions (de croître et de progresser), et non comme une nuisance ; aussi dans l’espoir que d’autres en bénéficieront eux aussi.
 
 Tu savais, au moment où nous avons commencé à expliquer la notion de « libre arbitre », que (certaines) personnes ne seraient pas en accord avec ce que nous vous avons dit ; tu n’étais même pas sûr à 100 % de vraiment croire à ce que nous vous avons dit. C’est seulement quand, par la suite, je t’ai dit que cette (phrase précédente) était la raison pour laquelle tu devais croire (parce que ce que tu « crois » n’était pas conforme à 100 % à ce que nous avons écrit), que tu as commencé à l’accepter ; et puis nous avons pu te transférer une grande quantité d’informations afin que tu puisses voir l’image plus grande derrière elle.
 
-*[Oui, tu avais tout d’abord besoin d’une meilleure ouverture, afin que nous puissions transmettre cette information.*
+*[Oui, tu avais tout d’abord besoin d’une meilleure ouverture, afin que nous puissions transmettre cette information.]*
 
 Il est très important de comprendre qu’il existe une grande différence entre la « volonté » et le « libre arbitre ». **La volonté** est ce que nous appelions le principe du choix dans notre [message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-10-1-wv-john/) : c’est chaque possibilité, choix et action exécutable dans le cadre de l’amour. Le libre arbitre c’est la même chose, mais avec l’ajout d’être capable de se déplacer en dehors des lois de l’amour (ou des lois de l’âme).
 
@@ -37,17 +37,17 @@ Maintenant, en plus de te donner la signification vraie derrière l’histoire d
 
 Bien, la raison pour cela est due à a différence entre volonté et libre arbitre. Le libre arbitre – la capacité de choisir de ne pas vivre selon les lois de l’amour (ou les lois de l’âme) – est la raison pourquoi il est possible pour l’homme naturel parfait (et tout le monde sous ce niveau) de devenir de nouveau moins aimant. En particulier dans le physique, où la puissance du libre arbitre et ses effets ne sont pas aussi ouvertement exprimées (ou ressenties) que dans le monde des esprits. Mais, à ta surprise, c’est aussi le cas dans le monde des esprits. Alors, oui, il est possible (en théorie) pour une personne, dans le monde des esprits, de régresser.
 
-*(Oh boy.)*
+*[Oh boy.]*
 
-[Rires]. Je comprends ta réaction.
+*[Rires.]* Je comprends ta réaction.
 
-(Je peux déjà imaginer comment certains vont réagir à cela. LOL.)
+*[Je peux déjà imaginer comment certains vont réagir à cela. LOL.]*
 
 [Rires encore.] Alors, pourquoi est-ce que je dis théoriquement ? Parce que les réactions (ou les effets) dans le monde des esprits sont si directement et ouvertement ressentis que ceux qui ont progressé dans leur vie n’ont pas envie de régresser vers une vie moins dominée par l’amour. Seuls ceux qui sont dans une mauvaise passe y resteront souvent plus longtemps que nécessaire, parce qu’ils choisissent de continuer à utiliser leur libre arbitre pour continuer à vivre sans amour comme ils en ont l’habitude (en se moquant des autres, essayant d’inciter d’autres à faire de mauvaises choses etc..).
 
 Mais la preuve de la capacité de l’esprit à une régression peut être trouvée dans des histoires comme l’histoire de l’héritage des défauts des parents et des grands-parents et dans l’histoire de la régression des premiers parents, Aman et Amon, ou dans l’histoire du nombre de la bête, comme nous venons de te l’expliquer, puisque toutes les âmes s’incarnent dans leur état ou condition vierge mais presque aucune ne peut maintenir cet état. Et quand la régression dans le physique a lieu, la régression dans l’esprit est également un fait considérant qu’ils sont dans la synchro. Autrement l’homme qui a vécu une vie sans amour se trouverait dans la sixième sphère après avoir laissé sa vie physique ; ce qui n’est pas du tout le cas.
 
-Quand tu prêtes attention à ce que j’ai dit au début – qu’aucun ange n’est jamais tombé hors du ciel ou a régressé aux sphères inférieures – tu devrais commencer à comprendre pourquoi cela ne sera jamais possible : parce qu’une fois entré dans les sphères célestes (ou de l’âme), la possibilité de choisir ou agir en dehors de la portée (l’énergie que nous appelons) de l’amour, n’est plus possible.<sup id="a2">[2](#f2)</sup>: c’est à dire que le libre arbitre (comme nous le connaissons) n’existe plus, puisqu’il a atteint son objectif et n’est plus nécessaire. Cela ne signifie pas qu’on deviendra un esclave de Dieu sans avoir la capacité de choisir librement. Cela signifie devenir un avec lui, en étant capable de choisir librement, mais en choisissant  et agissant dans les limites de l’amour.
+Quand tu prêtes attention à ce que j’ai dit au début – qu’aucun ange n’est jamais tombé hors du ciel ou a régressé aux sphères inférieures – tu devrais commencer à comprendre pourquoi cela ne sera jamais possible : parce qu’une fois entré dans les sphères célestes (ou de l’âme), la possibilité de choisir ou agir en dehors de la portée (l’énergie que nous appelons) de l’amour, n’est plus possible <sup id="a2">[2](#f2)</sup>: c’est à dire que le libre arbitre (comme nous le connaissons) n’existe plus, puisqu’il a atteint son objectif et n’est plus nécessaire. Cela ne signifie pas qu’on deviendra un esclave de Dieu sans avoir la capacité de choisir librement. Cela signifie devenir un avec lui, en étant capable de choisir librement, mais en choisissant  et agissant dans les limites de l’amour.
 
 S’il avait été possible de toujours choisir ou agir en dehors de la portée de l’amour (= d’utiliser le libre-arbitre) après être devenu un ange céleste, l’histoire de « Satan » (ou « Lucifer ») serait exacte ou du moins possible ou plausible. Mais la raison pourquoi nous avons dit (tant de fois avant) que ce n’est absolument pas possible, c’est en raison de cette vérité liée au libre arbitre.
 
@@ -58,8 +58,6 @@ Quant à ce qui arrive à un homme quand il meurt et devient esprit, alors il en
 Ainsi les spéculations de certains des esprits dans la sixième sphère qu’un jour, peut-être,  le corps-esprit pourrait ne plus exister – comme le corps physique a cessé d’exister (pour eux) – sont vraies. Car seulement l’âme a une importance dans la vie éternelle ; tout le reste nous nous en souviendrons seulement comme une vague illusion de ce qui fut autrefois.
 
 Je suis heureux que nous ayons eu l’occasion de partager nos connaissances de nouveau avec toi . Je te remercie pour le temps et les efforts que tu y consacres. Que Dieu te bénisse mon ami. Je te souhaite de belles et agréables (affectueuses) vacances, profite de ton temps sur cette terre. Jean
-
-**Notes du Webmaster du site New-Birth.net :** 
 <small>
 
 1. <large id=”f1”> Je dois avouer que, pour autant que je suis concerné, ce message est un exemple parfait de cela. Dans nos échanges avec le médium, il n’a pas été utilisé le mot « Satan » d’une manière autre que celle utilisée par les Chrétiens orthodoxes, c’est à dire pour désigner une entité maléfique égale en puissance (ou presque) à Dieu. Étant un "elevenelevener" (adepte du groupe [11:11](http://board.1111angels.com/index.php)), j’ai une opinion très différente sur ce sujet.[↩](#a1)

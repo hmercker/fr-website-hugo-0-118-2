@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque âme humaine est endommagée par la condition de la Terre et doit être guérie
 
-André - reçu par Al Fike le 27 Mars 2015, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 27 Mars 2015, New York, NY, USA.
 
 Je suis André. Chaque âme a une douleur et des blessures profondes et durables à l’intérieur. Chaque âme que nous rencontrons, chaque individu qui marche sur cette Terre est blessé par les conditions créées par l’humanité au cours de millénaires d’erreurs, d’abus et de suppression. Que cette âme soit dans la pauvreté et le dénuement ou dans la grande richesse, il y a un besoin de guérison, un besoin de confort, d’amour, et en tant que tel, où que vous vous tourniez, il y a une opportunité d’être un canal d’Amour.
 
@@ -28,6 +28,3 @@ Ces efforts de guérison intérieure ont de grandes conséquences pour votre vie
 Chaque jour apporte une nouvelle épreuve et une nouvelle récompense et une nouvelle opportunité de grandir et de s’étendre dans cet Amour. Et certains jours, vous ressentez la lourdeur de cette douleur, tandis que d’autres jours, vous êtes dans la félicité. Et cela reste un mystère pour vous, mes bien-aimés, pourquoi il en est ainsi. Mais les conditions au sein de votre âme se manifestent dans votre conscience et vous causent parfois de la détresse, un rappel qu’il y a plus de guérison à faire. Désirez donc être complètement dans l’Amour de Dieu, car le processus d’expiation de l’âme doit faire partie de votre voyage.
 
 C’est la vérité, mes bien-aimés. Et vous devez être honnêtes avec Lui, reconnaître ces parties qui vous retiennent, reconnaître que pour être ce canal clair d’Amour, ces éléments intérieurs qui bloquent le passage, qui inhibent l’Amour, doivent être nettoyés.
-
-
-

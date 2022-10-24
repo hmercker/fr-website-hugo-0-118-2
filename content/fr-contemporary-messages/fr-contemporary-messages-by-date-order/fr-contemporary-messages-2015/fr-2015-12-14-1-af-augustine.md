@@ -9,7 +9,7 @@ weight:
 ---
 ### Libre arbitre contre Volonté de Dieu
 
-Augustin - reçu par Al Fike le 14 Décembre 2015, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 14 Décembre 2015, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse mes bien-aimés, c’est votre enseignant Augustin.
 
@@ -28,6 +28,3 @@ Vous avez été mis au défi, appelés, préparés, nourris et aimés – et il 
 Mes chères âmes bien-aimées, vous continuerez à grandir, à rechercher l’Amour de Dieu, à libérer toutes les barrières à cet Amour, à absorber la Vérité qui vient avec cet Amour, à changer au sein de votre conscience et à voir le monde, à vous voir vous-mêmes, à voir votre but, à voir ce qui est significatif et vrai depuis un endroit différent, depuis vos âmes. Et cela se produit, mes bien-aimés, vous pouvez le sentir, je sais que vous le pouvez, nous pouvons sentir le changement en vous, nous le percevons, nous voyons la Lumière grandir dans vos êtres et nous voyons comment Dieu vous touche de manière puissante et vous aide à libérer l’ancien, à apporter le nouveau, à être transformé et renouvelé.
 
 Bien-aimés, nous nous réjouissons de ces changements, de cette croissance, de votre capacité à aimer et nous marchons avec vous, toujours à vos côtés, toujours dans le flux de l’Amour de Dieu. Bien-aimés, puissiez-vous continuer à marcher dans cette Lumière, il est si important que vous le fassiez, et que vous rassembliez les âmes qui cherchent et sont impatientes, et vous le ferez et les portes s’ouvriront. Oui, beaucoup viennent. Dieu vous bénisse, mes bien-aimés, votre enseignant Augustin vous aime tendrement. Merci de m’avoir écouté.
-
-
-

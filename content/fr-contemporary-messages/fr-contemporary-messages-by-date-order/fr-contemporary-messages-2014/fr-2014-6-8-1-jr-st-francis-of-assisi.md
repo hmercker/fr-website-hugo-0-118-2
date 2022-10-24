@@ -9,9 +9,9 @@ weight:
 ---
 ### Vivre dans l’Amour
 
-St François d'Assise - reçu par  James Reid le 8 Juin 2014, Caloundra, QLD, Australie.
+St François d'Assise - reçu par  James Reid le 8 Juin 2014, Sydney, NSW, Australie.
 
-*Chers amis Bonjour. Je ne me sens pas très bien, mais je ressens le besoin de vous écrire car il semble se passer tellement de choses. Beaucoup résulte du rassemblement qui produira probablement beaucoup de changements en chacun de nous. Il y a beaucoup de curiosité au sujet de vos remarques, Francis, en ce qui concerne le rassemblement et j’aimerais que, si possible, vous développiez. Beaucoup considèrent vos commentaires comme certainement des plus importants parmi ceux qui ont été reçus ces derniers temps. (Propos de James)*
+*[Chers amis Bonjour. Je ne me sens pas très bien, mais je ressens le besoin de vous écrire car il semble se passer tellement de choses. Beaucoup résulte du rassemblement qui produira probablement beaucoup de changements en chacun de nous. Il y a beaucoup de curiosité au sujet de vos remarques, Francis, en ce qui concerne le rassemblement et j’aimerais que, si possible, vous développiez. Beaucoup considèrent vos commentaires comme certainement des plus importants parmi ceux qui ont été reçus ces derniers temps. (Propos de James)]*
 
 Bon après-midi cher frère. Je suis heureux que [mes commentaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-26-1-jr-st-francis-of-assisi/) ont suscité une réponse. Comme je l’ai dit antérieurement le message est important et doit être pris en considération. Il existe des guides tout à fait fondamentaux de la vie humaine qui ont été méprisés et ignorés pendant de longues années, ce qui a conduit à l’ampleur des conflits qui sévissent actuellement sur terre, au détriment de chaque personne. Comme nous le soulignons constamment, tout ce que toute personne fait se fait en elle, mais influence le tout et cela a toujours été et sera toujours ainsi. N’importe quel conflit et jugement que toute personne porte contribue à l’agitation et au mal-être de la planète.
 

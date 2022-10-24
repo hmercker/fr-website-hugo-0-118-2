@@ -9,7 +9,7 @@ weight:
 ---
 ### La loi de la création et Sathya Sai Baba
 
-Sri Yarisupta - reçu par WV le 4 Février 2014, Schoten, Belgique.
+Sri Yarisupta - reçu par WV le 4 Février 2014, Frankfurt, Allemagne.
 
 Je suis ici, votre ami et votre aide, Sri Yukteswar. Je suis venu parce que je voulais répondre à la question de savoir qui était (Sathya) Sai Baba.
 

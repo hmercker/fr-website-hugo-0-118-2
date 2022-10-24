@@ -9,7 +9,7 @@ weight:
 ---
 ### Priez pour l’amour tous les jours
 
-Jésus - reçu par Al Fike le 17 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 17 Mai 2014, Caloundra, QLD, Australie.
 
 C’est Jésus, oui je suis Jésus de la Bible, et Maître des Cieux Célestes <sup id=”a1”>[1](#f1)</sup>. Je suis heureux que vous soyez venus ensemble pour prier pour l’Amour de Dieu, pour être ensemble dans la paix et l’harmonie, pour partager les uns avec les autres de manière aimante, et pour avoir confiance qu’ensemble vous trouverez votre chemin vers Dieu, avec certaines des réponses que vous cherchez qui viendront à vous.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le conflit entre les pensées et l’âme
 
-Augustin - reçu par Al Fike le 18 Mai 2015, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 18 Mai 2015, Gibsons, Colombie-Britannique, Canada.
 
 Reconnaissez-vous vos deux moi, celui qui est humain et celui qui est votre âme ? Lorsque vous naissez, ces deux moi sont distincts et, à mesure que vous grandissez dans ce monde, la plupart des humains développent les qualités humaines, l’amour naturel, le mental, les appétits de la chair. Et ceux-ci s’endurcissent en vous, exerçant une grande et constante influence sur votre être. Pourtant, vous vous êtes réunis pour développer vos âmes, pour chercher l’ascension de vos âmes en vous en recevant l’Amour et l’abondance de Dieu, en faisant de votre relation avec Dieu la première et la plus importante partie de vous-mêmes, et c’est ce que nous, qui sommes avec vous dans l’Amour et le soutien, continuons à vous encourager à faire. Nous marchons avec vous chaque jour. Nous sommes avec vous dans vos prières. Nous prions pour vous et nous faisons nos efforts pour vous soutenir et vous enseigner.
 
@@ -24,6 +24,3 @@ Bien-aimés, nous vous aimons tendrement et nous savons que vous faites de grand
 Choisissez-vous l’Amour ? Ou choisissez-vous ces conditions humaines en vous qui ne sont pas toujours aimantes ? Le Chemin Divin n’est pas pour les faibles, mes bien-aimés, vous devez être forts. Et il y a de la force en chacun de vous, une grande force et une grande conscience et sensibilité et connaissance de la Vérité. Utilisez les ressources qui sont en vous et l’aide qui vous est donnée par votre Père Céleste pour vous élever au-dessus des conditions de ce monde et être ce canal d’Amour clair et beau que vous êtes censés être et avec chaque pas vers ce but, de grandes bénédictions seront données et l’harmonie se construira en vous et la joie dans votre âme deviendra une partie consciente et éternelle de vous.
 
 Mes bien-aimés, je suis si heureux de vous voir unis dans vos efforts, dans votre désir d’accomplir ce travail et d’être ces canaux d’amour. Je dis ces mots pour vous encourager et vous rappeler ce qui est requis pour marcher dans cette voie afin d’atteindre un endroit plus élevé. Enfants bien-aimés, enfants bien-aimés, vous êtes aimés. Dieu vous bénit. Votre professeur Augustine vous aime. Que Dieu vous bénisse. Reconnaissez-vous vos deux moi, celui qui est humain et celui qui est votre âme ?
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Où sont mes propres limites ?
 
-Joseph - reçu par WV le 6 Septembre 2014, Schoten, Belgique.
+Joseph - reçu par WV le 6 Septembre 2014, Frankfurt, Allemagne.
 
 Bonsoir mes chers amis. C’est un plaisir d’être à nouveau parmi vous. Je m’appelle Joseph. Je suis venu vous parler de choses que vous devez savoir dans la vie. Des choses comme : « Où sont mes propres limites ? », « Comment prendre les bonnes décisions ? »
 

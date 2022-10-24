@@ -9,7 +9,7 @@ weight:
 ---
 ### Fonctionnement de la loi de Compensation
 
-St Jean - reçu par WV le 19 Janvier 2015, Schoten, Belgique
+St Jean - reçu par WV le 19 Janvier 2015, Anvers, Belgique.
 
 Mon cher ami, il est si bon de te revoir, prêt et désireux de recevoir plus d’informations. Je voudrais reprendre [là où nous nous sommes arrêtés précédemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-1-2-1-wv-st-john/).
 
@@ -35,11 +35,11 @@ Et tout cela dépendra uniquement de la façon dont tu utilises ton libre arbitr
 
 Ainsi, pour t’aider à devenir plus grand avec le Père, il n’est pas si difficile de connaître de quelle manière tu devrais utiliser cette dualité. Être âme ou être amour ou être un signifie seulement agir avec amour. Alors, que penses-tu que tu doives faire pour devenir un (en plus de demander l’Amour Divin) ?
 
-(*D*’agir dans le cadre de l’amour.*)
+*[D’agir dans le cadre de l’amour.]*
 
 Exactement. Et que ne devrions-nous ne pas faire si nous voulons devenir un ?
 
-(*D’agir hors du cadre de l’amour.*)
+*[D’agir hors du cadre de l’amour.]*
 
 Et bien que cela semble si simple, c’est très difficile à faire pour la plupart des gens parce qu’ils ne comprennent pas les implications réelles de cette dualité. Permets moi de donner plus de précisions.
 
@@ -49,19 +49,16 @@ Tout comme ton mental bloque ton âme d’ajouter de l’amour à une action dé
 
 Permets-moi de te poser quelques questions pour clarifier cela. Certains adolescents agressent un homme sans défense à 50 mètres devant toi. Tu les remarques, mais tu rebrousses chemin ou tu les contournes sans interférer ou appeler la police par crainte d’être toi-même agressé. Ne penses-tu pas que, même si tu n’as rien fait toi-même, ce fut un acte aimant ou un acte en dehors de l’amour et penses-tu que cela aura un impact sur ton âme ?
 
-(*Eh bien, selon ce que tu as essayé d’expliquer, je dirais que c’était une action sans amour avec une décision de mon libre arbitre de ne pas ajouter mon propre amour à la situation. Lorsque tu bloques ton âme d’un ajout d’amour, tu la bloques aussi pour recevoir de l’amour. Ainsi, oui, cela aurait eu un impact « négatif » sur l’âme.*)
+*[Eh bien, selon ce que tu as essayé d’expliquer, je dirais que c’était une action sans amour avec une décision de mon libre arbitre de ne pas ajouter mon propre amour à la situation. Lorsque tu bloques ton âme d’un ajout d’amour, tu la bloques aussi pour recevoir de l’amour. Ainsi, oui, cela aurait eu un impact « négatif » sur l’âme.]*
 
 En effet. Bien qu’il ne s’agisse pas d’un acte (aucune action spécifique) il y aura une réaction : colmatage (partiel) de l’âme. Ainsi tu vois que « ne pas faire quelque chose » est également une action qui produira une réaction et c’est ce que bon nombre de gens ne comprennent pas. Le blocage de ton âme dans sa contribution d’amour est l’action vraie qui se trouve sous l’inaction physique. Et c’est cette action qui crée la réaction.
 
 Prochaine question. Tes amis bavardent au sujet d’une de tes connaissances. Ils veulent que tu participes et dises des choses négatives au sujet d’elle derrière son dos. Bien que tu n’aimes pas particulièrement cette connaissance, tu t’abstiens de contribuer parce que tu n’as pas les détails exacts et parce que tu comprends qu’il y a deux côtés à chaque histoire. Que penses-tu cette fois ?
 
-(*Que ce fut une inaction aimante avec la décision du libre arbitre de ne pas ajouter de l’énergie sans amour à la situation. Aucun blocage n’a donc été créé et cela a eu un impact  « positif » sur l’âme.*)
+*[Que ce fut une inaction aimante avec la décision du libre arbitre de ne pas ajouter de l’énergie sans amour à la situation. Aucun blocage n’a donc été créé et cela a eu un impact  « positif » sur l’âme.]*
 
 Exactement. Mais il n’y aura pas seulement un impact positif parce qu’aucun blocage n’a été créé. Il y aura également un impact positif parce que l’amour a été capable de s’écouler à travers toi dans cette situation. Et bien que rien de physique n’ait été fait, le non blocage de ton âme ou l’accord de l’écoulement naturel de l’amour est l’action sous-jacent qui aura une réaction à savoir ; décomposer (un tout petit peu) « le mur » que tu as construit autour de ton âme. Ainsi tu fais des choses affectueuses en n’agissant pas en dehors de l’amour et tu es récompensé pour cela.
 
 Bien que j’aimerais continuer et alors que j’ai encore beaucoup de choses à dire, je vois que tu commences à être fatigué, aussi je vais m’arrêter ici.
 
 Je te remercie de nous avoir donné ces possibilités et que Dieu te bénisse. Ton frère et ami de toujours, Jean.
-
-
-

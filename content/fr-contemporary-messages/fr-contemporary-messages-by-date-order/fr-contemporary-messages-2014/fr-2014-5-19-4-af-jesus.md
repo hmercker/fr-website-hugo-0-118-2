@@ -9,7 +9,7 @@ weight:
 ---
 ###  Vous faites partie de mon troupeau
 
-Jésus - reçu par Al Fike le 19 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 19 Mai 2014, Caloundra, QLD, Australie.
 
 Je viens, je suis Jésus. Et je vous aime. J’aime chaque âme ici qui cherche l’Amour, qui souhaite être proche de Dieu, et qui est sérieuse dans ses efforts, dans ses prières, dans ses désirs. Et je suis avec vous dans ces désirs et ces prières, dans votre désir d’être proche de notre Créateur qui vous aime tant. Et nous allons tous travailler et peiner en votre nom pour vous rapprocher de la Grâce et de la Lumière aimante de Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La liberté par l'activation de l'âme-mental
 
-Augustin - reçu par Al Fike le 14 Août 2015, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 14 Août 2015, Gibsons, Colombie-Britannique, Canada.
 
 C’est votre enseignant Augustin. Je suis venu vous parler des perceptions de l’âme qui émergent lentement dans votre conscience, mes beaux frères et sœurs. Ce lent éveil dans vos êtres, qui s’élève lentement mais sûrement dans la conscience de votre mental, requiert votre attention, mes bien-aimés.
 
@@ -32,6 +32,3 @@ La liberté, mes bien-aimés – ne voulez-vous pas être libres ? Alors vous de
 Soyez les champions. Suivez le chemin. Que votre foi grandisse avec force et détermination et que vous continuiez à prier pour l’Amour du Père afin qu’il trouve un afflux constant dans votre âme et que vous puissiez marcher dans cette lumière pour l’éternité. Votre maître Augustin continue à vous accompagner et à vous apporter Son amour et Son soutien dans vos efforts pour apporter la lumière et la vérité en vous-mêmes et dans ce monde. Votre prochain rassemblement apportera une grande lumière, une grande lumière dans ce monde, et pour les nombreuses, nombreuses âmes qui sont liées à votre âme, de nombreux êtres chers, de nombreuses personnes dans le monde entier qui sont liées d’une manière ou d’une autre à vos vies, bénéficieront de vos prières et de vos efforts conjoints alors que vous vivez votre vie dans la vérité, alors que vous faites vos prières pour ceux que vous aimez, alors que vous vous efforcez d’être avec le Père céleste et d’apporter la lumière. Cela est utilisé de tant de façons différentes.
 
 C’est une telle utilité pour tant de gens. Continuez à dire vos prières pour augmenter votre amour, pour améliorer vos actions et vos pensées afin qu’elles deviennent plus spirituelles, plus en accord avec votre âme, plus en accord avec Dieu, et nous serons toujours avec vous, toujours, toujours. Que Dieu vous bénisse, âmes bien-aimées et précieuses. Votre maître Augustin est avec vous et je vous aime, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

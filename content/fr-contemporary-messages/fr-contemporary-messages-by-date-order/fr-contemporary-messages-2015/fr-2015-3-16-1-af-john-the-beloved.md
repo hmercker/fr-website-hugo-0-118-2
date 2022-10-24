@@ -9,7 +9,7 @@ weight:
 ---
 ### Luttant pour donner un sens au monde
 
-Jean le bien-aimé - reçu par Al Fike le 16 Mars 2015, Gibsons, Colombie-Britannique, Canada.
+Jean le bien-aimé - reçu par Al Fike le 16 Mars 2015, Swakopmund, Namibia.
 
 Je suis Jean le Bien-Aimé.
 
@@ -28,4 +28,3 @@ Alors que vous marchez dans une forêt qui est sombre et oppressante à certains
 Mes bien-aimés, continuez dans vos prières et efforts pour être avec Dieu et vous découvrirez Dieu, vous découvrirez votre vraie nature et tout ce qui se trouve en vous, cette grande capacité, ces dons, cette beauté seront révélés et seront une connaissance et une expression conscientes.
 
 Soyez bénis, mes bien-aimés. Je suis Jean le Bien Aimé, je vous aime et je suis proche de vous. Soyez bénis, âmes bien-aimées, soyez bénis.
-

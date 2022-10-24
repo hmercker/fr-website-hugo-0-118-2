@@ -9,7 +9,7 @@ weight:
 ---
 ### Les Cieux Célestes ont des âmes de toutes les croyances
 
-Jean-Baptiste - reçu par WV le 30 Janvier 2014, Schoten, Belgique.
+Jean-Baptiste - reçu par WV le 30 Janvier 2014, Bayview, Sydney, Australie.
 
 Je suis là, Jean le Baptiste.
 

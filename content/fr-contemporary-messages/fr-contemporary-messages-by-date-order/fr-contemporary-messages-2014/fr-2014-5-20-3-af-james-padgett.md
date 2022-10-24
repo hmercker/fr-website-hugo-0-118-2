@@ -9,7 +9,7 @@ weight:
 ---
 ### Un siècle s’est écoulé
 
-James Padgett - reçu par Al Fike le 20 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+James Padgett - reçu par Al Fike le 20 Mai 2014, Caloundra, QLD, Australie.
 
 Soyez béni, c’est James Padgett et je souhaite vous remercier de poursuivre le travail que j’ai commencé il y a tant d’années. Oui, un siècle, un siècle a passé et nous, en esprit, avons travaillé avec diligence pour nous assurer que ce travail n’a pas été perdu ou dilapidé. Et nous continuerons à le faire car ces vérités enseignées par notre maître bien-aimé doivent continuer à prospérer et à vivre dans ce monde afin que ceux qui le cherchent puissent le faire. La connaissance sûre viendra avec la compréhension et la lecture de ces volumes par ceux qui le font consciemment.
 

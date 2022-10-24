@@ -9,7 +9,7 @@ weight:
 ---
 ### Les vents du changement
 
-Augustin - reçu par Al Fike le 22 Mai 2014, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 22 Mai 2014, Caloundra, QLD, Australie.
 
 Chers doux étudiants, c’est Augustin. Oui les vents du changement soufflent en vous mes chers enfants. Ils soufflent dans vos cœurs, ils soufflent dans vos âmes, ils soufflent dans vos esprits et vous vous demandez – où ce vent m’emmène-t-il ? Quels sont ces défis intérieurs ? Quelle est cette route sur laquelle sur laquelle vous êtes appelé, et comment pouvez-vous répondre à l’appel de Dieu ? Et oui, beaucoup d’entre vous sentent que c’est le début d’un nouveau départ, un autre virage sur la route, une autre vue à explorer. Et je vous le dis, suivez les désirs de votre âme et suivez la main qui guide Dieu, et oui, vous prendrez ce virage.
 

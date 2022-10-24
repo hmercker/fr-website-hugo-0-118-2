@@ -9,7 +9,7 @@ weight:
 ---
 ### Détails de la vie d’Hélène Padgett
 
-Helen Padgett - reçu par Al Fike le 18 Juillet 2014, Gibsons, Colombie-Britannique, Canada.
+Helen Padgett - reçu par Al Fike le 18 Juillet 2014, Vancouver, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse chers âmes bienheureuses avec l’Amour et la Protection de Notre Père Céleste. Moi aussi je vous salue de mon côté de la vie et je transmets mes meilleurs vœux à vous tous.
 
