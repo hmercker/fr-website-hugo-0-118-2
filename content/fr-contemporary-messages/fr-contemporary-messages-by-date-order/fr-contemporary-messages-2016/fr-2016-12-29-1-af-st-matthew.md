@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est temps d’accepter une nouvelle façon d’être
 
-St Matthieu - reçu par Al Fike le 29 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 29 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, et je suis venu parce que cet instrument a lu un de mes messages à l’intérieur du livre – le livre de Judas. Je suis venu vous parler de changement, car l’année à venir reflétera de nombreux changements pour vous personnellement et pour ce monde.
 
@@ -32,6 +32,3 @@ Que Dieu vous bénisse dans votre voyage, mes âmes bien-aimées, et vous amène
 Il est temps de franchir ce seuil vers une nouvelle façon d’être, vers une nouvelle vie née dans la lumière et la vérité, l’amour et la joie. cela n’attend que vous, que votre choix, vos efforts, vos prières, votre volonté de laisser tomber les vieilles méthodes dépassées et d’adopter les voies de Dieu dans tous les aspects de votre vie.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et je vous aime. Je reviendrai et je parlerai lorsque le moment sera venu. Que Dieu vous bénisse, mes bien-aimés, belles âmes. Vous portez tant de lumière. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

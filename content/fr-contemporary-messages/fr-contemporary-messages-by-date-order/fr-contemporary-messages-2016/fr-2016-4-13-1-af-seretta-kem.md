@@ -9,7 +9,7 @@ weight:
 ---
 ### L’utilisation de la guérison par l’Amour Divin par rapport aux autres énergies de la Terre
 
-Seretta Kem - reçu par Al Fike le 13 Avril 2016, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 13 Avril 2016, Abbotsford, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem et je suis un habitant du Royaume Céleste où nous sommes proches de Dieu et connaissons bien Son Amour. Nous connaissons Son Amour et nous avons nos vies dans Son Amour, et nos âmes se développent et grandissent toujours dans Son Amour. Et je vois parmi ce Cercle de Lumière ceux qui utilisent la guérison de la Terre, les énergies de cette Terre, ce qui est souvent appelé les forces magnétiques1 de guérison, pour aider les autres. Et je vois que beaucoup d’entre vous font divers exercices physiques pour augmenter les flux d’énergie de leur corps et de leur esprit, et oui, il existe de nombreux éléments d’énergie, de nombreux types d’énergie différents qui peuvent être utilisés pour votre bien-être. Et de grandes bénédictions de Dieu et de Sa guérison peuvent être données à travers vos désirs et vos prières pour les autres et pour vous-mêmes.
 
@@ -26,6 +26,3 @@ Le choix est le vôtre, âmes bien-aimées. Le choix est le vôtre. Cherchez le 
 Ainsi, pour ceux d’entre vous qui comprennent les énergies qui ne sont pas clairement visibles dans le monde, mais qui existent bel et bien et peuvent être ressenties, connues et utilisées à votre avantage, incluez ce cadeau, cette énergie, ce cadeau de Dieu, Son Amour, et ajoutez-le à votre compréhension, et comme vous le faites, beaucoup plus de vérités et d’éléments de la création de Dieu vous seront révélés afin que vous puissiez devenir de puissants guérisseurs dans le monde, que vous puissiez devenir un phare de Lumière dans le monde, que vous puissiez marcher dans le monde dans le flux de la Grâce et de l’Amour de Dieu, que vous puissiez être un serviteur de Sa Volonté, un pourvoyeur de Lumière, de Vérité et d’Amour dans ce monde. Chacun de vous aspire à cela, âmes bien-aimées. Chacun d’entre vous a l’opportunité d’apporter plus de Lumière et plus d’harmonie dans cette vie pour tous ceux qui vous entourent, pour tous ceux que vous aimez, pour tous ceux que vous touchez et rencontrez dans votre vie. Ce Don renforce tous les autres dons et informe votre âme afin que vous puissiez vraiment vous connaître et suivre un chemin qui est élevé, beau, riche et profond de sens.
 
 Que Dieu vous bénisse, belles âmes. Puissiez-vous entendre mes paroles, qui sont une invitation, car une porte s’est ouverte pour vous. Choisirez-vous de la prendre ? C’est votre choix. Dieu attend votre choix. Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse, belles âmes. Je suis Seretta Kem. J’ai vécu en Égypte il y a plusieurs centaines d’années et je suis la servante de Dieu dans l’Amour. Que Dieu vous bénisse.
-
-
-

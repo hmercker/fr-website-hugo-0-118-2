@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez la vérité dans votre propre âme
 
-Alec Gaunt - reçu par Al Fike le 28 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 28 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, votre ami Alec. Beaucoup d’entre vous ont été si fidèles au fil des ans en se réunissant constamment avec les plus hautes intentions, en recherchant l’Amour du Père, en travaillant ensemble, en s’aimant et en se soutenant mutuellement. Quel témoignage puissant vous faites, mes chers amis, dans vos efforts pour continuer à apporter cette Lumière de l’Amour de Dieu au milieu de vous, dans vos vies, et en développant un canal de Son Amour à travers vous.
 
@@ -28,6 +28,3 @@ Et il est bon de se réunir de cette manière pour recevoir quelques conseils, q
 Écoutez les incitations de vos âmes. Ouvrez vos yeux. Permettez à Dieu d’infuser en vous Sa Vérité, Son Amour, Sa Lumière et vous ne pouvez pas vous tromper lorsque vous êtes accordés de cette manière, connaissant Dieu de cette manière. Et pour que vous puissiez naviguer dans les changements à venir et dans la vie qui s’annonce pour chacun d’entre vous, qui sera différente de celle d’aujourd’hui, vous devez aller à l’intérieur de vous-mêmes, dans ce lieu profond de la conscience de l’âme, et trouver votre chemin à partir de cette compréhension profonde, de cette grande force et de cette foi solide, et de cette façon, vous serez en mesure de diriger les autres, de les soutenir, de les aimer, car vous serez un rocher. Vous serez stable dans les tempêtes à venir.
 
 Bénédictions à vous, âmes bien-aimées, votre ami Alec est toujours à vos côtés et je le serai toujours, mes amis les plus précieux et bien-aimés, ma famille, tous mes frères et sœurs. Je serai avec vous, désireux d’aider, comme le seront de nombreux anges que Dieu a assignés à vos soins et à votre garde, à vos conseils et à votre protection. Tant de choses sont données. Et vous serez toujours dans la Lumière et choisirez toujours la Lumière. Soyez toujours dans la Lumière. Dieu vous bénit, mes bien-aimés. Alec vous aime. Que Dieu vous bénisse.
-
-
-

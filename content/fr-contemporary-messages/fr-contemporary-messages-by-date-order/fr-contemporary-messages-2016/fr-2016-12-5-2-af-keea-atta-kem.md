@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez des scientifiques de l’âme
 
-Keea Atta Kem - reçu par Al Fike le 5 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 5 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est Keea-Atta-Kem.
 
@@ -42,6 +42,3 @@ Je vous bénis, mes bien-aimés, je suis Keea et je suis souvent avec vous et je
 Âmes bien-aimées, vous êtes vraiment aimées, vous avez beaucoup à donner et vous donnerez en grandissant plus intensément, plus magnifiquement à ceux que vous rencontrerez dans ce monde. Le monde attend votre sagesse, il attend la vérité de Dieu. Accomplissez le désir de Dieu que cette vérité et cette sagesse viennent avec une clarté simple et une révélation puissante et de belles, douces, rassurantes et réconfortantes, paroles de beauté et de vérité et de grâce.
 
 Dieu vous bénisse, Keea vous aime, Keea vous aime, Dieu vous bénisse.
-
-
-

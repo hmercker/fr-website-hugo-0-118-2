@@ -9,7 +9,7 @@ weight:
 ---
 ### La Volonté de Dieu
 
-Augustin - reçu par Al Fike le 12 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 12 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est Augustin votre enseignant et je souhaite aborder le sujet de la volonté de Dieu – comment elle se manifeste dans vos vies, et dans ce monde.
 
@@ -42,6 +42,3 @@ Vous continuez à patauger dans ce courant profond. Cela vient. Ayez la foi, mes
 Vous êtes bénis, mes bien-aimés, car vous portez la flamme de la vérité, vous êtes engagés, vous grandissez en force et continuez toujours, continuez à chercher Sa Volonté.
 
 Votre enseignant Augustin est toujours à vos côtés, il vous encourage et vous enseigne, tout comme de nombreux anges qui vous aiment et vous soutiennent. Vous n’êtes jamais seuls, mes bien-aimés, et nous ne vous quitterons jamais. Dieu vous bénisse, Dieu vous bénisse. Je vous aime.
-
-
-

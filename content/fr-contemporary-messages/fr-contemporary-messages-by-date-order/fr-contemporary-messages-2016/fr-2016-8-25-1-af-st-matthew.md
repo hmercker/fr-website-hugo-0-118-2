@@ -9,7 +9,7 @@ weight:
 ---
 ### La différence entre le mental et l’âme
 
-St Matthieu - reçu par Al Fike le 25 Août 2016, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 25 Août 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Matthieu et je suis venu vous parler de l’esprit et de l’âme et de la façon dont il y a différents aspects de la conscience et de la conscience qui découlent de ces deux aspects de votre être. Si vous considérez le mental comme de l’eau, considérez l’âme comme de la lumière. Dans les deux cas, de nombreux niveaux de conscience peuvent être atteints dans chaque aspect de votre être, mais ils sont différents. Si le mental est de l’eau, ce que vous mettez dans le mental colore cette eau et, dans certains cas, change la composition de cette eau. Par conséquent, la conscience du mental est modifiable et fortement influencée par l’intellect, l’apprentissage de chaque individu, et cela devient une manière évolutive et quelque peu cristallisée de voir le monde.
 
@@ -22,6 +22,3 @@ Mes frères, mes sœurs, cherchez le Royaume. Cherchez cet Amour et vous hérite
 Alors, mes âmes bien-aimées, je vous en conjure, je vous en supplie, je vous le demande, ouvrez vos âmes à l’afflux de cet Amour. Non, il ne réside pas en vous comme un attribut naturel de votre être. L’amour existe certainement dans chaque âme donnée par Dieu lors de votre création, mais cet amour, cette bénédiction spéciale est donnée par la prière, le désir et l’ouverture, la décision de l’âme de le recevoir, de le connaître, d’être bénie de cette façon.
 
 Que Dieu vous bénisse, âmes bien-aimées. Merci de m’avoir permis de parler. Reconnaissez la différence entre les niveaux de conscience du mental, ce royaume aqueux et celui de l’âme, cette aventure remplie de lumière, un éveil et de cette façon chacun de vous peut choisir ce qu’il désire, ce qui est important pour lui. Dieu souhaite vous donner tout ce que vous désirez. Il souhaite que vous vous développiez, que vous grandissiez et que vous exploitiez toutes les potentialités de votre être. Mais Il vous donne aussi l’opportunité d’aller au-delà de vos capacités naturelles vers un endroit qui est illimité dans ses potentiels et nous qui résidons dans les Cieux Célestes vous donnons une invitation. Ouvrez cette porte à Dieu au sein de votre âme et demandez à recevoir Son Amour. Vous connaîtrez ce dont je parle, cet Amour rédempteur, cet Amour guérisseur, cet Amour Divin et vous connaîtrez une grande joie, une grande joie dans cet éveil. Que Dieu vous bénisse. Que Dieu vous bénisse. Je suis Matthieu et je suis heureux de parler aujourd’hui de cette grande bénédiction. Que Dieu vous bénisse.
-
-
-

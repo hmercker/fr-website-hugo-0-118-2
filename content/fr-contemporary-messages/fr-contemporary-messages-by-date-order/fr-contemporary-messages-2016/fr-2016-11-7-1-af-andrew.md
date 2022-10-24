@@ -9,7 +9,7 @@ weight:
 ---
 ### L’amour est la clé
 
-André - reçu par Al Fike le 7 Novembre 2016, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 7 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je suis André. Chacun d’entre vous est aimé, chacun d’entre vous est aimé par Dieu et chacun d’entre vous est aimé par beaucoup, mais pour beaucoup d’entre vous il est difficile de ressentir cet amour, de reconnaître cet amour en vous-mêmes, de marcher dans la Lumière qui est cette véritable conscience, ce sentiment d’être aimé et chéri et beau dans le monde. Âmes bien-aimées, il est temps d’ouvrir vos yeux à l’Amour, de reconnaître le pouvoir de l’Amour dans vos vies, d’aller vraiment vers Dieu pour recevoir ce grand afflux de Son Amour, qui est toujours là, attendant votre prière et votre désir de le recevoir.
 
@@ -29,6 +29,3 @@ C’est l’Amour, mes bien-aimés, qui sauvera le monde et apportera la paix. S
 Continuez à prier pour cette bénédiction d’amour. Continuez à être ouverts pour la désirer intensément, pour offrir vos intentions et vos prières à votre Père Céleste afin que, de sa belle manière, vous soyez bénis avec l’essence de Dieu, l’Amour Divin.
 
 Merci, âmes bien-aimées. Que Dieu vous bénisse dans votre voyage. Nous sommes avec vous, nous ne vous quitterons jamais et Dieu est toujours présent. C’est à vous de le savoir et d’accepter que vous êtes vraiment aimés. Que Dieu vous bénisse, je suis André et je vous aime. Que Dieu vous bénisse.
-
-
-

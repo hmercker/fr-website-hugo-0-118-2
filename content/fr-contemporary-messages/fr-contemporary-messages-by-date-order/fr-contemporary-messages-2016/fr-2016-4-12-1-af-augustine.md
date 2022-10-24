@@ -9,7 +9,7 @@ weight:
 ---
 ### Attentes de l’esprit – Libérer le contrôle
 
-Augustin - reçu par Al Fike le 12 Avril 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 12 Avril 2016, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, je suis votre enseignant, Augustin.
 
@@ -32,6 +32,3 @@ Je vous bénis, mes âmes bien-aimées. Il faut de la force pour marcher sur cet
 Que Dieu vous bénisse, mes âmes bien-aimées. Vous continuez à grandir dans l’Amour et vous continuerez à grandir dans la Lumière. Que Dieu vous bénisse.
 
 Je suis Augustin, votre enseignant, je suis Augustin et je vous aime. Que Dieu vous bénisse.
-
-
-

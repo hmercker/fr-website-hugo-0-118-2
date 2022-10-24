@@ -9,7 +9,7 @@ weight:
 ---
 ### En progressant à l’intérieur de votre âme, vous serez en mesure de recevoir les changements qui arrivent
 
-Alec Gaunt - reçu par Al Fike le 21 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 21 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Mes beaux amis, c’est Alec. Que la lumière de l’Amour de Dieu vous porte en avant mes amis bien-aimés. Alors que vous commencez à ouvrir votre âme, les perceptions et les prises de conscience commencent à fleurir et à se manifester de manière surprenante, chacun d’entre vous ressent une différence, une ouverture, le début de quelque chose de nouveau en lui. Et comme l’Amour de Dieu allume vos dons, les magnifiques talents et capacités qui reposent en vous, chacun unique, chacun puissant, plein de promesses, ouvrent des portes de perception, des dons de guérison et de communication et des moyens par lesquels l’amour peut être exprimé pour le bénéfice de tous ceux que vous rencontrez. Bien-aimés, vous devez vous attendre dans votre vie à ce que ces nouvelles prises de conscience et perceptions viennent et apportent une perspective différente et apportent de nombreuses capacités de vue, de sagesse, de force et de perception et des moyens par lesquels l’amour peut venir et se manifester dans vos vies, dans vos êtres, car Dieu utilise ce qu’Il a implanté en vous pour le bénéfice de l’humanité.
 
@@ -36,6 +36,3 @@ Bien-aimés, ce n’est pas ce qui est supposé être, et je vous assure qu’il
 Que Dieu vous accorde à tous une profonde sagesse et un grand amour et que vos perceptions de l’âme s’ouvrent et s’épanouissent et vous donnent un aperçu du nouveau monde qui vient et de la Volonté de Dieu qui est toujours présente, que ces choses vous emmènent dans un voyage d’éveil et de compréhension et de grande force et de foi. L’amour prévaudra, mes bien-aimés. C’est la chose la plus puissante de cet univers et elle prévaudra. Vous n’avez qu’à suivre la volonté de Dieu, à avoir foi en la conscience et la compréhension de votre propre âme et à permettre à l’amour d’entrer dans chaque partie de ce que vous êtes et de vos vies afin qu’Il puisse apporter l’harmonie et montrer à tous ceux qui souhaitent voir ce qu’est l’amour et ce qu’est vivre dans la vérité de l’Amour de Dieu.
 
 Vous allez faire une déclaration puissante dans ce monde, mes bien-aimés. Vous le devez. Cela dépend de vous et des quelques autres que Dieu utilisera pour apporter cette lumière et cette vérité et ce changement au monde. Que Dieu vous bénisse. Je suis Alec. Je suis avec vous, comme vous le savez bien, et nous continuerons à vous guider dans ce voyage, dans ces changements, sur cette grande colline vers une plus grande lumière. Chacun d’entre vous a les pieds fermement plantés sur ce chemin et aura en effet les yeux ouverts, les âmes dilatées dans l’amour et mènera dans la lumière. Que Dieu vous bénisse, Alec vous aime. Que Dieu vous bénisse.
-
-
-

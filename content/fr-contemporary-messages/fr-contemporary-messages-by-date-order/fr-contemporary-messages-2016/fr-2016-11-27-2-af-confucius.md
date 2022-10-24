@@ -9,7 +9,7 @@ weight:
 ---
 ### Confucius accueille le troupeau
 
-Confucius - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 ’est moi, Confucius.
 
@@ -24,6 +24,3 @@ Réjouissez-vous, mes bien-aimés, réjouissez-vous que Dieu vous ait appelés e
 Alors que vous rassemblez ceux qui sont proches, qui désirent se joindre à vous dans la prière, dans le rire, dans l’amour, vous commencez la tâche qui vous attend et Dieu vous touche profondément dans vos âmes, mes bien-aimés. Vos âmes ressentent la joie de ceci, permettez à la joie de vous envelopper et de devenir la lumière qui est vraie pour vous.
 
 Que Dieu vous bénisse. Confucius vous aime, âmes bien-aimées.
-
-
-

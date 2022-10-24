@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez calmes dans les tempêtes à venir
 
-André - reçu par Al Fike le 7 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 7 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que l’Amour du Père trouve un afflux constant dans vos âmes. Puissiez-vous être dans ce lieu de prière où l’Amour du Père vous porte toujours en avant dans de beaux et gracieux tourbillons le long de cette puissante rivière de lumière – vous emmenant dans un voyage qui est dans la Volonté de Dieu. Sentez la grâce de ce mouvement, la paix de ce voyage, l’exaltation de ce qui est à venir, la puissance de Son Amour pour vous amener à l’expiation avec Sa grande et merveilleuse âme.
 
@@ -38,6 +38,3 @@ Et vous, mes bien-aimés, vous devez être audacieux, déclarer la vérité, app
 Vous serez guidés vers de nombreuses âmes ; de nombreuses âmes seront guidées vers vous. Continuez à prier avec elles et à leur apprendre à prier, à leur enseigner l’amour du Père, à leur enseigner ces vérités simples et ces graines que vous semez prendront racine dans beaucoup, beaucoup d’âmes.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis André et je vous aime.
-
-
-

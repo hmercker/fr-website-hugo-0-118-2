@@ -9,7 +9,7 @@ weight:
 ---
 ### La réaction à votre lumière
 
-Augustin - reçu par Al Fike le 15 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Le pouvoir de la Lumière, mes bien-aimés, le pouvoir de la Lumière dans vos âmes provoque une réponse et une réaction dans le monde, et comme votre Lumière grandit, la réaction s’intensifiera. De la part de certains, il y a un merveilleux désir et un rapprochement de vous, une réponse d’amour, une reconnaissance de leur âme à votre âme, une reconnaissance de la Lumière. Et je le sais, mes chers étudiants, vous réagissez et appréciez cette interaction, cette réponse. D’autres ont une réponse négative, un désir d’étouffer votre Lumière, une réaction de suspicion, de peur et de colère de la part de ceux qui ne sont pas proches de Dieu. Ils ne comprennent pas la beauté et la puissance de l’Amour de Dieu qui brille à l’intérieur et ils ont peur, ils se sentent confrontés et ils cherchent à voir vos défauts. Il y a ceux qui ressentent de la jalousie et qui sont compétitifs, et tout ceci est une condition mentale, pourtant leurs âmes peuvent en effet avoir l’Amour à l’intérieur et pourtant leurs pensées continuent dans leurs réponses réflexes envers vous.
 
@@ -22,6 +22,3 @@ Et oui, il y aura toujours des réponses qui viendront d’endroits surprenants,
 C’est votre témoignage de la puissance de l’Amour de Dieu. Ce sera votre héritage, car combien se souviendront de vos défauts ? Non, mes bien-aimés, ils se souviendront de votre sourire, de votre étreinte, de vos encouragements, de votre amour. C’est ce que vous construisez dans votre vie et au fur et à mesure que cet Amour s’intensifie, que cette Lumière grandit en vous et dans votre vie, elle s’étendra et se répandra dans de nombreuses sphères d’influence dans votre monde. C’est ainsi que la progression se fait en vous. Il reflète cette Lumière qui se reflète sur toutes et chacune des âmes que vous rencontrez.
 
 Bien-aimés, rappelez-vous que vous êtes les enfants de Dieu. Ne réagissez pas à la négativité, mais soyez humbles, soyez fermes, soyez dans la vérité, ne réagissez pas, soyez forts dans l’Amour et de cette façon vous marchez avec intégrité, de cette façon vous apportez la Lumière quand l’obscurité est tout autour de vous, de cette façon vous vous tenez ferme pour la Vérité. Âmes bien-aimées, continuez dans vos efforts, et dans vos voyages. Tendez la main et embrassez beaucoup de gens si puissamment. Vous donnez un tel message avec de tels efforts. Et Dieu vous bénira toujours alors que vous continuez à vous déplacer dans le monde, à lutter contre les conditions de ce monde et à contrer les ténèbres. Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin vous aime et continuera à se tenir à vos côtés pour vous montrer, vous enseigner, vous aimer et vous protéger. Tout va bien, âmes bien-aimées. Tout va bien. Que Dieu vous bénisse. Je vous aime.
-
-
-

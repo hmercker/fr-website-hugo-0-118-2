@@ -9,9 +9,9 @@ weight:
 ---
 ### La puissance exponentielle des prières
 
-Seretta Kem - reçu par Al Fike le 25 Juillet 2016, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 25 Juillet 2016, Gibsons, Colombie-Britannique, Canada.
 
-La puissance de la multiplication des prières
+La puissance de la multiplication des prières.
 
 Je suis Seretta Kem et je vous remercie de m’autoriser à parler ce soir et ce que je vais vous dire va illustrer les efforts que vous fournissez dans ces cercles de prière pour la guérison de ce monde.
 
@@ -30,6 +30,3 @@ Continuez, biens aimés âmes, car tant que vous priez, vous êtes aussi touché
 Et quand vous priez vous êtes en mesure d’être utilisé de façon puissante pour apporter réconfort et guérison à beaucoup, beaucoup d’âmes.
 
 Un acte tellement simple, une réponse si une puissante venant de Dieu et plus votre prière est intense et sincère, plus elle touchera plus d’âmes….
-
-
-

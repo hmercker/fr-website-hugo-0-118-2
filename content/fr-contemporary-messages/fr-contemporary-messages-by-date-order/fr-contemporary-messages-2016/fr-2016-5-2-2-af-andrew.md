@@ -9,7 +9,7 @@ weight:
 ---
 ### André sur deux choix – deux voies
 
-André - reçu par Al Fike le 2 Mai 2016, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 2 Mai 2016, Abbotsford, Colombie-Britannique, Canada.
 
 Oui, la chère et bien-aimée âme Marie dit la vérité. Il est vrai que la loi de la compensation a un pouvoir transformateur sur l’âme qui est rachetée par l’Amour du Père, car savez-vous, mes bien-aimés, que, lorsque vous passez au monde spirituel, votre âme a le souvenir de chaque instant, chaque seconde de votre vie ? Et lorsque vous vivez en tant qu’esprit, ces souvenirs inondent votre conscience et ces perturbations profondes en vous, bien que beaucoup pensent qu’ils ont résolu ces questions par leur mental et ce que vous appelez la thérapie, je dis que ces questions sont réglées dans la tête mais pas dans l’âme.
 
@@ -24,6 +24,3 @@ Ainsi vous voyez, mes âmes bien-aimées, votre voyage de la vie sur ce plan ter
 Lorsque vous choisissez le Chemin Divin, lorsque votre âme est transformée et rachetée par cet Amour, il y a des possibilités illimitées, pour l’Amour de Dieu, cette énergie, ce Don est illimité. Le potentiel pour votre âme de recevoir ce cadeau est illimité. C’est pourquoi vous marchez sur un chemin pour toute l’éternité dans cette grande Lumière de Dieu et Son âme d’Amour et c’est cet Amour qui sera votre force vitale, qui vous vivifiera, vous transformera et vous portera dans des lieux inimaginables, à une conscience plus profonde que tout océan, à une capacité d’amour plus élevée que celle de tous les peuples réunis sur terre, une capacité d’amour plus élevée que tout l’amour des vivants présents dans ce monde à ce moment de votre existence. Pouvez-vous imaginer cela, mes bien-aimés ? Pouvez-vous imaginer un tel état de bonheur et d’amour, de joie et de bonheur ? Il est gratuit pour vous sur demande. Il exige simplement que vous choisissiez, que vous choisissiez le don de l’Amour.
 
 Ne vous retenez pas de Dieu, mais ouvrez vous complètement à Son Toucher et permettez à Sa Main guérisseuse de vous libérer de vos fardeaux, de tout ce qui vous retient, de tout ce qui vous conduit à des lieux de douleur, de tout ce que vous portez en jugement et en colère, de ressentiment, de ces choses humaines que Dieu veut que vous libériez, d’être libres, de connaître une grande joie. C’est pour vous, âmes bien-aimées. C’est pour vous et pour tous ceux qui le désirent. Que Dieu vous bénisse, mes bien-aimés. Je suis André et je vous aime, je vous embrasse et je désire ardemment que vous embrassiez Dieu de cette manière et vous trouviez l’émerveillement, la joie et la paix durable. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

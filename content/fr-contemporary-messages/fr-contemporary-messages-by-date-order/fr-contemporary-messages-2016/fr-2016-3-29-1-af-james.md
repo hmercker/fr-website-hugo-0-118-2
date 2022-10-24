@@ -9,7 +9,7 @@ weight:
 ---
 ### Le don de la vie
 
-Jacques - reçu par Al Fike le 29 Mars 2016, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 29 Mars 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis votre ami Jacques. Je vois que vous contemplez la vie, l’importance de la vie, le renouvellement de la vie, les transitions de la vie. Et il est important de noter qu’une âme s’incarne dans le monde afin qu’elle puisse acquérir une identité, un sens du soi, une personnalité et une expression de son âme manifestée dans la chair, dans le corps spirituel, interagissant avec d’autres âmes, formulant une vie, une direction, une expression unique à son âme particulière.
 
@@ -24,6 +24,3 @@ La personne chère qui nous a quittés est entre de bonnes mains. Beaucoup prien
 Vos prières sont exaucées, mes bien-aimés, et l’amour se déverse sur tous ceux qui sont dans le chagrin et la douleur. Soyez rassurés que la paix viendra et qu’il y aura des ajustements, des transitions, que Dieu aidera à dégager le chemin pour vivre cette paix, pour guérir la douleur du deuil.
 
 Oui, la vie est précieuse, et vous le savez tous et vous vivez pleinement votre vie avec des yeux d’amour et de gratitude envers Dieu pour ce don de la vie. Continuez dans vos prières, âmes bien-aimées, en cherchant le Royaume par-dessus tout, en faisant grandir vos âmes, en connaissant votre vrai moi et en étant ce canal d’Amour dans le monde. Vous êtes les exemples pour beaucoup et beaucoup vous observent et vous regardent. Continuez à être humbles et forts, en paix et pleins d’amour et vous apporterez du réconfort à beaucoup dans ce monde qui est plein de chagrin et de douleur, de confusion et d’erreur. Continuez dans vos efforts pour être les instruments de Dieu pour l’Amour et la guérison, la paix et la vérité. Continuez, âmes bien-aimées, qui commencent à reconnaître leur vrai moi et à promulguer dans le monde la beauté de leurs âmes et l’accomplissement de la volonté de Dieu. Dieu vous bénisse, je suis James et je vous aime. Je vous aime tendrement, que Dieu vous bénisse.
-
-
-

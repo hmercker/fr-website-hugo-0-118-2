@@ -9,7 +9,7 @@ weight:
 ---
 ### L’ouverture des perceptions de votre âme
 
-Augustin - reçu par Al Fike le 16 Octobre 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 16 Octobre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Mes élèves c’est votre enseignant Augustin.
 
@@ -36,6 +36,3 @@ Oui, âmes bien-aimées, vous commencez à voir que le monde de l’ombre de vot
 Mais je vous dis que chaque fois que vous avancez un peu dans votre compréhension, vous vous rapprochez de plus en plus de la vérité et c’est un processus magnifique, magnifique, qui nous apporte la joie d’en être témoins et qui vous apporte la joie de l’expérimenter, qui continue ainsi et qui continuera ainsi.
 
 Que Dieu vous bénisse, mes chers étudiants. Votre maître Augustin a beaucoup de joie et d’amour pour vous, Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

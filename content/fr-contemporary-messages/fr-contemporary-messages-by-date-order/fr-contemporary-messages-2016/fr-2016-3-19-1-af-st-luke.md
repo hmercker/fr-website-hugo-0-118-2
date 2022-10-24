@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière
 
-St Luc - reçu par Al Fike le 19 Mars 2016, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 19 Mars 2016, Selah, Washington, USA.
 
 Je suis Luc et je suis venu parler de la façon dont les prières sont exaucées, la loi d’activation telle que vous la connaissez. Ces deux chères âmes sont venues pour répondre à une prière. Dieu met en elles le désir, la pensée de venir et d’aider par amour. Et, ma chère fille, tes prières étaient ferventes et ont été exaucées. Et maintenant vous avez fait une condition dans le monde de la Lumière. Vous avez créé ensemble quelque chose de beau. Vous avez créé un lieu d’harmonie dans ce monde et la loi de l’attraction amènera les âmes qui prient aussi et qui recevront cette bénédiction de Dieu. Et en cela, elles peuvent aussi servir Dieu pour répondre à la prière de quelqu’un d’autre d’une certaine manière, parce que vous avez créé un endroit où elles trouveront une mesure de bonheur et de sécurité et bénéficieront des conditions qui sont construites dans cet endroit.
 
@@ -22,6 +22,3 @@ Priez mes bien-aimés, priez – continuez, mes belles âmes priantes, dans vos 
 Vous continuerez à servir Dieu de cette manière et vous serez guidés vers de nombreuses, nombreuses âmes, certaines ayant besoin de cette vérité, d’autres qui reconnaîtront cette vérité avec vous et prieront avec vous. Priez, mes bien-aimés, continuez de cette manière. Exercez votre foi, cherchez l’Amour de Dieu par-dessus tout et permettez à Dieu d’orchestrer votre vie de façon merveilleuse. N’avez-vous pas vu la démonstration de Sa volonté dans vos vies dans ces moments ensemble ? Comment tout a fonctionné en harmonie et s’est mis en place ? Et vous avez tous ressenti un profond sentiment de satisfaction à l’égard de vos efforts et vu ce que vous avez accompli dans l’amour. Ceci est une démonstration de la façon dont vous pouvez travailler ensemble. Bien que la situation puisse être très différente, le but peut être très différent, la mise en œuvre de votre amour ensemble, et comment vous travaillez ensemble, comment vous avez apporté vos dons, votre volonté de partager dans ces questions et votre amour. C’est tellement important. C’est tellement important. Et ceux qui vous entourent, l’observent et cela les touche dans leur âme. Vous les touchez.
 
 Soyez bénis, mes bien-aimés, belles âmes qui prient, qui placent la prière avant toute chose dans leur vie. Soyez bénis pour vos efforts, pour reconnaître les désirs de vos âmes, pour reconnaître le pouvoir des bénédictions de Dieu et pour marcher dans la Lumière. Continuez, mes bien-aimés. Vous êtes aimés, tendrement aimés. Votre frère Luc est avec vous dans vos voyages, vos efforts, dans votre service dans la Lumière. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Au service de Dieu
 
-Jean le Bien Aimé - reçu par Al Fike le 18 Mars 2016, Gibsons, Colombie-Britannique, Canada
+Jean le Bien Aimé - reçu par Al Fike le 18 Mars 2016, Selah, Washington, USA.
 
 Dieu vous bénisse, âmes bien-aimées, c’est Jean, Jean le Bien-Aimé, et je viens vous encourager à servir Dieu, à servir Dieu chaque jour, à être Ses instruments et Ses canaux d’Amour chaque jour qui passe. Et le service se présente de bien des façons et sous bien des formes. Dieu vous utilise de manières que vous ne soupçonnez même pas, mais votre âme le sait. Votre âme qui résonne au contact de l’Amour de Dieu et de cette connexion profonde que vous avez avec votre Père Céleste rend beaucoup de choses possibles, mes bien-aimés, elle rend beaucoup de choses possibles.
 
@@ -26,6 +26,3 @@ Ne voyez-vous pas comment Dieu vous a guidés jusqu’à présent, les nombreuse
 Car chaque âme alignée avec la Volonté de Dieu a en elle-même un grand potentiel pour apporter le changement et la Vérité, et pour que les événements de leur vie se répercutent dans ce monde et aient le potentiel de changer l’histoire, de changer les événements du futur, de faire, dans ce cas en tant qu’instruments de Dieu, un grand effet pour la guérison et l’Amour, l’harmonie et la paix. Et vous avez choisi cela, mes bien-aimés. Chacun d’entre vous s’est incarné dans ce monde dans ce but. Vous l’avez choisi. Et vous savez que vous êtes sur le bon chemin, que ce que vous avez choisi se déroule en accord avec la volonté de Dieu. Et vous continuez à libérer cette partie volontaire de vous-même et vous continuez à permettre à la connaissance de l’âme d’éclipser les idées du mental. C’est en effet ce qui est censé être, d’être en harmonie avec la volonté de Dieu et de connaître la volonté de Dieu, d’être vraiment aligné et d’accepter joyeusement cela.
 
 Dieu vous bénisse, mes enfants, belles âmes qui sont si disposées, si désireuses d’être dans la Grâce de Dieu, de mettre en œuvre Sa Volonté, de servir au nom de la Vérité et de Dieu, bien-aimés et en harmonie. Vos prières seront exaucées, mes bien-aimés, elles le sont chaque jour et vous servez Dieu, vous servez Dieu. Dieu vous bénisse, je suis Jean et je vous aime. Dieu vous bénisse, mes âmes bien-aimées.
-
-
-

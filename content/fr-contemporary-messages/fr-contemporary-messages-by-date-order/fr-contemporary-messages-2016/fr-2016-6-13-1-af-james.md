@@ -9,7 +9,7 @@ weight:
 ---
 ### Se libérer de la carapace qui entoure votre âme
 
-Jacques - reçu par Al Fike le 13 Juin 2016, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 13 Juin 2016, Gibsons, Colombie-Britannique, Canada.
 
 Oui, vous êtes tous anxieux de servir Dieu, d’être dans le flux de Son Amour, de marcher dans cette Lumière qui vous dirige sur votre chemin et apporte un flux de votre instrumentalité – vos dons et vos capacités – afin que les autres puissent bénéficier de ce que vous avez appris et de ce que vous avez à donner. Et chacun de vous est impatient de grandir davantage dans cet Amour, car vous sentez cet Amour pulser dans vos âmes, vous poussant à aller de l’avant, vous poussant à vous rapprocher de Dieu, vous poussant à être dans une plus grande Lumière, et vos esprits créent un sentiment d’urgence et vous souhaitez avancer de manière plus puissante dans ce monde.
 
@@ -26,6 +26,3 @@ Sachez que vous êtes aimés, que les anges de Dieu vous entourent, que vous ren
 Cela arrive. Cela vient, mes bien-aimés. Soyez patients et aimables envers vous-mêmes et ayez la foi que tout ce qui vous est destiné, toutes les choses bonnes et merveilleuses, les bénédictions et les changements arrivent au bon moment, au temps de Dieu, en harmonie. Et bien que vous goûtiez à ce doux nectar d’Amour et que vous aspiriez à être dans cet endroit si beau et si réconfortant, vous devez savoir que toutes les choses dans l’univers de Dieu ont besoin de temps et des bons éléments pour se développer et émerger. Soyez patient, et sachez que vous êtes en effet, embrassé par Dieu et nourri dans Son Amour et vous émergerez, vous connaîtrez cette grande bénédiction de la liberté, de la rédemption.
 
 Dieu vous bénisse, je suis Jacques et je vous aime. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

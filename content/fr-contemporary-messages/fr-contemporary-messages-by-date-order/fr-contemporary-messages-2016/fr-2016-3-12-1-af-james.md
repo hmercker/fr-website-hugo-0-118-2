@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédiction de la fête du travail à la maison de Selah
 
-Jacques - reçu par Al Fike le 12 Mars 2016, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 12 Mars 2016, Selah, Washington, USA.
 
 Mes bien-aimés, je suis Jacques et je suis venu pour être avec vous dans vos prières, mes bien-aimés, pour partager avec vous votre amour, pour apporter mon amour, dans ce Cercle de Lumière. Le plus grand atout que vous créez ici dans ce lieu est votre amour. En nettoyant, en travaillant et en harmonisant les choses dans cet endroit, vous attirerez vers vous et vers cet endroit ceux qui sont destinés à résider dans cette maison. Ce qui attire ces personnes, ces âmes, c’est l’amour que vous insufflez dans ces murs. Comme vous aimez cet endroit, la loi de l’attraction attirera ceux qui seront attirés par cet amour, seront réceptifs et trouveront une grande joie ici.
 
@@ -23,7 +23,4 @@ Il en est ainsi dans la vie, beaucoup de défis et de problèmes et de situation
 
 Dieu vous bénit, belles âmes. Vous vous réunissez parce que vous êtes attirés ensemble, vous travaillez ensemble parce que vous vous aimez les uns les autres, et en cela vous apportez un cadeau à ceux qui viennent, pour résider dans cette maison, un cadeau merveilleux. Soyez bénis pour vos efforts d’amour, soyez bénis pour votre volonté de donner par amour, de travailler par amour, de prier ensemble. Soyez bénis. Je suis Jacques et je vous aime.
 
-**Note :** Un petit groupe d'adeptes de l'Amour Divin était en train de réparer une maison pour la revendre.
-
-
-
+***Note :*** *Un petit groupe d'adeptes de l'Amour Divin était en train de réparer une maison pour la revendre.*

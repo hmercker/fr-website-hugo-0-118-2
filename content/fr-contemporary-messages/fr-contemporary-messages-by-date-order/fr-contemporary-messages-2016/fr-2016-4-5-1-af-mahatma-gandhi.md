@@ -9,11 +9,11 @@ weight:
 ---
 ### La faim spirituelle
 
-Mahatma Gandhi - reçu par Al Fike le 5 Avril 2016, Gibsons, Colombie-Britannique, Canada
+Mahatma Gandhi - reçu par Al Fike le 5 Avril 2016, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/mahatma-gandhi.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-mahatma-gandhi.jpg)
 
-« Car beaucoup sont mécontents. Nombreux sont ceux qui ne croient pas en Dieu. Beaucoup sont amers et s’accrochent à leur douleur si fort et ils marchent sur cette Terre, accablés. Leur faim spirituelle est bien plus grande que toute âme qui a et connaît Dieu, mais qui a faim de la chair. Cette famine spirituelle sévit dans le monde. Vous devez donc préparer un festin pour l’âme affamée, quelque chose d’appétissant, quelque chose qui l’attire et qui lui donne faim. Tout le monde a faim d’amour, mais beaucoup ne ressentent pas l’amour – ils ne ressentent pas l’amour, ils ne ressentent pas l’amour dans leur vie, seulement l’ombre de l’amour« .
+*« Car beaucoup sont mécontents. Nombreux sont ceux qui ne croient pas en Dieu. Beaucoup sont amers et s’accrochent à leur douleur si fort et ils marchent sur cette Terre, accablés. Leur faim spirituelle est bien plus grande que toute âme qui a et connaît Dieu, mais qui a faim de la chair. Cette famine spirituelle sévit dans le monde. Vous devez donc préparer un festin pour l’âme affamée, quelque chose d’appétissant, quelque chose qui l’attire et qui lui donne faim. Tout le monde a faim d’amour, mais beaucoup ne ressentent pas l’amour – ils ne ressentent pas l’amour, ils ne ressentent pas l’amour dans leur vie, seulement l’ombre de l’amour. »*
 
 Que Dieu vous bénisse et que l’amour de Dieu se répande en vous, chers et précieux habitants de cette Terre. Je suis le Mahatma Gandhi et vous êtes surpris. J’ai été attiré par votre conversation sur la façon de nourrir les pauvres, car c’est quelque chose qui me tient à cœur, car combien d’âmes pauvres et affamées vivent dans mon pays et comment je me suis battu pour ceux qui avaient faim, qui avaient faim de bien des façons. Et je suis maintenant un résident du Royaume Céleste, une autre fleur dans le jardin de Dieu et c’est un privilège pour moi de m’adresser à vous aujourd’hui, âmes bien-aimées.
 
@@ -38,7 +38,3 @@ Ne faiblissez pas, mes amis. Le monde est en crise profonde et a un grand besoin
 Oui, les dernières peaux sont en train de se détacher, ces choses qui vous retiennent. Ce n’est pas par hasard que vous vous êtes réunis en cette période, cette période cruciale, pour comprendre ce qui vous attend et ce qui est nécessaire. Vous devez être forts, forts dans votre cœur, forts dans votre vision, forts dans vos corps, car une grande œuvre vous attend. Et la façon dont vous vous engagerez sur ce chemin, les événements qui se produiront pour vous amener à cet endroit où les autres se concentrent sur vous, n’ont aucune importance en ce moment, il suffit de vous préparer, de faire tous les choix qui sont nécessaires en vous pour être ce canal clair d’Amour dans le monde. Tel est votre engagement en ce moment. Et vous devez vous consacrer à la prière, à la contemplation et à la clarification de toutes ces questions qui peuvent surgir alors que vous êtes mis au défi dans le monde. Et je vous promets d’être avec vous parce que je comprends vos luttes, je les comprends vraiment. Et je soutiendrai toutes les âmes qui tentent d’apporter un changement pour le mieux dans ce monde. C’est nécessaire, car le monde devient si pollué par la négativité et les qualités destructrices, ceux qui ne souhaitent que le pouvoir et n’ont aucune pensée pour le bien de tous ou le bien de ce bel endroit, la création de Dieu. Il faut se battre pour repousser les ténèbres. Il doit l’être. Et je me joindrai à vous dans vos combats et vous apporterai ma force, comme le feront beaucoup, comme le feront beaucoup dans le Royaume Céleste et comme le feront aussi beaucoup dans le monde des esprits qui vous soutiendront. L’humanité a besoin d’une plus grande vision et de motivations plus pures. Tout cela est nécessaire. Vous devez aspirer à être les instruments de changement de Dieu dans le monde.
 
 Votre cher ami le Mahatma Gandhi est avec vous. Et je vous bénis, âmes bien-aimées, pour vos efforts. Que Dieu vous bénisse, avec Amour, que Dieu vous bénisse.
-
-
-
-

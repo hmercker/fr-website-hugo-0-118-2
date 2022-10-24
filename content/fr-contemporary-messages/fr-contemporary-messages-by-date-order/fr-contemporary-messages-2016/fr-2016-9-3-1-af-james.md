@@ -9,7 +9,7 @@ weight:
 ---
 ### Priez pour l’humanité
 
-Jacques - reçu par Al Fike le 3 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 3 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 …Il y a mes âmes bien-aimées, une grande privation. Malgré tout le matériel que vous possédez, qui est possédé au sein de ce monde, presque toutes les âmes résidant en ce lieu ont un grand manque en elles et ces conditions, ce manque d’amour, cette incapacité à aller au-delà de soi-même dans l’amour, continuent à créer des conditions sombres, des guerres et des conflits, une faim profonde dans l’humanité, âmes bien-aimées, une faim profonde de substance qui n’est pas de nature matérielle mais spirituelle.
 
@@ -24,6 +24,3 @@ C’est ce que vous devez faire. C’est tellement important et venez ensemble, 
 Bien-aimés, soyez forts. Concentrez-vous sur l’Amour et la Lumière. Concentrez-vous sur le fait d’être un canal d’Amour et de Lumière et Dieu vous utilisera d’une manière encore inattendue, des opportunités se présenteront à vous afin que vous puissiez être un agent de changement dans le monde et apporter davantage de Lumière, de paix, de changement et d’Amour. Les opportunités abondent. C’est à vous de voir et d’agir, de mettre l’amour en action, de mettre la sagesse en application, de mettre la Vérité dans chaque respiration que vous prenez.
 
 Merci, âmes bien-aimées. Je suis Jacques et je vous aime.
-
-
-

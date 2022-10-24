@@ -9,7 +9,7 @@ weight:
 ---
 ### Allez-vous marcher avec Dieu ?
 
-St Jean - reçu par Al Fike le 16 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 16 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je m’appelle Jean. Le monde a un grand besoin de changement. Le monde a faim d’amour. Le monde souffre du manque d’amour dans l’humanité. Chacun de vous a un ministère dans ce monde pour apporter l’amour à l’humanité, pour démontrer et enseigner la puissance de l’amour de Dieu. Et chacun de vous a été appelé par Jésus à être son disciple.
 
@@ -38,6 +38,3 @@ Vous ressentez l’appel dans vos âmes. Vous en connaissez la vérité, le pouv
 Soyez avec Dieu, mes enfants bien-aimés. Apprenez à connaître Dieu comme une présence constante avec vous et en vous, et tout se déroulera en harmonie et dans l’Amour. Suivez la Lumière. Soyez dans la Lumière. Soyez fidèles à vous-mêmes et à Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Jean et je vous aime et je suis à vos côtés alors que vous continuez à chercher la vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

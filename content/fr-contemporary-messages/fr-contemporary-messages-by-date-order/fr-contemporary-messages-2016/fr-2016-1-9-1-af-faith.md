@@ -26,6 +26,3 @@ Oui, chacun de vous a un but profond, un chemin à parcourir, un grand voyage de
 Bien-aimés, vous ne marchez pas seuls, vous ne le ferez jamais et Dieu aura toujours Sa Main sur vos âmes parce que vous avez fait ce choix par Amour. Vous avez reconnu les désirs de votre âme, vous avez accepté la simple Vérité de la rédemption de votre âme par l’Amour, et vous ne pouvez pas revenir en arrière et vous avancerez d’un grand pas durable, accéléré, résolu, joyeux.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre amie Faith est avec vous et j’attends avec impatience le jour où je pourrai me tenir à la porte de ce lieu lointain et vous accueillir lorsque vous franchirez le seuil, sachant que vous êtes destinés à être dans cette maison de Dieu. Âmes bien-aimées, cela vient et vous serez toutes là, à un moment ou à un autre, apportant la Lumière, apportant votre belle Lumière à cet endroit qui a tant besoin de Lumière. Dieu vous bénisse, mes bien-aimés. Faith vous aime. Que Dieu vous bénisse.
-
-
-

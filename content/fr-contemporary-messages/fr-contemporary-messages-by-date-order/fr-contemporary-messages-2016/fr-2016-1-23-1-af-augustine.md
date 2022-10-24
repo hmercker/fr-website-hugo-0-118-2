@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière
 
-Augustin - reçu par Al Fike le 23 Janvier 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 23 Janvier 2016, Oahu, Hawaii, USA.
 
 Que Dieu vous bénisse, mes âmes bien-aimées. En effet, il est important de prier. Il est important de commencer votre journée par la prière, d’exposer vos intentions à Dieu, et d’écouter les intentions de Dieu pour vous, mes bien-aimés. Car lorsque vous priez et ouvrez ce canal et cette connexion avec votre Créateur, lorsque vous recevez Son Amour qui coule dans vos âmes, lorsque vous ouvrez votre esprit et votre cœur, vous êtes alors réceptifs aux conseils de Dieu, vous nous attirez alors au milieu de vous, vous mettez en place le flux, le processus, le déroulement de cette lumière et des effusions guidées à tous ceux que vous rencontrez.
 
@@ -22,6 +22,3 @@ Oui, mes bien-aimés, c’est que la prière sincère, qu’elle soit exprimée 
 Bien-aimés, continuez dans vos prières, parvenant toujours plus haut, cherchant toujours plus de Vérité et d’Amour par vos prières. Dieu communique avec vous, mes bien-aimés, et, par vos prières, vous attirez, vers vous, les anges les plus élevés. La puissance de la prière, la puissance de la prière, mes bien-aimés, vous la recherchez, vous la reconnaissez et vous utilisez cette Vérité pour faire avancer votre propre croissance et apporter plus de Lumière dans ce monde et à ceux que vous aimez et auxquels vous êtes connectés, à de nombreuses autres âmes qui tirent profit de votre prière. Continuez, mes bien-aimés, à prier et à prier souvent et soyez sincères et vrais dans vos prières, mes bien-aimés.
 
 Que Dieu vous bénisse pleinement en vous ouvrant à ces bénédictions qui viendront dans de grands torrents et de petites gouttes, une pluie puissante d’Amour se déversant sur vous, bien-aimés, par vos prières, soyez comblés de multiples façons. Que Dieu vous bénisse, mes âmes bien-aimées. Je suis votre maître Augustin et je vous aime et j’aime écouter vos prières, si belles, si pures. Âmes bien-aimées, que Dieu vous bénisse puissamment dans vos efforts. Que Dieu vous bénisse.
-
-
-

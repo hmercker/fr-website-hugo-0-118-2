@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon sur la fausseté de l’expiation indirecte et la nature incertaine de la vérité personnelle
 
-Moïse - reçu par Al Fike le 12 Avril 2016, Gibsons, Colombie-Britannique, Canada
+Moïse - reçu par Al Fike le 12 Avril 2016, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse mes enfants, je suis Moïse. Et je vous remercie ma fille pour votre prière. Tu as une Lumière pure et un désir profond d’être avec Dieu, ma fille bien-aimée, et tes prières atteignent le Père Céleste et sont exaucées chaque jour.
 
@@ -26,6 +26,3 @@ Nous, les Juifs, accordions une grande importance aux mots écrits. Nous pension
 Et je dirais qu’un individu vivant à l’époque actuelle aurait beaucoup de difficultés à discerner la Vérité dans ce document. Car le mot n’est pas sacré. Non, les mots sont des mots. Ce qui est sacré, c’est votre croyance et votre connexion, votre rapport avec votre Père céleste. De cette façon et en recevant Son Amour, Son Essence, dans votre âme, vous apporterez la Vérité, qui émergera de vos âmes et trouvera un logement dans vos esprits. Elle se développera, se déploiera et évoluera progressivement, de sorte qu’une compréhension véritable et complète vous parviendra grâce aux perceptions de votre âme et aux efforts de votre esprit pour accepter ces vérités telles que Dieu vous les donne, par Son amour et par Sa communication avec vous.
 
 La Vérité n’est pas tout à fait absolue. Elle est perçue par chaque âme individuelle, et bien que le fondement de la Vérité puisse être universel, la perception de la Vérité ne l’est pas nécessairement. Et de cette façon, vous devez encourager chaque âme à trouver cette Vérité à travers ses propres efforts, ses propres perceptions et ses propres prières, et bien que leur vérité, leur compréhension, leur perspective puissent être légèrement différentes des vôtres, elles n’en sont pas moins valables. Et essayer d’uniformiser la Vérité avec des mots dans un livre est un effort infructueux. Exprimer votre vérité aux autres et apporter une suggestion de la Vérité dans le mot écrit, car c’est simplement tout ce qu’il est, est une action productive. Ainsi, en effet, chaque humain, chaque personne, chaque mortel est contraint de partager sa vérité avec les autres et cela doit être honoré.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne vacillez pas sur votre chemin
 
-St Jean - reçu par Al Fike le 26 Janvier 2016, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 26 Janvier 2016, Oahu, Hawaii, USA.
 
 Dieu vous bénisse, je suis Jean, connu sous le nom de Jean le bien-aimé. Ouvrez vos âmes bien-aimées au toucher de Dieu. Sentez-Le vous attirer au-delà des conditions de cette Terre vers un lieu de paix profonde et de présence merveilleuse et permettez à l’Esprit Saint de placer en vous tous les Dons d’Amour que Dieu a à vous donner, mes bien-aimés.
 
@@ -22,6 +22,3 @@ Oui, on a besoin de vous, on a besoin de vous dans le monde et vous devez être 
 Âmes bien-aimées, les anges vous entourent. Les anges vous entourent et le grand soin, la protection, l’Amour et la présence de Dieu sont dans votre vie, dans votre être. Que pourrait-on demander de plus, mes bien-aimés, que ce cadeau spécial, ce cadeau spécial qui vient avec Son Amour ? Cherchez les opportunités que Dieu a mises devant vous, soyez ouverts, soyez vigilants. Demandez que vos âmes soient enflammées par l’Amour, que les facultés de vos âmes puissent s’animer, que vous puissiez vraiment connaître le sens de mes paroles et la compréhension de votre véritable moi, de votre véritable but et de vos véritables Dons.
 
 Marchez avec Dieu et vous serez guidés toujours plus loin avec le Maître Jésus qui ouvre la voie. Soyez en paix, mes bien-aimés, et sachez que votre réunion n’est pas un accident mais un autre cadeau de votre Père Céleste. Un parmi tant d’autres qui viendront en grande abondance, par vagues successives de directives aimantes, de cadeaux guidés, puissants et utiles. Et vous devez vous concentrer sur cela et apprendre à le connaître et à vous familiariser avec les voies de Dieu et les voies de votre âme. Bien-aimés, soyez en paix et sachez que Dieu vous aime au-delà de toute mesure avec une si grande abondance, pour voir cet Amour, pour vraiment connaître cet Amour, pour être perdu dans le sentiment d’être submergé et emporté par ce grand, glorieux Amour. Soyez en paix. Je vous aime, je suis Jean et je vous aime.
-
-
-

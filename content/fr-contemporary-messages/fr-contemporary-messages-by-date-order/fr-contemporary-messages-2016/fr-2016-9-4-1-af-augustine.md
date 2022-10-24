@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuez à servir
 
-Augustin - reçu par Al Fike le 4 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 4 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est votre enseignant Augustin. Je crois que vous avez appris de nombreuses leçons avec ce rassemblement d’âmes dans un.pays étranger à beaucoup d’entre vous et familier à certains d’entre vous. Et il en sera ainsi, mes chers élèves, vous vous aventurerez dans d’autres terres, d’autres pays, d’autres cultures, d’autres peuples, d’autres traditions, d’autres langues, car Dieu ne réside pas seulement avec vos propres peuples, mais avec tous les peuples du monde. Et il est important pour vous d’être parmi de nombreux peuples différents dans ce monde, d’être familiers et à l’aise avec toutes ces cultures différentes ; de marcher parmi vos frères et sœurs en ayant le sentiment de faire partie de la race humaine, car en vérité vous êtes frères et sœurs dans ce monde. Et dans tout cela, l’amour doit informer vos actions et vos paroles et vous devez tous être forts, remplis de l’Amour, remplis du désir de servir, remplis du flux de l’Amour de Dieu à travers vous. Car c’est dans vos efforts, ceux d’entre vous qui sont bien établis sur ce chemin et qui ont une foi solide, qu’il vous appartient d’encourager, d’améliorer, de prier profondément lorsque vous êtes parmi ceux qui ont faim et qui n’ont pas eu l’expérience et la croissance dans leurs âmes que vous avez eues, mes bien-aimés.
 
@@ -25,6 +25,3 @@ Il y a une plénitude, une richesse dans vos actions, dans vos vies, alors que v
 Continuez dans votre service, dans vos prières, dans votre désir d’être proches de Dieu et dans votre désir de servir l’humanité dans l’amour et Dieu vous utilisera, âmes bien-aimées, vous emmènera dans un voyage miraculeux rempli de surprises, rempli de choses inimaginables, rempli de cœurs chaleureux s’ouvrant, s’épanouissant, au grand Amour de Dieu. Continuez, âmes bien-aimées, dans ces grands efforts. Vous ne pouvez pas imaginer les récompenses, les bénédictions, ce que vous créez dans votre âme par le service et l’amour, la prière et la foi. De grandes bénédictions, de grandes bénédictions qui vous porteront loin, non seulement dans ce monde mais aussi dans le prochain. Ames bien-aimées, nous sommes heureux de vos efforts, nous sommes très heureux. Nous vous aimons et continuerons à vous guider alors que vous marchez sur ce chemin de service, alors que vous êtes renforcés, alors que le canal en vous grandit et s’éclaircit, devient puissant et beau.
 
 Votre enseignant Augustin vous aime, continuera à être à vos côtés pour vous guider, vous enseigner et vous aimer. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je vous aime.
-
-
-

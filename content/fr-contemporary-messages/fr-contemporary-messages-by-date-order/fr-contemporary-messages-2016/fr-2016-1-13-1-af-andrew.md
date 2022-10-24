@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chemin que vous parcourez ensemble
 
-André - reçu par Al Fike le 13 Janvier 2016, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 13 Janvier 2016, Hawaii, USA.
 
 Dieu vous a réunis, mes bien-aimés. Il a ouvert cette porte parce que vos désirs d’âme vous ont amenés dans cette communion les uns avec les autres et vos désirs de servir Dieu, d’être un canal de Son Amour, d’être dans ce flux de Sa Volonté et sont en harmonie les uns avec les autres, mes bien-aimés. Vous êtes vraiment des frères et des sœurs dans ce flux bien-aimé de l’Amour du Père, de Ses soins et de Sa garde, pour chacun d’entre vous. Et chacun d’entre vous, mes bien-aimés, franchit un nouveau seuil, une nouvelle ouverture qui vous permet d’exprimer votre but dans ce monde, que Dieu vous utilise de manière puissante, que vous atteigniez beaucoup, beaucoup d’âmes ensemble sur ce Chemin que vous avez choisi, le Chemin Divin.
 
@@ -31,4 +31,3 @@ C’est l’amour au sein de vos âmes qui brise toutes les barrières et avec l
 Exprimez vos peurs et vos doutes. Exposez-les au grand jour. Permettez à Dieu de les prendre et de les disperser, car ces choses ne font plus vraiment partie de vous. Vous êtes dans la Lumière. Vos âmes vibrent avec l’Amour, un profond et retentissant battement de cœur d’Amour. Vous devez marcher à l’intérieur de ce battement, de cette Lumière qui pulse en vous et Dieu vous guidera, mes bien-aimés, vers de nombreux endroits dans ce monde. Vous êtes destinés à travailler ensemble de cette manière en enseignant, en guérissant, en aimant, en découvrant chaque jour ce que Dieu veut que vous fassiez.
 
 Et nous serons avec vous, nous serons certainement avec vous, mes bien-aimés, alors que vous marchez sur votre chemin dans le service et l’amour, dans la joie et l’harmonie, nous serons avec vous, sans jamais vous quitter, toujours pour vous soutenir et marcher avec vous à chaque respiration et à chaque pas que vous faites. Bien-aimés, soyez en paix et sachez que vous êtes vraiment aimés et que nous sommes heureux que vous vous réunissiez pour établir et renforcer ces puissants liens d’Amour, si importants, si nécessaires pour apporter la Lumière dans ce monde, pour étendre le réseau de Lumière, pour apporter des cercles et des centres de Lumière dans ce monde, pour exécuter les ordres de Dieu, pour utiliser vos dons, pour vous concentrer sur ce chemin et ce but. Âmes bien-aimées, vous êtes avec Dieu et nous sommes avec vous et nous sommes tous dans cette Lumière et Sa présence. Bien-aimés, que Dieu vous bénisse, je suis André.
-

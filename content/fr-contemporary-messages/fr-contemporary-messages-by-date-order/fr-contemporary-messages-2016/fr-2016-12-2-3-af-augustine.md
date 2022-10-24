@@ -9,7 +9,7 @@ weight:
 ---
 ### Se tourner vers l’âme plutôt que vers l’esprit
 
-Augustin - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, Augustin.
 
@@ -32,6 +32,3 @@ En cela, il n’est pas nécessaire de convaincre l’autre mais d’être en pr
 Pouvez-vous le faire, mes bien-aimés, pouvez-vous marcher de cette façon et mettre de côté vos préoccupations, ces pensées qui sont inévitablement créées en vous, un reflet de la condition humaine et être purs en vous-mêmes et votre connexion avec Dieu et votre volonté et vos capacités d’aimer ?
 
 Âmes bien-aimées, Dieu vous supplie de marcher dans cette voie. Beaucoup d’entre vous ont prié pendant de nombreuses années, vous avez vécu beaucoup de choses dans la vie, vous voyez que tant de choses tombent dans l’erreur autour de vous, mais plutôt que de juger, vous devez aimer, plutôt que d’insister pour que l’autre change, aimez-le, soyez l’Amour et en cela vous accomplissez le désir de Dieu et votre but. C’est très simple, mes bien-aimés, mais difficile à faire dans un monde de défis et donc nous continuons à vous soutenir et à vous épauler alors que vous continuez à pratiquer cette simple vérité et nous continuerons à enseigner et à guider, à aimer et à donner notre amour alors que vous continuez à lutter et à trouver ce beau chemin qui vous est destiné, mes bien-aimés. Vous êtes déjà sur ce chemin et certains d’entre vous ne le réalisent pas et d’autres le font. Ouvrez vos yeux, mes bien-aimés, ouvrez vos yeux sur ce qui est vraiment important et précieux. Soyez la lumière, cherchez votre Père céleste en toutes choses et soyez assez forts pour regarder en vous-mêmes et permettre à ce qui n’est pas en harmonie avec l’Amour de Dieu de tomber. Vous êtes assez forts, vous êtes assez sages pour le faire, âmes bien-aimées.
-
-
-

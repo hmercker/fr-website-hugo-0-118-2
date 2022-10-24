@@ -1,15 +1,15 @@
 ---
-title: "Lutte du mental"
+title: "Lutte de l’âme et du mental"
 menu_title: ""
-description: "Lutte du mental"
-date: 2022-06-01 06:00:01+00:170
+description: "Lutte de l’âme et du mental"
+date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True
 weight:
 ---
-### Lutte du mental
+### Lutte de l’âme et du mental
 
-Confucius - reçu par Al Fike le 10 Mars 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 10 Mars 2016, Selah, Washington, USA.
 
 Mes chères âmes bien-aimées, vous luttez tellement entre vos âmes et vos pensées. Votre âme est avec Dieu, chacun de vous, mes bien-aimés. Votre âme est avec Dieu, et vos esprits sont souvent avec l’humanité et les conditions de l’humanité et cela provoque une lutte en vous.
 
@@ -24,6 +24,3 @@ Ne sentez-vous pas la paix de Dieu en vous en ce moment ? Vos esprits sont calme
 Âmes bien-aimées, vous êtes aimées, vous êtes nourries, vous êtes enseignées, le chemin vous est montré, vous êtes bénies par la puissante essence de Dieu. Il n’y aura pas d’échecs, il y aura des résultats triomphants, glorieux, merveilleux dans vos vies, mes bien-aimés, si vous marchez dans la vraie foi en ce glorieux Amour guidé par le savoir de votre âme.
 
 Mes bien-aimés, soyez en paix et sachez que tout va bien et continuera dans la lumière de la volonté et de l’Amour de Dieu. Dieu vous bénisse, Je suis votre enseignant Augustin et je suis heureux de vos efforts pour apporter l’Amour à ce monde, à vous-mêmes, à tous ceux que vous rencontrez. Âmes précieuses, continuez dans cette voie. Continuez car vous avez été bénies. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

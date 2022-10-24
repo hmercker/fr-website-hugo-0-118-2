@@ -9,7 +9,7 @@ weight:
 ---
 ### La médiumnité et l’atteinte de ce qui est le plus élevé
 
-Seretta Kem - reçu par Al Fike le 6 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 6 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Salutations à vous, mes compagnons de voyage sur le Chemin Divin. Je suis Serreta Kem et je souhaite aujourd'hui parler du sujet de la médiumnité puisque beaucoup d'entre vous sont intéressés par ce sujet particulier et c'est une bénédiction en effet de pouvoir vous communiquer en mots par le biais d'un médium dans ce cercle.
 
@@ -56,6 +56,3 @@ Ainsi, lorsque vous prendrez part à un cercle dans lequel sont communiqués des
 Ainsi, j'ai beaucoup parlé, mes bien-aimés, et j'espère avoir apporté clairement certaines compréhensions sur le don de médiumnité et le don de communication et de rapport avec les anges. Ce n'est pas quelque chose à prendre à la légère et c'est un cadeau pour vous sur Terre d'avoir de telles choses, mais le plus grand cadeau est le cadeau de l'Amour Divin sur lequel vous devez vous concentrer par-dessus tout. Avec le temps, ceux qui sont quelque peu confus, la confusion se dissipera et vous saurez clairement ce que vous désirez vraiment dans vos âmes et cela vous apportera de la joie. Vous ne désirerez pas tant la connaissance, mais plutôt l'Amour, et vous ressentirez une joie et une paix profondes et durables.
 
 Je vous remercie, mes bien-aimés, je suis Serreta Kem, je vous remercie d'avoir écouté et je vous donne des bénédictions d'amour. Je suis votre humble serviteur, je suis souvent avec vous et je suis heureux de parler. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

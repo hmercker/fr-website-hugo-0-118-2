@@ -9,7 +9,7 @@ weight:
 ---
 ### Rangez votre bouclier et votre armure et dirigez avec amour
 
-André - reçu par Al Fike le 9 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 9 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est une nation sans confiance. Chaque âme, semble-t-il, dans ce lieu est craintive et trouve très difficile de faire confiance à l’autre. Et ils trouvent effectivement un certain réconfort les uns dans les autres en construisant une condition provisoire de confiance, les uns envers les autres, mais ils sont toujours las de la trahison, très sensibles à la plus petite insinuation. C’est une condition très difficile à surmonter. La plupart de l’humanité doit faire face à cette suspicion et à ce manque de confiance envers l’autre, car nombreux sont ceux qui voudraient en profiter et faire souffrir les autres. Pourtant, il y en a beaucoup plus qui aspirent à aimer, qui aspirent à vivre dans un lieu de paix, de confiance et d’amour.
 
@@ -36,6 +36,3 @@ Le monde est un endroit complexe rempli de nombreuses idées complexes. La véri
 Merci de m’avoir écouté. Merci d’être une lumière dans le monde. Je vous aime tous tendrement. Je suis André et je suis souvent avec vous et je suis si heureux de vos efforts et de vos tentatives pour marcher dans la foi et dans l’Amour. Vous deviendrez plus forts. Vous saurez, à partir de ce lieu intérieur, que votre vie deviendra plus simple, mais ce que vous faites sera varié, important, puissant et exigera beaucoup de vous, mes bien-aimés. Pourtant, vous serez en paix et vous saurez que vous faites le travail de Dieu. Dieu vous bénisse, âmes bien-aimées, qui êtes prêtes à suivre le Chemin Divin et à enseigner l’Amour de Dieu.
 
 Vous êtes aimés. Vous êtes vraiment aimés. Que Dieu vous bénisse.
-
-
-

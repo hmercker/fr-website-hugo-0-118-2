@@ -9,7 +9,7 @@ weight:
 ---
 ### Bienvenue dans ce cercle d’Amour
 
-Confucius - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c’est Confucius.
 
@@ -18,6 +18,3 @@ Vos cœurs se réjouissent en effet de se réunir. Mes beaux oiseaux, vous vous 
 Âmes bien-aimées, Dieu a appelé chacun de vous dans ce cercle et vous serez bénis en continuant à prier ensemble. Sa paix vous entoure, les anges sont avec vous. Buvez profondément et soyez en paix dans ces saints moments de silence.
 
 Confucius vous aime. Dieu vous bénisse.
-
-
-

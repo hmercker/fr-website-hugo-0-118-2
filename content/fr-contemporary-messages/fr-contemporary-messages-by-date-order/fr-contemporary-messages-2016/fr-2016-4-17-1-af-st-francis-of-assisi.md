@@ -9,7 +9,7 @@ weight:
 ---
 ### La voie simple de l’amour
 
-St François d'Assise - reçu par Al Fike le 17 Avril 2016, Gibsons, Colombie-Britannique, Canada
+St François d'Assise - reçu par Al Fike le 17 Avril 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que le grand Amour de Dieu remplisse vos âmes et vous rapproche toujours plus de la grande fontaine d’Amour, de la source de Lumière, de la grande rivière d’Amour.
 
@@ -26,6 +26,3 @@ J’ai choisi la vie simple lorsque j’étais sur Terre et de grandes bénédic
 C’est un chemin simple, qui demande peu de choses de votre part, si ce n’est l’acceptation, l’ouverture, la force et la cohérence, de prier sincèrement, d’être humble, de marcher de manière harmonieuse dans ce monde. Vous êtes tous capables de le faire et vous essayez à votre manière. Vous essayez, et vous voyez à travers vos efforts et vos erreurs comment cela est fait et nous qui sommes avec vous, nous vous assistons, nous vous soutenons et nous vous montrons le chemin, et chaque jour vous devenez plus fort, chaque pas est plus sûr, chaque effort que vous faites est imprégné d’une plus grande Lumière, et ainsi cela ira étape par étape, choix par choix, prière par prière, permettant à cette plus grande Lumière, cette Connexion Divine d’informer votre vie, de transformer votre être par l’Amour Divin de Dieu.
 
 Je vous remercie, mes bien-aimés, de me permettre de vous parler tout en envoyant vos prières vers le Ciel, de rechercher la vérité, la beauté et l’Amour. Continuez dans ces efforts. Continuez à choisir la Lumière. Continuez à suivre le chemin simple et vous connaîtrez en effet une grande joie, la paix, l’émerveillement et l’Amour. Que Dieu vous bénisse. Je suis Francis et je vous aime.
-
-
-

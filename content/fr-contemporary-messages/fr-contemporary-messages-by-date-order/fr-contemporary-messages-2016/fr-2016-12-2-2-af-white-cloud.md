@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde a besoin de vos prières
 
-White Cloud - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+White Cloud - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous frères et sœurs, je suis Nuage blanc. J’ai entendu vos prières pour mes frères et sœurs qui ont puissamment lutté dans ce monde et pour cette planète qui lutte également pour conserver son équilibre et je vous dis que ceux qui résistent et appellent à la vérité, le font parce que dans leur cœur ils connaissent la vérité et il y en aura beaucoup plus dans ce monde qui se rassembleront et diront la vérité, et cela peut causer la division dans le monde mais il doit y avoir une voix qui crie pour la vérité et l’amour dans le monde. Pendant trop longtemps, le monde a souffert des abus de l’homme, de la cupidité, de l’incapacité à aimer.
 
@@ -23,6 +23,3 @@ Cherchez à exprimer l’amour dans tout ce que vous faites. Cherchez à servir 
 Cherchez votre Père céleste pour recevoir Son Amour afin qu’il puisse couler à travers vous dans tous les aspects de votre vie et soyez humble, gracieuse, douce, forte.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Nuage Blanc et je suis avec vous dans vos efforts, dans vos prières, dans vos luttes. Que Dieu vous bénisse.
-
-
-

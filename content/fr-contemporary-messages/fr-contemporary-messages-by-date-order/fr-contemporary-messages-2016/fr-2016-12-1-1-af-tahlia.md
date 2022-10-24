@@ -9,7 +9,7 @@ weight:
 ---
 ### Semer les graines de la vérité
 
-Tahlia - reçu par Al Fike le 1er Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Tahlia - reçu par Al Fike le 1er Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Mes amis, que l’Amour du Père trouve un afflux profond et continu dans votre âme. Je suis Tahlia et je fais partie de votre cercle et j’ai un lien très spécial avec mon amie qui vient d’où je viens et je la salue avec amour et je souhaite l’encourager dans ses efforts pour explorer les nombreux dons qui résident en elle et qui sont puissants et commencent tout juste à émerger. Le don de guérison, mes amis, est un don puissant et je viens l’aider, elle et tous ceux d’entre vous qui souhaitent donner la guérison aux autres, car moi aussi, je possède le don de guérison. J’étais consciente de ce don lors de ma vie terrestre et maintenant, ce don a évolué, s’est renforcé et s’est épanoui au cours de ma progression à travers les sphères de l’esprit jusqu’au Royaume Céleste.
 
@@ -33,8 +33,3 @@ Que Dieu vous bénisse, Tahlia vous aime.
 <small>
 
 1. <large id=”f1”> Il faut probablement voir, dans cette remarque, une allusion à la publication des messages sur Internet par Geoff Cutler, webmaster des sites https://new-birth.net/ et https://soultruth.ca/ où les divers messages ont été originellement publiés.[↩](#a1) 
-
-
-
-
-

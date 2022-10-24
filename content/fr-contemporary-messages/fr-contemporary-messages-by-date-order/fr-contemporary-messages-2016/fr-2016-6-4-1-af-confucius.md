@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez forts dans la lumière et résistez aux défis
 
-Confucius - reçu par Al Fike le 4 Juin 2016, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 4 Juin 2016, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes bien-aimées et précieuses, je suis Confucius. Chacun d’entre vous a été attiré ici parce que vos âmes souhaitent s’unir ensemble dans la prière, connaître cette fraternité et être dans cette Lumière. Reconnaissez toujours le pouvoir des désirs de votre âme, mes belles âmes, et reconnaissez le pouvoir de Dieu dans vos vies et comment vous pouvez être touchés par cette main puissante d’Amour et de guérison et de paix. Et chaque âme, quelles que soient les conditions dans lesquelles elle se trouve ou auxquelles elle doit faire face dans ce monde, a la possibilité de s’élever vers la Lumière, de recevoir la guérison dont elle a besoin et d’apporter la sagesse requise, d’apporter l’harmonie dans sa vie et le potentiel d’apporter l’harmonie dans la vie de ceux qui l’entourent. Mais il est important, mes bien-aimés, de fixer votre intention pour la Lumière, d’être un exemple de Lumière, d’être fort dans vos âmes, d’être toujours proche de Dieu. Car dans cette relation avec le Créateur, dans ce beau flux d’Amour qui vient de Dieu, vous êtes capables de surmonter toutes les difficultés, de ne pas permettre à la condition humaine qui est si difficile et lourde, négative et chaotique de vous submerger lorsque vous êtes dans le flux de l’Amour de Dieu, et lorsque vous êtes ouverts à ce Don de Sa présence en vous et autour de vous.
 
@@ -26,6 +26,3 @@ Chacun d’entre vous est capable, est fort, est beau et est aimant. Vous devez 
 Continuez à voir votre chemin à travers la forêt jusqu’à cette clairière éclairée de paix et de tranquillité, d’Amour et de Lumière, de la Présence de Dieu vous enveloppant et vous apportant paix et réconfort. Chacun a des dons à donner et chacun recevra des dons de Dieu.
 
 Marchez dans votre Lumière, âmes bien-aimées, et ne cédez pas à la négativité ou à l’erreur, mais marchez dans votre vérité et soyez toujours dans la vérité de l’Amour de Dieu, et vous découvrirez que ces conditions qui vous bouleversent tant disparaîtront et vous trouverez cette libération que vous recherchez, la joie dans votre cœur et l’Amour dans votre âme, si précieux pour Dieu, si précieux pour les anges et une Lumière qui marche parmi l’humanité. N’oubliez jamais cela, vous êtes une Lumière et vous êtes fort. Dieu vous bénit. Confucius vous aime et je suis avec vous lorsque vous souffrez, lorsque vous criez. Je suis avec vous et de nombreux anges cherchent à vous apporter le confort, la guérison et la grâce. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque jour a le potentiel d’apporter la lumière si les intentions sont bonnes
 
-Jean le Bien Aimé - reçu par Al Fike le 14 Avril 2016, Gibsons, Colombie-Britannique, Canada
+Jean le Bien Aimé - reçu par Al Fike le 14 Avril 2016, Abbotsford, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis Jean le bien-aimé. C’est si beau de voir l’amour que vous partagez, âmes bien-aimées. Avoir cette amitié, cette fraternité, travailler ensemble de cette façon, crée une puissante lumière. Une lumière qui brille et qui attirera beaucoup de monde vers vous. Comme vous en avez été témoins la nuit précédente (cercle de prière à Abbotsford), les âmes sont attirées et continueront d’être attirées par cette lumière, par vos intentions de servir les autres et c’est ce dont je souhaite parler aujourd’hui : Le pouvoir de l’intention.
 
@@ -30,6 +30,3 @@ Vous êtes vraiment des enfants de Dieu lorsque vous désirez vivre dans le cadr
 Continuez à vous exprimer, mes bien-aimés, à tester ces vérités, à confronter l’erreur qui est en vous, à embrasser les défis qui sont devant vous et à accepter volontiers les opportunités que Dieu place devant vous pour Le servir, pour être ce canal de Lumière. Car chacun d’entre vous a une grande capacité à apporter la Lumière aux autres, chacun est une expression unique qui est votre belle âme, votre personnalité et votre être. Elle touche beaucoup de gens, de nombreuses façons, de belles façons. Puissiez-vous continuer à exprimer votre Lumière afin que le changement dans le monde puisse se produire conformément à la volonté de Dieu.
 
 Un petit peu de vous – votre intention, votre amour et votre expression peuvent créer, à terme, des changements puissants dans ce monde pour la Lumière. Ne vous découragez pas, mais soyez encouragés, car chaque jour que vous passez dans ce monde contient ce grand potentiel, a un pouvoir de changement, des expressions d’Amour, est imprégné de Lumière. Âmes bien-aimées, je vous aime. Vous êtes beaux et ensemble vous apportez une grande Lumière et c’est beau à voir. Continuez dans votre amitié, dans votre travail ensemble, dans l’amour et la confiance, permettant à chaque belle âme de contribuer à l’ensemble de cette belle Lumière, pour apporter, à ce monde, l’expression de l’Amour de Dieu de façon merveilleuse. Que Dieu vous bénisse, mes bien-aimés. Je suis Jean et je vous aime. Que Dieu vous bénisse.
-
-
-

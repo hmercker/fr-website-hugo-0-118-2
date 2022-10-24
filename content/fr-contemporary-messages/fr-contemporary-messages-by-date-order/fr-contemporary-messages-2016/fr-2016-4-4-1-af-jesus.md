@@ -9,7 +9,7 @@ weight:
 ---
 ### Il y a une route plus élevée de service - une qui reconnaît un batteur différent
 
-Jésus - reçu par Al Fike le 4 Avril 2016, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 4 Avril 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je viens. Je suis Jésus. Je vous ai vu grandir, mes bien-aimés, mes beaux frères et sœurs, dans cet Amour Divin. J’ai vu la Lumière grandir en vous, en chacun de vous brûle cette lanterne, cette lanterne de Vérité et d’Amour. Et ensemble vous créez ce Cercle de Lumière, ce Cercle de Lumière dans le monde.
 
@@ -34,6 +34,3 @@ Marchez avec moi, mes bien-aimés. Marchez avec moi sur ce chemin de l’amour e
 Âmes bien-aimées, je suis avec vous dans vos luttes et je me réjouis lorsque je vois la Lumière brûler en vous. Et je vois que vous êtes sur le point de comprendre vraiment mes paroles et de parvenir à ce lieu d’abandon à Dieu. Vous y arriverez tous en temps voulu, à votre manière, et Dieu sera là, attendant de vous embrasser, attendant de prendre tous vos fardeaux et de prendre soin de vous complètement, avec amour.
 
 Suivez cette route, mes bien-aimés. Elle vous demande d’aller de l’avant, et nous serons avec vous, pour vous soutenir et vous porter afin que vous puissiez arriver à ce réveil, cette grande libération et acceptation. Dieu vous bénisse, je suis Jésus et je viens pour aimer et je viens pour vous pousser en avant, je viens pour vous dire la puissance de l’Amour de Dieu et pour vous dire que je vous aime. Vous êtes mes frères et sœurs et je vous aime. Que Dieu vous bénisse.
-
-
-

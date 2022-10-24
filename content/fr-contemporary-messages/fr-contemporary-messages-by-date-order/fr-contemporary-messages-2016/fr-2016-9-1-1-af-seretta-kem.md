@@ -9,7 +9,7 @@ weight:
 ---
 ### La prière de groupe multiplie les bénédictions
 
-Seretta Kem - reçu par Al Fike le 1 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 1 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes amis. C’est votre frère Mandus. Je suis quelque peu déconcerté par ce philosophe scientifique<sup id=”a1”>[1](#f1)</sup> qui tente d’expliquer l’âme par des moyens scientifiques et il fait une tentative courageuse mais il passe à côté du point vital, le point que je crois que la plupart d’entre vous dans cette salle, et peut-être même vous tous dans cette salle, savez intuitivement : le mental (l’intellect) et l’âme sont deux aspects distincts de vos êtres. Et dans ce monde, beaucoup, beaucoup d’individus cherchent à nourrir leur mental (intellect), cherchent à percevoir le monde de cette perspective, et cherchent à renforcer cette perspective continuellement dans leur recherche de la vérité. Et il y a ceux qui sont contraints intuitivement, par réflexe, d’être centrés dans leur âme, un endroit différent, un mécanisme différent, une manière différente de percevoir, et de comprendre, de rassembler la connaissance et la vérité.
 
@@ -35,7 +35,3 @@ Je vous remercie de me permettre de parler et je parle parce que je ressens un g
 <small>
 
 1. <large id=”f1”> Nous avons assisté à une conférence donnée par un ministre résident du WHC (World Healing Center in Balckpoool – England). Il n’a pas très bien accueilli nos efforts d’explication de notre point de vue et il s’est montré frustré que nous n’acceptions pas son point de vue.[↩](#a1) 
-
-
-
-

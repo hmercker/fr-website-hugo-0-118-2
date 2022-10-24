@@ -9,7 +9,7 @@ weight:
 ---
 ### Attirer vers vous de nombreuses âmes sœurs
 
-Augustin - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 C'est votre enseignant Augustin.
 
@@ -30,8 +30,3 @@ Oui, mes bien-aimés, nous allons continuer ce voyage. Nous vous emmènerons dan
 Bien-aimés, continuez dans ces grands efforts, exprimez toujours votre amour, faites-le de nombreuses façons différentes, ne jugez pas, ne résistez pas, enveloppez, embrassez, acceptez et aimez. C'est ainsi que Dieu peut vous utiliser, mes bien-aimés, et il en sera ainsi lorsque vous continuerez sur ce chemin.
 
 Dieu vous bénisse Dieu vous bénisse.
-
-
-
-
-

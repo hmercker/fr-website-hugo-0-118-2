@@ -9,7 +9,7 @@ weight:
 ---
 ### Inscrustations de l’Âme
 
-St Luc - reçu par Al Fike le 11 Mars 2016, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 11 Mars 2016, Selah, Washington, USA.
 
 Je suis Luc et je suis venu vous parler des incrustations de l’âme et comment les inhibitions causées par ces incrustations vous empêchent de connaître vraiment vos âmes, car à l’intérieur de vos âmes, il y a une grande joie et une grande Lumière qui éclate pour venir dans votre conscience. Elle presse contre cette coquille, ce durcissement qui est causé par les expériences de votre vie et elle crée des fissures où, en effet, la Lumière brille à travers elle. Et à mesure que vous continuez à prier pour que l’Essence Divine du Père s’écoule dans vos âmes, la pression devient plus grande, la Lumière plus lumineuse, la force intérieure qui pousse en avant, et, à mesure que cette pression grandit vous devenez plus conscients de ces choses qui sont autour de votre âme et qui vous séparent de Dieu, ce désir vrai et intense d’être avec Dieu, d’être en harmonie avec Lui, car l’amour en vous le veut, le veut avec intensité et vivacité d’être avec Dieu.
 
@@ -24,6 +24,3 @@ Mes bien-aimés, continuez ainsi, continuez à vous aimer les uns les autres, à
 Vous devez montrer le chemin, vous devez continuer l’œuvre pour accomplir, par vos prières à votre Père Céleste, ce grand engagement vers votre propre rédemption, pour vous ouvrir à Ses Dons d’Amour, pour reconnaître que chaque fragment, chaque pièce qui tombe loin de vous est un triomphe. Vous avez fait beaucoup d’efforts pour atteindre Dieu et vous continuerez sur ce chemin de purification. Alors que les écailles tombent loin de vous, mes bien-aimés, vous verrez plus en profondeur, vous saurez avec plus de sagesse, vous sentirez avec plus d’amour et il en sera ainsi. Vous en avez fait l’expérience et, d’une certaine manière, vous n’avez fait expérimenté qu’une faible partie de ce qui est possible. Vous continuerez, mes bien-aimés, à grandir, à vous étendre et à devenir plus clairs et plus lumineux, plus beaux à mesure que vos âmes grandiront dans l’Amour, à vous étendre et à forcer ces conditions à tomber.
 
 Âmes bien-aimées, vous êtes vraiment aimées et chaque ange dans les cieux vous a dans leurs pensées et leurs prières. Chacun prie pour vous, mes bien-aimés, car il y a une grande espérance quand une âme marche sur ce Chemin dans le monde. Il y a une grande espérance pour ce monde quand cette Lumière brille et que cet Amour de Dieu se manifeste. Et vous êtes vraiment aimées, vraiment aimées, et vous trouverez la joie dans votre propre rédemption. Cela viendra. Cela ne peut venir que parce que la puissance de l’Amour dans votre âme doit le permettre. Bien-aimés, continuez dans vos efforts, dans vos prières, dans vos désirs d’atteindre Dieu et nous continuerons à prier pour vous et à vous avoir dans nos cœurs car vous êtes nos frères et sœurs dans l’Amour. Que Dieu vous bénisse. Je suis Luc et je vous aime.
-
-
-

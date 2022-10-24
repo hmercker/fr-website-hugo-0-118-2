@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçons sur le pardon et la compassion
 
-St Luc - reçu par Al Fike le 9 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 9 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Luc et je suis venu vous parler du sujet de la compassion et du pardon.
 
@@ -54,6 +54,3 @@ Le pouvoir de l’âme humaine transformée par l’Amour Divin est immense mais
 S’il vous plaît, mes bien-aimés, aimez-vous les uns les autres, aimez tous ceux que vous rencontrez, soyez une expression d’amour. Il y a beaucoup d’amour en vous, vous portez cette lumière. Soyez la lumière, vivez la lumière, portez la lumière partout où vous allez et priez pour que la lumière augmente avec chaque jour et chaque moment de votre vie. Il y a beaucoup de travail à faire et vous êtes sur le point d’avoir une belle expression, un puissant voyage de service, de donner de l’amour et de la compassion au monde, un canal de l’Amour de Dieu. S’il vous plaît, mes bien-aimés, libérez ces conditions qui vous retiennent et marchez dans la lumière, la belle lumière qui vient avec l’amour rédempteur de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Luc. Je vous aime et je marche avec vous sur ce chemin. Continuez dans vos prières profondes et constantes à Dieu, tout le reste se déroulera avec cette connexion avec votre Créateur et Son Amour qui coule vers vous. Bien-aimés, Dieu vous bénisse, Dieu vous bénisse.
-
-
-
