@@ -9,7 +9,9 @@ weight:
 ---
 ### Merci pour vos efforts dans la prière
 
-St Matthieu - reçu par Al Fike le 30 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 30 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+
+
 
 
 

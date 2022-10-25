@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 4 Février 2019, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/falloxbow-1058032.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/falloxbow-1058032.jpg)
 
 Frères et sœurs, me voici. Je suis Jésus. Il y a deux courants puissants dans ce monde, l’un qui se dirige vers les ténèbres et l’autre vers la lumière. Actuellement, le courant le plus puissant est celui de l’obscurité. Il continue de se répandre sur les nombreuses terres et océans de ce monde, créant désaccord et destruction, alimenté par l’avidité et le désir de l’humanité d’avoir plus de nourriture matérielle. L’humanité met son désir de sécurité dans ces lieux malavisés plutôt que de venir à Dieu, de venir à la Lumière, de venir à l’Amour. C’est pourquoi nous continuons à venir vers vous et vers ceux qui prient pour la Lumière, pour vous soutenir dans vos efforts, pour vous encourager à construire ce courant de lumière dans le monde afin qu’il puisse surmonter les ténèbres.
 

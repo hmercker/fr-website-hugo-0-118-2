@@ -9,7 +9,9 @@ weight:
 ---
 ### Questions concernant les directives sur les changements terrestres
 
-Augustin - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+
+
 
 
 
