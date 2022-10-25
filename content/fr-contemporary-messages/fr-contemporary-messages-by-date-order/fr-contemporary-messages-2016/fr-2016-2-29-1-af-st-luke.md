@@ -9,7 +9,7 @@ weight:
 ---
 ### Combattre l’obscurité des conditions de la Terre
 
-St Luc - reçu par Al Fike le 29 Février 2016, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 29 Février 2016, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous, mes chers, âmes bien-aimées, enfants du Père Céleste, dont les âmes sont ouvertes à ce que notre Père Céleste veut donner, chacun d’entre vous, les bénédictions de Son Amour, la puissance de Son Amour qui brûle dans vos âmes, la Lumière qui se reflète de cette bénédiction, et ce feu qui brûle en vous.
 
@@ -32,6 +32,3 @@ Vous priez pour cela, mes bien-aimés, et Dieu entend vos prières et Dieu a bes
 Nous vous aimons, mes bien-aimés. Nous sommes avec vous. Nous marchons avec vous et nous faisons tout ce que nous pouvons pour vous aider à combattre l’obscurité. Connaissez la joie qui est sûrement la vôtre avec la touche d’amour de Dieu. Continuez, mes bien-aimés, continuez à prier, à connaître Dieu, à rechercher la Vérité et à être ce canal d’Amour, et nous serons avec vous. Nous sommes avec vous et nous ne vous quitterons jamais, et vous atteindrez ce but de grande joie et de liberté, de Lumière et de bonheur jaillissant de vos âmes, jaillissant du plus profond de votre être. Il sera vôtre, ce Don, et avec chaque prière vous vous en rapprochez toujours plus et avec chaque choix pour la Lumière vous confirmez que vous marchez dans la Lumière et la Vérité et l’Amour.
 
 Dieu vous bénisse, mes bien-aimés, je suis Luc et je suis heureux de venir vous parler en ce jour. Que Dieu vous bénisse, mes bien-aimés, et que Dieu soit avec vous sur votre chemin vers la Lumière. Que Dieu vous bénisse.
-
-
-

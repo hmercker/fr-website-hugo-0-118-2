@@ -9,7 +9,7 @@ weight:
 ---
 ### Se débarrasser de plusieurs peaux alors que l’Amour vous transforme
 
-Augustin - reçu par Al Fike le 9 Mai 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 9 Mai 2016, West Vancouver, Colombie-Britannique, Canada.
 
 Bonjour mes élèves, je suis Augustin, votre enseignant, et je vois que certains d’entre vous luttent contre la condition humaine, celle qui est en vous et celle qui est tout autour de vous. Ces conditions, ces négativités, ces conditions qui ne sont pas créées par Dieu mais qui sont créées par tous ceux qui vous entourent, par les conditions de l’humanité, couche après couche d’erreur et d’obscurité, de confusion et de colère, de dépression. Tant de gens luttent. Tant de personnes dans votre monde sont confuses et ont un besoin profond. Ils ne savent pas vers qui se tourner pour trouver des réponses et le plus souvent, ceux de votre monde se tournent vers des substances qui mettent l’esprit à l’aise mais n’apportent pas vraiment la paix à l’âme.
 
@@ -22,6 +22,3 @@ C’est un si grand fardeau que vous portez tous, mes âmes bien-aimées. C’es
 Continuez, âmes bien-aimées, à marcher de cette façon, à être toujours plus proches de Dieu et à permettre à tout ce qui n’est pas en harmonie avec cet Amour de tomber, car cela se fera et cela doit se faire. Cela ne peut se faire que parce que l’amour et la colère, l’amour et l’erreur, l’amour et la douleur, l’amour et la condition humaine ne peuvent pas rester ensemble très longtemps et l’amour est plus fort, mes bien-aimés. Il est puissant. Il doit amener votre âme en alignement avec la Lumière et la vérité, la joie et la sagesse. Cela doit et cela va arriver. En vous débarrassant de ces peaux d’erreur, vous sentirez la différence. Vous marcherez avec plus de légèreté sur ce monde. Vous connaîtrez une joie plus grande et plus profonde et vous verrez la vérité avec les yeux de votre âme. Cela doit être. Cela doit être et sera et s’ouvrira en harmonie avec chaque âme individuelle, marchant sur leurs chemins uniques dans ce monde et vers Dieu. Cela viendra. Ayez la foi, mes bien-aimés. Soyez forts et sachez, avec une profonde compassion pour vous-mêmes, qu’avec chaque jour et avec chaque prière, vous devenez plus légers, plus en harmonie, recevant de plus grands afflux du grand Amour de Dieu. Ne vous condamnez pas pour ces parties dont vous êtes conscients qu’elles ne sont pas en harmonie avec l’Amour de Dieu, mais priez pour libérer, pour laisser aller, pour permettre à l’Amour de Dieu de remplacer ces choses en vous et cela sera, cela sera ainsi.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin a un grand amour pour vous tous, il est heureux de voir ce cercle grandir et devenir un lieu de Lumière dans ce monde qui a tant besoin de Lumière. Je suis heureux de vos efforts et je vous aime. Que Dieu vous bénisse. Je vous souhaite une bonne nuit.
-
-
-

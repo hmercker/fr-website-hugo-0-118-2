@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon sur l'âme-désir
 
-Augustin - reçu par Al Fike le 24 Janvier 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 24 Janvier 2016, Oahu, Hawaii, USA.
 
 Je suis votre enseignant Augustin. Que Dieu vous bénisse, mes enfants. Il est important de connaître le désir de votre âme, car le désir de votre âme peut être très différent des désirs de votre esprit. Et souvent vous êtes en conflit lorsque ces deux ensembles de désirs ne correspondent pas.
 
@@ -26,6 +26,3 @@ A chaque instant, il y a une pensée, un acte, une interaction, une condition co
 Bien-aimés, continuez à prier. Cherchez le Père Céleste de tout votre cœur. Ne permettez pas à ce qui réside en vous et dans toute l’humanité de contrecarrer vos efforts pour être avec Dieu, mais demandez à Dieu de supprimer ces conditions, de vous aider à être forts et disciplinés, de vous aider à prier avec sérieux et avec le véritable désir de votre âme, afin que vous puissiez atteindre Dieu qui désire ardemment que vous soyez avec Lui, qui désire ardemment cette connexion. Tout comme vous désirez être avec Lui, Il désire ardemment être avec vous, la communion des âmes, Sa grande âme et votre âme, belle, précieuse, qui désire si profondément et a besoin de l’Amour du Père.
 
 Bien-aimés, soyez dans ce flux d’Amour. Soyez avec Dieu. Aimez-vous et élevez-vous au-dessus des conditions de ce monde vers un lieu de joie, d’accomplissement, de véritable conscience de l’âme, de véritable Amour Divin. Bien-aimés, soyez avec Dieu car Dieu est avec vous. Dieu vous bénisse, votre enseignant Augustin vous aime et est avec vous dans vos prières, dans vos efforts et tous les anges vous soutiennent en cela et prient avec vous et vous aident à éliminer ces conditions qui entravent vos prières et freinent vos désirs. Dieu vous bénisse, je vous aime. Que Dieu vous bénisse.
-
-
-

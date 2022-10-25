@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment être un canal d’amour sans peur dans le monde
 
-Augustin - reçu par Al Fike le 12 Mai 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 12 Mai 2016, Abbotsford, Colombie-Britannique, Canada.
 
 Je suis heureux de ce que vous avez discuté et commenté car vous avez les bonnes attitudes, mes chers étudiants, une perspective équilibrée. Car vous voyez que pour être un canal d’Amour dans le monde, vous devez être dans le monde et être ce canal où que vous soyez et quoi que vous fassiez. Vous devez être capable de vous déplacer parmi l’humanité et aussi d’être guidé dans vos mouvements, parfois, afin que vous puissiez toucher une autre âme conformément à la volonté de Dieu et de la manière dont Dieu vous guide pour le faire. Et pour ce faire, vous devez affiner vos dons, être réceptif à cette guidance et permettre à Dieu de travailler à travers vous avec facilité et efficacité. Et toutes ces choses sont accomplies par la croissance de vos âmes, par l’éveil de vos dons et le développement de vos dons, qui sont des attributs de l’âme qui vous sont uniques.
 
@@ -24,6 +24,3 @@ Lorsque tout est en harmonie, chaque élément se met en place. Vous êtes soute
 Petit à petit, âmes bien-aimées. Avec chaque étape, avec votre confiance dans la guidance de Dieu, avec votre capacité à entendre et à faire et à voir et à aimer et à exprimer votre vrai moi, le service se déploiera de manière merveilleuse, porté par le flux de l’amour de Dieu, béni par Sa main, informé par Sa volonté. N’est-ce pas merveilleux ? Ne sentez-vous pas l’excitation dans vos âmes de servir de cette façon, de permettre à Dieu de vous utiliser comme ses canaux d’amour et ses instruments de changement dans ce monde ? N’est-ce pas la chose la plus épanouissante que vous puissiez faire dans votre vie ? Oui, mes étudiants, beaucoup vous attend. Beaucoup vous attend et tout ce qu’il vous faut, c’est dire *« Oui, je te servirai, cher Père, de quelque manière que ce soit qui soit ta volonté et ton intention pour moi, je le ferai dans l’amour, je le ferai dans le dévouement et mon amour envers toi et je le ferai parce que j’aime mes frères et sœurs et que je veux leur apporter la vérité et le confort, la guérison et l’Amour, et comme tu m’utilises dans ce flux, j’accomplis ma destinée en tant que ton enfant et ton instrument ».*
 
 Nous travaillons tous ensemble, mes bien-aimés, et ce partenariat s’intensifiera au fil des années et de l’éveil de vos âmes. Beaucoup de choses nous attendent. Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin et je vous aime, toujours à vos côtés, toujours désireux de votre engagement plus profond et de la croissance de vos âmes dans l’Amour. Que Dieu vous bénisse, âmes précieuses et bien-aimées. Je t’aime. Que Dieu vous bénisse.
-
-
-

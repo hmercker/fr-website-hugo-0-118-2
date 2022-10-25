@@ -9,7 +9,7 @@ weight:
 ---
 ### Une description de l’âme et de sa nature durable
 
-Frère Mandus Nyquist - reçu par Al Fike le 27 Août 2016, Gibsons, Colombie-Britannique, Canada
+Frère Mandus Nyquist - reçu par Al Fike le 27 Août 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes amis. C’est votre frère Mandus. Je suis quelque peu déconcerté par ce philosophe scientifique1 qui tente d’expliquer l’âme par des moyens scientifiques et il fait une tentative courageuse mais il passe à côté du point vital, le point que je crois que la plupart d’entre vous dans cette salle, et peut-être même vous tous dans cette salle, savez intuitivement : le mental (l’intellect) et l’âme sont deux aspects distincts de vos êtres. Et dans ce monde, beaucoup, beaucoup d’individus cherchent à nourrir leur mental (intellect), cherchent à percevoir le monde de cette perspective, et cherchent à renforcer cette perspective continuellement dans leur recherche de la vérité. Et il y a ceux qui sont contraints intuitivement, par réflexe, d’être centrés dans leur âme, un endroit différent, un mécanisme différent, une manière différente de percevoir, et de comprendre, de rassembler la connaissance et la vérité.
 
@@ -34,6 +34,3 @@ Frères et sœurs bien-aimés, que j’accueille avec joie dans ma maison, conti
 Je vous remercie de me permettre de parler et je parle parce que je ressens un grand amour pour chacun d’entre vous, car lorsque quelqu’un est touché par Dieu de cette façon et guéri de cette façon par ce Toucher, on ne peut que ressentir un grand amour, de la compassion, un désir de vous tendre la main, de vous aider, de vous assister dans votre voyage. J’ai beaucoup appris depuis que je suis entré dans le monde de l’esprit et je ne peux pas dire que je suis entièrement satisfait de certains de mes écrits antérieurs, car certains ont manqué la cible, je n’étais qu’humain. Beaucoup de choses mènent en effet à une certaine vérité, une mesure de vérité, mais je vous dis que j’ai fait cela, ces écrits, mes efforts, mes discours et mes guérisons, je l’ai fait pour l’Amour de Dieu. Savoir combien Dieu m’a aimé a été ma grâce qui m’a soutenu, ma grande joie dans la vie et je désire tellement que vous veniez tous à connaître cet amour de Dieu, que vous l’introduisiez dans votre cœur et que vous marchiez avec cette lumière partout où vous allez. Âmes bien-aimées, merci et que Dieu vous bénisse.
 
 Note 1 Nous avons assisté à une conférence donnée par un ministre résident du WHC (World Healing Center in Balckpoool – England). Il n’a pas très bien accueilli nos efforts d’explication de notre point de vue et il s’est montré frustré que nous n’acceptions pas son point de vue.
-
-
-

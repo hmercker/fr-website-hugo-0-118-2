@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaissez votre âme éveillée
 
-Augustin - reçu par Al Fike le 8 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 8 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse mes étudiants, c’est votre enseignant Augustin.
 
@@ -44,6 +44,3 @@ Priez chaque jour pour que la sagesse de Dieu trouve son chemin dans votre être
 Dieu ne veut pas vous priver d’une vie confortable, mes bien-aimés, les avantages matériels viennent lorsque vous marchez en harmonie. Cependant une vie pleine d’attachements à ces avantages, d’inquiétudes, de soucis et de craintes est une vie en dehors de Dieu. Ne craignez pas pour votre sécurité, ne doutez pas que Dieu prendra soin de vous quoi qu’il arrive et que vous aurez la force de faire face à tout ce qui se présente à vous et que vous aurez la sagesse de trouver votre chemin quel que soit le danger qui se présente et que vous tendrez la main à ceux que vous aimez. Tels sont les bienfaits des bénédictions de Dieu sur vous, qui nous enveloppe tous dans son manteau de protection. Profitez des bienfaits de votre union, de l’amour que vous partagez. Faites-vous confiance, car chacun de vous a quelque chose à donner à tous les autres et, en donnant librement, vous vous apportez de nombreuses bénédictions. Car lorsque l’amour circule librement, généreusement, sagement, vous créez une grande lumière et vous marchez sur le Chemin d’Amour du Père. Ne vous accrochez pas à la peur, à l’appréhension, à l’inquiétude et aux soins, libérez-vous de tout cela et permettez à l’Amour de Dieu de vous envahir et de vous apporter un sentiment de joie. C’est votre héritage, mes bien-aimés, cet Amour vous est destiné, il est destiné à vous guérir, à vous renforcer, à vous amener à l’expiation avec Dieu. Acceptez pleinement ce cadeau et tout le reste se mettra en place dans le timing parfait de Dieu et sa merveilleuse sagesse.
 
 Merci de m’avoir écouté, mes chers étudiants. Je vous aime mes bien-aimés, je suis avec vous et je ne vous quitterai jamais. Je serai toujours avec vous et j’apporterai mon amour, ma sagesse, la puissance de mes dons à votre bénéfice et à votre protection. C’est mon engagement envers vous et de nombreux anges feront de même, car Dieu a assigné des anges à chacun d’entre vous pour vous assister à tout moment. Vous n’êtes jamais seuls, mes bien-aimés, vous êtes toujours surveillés et vous recevez les soins spéciaux de Dieu. Il n’y a rien à craindre. Soyez joyeux car vous êtes réclamés par Dieu comme des enfants divins. Que Dieu vous bénisse.
-
-
-

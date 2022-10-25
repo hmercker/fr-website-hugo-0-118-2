@@ -9,7 +9,7 @@ weight:
 ---
 ### La loi du changement
 
-Alec Gaunt - reçu par Al Fike le 27 Avril 2016, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 27 Avril 2016, West Vancouver, Colombie-Britannique, Canada.
 
 Que l’Amour Divin trouve un profond afflux dans vos âmes, mes amis, et que vous puissiez continuer à vous réunir dans ces Cercles de Lumière, de prière pour l’Amour. Comme ils sont importants dans ce monde et comme ils sont peu nombreux dans ce monde à prier pour l’Amour du Père d’une manière aussi directe. Se connecter à Dieu de cette manière apporte une Lumière puissante et tout ce qui vient avec cet Amour et cette Lumière apporte un changement puissant en vous, âmes bien-aimées. Cela nous donne également l’occasion, à nous qui sommes en esprit, de nous rapprocher de vous tous, ceux qui viennent de commencer sur ce Chemin et ceux qui sont mes vieux amis. Oui, nous avons parcouru une grande distance, en priant ensemble, en travaillant ensemble, en permettant à la volonté de Dieu de se manifester à travers nous, chacun d’entre nous travaillant sa volonté dans nos vies et nous apprenant à permettre à sa volonté de se manifester sans entrave, permettant à Son amour de nous changer.
 
@@ -22,6 +22,3 @@ Le changement est une loi de l’univers et peu importe à quel point vous souha
 Oui, mes bien-aimés, la clé de la croissance est le changement. La clé de la croissance est d’embrasser tous les changements que Dieu considère comme corrects pour vos vies et pour votre chemin dans ce monde. Et Son Amour vous permettra toujours d’être ouverts et de percevoir et d’embrasser ces changements qui sont censés être. C’est la puissance de cet Amour qui rendra ces changements fluides et ils ne seront pas douloureux mais joyeux et accueillis et pleins et riches.
 
 Âmes bien-aimées, continuez à prier pour l’Amour, l’Amour qui ouvre les portes, l’Amour qui vous transforme, l’Amour qui vous donnera la vision pour accepter de nombreux changements dans votre vie et vous connaîtrez une joie, un épanouissement, de grandes différences entre ce que vous êtes aujourd’hui et ce que vous serez demain. Beaucoup de changements en perspective et beaucoup de choses à venir. Mes amis bien-aimés, je suis souvent avec vous. Je suis avec vous et je serai avec vous à travers tous les changements et les événements de votre vie, car je suis votre véritable ami et votre aide et je vous aime. Je suis Alec et je vous aime. Que Dieu vous bénisse.
-
-
-

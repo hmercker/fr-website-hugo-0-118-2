@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez des disciples de la vérité
 
-Jésus - reçu par Al Fike le 6 Novembre 2016, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 6 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je vois que vous êtes impatients de répandre les vérités de l’évangile de la Nouvelle Naissance, que vous êtes impatients d’aider les anges dans ce grand effort pour apporter cette vérité au monde et vous êtes impatients d’être des disciples de cette vérité et je suis très satisfait de vos efforts et de vos désirs et de votre amour pour la vérité et pour votre Père Céleste.
 
@@ -30,6 +30,3 @@ Belles Lumières, nous sommes avec vous dans vos efforts, nous vous aimons, nous
 Et je marche avec vous. J’éclaire le chemin pour vous et je ne vous quitterai jamais, mes bien-aimés. Je suis avec vous et je vous aime et vous êtes mes frères et sœurs sur ce glorieux chemin de l’Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je vous aime tendrement. Que Dieu vous bénisse.
-
-
-

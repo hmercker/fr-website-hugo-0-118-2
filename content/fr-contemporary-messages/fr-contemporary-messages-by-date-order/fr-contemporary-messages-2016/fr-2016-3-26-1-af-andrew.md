@@ -9,7 +9,7 @@ weight:
 ---
 ### Service – Aider les autres
 
-André - reçu par Al Fike le 26 Mars 2016, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 26 Mars 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes âmes bien-aimées, je suis André.
 
@@ -22,6 +22,3 @@ Et c’est ce désir profond en vous qui attire beaucoup de personnes vers vous,
 C’est dans vos prières, c’est dans votre humilité, c’est dans votre écoute du murmure de Dieu dans vos âmes, c’est l’agitation dans vos âmes, pour être un canal aimant, qui apporte le changement pour vous et autour de vous. Et dans ce monde, il y a cette Lumière, cette opportunité de servir, qui résonne dans ce monde, provoquant des changements, touchant les âmes, apportant du réconfort. Et je crois que vous reconnaissez tous ceci, vous reconnaissez tous que c’est dans cette place profonde en vous que vous recevez la Lumière, le changement qui vous apporte les opportunités de service. C’est cette reconnaissance profonde en vous que vous êtes une personne destinée à aimer, que vous êtes destinée à être un canal de l’Amour de Dieu, que lorsque vous apportez l’amour, vous apportez une joie, un sens d’appartenance, un but et reconnaissez vos potentiels, vous reconnaissez les dons qui résident dans votre âme et qui sont toujours désireux de s’exprimer.
 
 Continuez, mes bien-aimés, dans votre désir de servir et nous qui sommes avec vous, en vous assistant et en vous guidant, continuerons à le faire jusqu’à ce que votre désir profond se réalise. Ce but qui est dans chacune de vos âmes vient s’exprimer en ce monde. Que Dieu vous bénisse, âmes bien-aimées et précieuses. Vous trouverez vos voies, Dieu vous guidera sur votre chemin particulier et de grandes ouvertures, les expressions d’Amour se manifesteront de nombreuses façons, uniques et intéressantes, de belles façons. Des moyens qui sont bénis, puissants, des moyens qui changeront ce monde et apporteront une plus grande Lumière. Que Dieu vous bénisse, âmes bien-aimées, je suis André et je vous aime, que Dieu vous bénisse.
-
-
-

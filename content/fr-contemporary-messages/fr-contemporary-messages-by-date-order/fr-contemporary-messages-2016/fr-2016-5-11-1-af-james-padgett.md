@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement à lire les volumes
 
-James Padgett - reçu par Al Fike le 11 Mai 2016, Gibsons, Colombie-Britannique, Canada
+James Padgett - reçu par Al Fike le 11 Mai 2016, Abbotsford, Colombie-Britannique, Canada.
 
 Ämes bien-aimées, je suis Padgett, James Padgett. Comme c’est merveilleux d’être béni par le maître, d’avoir la présence de Jésus au milieu de vous. Quel cadeau, et ce cadeau peut venir à bien des personnes si elles prient de la bonne façon, si elles créent les conditions pour que cela se produise. Et je vous applaudis, mes amis, car vos âmes doivent avoir un désir profond, vous devez avoir un engagement profond pour que cela soit possible.
 
@@ -28,6 +28,3 @@ Lorsque l’Amour informe tout ce que vous faites et tout ce que vous êtes et i
 Oui, en effet, le maître Jésus a enseigné cette voie de l’Amour et il a mis en mots ses enseignements et ces mots sont contenus dans ces livres de messages dont je parle et je vous encourage à lire ces passages et à voir s’ils vous inspirent à marcher sur ce chemin, à rechercher cette Vérité et à connaître Dieu de cette manière.
 
 Merci, mes amis, de m’avoir écouté ce soir, de m’avoir permis d’exprimer ce que je ressens dans mon cœur, à savoir que toute l’humanité doit venir à connaître ces vérités simples et trouver la libération qu’elles offrent et la joie. Dieu vous bénisse, âmes bien-aimées, pour l’effort que vous faites dans la prière, pour les désirs que vous avez dans vos cœurs. Être ensemble de cette manière apporte une puissante lumière à ce monde. Puissiez-vous continuer à prier et à être dans ce flux d’Amour. Que Dieu vous bénisse et vous remercie. Je t’aime. Je suis Padgett, James Padgett, que certains connaissent bien. Que Dieu vous bénisse.
-
-
-

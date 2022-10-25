@@ -9,7 +9,7 @@ weight:
 ---
 ### Salutations de Victor Summers
 
-Victor Summers - reçu par Al Fike le 7 Mars 2016, Gibsons, Colombie-Britannique, Canada
+Victor Summers - reçu par Al Fike le 7 Mars 2016, Selah, Washington, USA.
 
 C’est votre ami, Victor. Mon cher KO, je t’aime tellement et tu as été un si bon ami pour moi lorsque nous avons marché ensemble dans ce monde. Et je veux que tu saches que tu as un beau cœur et un vif désir de servir Dieu et que tu trouveras ton chemin. Tu trouveras ton chemin pour ce service, pour apporter l’Amour dans ce monde mais d’abord tu dois apporter l’Amour en toi-même, pour être guéri par l’Amour de Dieu, pour être en paix en toi-même et pour avoir la guérison physique dont tu as besoin, pour être fort. Dieu t’attend. Dieu attend toujours que tu ailles vers Lui, que tu reçoives cet Amour, que tu reçoives la guérison dont tu as besoin et que tu reçoives la paix en toi, qui dépasse toute compréhension. Mon ami bien-aimé, tends toujours la main à Dieu et sache que Dieu est avec toi et t’attire dans ces cercles de Lumière afin que tu puisses voir plus clairement et aimer plus profondément.
 
@@ -22,6 +22,3 @@ C’est la clé qui ouvrira tant de portes et vous amènera aux endroits où Die
 Mes amis, poursuivez l’œuvre commencée par notre cher frère James Padgett, commencée par notre cher frère Jésus. Continuez l’œuvre. Que la chaîne soit ininterrompue et vos efforts puissants et pleins d’Amour et de Lumière, de Grâce et de joie, de sagesse et de puissance, la puissance de l’Amour.
 
 Cher ami, sois réconforté dans la certitude que Dieu t’aime, Dieu t’aime pleinement pour chaque seconde et chaque partie que tu es. Dieu t’aime, mon ami. Apporte cet Amour et laisse-le te réconforter et t’apporter la paix. Apportez cette joie, car la vie est joie, vous pouvez embrasser la joie et embrasser la vie. Bien-aimés, belles âmes, je suis Victor Summers et je me tiens sur le seuil du Ciel. Que Dieu vous bénisse, que Dieu vous bénisse.
-
-
-

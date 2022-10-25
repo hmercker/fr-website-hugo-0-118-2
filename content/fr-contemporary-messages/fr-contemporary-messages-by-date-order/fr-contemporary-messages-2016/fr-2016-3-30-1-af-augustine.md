@@ -9,7 +9,7 @@ weight:
 ---
 ### Une leçon sur le pouvoir de l’humilité
 
-Augustin - reçu par Al Fike le 30 Mars 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 30 Mars 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes élèves, je suis votre enseignant, Augustin, et je suis venu vous parler de l’humilité. Cette qualité m’a manqué lorsque j’ai parcouru la Terre. Je fus un homme rempli d’ambition, plein d’opinion, rempli d’un désir de pouvoir, j’étais assez intellectuel et j’avais un grand désir pour les plaisirs de la chair. En d’autres termes, j’étais très humain, très humain dans ma vie sur Terre, et j’ai fait des choix très humains. Et pourtant Dieu a touché mon âme dans la prière, Dieu m’a élevé dans la prière et j’ai effectivement reçu les premières gouttes de Son Amour lorsque j’étais dans une position d’autorité et de contrôle dans notre Église. Et cela a créé un grand conflit en moi, car je savais qu’il y avait une voie plus haute à suivre et pourtant j’ai résisté. J’ai combattu les penchants de mon âme et j’ai choisi un chemin de pouvoir, l’exercice de mon désir de contrôle, de domination. Cela fut dû en partie à ma propre personnalité, qui est forte, et en partie à ma peur de perdre mon pouvoir et ma domination. J’ai donc choisi une voie qui, en fin de compte, a eu pour résultat que j’ai enseigné l’erreur. J’ai enseigné l’erreur et cette erreur à certains degrés survit encore à ce jour dans l’église. Je n’ai pas écouté Dieu, j’ai écouté mon propre esprit, mon propre désir et mes peurs, ma propre humanité.
 
@@ -28,6 +28,3 @@ Durant ma vie sur Terre, ces concepts furent très étrangers. Je n’ai pas vra
 Mes étudiants bien-aimés, continuez d’atteindre ce haut chemin, ce lieu de compréhension vraie et pure de la volonté de Dieu, ce lieu d’humilité puissante, d’être en grâce, d’apprendre de l’âme. Car, en ce lieu, tout ce que vous cherchez à faire en ce monde pour aider vos frères et sœurs se déroulera d’une manière merveilleuse, au-delà de vos conceptions les plus folles. Et cela vient avec l’humilité, la force de la foi, la puissance de l’Amour.
 
 Que Dieu vous bénisse, mes étudiants. Je suis si heureux de pouvoir délivrer ce message, d’être avec vous, d’avoir cette occasion. Et je suis souvent avec vous alors que vous vivez votre vie et luttez contre la condition humaine. J’ai beaucoup d’empathie et de compassion pour ces luttes. Et je vous aime, bien-aimés étudiants, je vous aime si profondément et je serai toujours avec vous pour vous aider sur votre chemin. Que Dieu vous bénisse, que Dieu vous bénisse.
-
-
-

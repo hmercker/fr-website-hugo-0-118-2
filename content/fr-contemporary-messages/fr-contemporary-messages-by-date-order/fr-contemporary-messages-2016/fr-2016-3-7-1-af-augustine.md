@@ -9,7 +9,7 @@ weight:
 ---
 ### Les âmes sensibles sont les sauveurs de ce monde
 
-Augustin - reçu par Al Fike le 7 Mars 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 7 Mars 2016, Selah, Washington, USA.
 
 Dieu vous bénisse. Oui, votre cher frère (V.S.) a fait de grands progrès dans le monde de l’esprit et il en est souvent ainsi pour ces âmes douces qui ont tant de mal à être dans le monde. Lorsqu’ils entrent dans le monde de l’esprit, leur progression est rapide car cela est plus à leur goût et en harmonie avec leur être. Ce sont des sensibilités que chacun d’entre vous porte, mes bien-aimés, et je sais que vous luttez, que vous trouvez le monde difficile, mais nous, en esprit, et le toucher de Dieu sur vous, rendent les choses plus faciles, n’est-ce pas ? Cela vous permet de faire face et de progresser dans ce monde. Et alors que vous faites face à ces conditions difficiles, vous devenez plus forts et le canal de l’Amour devient plus clair alors que vous suppliez Dieu de vous faire passer des ténèbres à la Lumière.
 
@@ -20,6 +20,3 @@ Et ce sont ces âmes sensibles qui ont ce désir profond et qui portent la doule
 Continuez vos efforts pour aimer, pour vous aimer vous-mêmes, pour aimer tout autour de vous, pour être un canal de Lumière et d’Amour pour Dieu. Et Dieu vous guidera sur un chemin merveilleux et vous ne serez pas blessés par le monde mais vous apporterez le baume de guérison de l’Amour, car la Main de Dieu est fermement sur vous, mes enfants. Vous ne pouvez pas le nier, vous le sentez, vous le savez. Et de cette façon, vous n’êtes pas vulnérables au mal, vous êtes un puissant canal de Lumière et de changement.
 
 Vous devez croire et vraiment savoir cela en vous-mêmes et marcher et parler en conséquence, pour être forts dans la Lumière, pour être aimants dans toutes vos actions, pour libérer votre propre douleur et connaître la liberté et la joie d’être l’enfant de Dieu, où que vous soyez. Vous devez être cela, d’abord et avant tout dans la grâce de Dieu et en cela vous toucherez de nombreuses âmes. Votre exemple fera tourner les têtes, suscitera la curiosité. Vous serez remarqué et certains s’étonneront, d’autres reconnaîtront et beaucoup seront touchés d’une manière ou d’une autre en semant ces graines d’Amour dans le monde. Soyez forts, mes chers enfants bien-aimés, et sachez que Dieu vous tient fermement dans Sa main et ne laissera aucun mal vous atteindre, mes bien-aimés, tant que vous continuerez à marcher dans cette Lumière et à suivre Sa guidance. Que Dieu vous bénisse, mes âmes bien-aimées. Vous êtes vraiment bénis, aimés et précieux, des joyaux hors de prix, mes bien-aimés. Continuez à briller, à être un canal d’Amour et à être qui vous êtes vraiment dans la Lumière de la reconnaissance de Dieu, de son Amour et de sa création. Que Dieu vous bénisse. Augustin vous aime tendrement. Que Dieu vous bénisse.
-
-
-

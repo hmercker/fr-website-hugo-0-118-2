@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre plan de vie
 
-Le bien-aimé - reçu par  Lytske le 11 Mai 2016
+Le bien-aimé - reçu par Lytske le 11 Mai 2016.
 
 Le Bien-Aimé :  « J’ai suivi vos pensées comme toujours et je souhaite commenter vos délibérations sur les personnalités et la préparation du plan de Vie. Et oui, vous avez eu il y a longtemps une vague idée qu’il y avait quelque chose que vous deviez faire dans cette vie – comme une ‘pré-cognition’.
 
@@ -31,9 +31,4 @@ Le Bien-Aimé :  « J’ai suivi vos pensées comme toujours et je souhaite comm
 
 Édité par Linda Abell.
 
-© The 11:11 Progress Group.
-
-Je suis la satisfaction de votre âme – Le Bien-Aimé.
-
-
-
+*© The 11:11 Progress Group. Je suis la satisfaction de votre âme – Le Bien-Aimé.*

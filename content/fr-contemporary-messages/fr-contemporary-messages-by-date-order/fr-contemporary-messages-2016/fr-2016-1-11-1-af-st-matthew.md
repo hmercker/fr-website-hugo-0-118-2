@@ -9,7 +9,7 @@ weight:
 ---
 ### L'année à venir
 
-St Matthieu - reçu par Al Fike le 11 Janvier 2016, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 11 Janvier 2016, West Vancouver, BC, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu et je suis venu vous parler de l’année à venir alors que vous marquez le passage de chaque année et que cela devient un jalon pour ce que vous avez accompli dans vos propres vies et dans vos propres âmes, la croissance et l’expansion de l’Amour du Père et vous regardez devant vous pour ce qui pourrait être en service, en croissance, en changements dans votre vie. Et je vous le dis, mes bien-aimés, il y a beaucoup de changements à venir pour chacun d’entre vous, beaucoup de changements au sein de vos êtres, car beaucoup d’entre vous sont sur le point de s’éveiller, de s’ouvrir, de changer et de comprendre beaucoup plus profondément, plus complètement dans votre conscience de la Vérité de Dieu en vous, alors que l’amour continue à couler abondamment dans vos âmes, mes bien-aimés. En effet, vos yeux commencent à s’ouvrir, vous commencez à fleurir dans la chaleur du bel Amour de Dieu.
 
@@ -24,6 +24,3 @@ Continuez dans vos efforts de prier pour ce bel Amour et reconnaissez qu’en vo
 Continuez à prier souvent, à vous préparer pour ce qui est à venir, à entretenir la pensée que vous pouvez être le canal d’Amour de Dieu de cette façon, qu’il peut y avoir beaucoup de possibilités qui vous attendent et qu’il peut y avoir beaucoup de choses en vous qui attendent que vous les acceptiez et que vous permettiez à ces aspects de vous-mêmes de venir, de venir et de manifester la Lumière et l’Amour, dans le flux de l’Amour et dans le flux de la Volonté de Dieu.
 
 Âmes bien-aimées, vous portez cette Lumière, vous portez cette Vérité et ce n’est certainement pas un fardeau mais une grande bénédiction. Partagez cette bénédiction avec tous ceux que vous rencontrez, car Dieu a prévu que vous en rencontriez beaucoup. Soyez ouverts, soyez humbles, dites la vérité, marchez dans la Lumière et soyez toujours avec Dieu. Et ce dont je parle sera vrai et se manifestera de manière merveilleuse et surprenante, alors que vous marchez dans ce monde et suppliez Dieu de vous utiliser comme Ses magnifiques canaux d’Amour. Il en sera ainsi et vous trouverez la joie, une paix merveilleuse, des bénédictions généreuses dans ce service. Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et moi aussi je vous aime et je suis avec vous dans vos efforts pour être avec Dieu dans Ses efforts pour sauver vos frères et sœurs de leur douleur et de leur erreur et de la grande privation qui vient du manque d’amour dans leur vie. Je suis avec vous. Que Dieu vous bénisse.
-
-
-

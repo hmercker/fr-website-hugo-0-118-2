@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez en sécurité sur le chemin
 
-André - reçu par Al Fike le 5 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 5 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis André. Les étapes sur votre chemin sont nombreuses, mes bien-aimés, de nombreux incréments de compréhension, de réception de l’Amour du Père dans vos âmes, d’ouverture de votre conscience à la vérité spirituelle. Et chacun d’entre vous doit être patient dans ce voyage, en ayant confiance que Dieu vous guidera sur ce chemin, guidera ces prises de conscience et ces changements en vous, en libérant tout ce qui n’est pas en harmonie avec l’Amour, en grandissant, en se développant, en ressentant la joie qui jaillit de l’âme, en se reliant à tous vos frères et sœurs de manière aimante et en permettant à cette condition de guérison de s’éloigner de vous, de sorte qu’avec le temps, vos vies soient gouvernées par votre âme et votre âme par Dieu.
 
@@ -28,6 +28,3 @@ Priez et priez encore. Faites-en l’effort de votre vie, pour vous rapprocher t
 Vous êtes aimés. Vous êtes guidés, et vous servirez, vous servirez Dieu de façon merveilleuse. Que Dieu vous bénisse, âmes bien-aimées. Je suis Andrew et je vous aime, précieuses, belles âmes. Je vous aime.
 
 Que Dieu vous bénisse.
-
-
-

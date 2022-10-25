@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment le don d’amour peut toucher une âme et changer le monde
 
-Confucius - reçu par Al Fike le 18 Janvier 2016, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 18 Janvier 2016, Hawaii, USA.
 
 Que Dieu vous bénisse, mes enfants, je suis Confucius.
 
@@ -26,6 +26,3 @@ Nourrissez ce Don, mes bien-aimés, par vos prières pour recevoir l’Amour du 
 Bien-aimés, chacun d’entre vous désire cela et chacun d’entre vous lutte avec ce désir qui vient de son âme et chacun d’entre vous est perplexe à sa façon sur la façon dont cela peut être dans sa vie. Et je vous dis, mes bien-aimés, qu’à mesure que votre âme s’élèvera dans votre conscience, ces dilemmes disparaîtront. Votre résistance sera brûlée par le pouvoir de votre foi et de votre Amour, et vous devez permettre à cela d’être dans votre être. En effet, vous avez tous votre propre chemin à suivre et vous déterminez lorsque cela se produira dans vos vies, car vous avez reçu le don du libre arbitre. Cependant, mes bien-aimés, c’est votre destin. Vous parviendrez à connaître la volonté de Dieu, à être le canal de lumière clair et vibrant de Dieu dans le monde, et vous marcherez dans une telle grâce, une telle paix et une telle joie que vous regarderez en arrière et vous demanderez pourquoi il a fallu si longtemps pour arriver à ce lieu de grande joie et de paix. Pourquoi ai-je résisté si longtemps ? Mais vous êtes humains, nous le savons. Vous avez de nombreux soucis et de nombreuses distractions et Dieu ne vous aime pas moins parce que vous vivez votre vie comme vous l’avez choisi, mais il désire que vous viviez votre vie dans le cadre de Sa vie, de Son être et de Sa volonté.
 
 Je vous supplie donc, mes bien-aimés, de considérer qu’il y a une autre voie, et que vous travaillez à ce flux pur et magnifique de votre vie dans la volonté de Dieu. Cela vient pour chacun d’entre vous, mes bien-aimés. Choisissez cette voie, choisissez de travailler vers ce but pour permettre à tous les obstacles qui vous retiennent de tomber et vous pourrez connaître ce grand et merveilleux Amour sous toutes ses formes. Son impact sur votre vie sera complet et changera tout et amènera tout en alignement et en harmonie avec Dieu. Âmes bien-aimées, vous êtes bénies et vous êtes belles et vous marcherez sur ce monde dans la Lumière, mes bien-aimées. Confucius vous aime tendrement, âmes bien-aimées. Je suis souvent avec vous, mes bien-aimés, mes bien-aimés. Je vous bénis.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Accepter chaque âme unique
 
-Keea Atta Kem - reçu par Al Fike le 16 Janvier 2016, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 16 Janvier 2016, Hawaii, USA.
 
 Merci d’être venus, car vous avez été appelés. Et votre discussion du matin était en effet très bonne. Vous avez partagé vos préoccupations et vos perceptions, vos idées et vos aspirations. C’est une bonne chose. C’est bien de révéler vos pensées et vos idées intérieures, de faire ressortir ce qui bouillonne dans votre esprit, dans votre âme. 
 
@@ -36,6 +36,3 @@ Comme est merveilleuse la bénédiction de votre vie vécue dans la lumière de 
 Chaque âme suit son chemin vers Dieu. Il vous est donné la bénédiction du libre arbitre, la liberté de choisir et la possibilité de reconnaître ces choix, mes bien-aimés. Et tandis que vous suivez votre chemin et brillez dans la vérité de l’amour de Dieu, vous offrez à ceux que vous rencontrez la possibilité de voir cette vérité en vous, dans votre belle âme. Et c’est ce que vous devez faire dans votre vie pour être ce modèle, cette vérité, cette reconnaissance joyeuse que Dieu est effectivement amour. Vous portez cet amour en vous et si d’autres choisissent d’accepter cette vérité, de vivre cette vérité, cela ne vous concerne pas. C’est à vous de vivre cette vérité, de vivre cette vérité et d’exprimer cette vérité du mieux que vous pouvez. Pour qu’elle puisse rayonner dans votre vie à travers toutes les merveilleuses facettes de votre être. Et de cette manière merveilleuse, d’autres seront attirés et vous pourrez, en tant que canaux d’Amour de Dieu, toucher de nombreuses âmes. 
 
 Il n’y a aucune raison de s’inquiéter des différences chez ceux que vous rencontrez. Soyez accueillants et aimants. Vos pieds sont fermement plantés sur le chemin divin, vous allez joyeusement vers Dieu et acceptez que votre chemin soit votre voyage unique et que d’autres vivent leur voyage sur la route de leur vie. Soyez-en satisfaits, mes bien-aimés, permettez cela, car c’est véritablement aimant. Âmes bien-aimées, je suis Keea. Je vous aime. Soyez bénis. 
-
-
-

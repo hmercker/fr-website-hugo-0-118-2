@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment marcher sur le Chemin Divin
 
-Marie - reçu par Al Fike le 2 Mai 2016, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 2 Mai 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je viens pour être avec vous dans vos prières pour l’Amour du Père. Ce merveilleux Don qui est donné à chaque âme qui aspire à ce qu’il entre en elle et y réside pour toute l’éternité, ce grand Don d’Amour de Dieu. C’est Son essence qui coule de Lui et qui aspire toujours à couler en vous, mes bien-aimés. Ouvrez-vous à ce Don. Permettez à son contact de vous guérir, de vous réconforter et de vous apporter une paix profonde et ouvrez vos yeux à votre Père Céleste afin de pouvoir percevoir et connaître dans une foi profonde Son existence, Sa présence et Son Amour.
 
@@ -22,6 +22,3 @@ Vos âmes reconnaissent cet Amour. Vos âmes aspirent à être dans le flux de c
 Âmes bien-aimées, dans votre vie, cela devient de plus en plus fort à l’intérieur de chacun d’entre vous alors que la Lumière brûle plus brillamment à l’intérieur, alors que vous devenez en plus grande harmonie avec les Lois de l’Amour de Dieu. Ces lois sont uniques et elles surmonteront et prévaudront sur d’autres lois dont vous avez pu faire l’expérience et avec lesquelles vous avez travaillé au fur et à mesure que vous grandissez dans vos âmes. Mes bien-aimés, vous pouvez outrepasser la Loi de Compensation par cet Amour. Il vous guérit sans avoir à vous occuper de toutes ces choses que vous avez faites dans votre vie, et de toutes ces erreurs dans votre esprit. Non, mes bien-aimés, cet Amour lave ces aspects qui ne sont pas en harmonie avec l’amour. Il les lave. Il vous touche profondément. Il guérit vos âmes. Il guérit la douleur profonde qui réside dans chaque âme. Mais vous devez le permettre, accepter le pouvoir de cet Amour. Aspirez à son contact et soyez immergés dans ce grand Amour qui est le plus grand Don, le plus grand Don de Dieu.
 
 Âmes bien-aimées, soyez en paix et sachez que Dieu est avec vous. Quelle bénédiction pour vous de connaître l’Amour de Dieu, d’aspirer et de prier pour que ce grand Don soit donné et sera donné à tous ceux qui y aspirent, qui le demandent et qui sont prêts à permettre à cet Amour de les transporter dans un voyage d’ouverture et de découverte et d’union avec Dieu.
-
-
-

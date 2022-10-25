@@ -9,7 +9,7 @@ weight:
 ---
 ### La différence entre l’ego et l’âme
 
-St Jean - reçu par WV le 25 Juin 2016, Schoten, Belgique
+St Jean - reçu par WV le 25 Juin 2016, Frankfurt, Allemagne.
 
 Bonsoir, Guten Abend. Je m’appelle Jean, mein name ist Johannes. Je suis très heureux d’être ici avec vous ce soir.
 
@@ -30,8 +30,3 @@ Nous voulons donc vous encourager à être vous-même et à faire les choses que
 Merci de m’avoir donné l’opportunité de vous parler. Nous aimons l’ouverture du cercle, mais nous voulons y ajouter quelque chose : nous aimerions que vous ajoutiez votre énergie dans le bol après que chacun ait mentionné son nom. Nous aimerions que quelqu’un mentionne et se concentre sur le bol, afin que les personnes, dont les noms ont été écrits sur le papier dans le bol, reçoivent la même quantité d’amour et d’énergie que vous vous donnez les uns aux autres.
 
 Donc encore une fois, merci pour cette opportunité. Jusqu’à notre prochaine rencontre. Au revoir. Auf Wiedersehen.
-
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Chacun de vous fait l’expérience de Dieu et de la Vérité d’une manière unique
 
-James Padgett - reçu par Al Fike le 17 Août 2016, Gibsons, Colombie-Britannique, Canada
+James Padgett - reçu par Al Fike le 17 Août 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi James Padgett. Ah, comme l’Amour Divin est provocateur, mes amis !! Lorsque cette vérité m’est apparue, j’en ai eu peur, peur pour ma réputation. Je voulais la garder secrète, ne laissant entrer que les rares personnes en qui j’avais confiance, ne permettant à la vérité d’être connue qu’à un très petit degré.
 
@@ -32,6 +32,3 @@ L’esprit des hommes a faim de la réalité que les mots créent, mais l’âme
 Âmes bien-aimées, poursuivez vos ministères et qu’ils soient toujours, toujours dans cette grande rivière d’Amour. Il n’y a pas de compétition quand il y a de l’Amour. Il n’y a qu’un beau sens de la famille, de l’unité, du travail en commun dans un seul but, pour le salut de l’humanité. Soyez bénis, mes bien-aimés, alors que vous marchez sur ce chemin en cherchant à accomplir la volonté de Dieu. Que cela soit toujours votre grand objectif, d’être un canal d’Amour, de recevoir des portions d’Amour toujours plus grandes et d’exprimer l’amour dans vos vies et avec cela vous ne pouvez pas vous égarer, avec cela vous accomplirez la Volonté de Dieu. C’est toujours simple, c’est toujours simple.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis James, James Padgett et je travaille avec vous dans ce grand effort pour apporter ces vérités simples à l’humanité. Je vous remercie d’avoir écouté mes paroles. Je t’aime. Que Dieu vous bénisse.
-
-
-

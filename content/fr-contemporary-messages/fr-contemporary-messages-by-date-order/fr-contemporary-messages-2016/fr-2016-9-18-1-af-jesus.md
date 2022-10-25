@@ -9,7 +9,7 @@ weight:
 ---
 ### Je vous conduirai sur le chemin
 
-Jésus - reçu par Al Fike le 18 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 18 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, mes bien-aimés, je suis Jésus. Les vents du changement soufflent, mes bien-aimés. Les vents du changement soufflent dans vos âmes, alors que l’Amour du Père coule à l’intérieur, il doit y avoir un changement de l’intérieur correspondant à cette grande bénédiction, mes âmes bien-aimées. Et comme vous continuez à permettre à ces changements de se manifester dans votre être, comme vous acceptez ce que Dieu a placé dans vos âmes, comme vous continuez à permettre à cet Amour d’imprégner chaque partie de vous, vous serez transformés, vous serez transformés en puissants canaux d’Amour dans ce monde.
 
@@ -22,6 +22,3 @@ Je vous bénis dans votre voyage, mes bien-aimés. Je suis avec vous alors que v
 Portez-vous avec cette connaissance, avec dignité et grâce, vérité et amour, paix et réconfort. Marchez de cette façon, mes bien-aimés. Ne compromettez pas la Vérité mais que chaque jour commémore votre amour pour Dieu. Que chaque jour soit un reflet de cette belle âme supérieure que vous êtes. Ne permettez pas à la condition humaine d’entrer en jeu, car Dieu a besoin d’exemples aimants dans le monde pour montrer aux autres enfants qui sont perdus une issue à leurs dilemmes, une issue à leur douleur, à leur confusion et à leur peur.
 
 Mes bien-aimés, vous avez choisi cela, cette mission et je vous guiderai sur le chemin comme le feront de nombreux anges qui marchent avec vous, de beaux anges qui vous entourent toujours. Vous trouverez votre chemin et vous serez libérés des encombrements de la condition humaine. Je vous bénis, mes bien-aimés, et dans la grâce de l’Amour de Dieu, vous irez ainsi, vos pas guidés, vos âmes rayonnant de l’Amour de Dieu. Soyez en paix, mes bien-aimés. Soyez en paix.
-
-
-

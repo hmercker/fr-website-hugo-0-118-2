@@ -9,7 +9,7 @@ weight:
 ---
 ### Défendez la vérité
 
-Martin Luther - reçu par Al Fike le 9 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 9 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Oui, votre cercle est très grand en effet. Vous avez fait entrer dans le cercle de nombreuses âmes qui sont sur ce plan terrestre et de nombreuses âmes qui sont en esprit. Vous vous baignez dans cette lumière tous ensemble, âmes bien-aimées et Dieu déverse son amour en vous, répondant à vos prières, vous amenant à un endroit plus proche de sa grande âme.
 
@@ -35,6 +35,3 @@ Continuez à marcher dans cette lumière, à être toujours clair et conscient d
 Âmes bien-aimées, vous êtes aimées et je vous aime et de nombreux anges sont avec vous et tous au sein du Royaume Céleste prient pour chacun d’entre vous, mes bien-aimés. Que vous puissiez réussir à apporter ces vérités simples à l’humanité et il y en a d’autres qui se joindront à vous et qui sont connectés à vous qui feront de même. Cette vérité va se répandre. La lumière va grandir. L’émerveillement des bénédictions de Dieu dans ce monde sera ressenti par beaucoup et reconnu comme des bénédictions de Dieu. Le temps est venu de servir intensément le Créateur. Il vous soulèvera de manière surprenante, vous transportera dans des endroits surprenants et vous déposera là où on a besoin de vous.
 
 Soyez bénis, mes bien-aimés, continuez, soyez humbles et marchez sur le Chemin Divin chaque jour. Je suis Martin Luther et je suis avec vous sur vos chemins. Dieu vous bénisse, Dieu vous bénisse.
-
-
-

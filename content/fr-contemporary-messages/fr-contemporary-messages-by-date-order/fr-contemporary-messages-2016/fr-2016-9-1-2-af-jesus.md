@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez ouverts à l’amour de Dieu
 
-Jésus - reçu par Al Fike le 1 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Et que l’Amour du Père trouve un afflux constant dans vos âmes afin que cette Lumière puisse brûler de plus en plus fort jusqu’à ce qu’elle soit brillante comme le soleil, illuminant tout ce qui vous entoure, âmes bien-aimées. Car l’Amour de Dieu est illimité, la capacité de recevoir cet Amour est illimitée, seulement limitée par vos propres désirs et envies. Plus vous êtes passionnés pour recevoir ce cadeau, plus l’afflux de cette bénédiction sera important. C’est ainsi que dans un groupe d’âmes priant ensemble, c’est votre désir, votre passion, votre concentration et vos efforts pour recevoir et être en harmonie ensemble pour créer ces conditions parmi vous qui attirent cette grande bénédiction vers vous. Et le grand avantage de la prière de groupe est que le désir ardent, le désir est multiplié par chaque individu qui se réunit, s’harmonise et résonne avec l’autre. Et de cette façon, un grand afflux est possible pour chacun d’entre vous. Vous bénéficiez des prières de vos frères et sœurs qui se joignent à vous. Vous parvenez à un lieu d’harmonie et ainsi l’énergie du groupe, le flux de cette énergie au sein d’un groupe génère les conditions requises pour que ces grandes bénédictions soient données.
 
@@ -30,6 +30,3 @@ Dieu a un plan pour chaque âme dans ce monde et c’est à vous, mes bien-aimé
 Je vous remercie, mes bien-aimés, de m’avoir permis de m’exprimer. Je suis Seretta Kem. J’ai vécu il y a plusieurs milliers d’années dans le pays d’Égypte. J’étais un guérisseur et je continue d’être un guérisseur dans le monde de l’esprit et même dans ce monde lorsque je peux être utilisé comme canal de Dieu par la guérison et l’Amour dans ce monde, je viens et j’aide. Alors je vous demande, âmes bien-aimées, quand vous avez besoin de mon aide, appelez-moi par mon nom et je viendrai à vous pour vous aider avec ce qui vous pose problème, car en tant qu’ange dans les Cieux Célestes, notre grande tâche et notre grande joie est de servir tous les esprits et l’humanité dans l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et je vous aime.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Donnez aux autres, aimez les autres
 
-Lorna Kincaid - reçu par Al Fike le 13 Novembre 2016, Gibsons, Colombie-Britannique, Canada
+Lorna Kincaid - reçu par Al Fike le 13 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Et dans vos vies quotidiennes, je vois maintenant combien il est important de donner en prière et en amour à tous mes amis terrestres autant que je le peux et je le ferai, je vous le promets, je serai avec chacun d’entre vous qui désire que je sois avec vous et rappelez-vous que l’Amour est la chose la plus importante, l’Amour est la chose la plus importante.
 
@@ -21,6 +21,3 @@ Nous allons tous nous montrer pour vous, mes amis. Nous nous montrerons de mani�
 La vie est pleine d’opportunités. Sachez ceci. Sachez que chaque jour a quelque chose que vous pouvez donner à un autre. Merci, merci de me permettre de parler et je remercie cet instrument qui a fait une exception, car il a pour règle que seuls les anges (les Célestes) parlent à travers lui et je ne suis pas encore un ange, mais je suis très heureuse d’être ici dans la Lumière. En fait, je suis plutôt surprise. Oui, la vie réserve bien des surprises et des bénédictions.
 
 S’il vous plaît, allez de l’avant à partir de cette réunion et pensez à ce qui a été dit et combien la vie est glorieuse, saisissez-la et vivez-la, amis bien-aimés. Vivez-la pleinement. La vie est faite pour être vécue et la vie est faite pour être aimée. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse. Je vous aime tous. Votre amie Lorna est avec vous. Que Dieu vous bénisse. Merci.
-
-
-

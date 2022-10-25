@@ -9,7 +9,7 @@ weight:
 ---
 ### Être dans la lumière demande un effort conscient
 
-Augustin - reçu par Al Fike le 14 Septembre 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 14 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jérôme. J’ai été martyrisé il y a de nombreuses années et maintenant je suis un habitant du Royaume Céleste et je suis venu déclarer mon engagement envers toi, mon fils, pour t’aider dans ce travail sur cette terre, une terre qui a été remplie de conflits et de guerres pendant de nombreux, nombreux siècles.
 
@@ -32,6 +32,3 @@ C’est le voyage, mes bien-aimés. C’est ce qui doit se produire si vous voul
 Tu trouveras ton chemin, mon fils. Je serai avec toi dans tes efforts. Je t’aiderai à te libérer de tes fardeaux. Je serai à tes côtés ainsi que beaucoup d’autres anges qui sont impatients de te soutenir dans ton voyage et ta mission d’apporter la guérison et l’Amour à cet endroit, cette partie du monde, si abattue par tant de douleur. Allez dans les églises. Allez dans les lieux de rencontre. Allez le long des rues. Dites vos prières en marchant. Dites vos prières en participant aux offices dans les églises. Continuez à être l’humble serviteur de Dieu et ne laissez pas les erreurs que vous entendez proférer par les membres de ces églises inhiber le flux de votre amour. La véritable humilité est l’acceptation. La véritable humilité consiste à ajouter votre amour à ceux qui cherchent la Lumière, même si leurs croyances sont fausses. Chaque âme est un enfant de Dieu. Chaque âme cherche Dieu et, par votre présence et votre foi, vous ajouterez votre lumière à leurs efforts.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis très heureux de pouvoir parler aujourd’hui à travers cet instrument. Il y aura plus de conseils au fur et à mesure que le temps avance dans vos voyages. Que Dieu vous bénisse, je suis Jérôme. Je vous aime, je suis avec vous et je suis avec le peuple de cette terre, ses luttes pour la Lumière. Que Dieu vous bénisse.
-
-
-

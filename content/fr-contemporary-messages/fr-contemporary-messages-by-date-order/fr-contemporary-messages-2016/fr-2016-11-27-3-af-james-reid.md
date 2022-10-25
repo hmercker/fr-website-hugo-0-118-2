@@ -9,9 +9,9 @@ weight:
 ---
 ### La valeur de la connaissance de vos âmes
 
-James Reid - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada
+James Reid - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
 
-Mes amis, c’est James, James Reid<sup id=”a1”>[1](#f1)</sup>.
+Mes amis, c’est James, James Reid <sup id=”a1”>[1](#f1)</sup>.
 
 Comme c’est différent de parler de ce côté de la voix. D’être un canal de cette façon, de vous parler de cette façon et combien je suis ravi d’avoir cette occasion de parler à mes amis et à toi mon ami Geoff, qui a été mon fidèle partisan et mon cher ami.
 
@@ -39,8 +39,3 @@ Dieu vous bénisse, mes amis, je suis très heureux de pouvoir vous parler et j�
 <small>
 
 1. <large id=”f1”> C’est notre très cher ami James Reid, récemment décédé, récepteur et éditeur des Messages Richard.[↩](#a1) 
-
- 
-
-
-

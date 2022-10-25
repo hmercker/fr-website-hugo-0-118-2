@@ -9,7 +9,7 @@ weight:
 ---
 ### Forgez ce chemin vers vos âmes et par là vers Dieu
 
-Augustin - reçu par Al Fike le 15 Février 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Février 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi Augustin. Que vos âmes connaissent ce toucher profond du Père Céleste rachetant vos âmes, amenant vos âmes en alignement avec la Vérité et l’Amour, la pureté et la grâce afin que vous puissiez être un canal clair d’Amour dans ce monde. Certains d’entre vous ressentent les remous de leur âme et éprouvent un profond désir de faire partie du travail qui se manifeste dans ce monde, pour apporter une plus grande Lumière et une plus grande illumination à de nombreuses âmes alors que le monde se transforme et change. Il est affecté par le souffle de Dieu sur lui et par Sa volonté de tout amener à l’harmonie et à l’alignement, à la paix et à une plénitude qui affirmera la vie et apportera l’opportunité de la vie pour toutes les créatures de Dieu et l’harmonie parmi l’humanité.
 
@@ -26,6 +26,3 @@ Oui, nous voyons les âmes dans le monde se perdre, créer de nombreuses idées 
 C’est votre choix, qui vous est présenté en tout amour. Dieu ne vous aime pas moins pour vos choix. Mais l’un d’eux amènera Son Amour à une plus grande conscience tandis que l’autre vous amènera sur un autre chemin qui n’apportera pas cet accomplissement dans l’Amour Divin, mais l’accomplissement de l’amour humain, l’amour naturel. Je souhaite que vous connaissiez ces distinctions, mes amis, mes élèves. Car vous devez être clairs sur cette question, ces choix, les chemins sur lesquels vous vous engagez et où ils mènent et ce que vous pouvez gagner par vos efforts dans ces directions. Nous vous exhortons à connaître vos âmes, à bien les connaître, à les connaître tout autant que vos esprits, et à utiliser les potentiels, les dons, les perceptions et les aspects de l’âme de toutes les manières possibles, car il y a de nombreuses possibilités, beaucoup à connaître, beaucoup à utiliser et beaucoup à développer.
 
 Continuez, mes bien-aimés, à prier pour l’Amour du Père car, comme nous vous l’avons dit maintes fois, c’est la clé pour ouvrir la porte de l’âme. Cela vous apportera de grandes récompenses, une paix qui dépasse toute compréhension et une proximité de Dieu inaccessible par les facultés et les aspects de l’amour naturel. Bien qu’il y ait une proximité avec Dieu dans cette poursuite de l’amour naturel, ce n’est pas la même chose, ce n’est pas la même chose et je vous dis que ce que vous allez expérimenter avec l’Amour de Dieu éclipse de loin cet autre amour, cette autre connexion avec Dieu. Je vous encourage sur le Chemin Divin. Nous attendons avec impatience vos efforts sur ce Chemin, faire ces efforts c’est reconnaître les désirs de vos âmes et la vérité de l’Amour de Dieu. S’il vous plaît, continuez, mes bien-aimés, continuez à marcher sur ce Chemin de Lumière et choisissez l’Amour de Dieu. Dieu vous bénisse, mes bien-aimés étudiants, votre enseignant Augustin vous aime tendrement et vous encourage dans ce merveilleux voyage vers votre âme et vers Dieu. Que Dieu vous bénisse.
-
-
-

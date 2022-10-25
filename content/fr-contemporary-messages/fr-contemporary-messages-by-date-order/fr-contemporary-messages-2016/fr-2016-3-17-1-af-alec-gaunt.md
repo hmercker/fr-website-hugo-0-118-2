@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez être des exemples
 
-Alec Gaunt - reçu par Al Fike le 17 Mars 2016, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 17 Mars 2016, Selah, Washington, USA.
 
 Que l’Amour parfait de Dieu trouve un grand afflux dans vos âmes, mes amis, et que cet Amour vous transforme comme il le doit et affecte votre pensée, votre être, votre esprit, vos corps, tout ce qui fait partie de vous. Que cet Amour vous transforme, car c’est ce qui est requis, mes amis, pour faire ce travail, pour continuer dans ce monde qui a tant besoin d’enseignants et de guérisseurs, de pourvoyeurs d’Amour et de Lumière. Car ces conditions désespérées dans le monde doivent changer et ceux qui sont dans ces conditions désespérées doivent avoir la possibilité de changer, de chercher quelque chose de plus élevé, de mettre de côté leurs peurs et leurs pensées colériques et leurs natures perturbatrices et de réaliser la valeur de l’amour, l’importance de l’harmonie, le pouvoir de la gratitude, la félicité qui vient avec la prière à Dieu.
 
@@ -28,6 +28,3 @@ Essayez de ne pas laisser vos egos et vos ambitions se mettre en travers de ce f
 Le pouvoir de la condition humaine crée de nombreuses barrières et distractions. Mais vous avez choisi d’être les canaux de vérité de Dieu dans ce monde et ce choix implique ce défi : connaître vraiment Dieu à partir de ce lieu de connaissance, servir vraiment Dieu à partir de ce lieu de compréhension de sa volonté et aimer comme Dieu désire que vous aimiez avec Son amour. Cela demande de la force, de la persévérance, de la dévotion et de la foi. Et vous avez toutes ces qualités en vous et vous continuerez à les utiliser pour progresser vers ce lieu de connaissance sûre, de compréhension claire et profonde, en utilisant toutes les facultés de votre âme pour être les instruments de Dieu dans le monde. Vous êtes plus proches que vous ne le pensez et cela arrive. C’est nécessaire, car alors que le monde continue à dégénérer dans les ténèbres, il doit y avoir des canaux dans le monde pour lutter contre cela, pour apporter un nouveau monde, une nouvelle compréhension, une nouvelle voie.
 
 Ainsi, mes amis, nous forgeons un chemin ensemble. Vous continuerez chaque jour ce voyage en combattant ces conditions du monde, en cherchant et en vous étirant, en vous efforçant d’obtenir une plus grande lumière et une plus grande compréhension, un être plus spirituel et plus proche de Dieu. Continuez, mes amis. Votre ami Alec est avec vous dans cette lutte et ce voyage et cela m’apporte une grande joie de vous voir faire ces efforts pour vous étirer vers la grande route. Vous serez récompensés au-delà de votre imagination, mes amis, pour ces efforts. Et il y a tant de travail à venir pour que chacun d’entre vous s’y engage alors que Dieu vous guide dans le plan parfait, le salut de l’humanité. Que Dieu vous bénisse. Que Dieu vous bénisse dans vos voyages. Que chaque pas soit celui de la Lumière et d’une plus grande compréhension. Que Dieu vous bénisse. Votre ami Alec vous aime. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### S’éveiller à l’Amour Divin
 
-Jean le Bien-Aimé - reçu par Al Fike le 1 Décembre 2016, Gibsons, Colombie-Britannique, Canada
+Jean le Bien-Aimé - reçu par Al Fike le 1 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Dieu va lever vos fardeaux, vous libérer de votre douleur et vous amener dans la liberté et la gloire de Sa lumière aimante.
 
@@ -18,6 +18,3 @@ Dieu va lever vos fardeaux, vous libérer de votre douleur et vous amener dans l
 Âmes bien-aimées, vous êtes les Enfants de Dieu avec votre innocence et votre lumière, la vérité et la sagesse, l’amour, l’Amour Divin. Réveillez-vous mes enfants, réveillez-vous, laissez Son Amour vous toucher profondément, chaque recoin et chaque crevasse et chaque partie de vous sera guérie par cet Amour.
 
 Je suis Jean le Bien-Aimé.
-
-
-

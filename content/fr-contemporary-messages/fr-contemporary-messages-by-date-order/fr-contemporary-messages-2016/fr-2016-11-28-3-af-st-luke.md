@@ -9,7 +9,7 @@ weight:
 ---
 ### Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu’u
 
-St Luc - reçu par Al Fike le 28 Novembre 2016, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 28 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
 
 Que l’Amour du Père trouve un afflux constant dans vos âmes mes amis, que vous puissiez sentir Sa présence dans votre cœur en permanence. Et que vous puissiez toujours marcher dans la lumière de Sa protection et de Son amour, et que vous puissiez connaître la joie et la liberté d’une âme libérée et pure dans l’amour.
 
@@ -24,6 +24,3 @@ Par vos prières et vos intentions, vos pensées et vos actes, agissez avec amou
 Buvez profondément, mes amis, buvez profondément les eaux de l’Amour de Dieu et sachez que vous êtes en effet dans Sa lumière, Sa présence et que vous êtes nourris de cette façon. Tous ceux pour qui vous priez seront touchés et réconfortés, la guérison s’étendra à beaucoup. Cela fait partie de votre effort et de votre dévouement ensemble.
 
 Que Dieu vous bénisse, mes bien-aimés, je suis Luc. Je vous aime. Vous êtes vraiment bénis. Que Dieu vous bénisse.
-
-
-

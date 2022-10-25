@@ -34,8 +34,3 @@ Ainsi, ces derniers jours, nous avons tenté d’enseigner et d’encourager, de
 Ce grand don n’est pas connu par beaucoup et pourtant vous êtes tous assis ici, sachant, possédant cette clé de vérité. Utilisez cette clé pour déverrouiller les portes et je vous promets que vous ne vous ennuierez jamais, que vous ne vous priverez jamais, que vous trouverez toujours quelque chose de nouveau, quelque chose de beau, quelque chose de précieux en faisant vos propres découvertes sur votre chemin unique vers Dieu. N’oubliez pas que c’est Son Amour qui est la clé. Prenez ce message dans votre cœur et c’est notre désir fervent que lorsque vous le ferez, vous sentirez la vérité de celui-ci, vous sentirez la puissance de celui-ci, vous sentirez l’émerveillement de ce beau cadeau, l’Amour de Dieu.
 
 Soyez bénis, mes bien-aimés. Sachez que les anges seront avec vous dans les efforts qui sont à venir. Et oui, il y aura de nombreux cercles dans le monde. Cela fera partie du plan de Dieu et certains – beaucoup d’entre vous – en feront partie, voyageront et partageront votre Lumière, vos prières avec les autres. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis Jean et je vous aime.
-
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Travailler en groupe présente de nombreux avantages pour le monde
 
-Seretta Kem - reçu par Al Fike le 9 Mai 2016, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 9 Mai 2016, West Vancouver, Colombie-Britannique, Canada.
 
 Il y a beaucoup de choses que nous pouvons accomplir avec ce groupe tel qu’il est si vous souhaitez vous engager à vous asseoir en cercle dans la prière, en recherchant le plus haut comme vous le faites, l’Amour de Dieu et Sa bénédiction. Et comme vous le faites et que vous êtes ouverts aux énergies, aux courants et aux vagues de Lumière, aux bénédictions qui viennent, nous pouvons utiliser ce groupe pour aider d’autres personnes dans le monde, pour même changer les conditions de ce monde, comme nous le faisons avec d’autres groupes dans le monde. Et il y a beaucoup de travail à faire, âmes bien-aimées, alors que vous faites ces efforts dans la prière ensemble et que vous vous connectez avec d’autres dans le monde, alors que vous partagez tous vos désirs mutuels pour les bénédictions de Dieu et pour être utilisés comme instruments et canaux de Lumière et d’Amour et de guérison pour ce monde.
 
@@ -20,6 +20,3 @@ D’abord et avant tout, vous devez être concentrés dans vos prières pour êt
 Et cela continue, âmes bien-aimées. Un si petit effort de votre part apporte beaucoup de grandes bénédictions et d’influences qui vont effectivement changer ce monde. Mais vous devez vous engager. Vous devez comprendre ce qui est important et je ne dis pas que vous devez comprendre tous les mécanismes de la façon dont cela est accompli, car ce n’est pas nécessaire. Mais vous devez être purs dans votre cœur et dans vos désirs de servir de cette façon, de recevoir dans vos âmes cette grande bénédiction d’Amour et tout le reste viendra, une grande cascade de Lumière et de bénédictions vient avec ce simple désir et engagement de s’asseoir ensemble en prière de cette façon. Je vous demande, mes chers et beaux amis, de considérer cela lorsque vous vous réunissez. Considérez cela et préparez-vous le jour de ce rassemblement. Soyez priants. Ayez des intentions d’amour les uns envers les autres. Soyez en paix à l’intérieur de vous-mêmes et ressentez l’enthousiasme dans vos âmes que vous faites partie de quelque chose de vaste, de puissant et d’aimant pour ce monde, pour vous-mêmes et pour votre monde intérieur.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis ici avec vous chaque fois que vous priez et je travaille avec chacun d’entre vous pour apporter une plus grande harmonie dans vos êtres et pour apporter une plus grande harmonie dans le monde. Que Dieu vous bénisse et qu’Il vous garde toujours dans cette Lumière. Âmes bien-aimées, vous êtes bénies et vous avez de nombreux dons à partager, chacune d’entre vous. Puissiez-vous marcher sur ce Chemin Divin et vous exprimer dans le flux d’Amour de manière belle et harmonieuse. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
-
-
-

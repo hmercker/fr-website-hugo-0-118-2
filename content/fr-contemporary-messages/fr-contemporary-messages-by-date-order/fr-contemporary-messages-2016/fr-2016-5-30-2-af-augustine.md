@@ -9,7 +9,7 @@ weight:
 ---
 ### Rester dans la lumière
 
-Augustin - reçu par Al Fike le 30 Mai 2016, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 30 Mai 2016, Gibsons, Colombie-Britannique, Canada.
 
 Votre enseignant Augustin est venu vous parler dans vos prières et dans vos désirs d’être dans la Lumière.
 
@@ -28,6 +28,3 @@ Oui, cela vient par incréments, par à-coups, et il y a des moments où vous re
 Continuez, mes chers élèves, à marcher sur le Chemin de l’Amour, à aspirer à la Lumière, à vous exprimer dans l’Amour, à être proches de Dieu et surtout à désirer Son Amour, qui apportera tout ce que vous désirez en vous-mêmes et dans vos vies. Il doit en être ainsi car la puissance de l’Amour de Dieu apporte l’harmonie, apporte la Lumière et la Paix. Et vous le désirez, âmes bien-aimées. Cela viendra. C’est en train de venir et de couler dans vos âmes en ce moment même et vous continuerez à susciter cette bénédiction, un pas de plus vers cet objectif final d’harmonisation avec votre Créateur.
 
 Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage, un voyage que nous faisons ensemble, un voyage plein de découvertes, de mise à nu de votre véritable moi, de connaissance profonde et riche de votre Créateur bien-aimé et de ce qu’Il a créé en vous. Que Dieu vous bénisse, mes bien-aimés, votre enseignant Augustin est toujours avec vous, il vous aide à apprendre et à grandir, à prier et à ressentir cette joie. Je vous bénis. Je t’aime. Que Dieu vous bénisse.
-
-
-
