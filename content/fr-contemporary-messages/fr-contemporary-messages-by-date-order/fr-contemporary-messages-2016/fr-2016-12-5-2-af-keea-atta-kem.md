@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez des scientifiques de l’âme
 
-Keea Atta Kem - reçu par Al Fike le 5 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 5 Décembre 2016, Oahu, Hawaii, USA.
 
 C’est Keea-Atta-Kem.
 

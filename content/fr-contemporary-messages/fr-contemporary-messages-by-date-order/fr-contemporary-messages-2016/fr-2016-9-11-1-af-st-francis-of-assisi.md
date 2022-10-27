@@ -9,7 +9,7 @@ weight:
 ---
 ### Beaucoup sont avec vous dans vos efforts
 
-St François d'Assise - reçu par Al Fike le 11 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+St François d'Assise - reçu par Al Fike le 11 Septembre 2016, Belgrade, Serbie.
 
 Soyez bénis, mes bien-aimés. Vous avez réalisé un bon rassemblement (A Francfort) car vous avez planté des graines au sein des âmes qui y ont assisté et je dois vous dire qu’il y avait beaucoup d’esprits avec vous à ce moment-là dans lesquels des graines ont été plantées. De cette manière simple, vous faites le travail de Dieu. Vous apportez la Vérité, vous parlez de la Vérité, vous priez la Vérité, et vous vous asseyez en écoutant dans un cercle de Lumière pour que Dieu réponde, et en effet Dieu a répondu et a touché chaque âme. Ce n’est pas à vous de déterminer leur destin, leur choix, mais vous, d’une manière aimante, avez offert la Vérité aussi simplement et puissamment que vous le pouviez. Par conséquent, vous avez fait la Volonté de Dieu et vous n’avez pas besoin de remettre en question vos efforts de quelque manière que ce soit, mais de continuer à chercher l’inspiration et la guidance, de toucher les âmes vers lesquelles vous vous sentez attirés et qui sont attirées vers vous et d’offrir cette expérience à ceux qui pourraient être intéressés. Les cercles de Lumière, mes bien-aimés, oui, les cercles de Lumière, il se forment en fonction de la volonté de Dieu et du désir des autres qui sont attirés. Vous serez inspirés. Vous continuerez à rassembler les âmes qui sont curieuses, les âmes qui se languissent, les âmes qui désirent le confort, les âmes qui désirent la vérité. Cela va continuer.
 

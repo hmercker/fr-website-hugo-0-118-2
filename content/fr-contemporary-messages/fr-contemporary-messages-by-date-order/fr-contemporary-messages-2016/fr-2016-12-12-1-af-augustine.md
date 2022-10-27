@@ -9,7 +9,7 @@ weight:
 ---
 ### La Volonté de Dieu
 
-Augustin - reçu par Al Fike le 12 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 12 Décembre 2016, Oahu, Hawaii, USA.
 
 C’est Augustin votre enseignant et je souhaite aborder le sujet de la volonté de Dieu – comment elle se manifeste dans vos vies, et dans ce monde.
 

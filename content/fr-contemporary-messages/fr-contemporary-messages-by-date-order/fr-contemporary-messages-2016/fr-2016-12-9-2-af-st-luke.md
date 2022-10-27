@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçons sur le pardon et la compassion
 
-St Luc - reçu par Al Fike le 9 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+St Luc - reçu par Al Fike le 9 Décembre 2016, Oahu, Hawaii, USA.
 
 Je suis Luc et je suis venu vous parler du sujet de la compassion et du pardon.
 

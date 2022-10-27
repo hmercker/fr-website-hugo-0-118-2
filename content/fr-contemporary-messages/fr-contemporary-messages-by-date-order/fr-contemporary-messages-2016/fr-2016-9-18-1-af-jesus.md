@@ -9,7 +9,7 @@ weight:
 ---
 ### Je vous conduirai sur le chemin
 
-Jésus - reçu par Al Fike le 18 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 18 Septembre 2016, Belgrade, Serbie.
 
 Dieu vous bénisse, mes bien-aimés, je suis Jésus. Les vents du changement soufflent, mes bien-aimés. Les vents du changement soufflent dans vos âmes, alors que l’Amour du Père coule à l’intérieur, il doit y avoir un changement de l’intérieur correspondant à cette grande bénédiction, mes âmes bien-aimées. Et comme vous continuez à permettre à ces changements de se manifester dans votre être, comme vous acceptez ce que Dieu a placé dans vos âmes, comme vous continuez à permettre à cet Amour d’imprégner chaque partie de vous, vous serez transformés, vous serez transformés en puissants canaux d’Amour dans ce monde.
 

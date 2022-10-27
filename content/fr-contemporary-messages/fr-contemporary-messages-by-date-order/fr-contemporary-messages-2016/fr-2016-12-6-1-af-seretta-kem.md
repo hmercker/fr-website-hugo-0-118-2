@@ -9,7 +9,7 @@ weight:
 ---
 ### La médiumnité et l’atteinte de ce qui est le plus élevé
 
-Seretta Kem - reçu par Al Fike le 6 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 6 Décembre 2016, Oahu, Hawaii, USA.
 
 Salutations à vous, mes compagnons de voyage sur le Chemin Divin. Je suis Serreta Kem et je souhaite aujourd'hui parler du sujet de la médiumnité puisque beaucoup d'entre vous sont intéressés par ce sujet particulier et c'est une bénédiction en effet de pouvoir vous communiquer en mots par le biais d'un médium dans ce cercle.
 

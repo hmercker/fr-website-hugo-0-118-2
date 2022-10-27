@@ -9,7 +9,7 @@ weight:
 ---
 ### Message de clôture pour une retraite qui a renforcé nos liens
 
-André - reçu par Al Fike le 10 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 10 Décembre 2016, Oahu, Hawaii, USA.
 
 Que Dieu vous bénisse, âmes bien-aimées. Vous avez accompli beaucoup au cours de ce court voyage ensemble et les changements et les bénédictions et les nouvelles prises de conscience vous sont venus alors que vous avez recherché l’Amour du Père. Vous êtes arrivés à ce lieu de communion, d’unité et de fraternité et maintenant vous êtes plus profondément liés les uns aux autres à cause de ce que vous avez tout simplement partagé. Dans ce lien, cette communion plus profonde, viendra une floraison de nombreuses bénédictions, non seulement pour vous individuellement et collectivement, mais une sorte de canal pour le monde pour apporter des bénédictions à beaucoup. Vous marcherez ensemble pour l’éternité, mes bien-aimés, sur ce chemin d’expiation avec Dieu. Et vous continuerez à grandir dans l’amour, vos âmes s’épanouiront dans l’amour, vos êtres trouveront ce grand équilibre et cette plénitude dans l’amour.
 

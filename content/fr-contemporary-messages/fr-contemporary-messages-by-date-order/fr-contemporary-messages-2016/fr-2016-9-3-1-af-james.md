@@ -9,7 +9,7 @@ weight:
 ---
 ### Priez pour l’humanité
 
-Jacques - reçu par Al Fike le 3 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Jacques - reçu par Al Fike le 3 Septembre 2016, Francfort, Allemagne.
 
 …Il y a mes âmes bien-aimées, une grande privation. Malgré tout le matériel que vous possédez, qui est possédé au sein de ce monde, presque toutes les âmes résidant en ce lieu ont un grand manque en elles et ces conditions, ce manque d’amour, cette incapacité à aller au-delà de soi-même dans l’amour, continuent à créer des conditions sombres, des guerres et des conflits, une faim profonde dans l’humanité, âmes bien-aimées, une faim profonde de substance qui n’est pas de nature matérielle mais spirituelle.
 

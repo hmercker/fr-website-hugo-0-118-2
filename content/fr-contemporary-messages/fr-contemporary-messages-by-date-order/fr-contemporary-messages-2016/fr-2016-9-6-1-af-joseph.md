@@ -9,7 +9,7 @@ weight:
 ---
 ### Être avec Dieu
 
-Joseph - reçu par Al Fike le 6 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Joseph - reçu par Al Fike le 6 Septembre 2016, Francfort, Allemagne.
 
 Soyez bénies, âmes bien-aimées. Je suis Joseph, le père de Jésus, et je suis très heureux que vous vous soyez réunis en prière. N'est-ce pas un témoignage de la puissance de la Volonté de Dieu, que vous vous réunissiez ainsi de diverses parties du monde ? Vos âmes sont attirées et. Dieu vous invite à entrer dans cette relation de prière et d'amour. Et il y a un but profond à cela, ces efforts que vous faites tous pour être ensemble, car lorsque vous vous réunissez de cette façon, vous créez une Lumière qui ne profite pas seulement à vous-mêmes, mais aussi à vos familles, aux nombreuses âmes qui sont connectées à vous et, d'une certaine façon, à ce monde.
 

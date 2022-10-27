@@ -9,7 +9,7 @@ weight:
 ---
 ### Bienvenue dans ce cercle d’Amour
 
-Confucius - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 2 Décembre 2016, Oahu, Hawaii, USA.
 
 Âmes bien-aimées, c’est Confucius.
 

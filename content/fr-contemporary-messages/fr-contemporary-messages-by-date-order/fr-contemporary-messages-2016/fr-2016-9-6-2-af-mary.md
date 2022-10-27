@@ -9,7 +9,7 @@ weight:
 ---
 ### Tu seras guérie
 
-Marie - reçu par Al Fike le 6 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Marie - reçu par Al Fike le 6 Septembre 2016, Francfort, Allemagne.
 
 Lorsque la fille crée une perturbation, vous devez prier pour elle et lui envoyer votre amour. Mettez votre amour autour d’elle et demandez que le manteau de protection l’entoure, elle et ceux qui sont proches d’elle, afin que cette perturbation soit étouffée. La confronter ne créera pas l’effet que vous souhaitez mais la confortera dans sa croyance, mais si vous êtes des canaux d’amour, d’acceptation, d’humilité et de prière, vous nous aiderez à maintenir les conditions à un niveau plus élevé.
 

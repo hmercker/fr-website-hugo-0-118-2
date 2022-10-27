@@ -9,7 +9,7 @@ weight:
 ---
 ### Une prière pour ceux qui sont sur le chemin de l'amour
 
-Jésus - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 2 Décembre 2016, Oahu, Hawaii, USA.
 
 Père, bénis ceux, mes enfants, qui portent la flamme de Ton Amour, qui portent le manteau de la Vérité en eux, qui sont vraiment Tes enfants alors qu’ils marchent dans ce monde. Que Ta grâce les enveloppe, alors qu’ils aspirent et grandissent en eux-mêmes. Que Ton Amour les transforme alors qu’ils vont parmi leurs frères et sœurs. Que Tes bénédictions coulent d’eux, qu’ils puissent porter ce but béni d’apporter les graines de la Vérité, de montrer le chemin de l’Amour, de porter la Lumière de la pureté alors qu’ils continuent à aspirer à Toi, mon Père bien-aimé.
 

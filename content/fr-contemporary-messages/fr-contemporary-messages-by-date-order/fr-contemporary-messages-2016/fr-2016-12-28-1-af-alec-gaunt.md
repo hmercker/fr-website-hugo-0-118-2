@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez la vérité dans votre propre âme
 
-Alec Gaunt - reçu par Al Fike le 28 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Alec Gaunt - reçu par Al Fike le 28 Décembre 2016, West Vancouver, Colombie-Britannique, Canada.
 
 C’est moi, votre ami Alec. Beaucoup d’entre vous ont été si fidèles au fil des ans en se réunissant constamment avec les plus hautes intentions, en recherchant l’Amour du Père, en travaillant ensemble, en s’aimant et en se soutenant mutuellement. Quel témoignage puissant vous faites, mes chers amis, dans vos efforts pour continuer à apporter cette Lumière de l’Amour de Dieu au milieu de vous, dans vos vies, et en développant un canal de Son Amour à travers vous.
 

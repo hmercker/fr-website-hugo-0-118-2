@@ -9,7 +9,7 @@ weight:
 ---
 ### S’éveiller à l’Amour Divin
 
-Jean le Bien-Aimé - reçu par Al Fike le 1 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Jean le Bien-Aimé - reçu par Al Fike le 1 Décembre 2016, Waianae, Hawaii, USA.
 
 Dieu va lever vos fardeaux, vous libérer de votre douleur et vous amener dans la liberté et la gloire de Sa lumière aimante.
 

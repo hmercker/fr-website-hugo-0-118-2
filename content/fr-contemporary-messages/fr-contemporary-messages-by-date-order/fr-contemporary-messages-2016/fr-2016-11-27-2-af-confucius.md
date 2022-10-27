@@ -9,7 +9,7 @@ weight:
 ---
 ### Confucius accueille le troupeau
 
-Confucius - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 27 Novembre 2016, Hawaii, USA.
 
 ’est moi, Confucius.
 

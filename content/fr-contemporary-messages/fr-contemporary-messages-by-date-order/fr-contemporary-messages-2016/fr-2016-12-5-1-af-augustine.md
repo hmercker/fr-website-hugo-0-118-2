@@ -9,7 +9,7 @@ weight:
 ---
 ### Les défis qui accompagnent la croissance de l’âme
 
-Augustin - reçu par Al Fike le 5 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 5 Décembre 2016, Oahu, Hawaii, USA.
 
 Je doute que vous ayez des difficultés à entendre ma voix aujourd’hui. Il est bon que vous priiez les uns pour les autres afin de permettre aux énergies de guérison et aux bénédictions de circuler librement entre vous.
 

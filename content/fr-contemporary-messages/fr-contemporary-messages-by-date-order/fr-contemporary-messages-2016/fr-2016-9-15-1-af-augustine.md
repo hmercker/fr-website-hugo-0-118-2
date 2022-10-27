@@ -9,7 +9,7 @@ weight:
 ---
 ### La réaction à votre lumière
 
-Augustin - reçu par Al Fike le 15 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 15 Septembre 2016, Belgrade, Serbie.
 
 Le pouvoir de la Lumière, mes bien-aimés, le pouvoir de la Lumière dans vos âmes provoque une réponse et une réaction dans le monde, et comme votre Lumière grandit, la réaction s’intensifiera. De la part de certains, il y a un merveilleux désir et un rapprochement de vous, une réponse d’amour, une reconnaissance de leur âme à votre âme, une reconnaissance de la Lumière. Et je le sais, mes chers étudiants, vous réagissez et appréciez cette interaction, cette réponse. D’autres ont une réponse négative, un désir d’étouffer votre Lumière, une réaction de suspicion, de peur et de colère de la part de ceux qui ne sont pas proches de Dieu. Ils ne comprennent pas la beauté et la puissance de l’Amour de Dieu qui brille à l’intérieur et ils ont peur, ils se sentent confrontés et ils cherchent à voir vos défauts. Il y a ceux qui ressentent de la jalousie et qui sont compétitifs, et tout ceci est une condition mentale, pourtant leurs âmes peuvent en effet avoir l’Amour à l’intérieur et pourtant leurs pensées continuent dans leurs réponses réflexes envers vous.
 

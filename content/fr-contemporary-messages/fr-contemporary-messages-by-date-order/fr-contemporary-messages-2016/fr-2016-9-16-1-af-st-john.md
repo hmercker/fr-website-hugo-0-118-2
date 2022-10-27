@@ -9,7 +9,7 @@ weight:
 ---
 ### Allez-vous marcher avec Dieu ?
 
-St Jean - reçu par Al Fike le 16 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+St Jean - reçu par Al Fike le 16 Septembre 2016, Belgrade, Serbie.
 
 Je m’appelle Jean. Le monde a un grand besoin de changement. Le monde a faim d’amour. Le monde souffre du manque d’amour dans l’humanité. Chacun de vous a un ministère dans ce monde pour apporter l’amour à l’humanité, pour démontrer et enseigner la puissance de l’amour de Dieu. Et chacun de vous a été appelé par Jésus à être son disciple.
 

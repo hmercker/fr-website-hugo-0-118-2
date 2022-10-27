@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes soutenu dans vos luttes
 
-Jérôme - reçu par Al Fike le 12 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Jérôme - reçu par Al Fike le 12 Septembre 2016, Belgrade, Serbie.
 
 Je suis Jérôme. J’ai été martyrisé il y a de nombreuses années et maintenant je suis un habitant du Royaume Céleste et je suis venu déclarer mon engagement envers toi, mon fils, pour t’aider dans ce travail sur cette terre, une terre qui a été remplie de conflits et de guerres pendant de nombreux, nombreux siècles.
 

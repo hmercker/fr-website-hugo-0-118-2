@@ -9,7 +9,7 @@ weight:
 ---
 ### Pourquoi se compliquer la vie ?
 
-Goldie - reçu par Al Fike le 28 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Al Fike le 28 Novembre 2016, Hawaii, USA.
 
 C’est moi, Goldie.
 

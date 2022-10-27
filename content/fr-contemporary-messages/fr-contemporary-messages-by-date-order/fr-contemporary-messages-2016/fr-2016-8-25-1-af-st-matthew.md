@@ -9,7 +9,7 @@ weight:
 ---
 ### La différence entre le mental et l’âme
 
-St Matthieu - reçu par Al Fike le 25 Août 2016, Gibsons, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 25 Août 2016, Blackpool, UK.
 
 Je suis Matthieu et je suis venu vous parler de l’esprit et de l’âme et de la façon dont il y a différents aspects de la conscience et de la conscience qui découlent de ces deux aspects de votre être. Si vous considérez le mental comme de l’eau, considérez l’âme comme de la lumière. Dans les deux cas, de nombreux niveaux de conscience peuvent être atteints dans chaque aspect de votre être, mais ils sont différents. Si le mental est de l’eau, ce que vous mettez dans le mental colore cette eau et, dans certains cas, change la composition de cette eau. Par conséquent, la conscience du mental est modifiable et fortement influencée par l’intellect, l’apprentissage de chaque individu, et cela devient une manière évolutive et quelque peu cristallisée de voir le monde.
 

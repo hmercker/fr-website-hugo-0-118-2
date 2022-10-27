@@ -9,7 +9,7 @@ weight:
 ---
 ### La valeur de la connaissance de vos âmes
 
-James Reid - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
+James Reid - reçu par Al Fike le 27 Novembre 2016, Hwaii, USA.
 
 Mes amis, c’est James, James Reid <sup id=”a1”>[1](#f1)</sup>.
 
