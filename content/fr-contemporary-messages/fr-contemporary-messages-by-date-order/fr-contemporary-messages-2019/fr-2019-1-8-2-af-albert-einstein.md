@@ -9,7 +9,9 @@ weight:
 ---
 ### L’Amour Universel est une force
 
-Albert Einstein - reçu par Al Fike le 8 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
+Albert Einstein - reçu par Al Fike le 8 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+
+
 
 
 
