@@ -9,7 +9,7 @@ weight:
 ---
 ###  Paix, première partie
 
-Jésus - reçu par  Bright Soul le 30 Avril 2013.
+Jésus - reçu par Bright Soul le 30 Avril 2013.
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-paix-interieure-4-2013.jpg)
 
