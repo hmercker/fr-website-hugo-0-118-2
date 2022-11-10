@@ -9,7 +9,7 @@ weight:
 ---
 ### Tu es mon disciple ici
 
-Jésus - reçu par Al Fike le 8 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 8 Septembre 2016, Belgrade, Serbie.
 
 Les cœurs qui se réparent dans ce pays sont chargés, mon frère bien-aimé. Ils sont chargés de tant de douleur et de chagrin, de colère et de chagrin. Ils sont perdus et je t’ai envoyé, mon frère, pour être mon disciple de la Vérité dans ce pays afin que tu puisses être utilisé pour décharger les âmes perdues et apporter l’espoir à beaucoup. Oui, mon bien-aimé, mon frère bien-aimé, tu seras mon disciple en ce lieu. Tu marcheras sur cette terre dans la vérité et tu dois être fort. Mets de côté vos doutes ; marche dans la foi.
 

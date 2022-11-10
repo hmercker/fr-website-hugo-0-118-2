@@ -9,7 +9,7 @@ weight:
 ---
 ### Être un canal de l’Amour de Dieu
 
-André - reçu par Al Fike le 26 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 26 Novembre 2016, Hawaii, USA.
 
 Dieu vous bénisse mes bien-aimés, C’est André.
 

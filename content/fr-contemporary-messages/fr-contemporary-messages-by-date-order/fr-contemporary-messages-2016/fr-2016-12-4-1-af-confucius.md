@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions de guérison et d’amour
 
-Confucius - reçu par Al Fike le 4 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 4 Décembre 2016, Punalu’u, Hawaii, USA.
 
 C’est Confucius.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### A propos de la Vérité Absolue
 
-Jésus - reçu par  Bettina le 14 Septembre 2016, Monterrey, Mexico.
+Jésus - reçu par Bettina le 14 Septembre 2016, Monterrey, Mexico.
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-lumiere-spirituelle.jpg)
 
@@ -21,4 +21,4 @@ Jésus - reçu par  Bettina le 14 Septembre 2016, Monterrey, Mexico.
 
 « Ceci, mes êtres chers, est en effet la Vérité Absolue : l’Amour sans conditions qui vient du Père, que vous pouvez manifester sur Terre. »
 
-Le groupe de progrès 11:11.
+*© The 11:11 Progress Group - Le groupe de progrès 11:11.*

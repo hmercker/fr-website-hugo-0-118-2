@@ -9,7 +9,7 @@ weight:
 ---
 ### Donnez aux autres, aimez les autres
 
-Lorna Kincaid - reçu par Al Fike le 13 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
+Lorna Kincaid - reçu par Al Fike le 13 Novembre 2016, Vancouver, Colombie-Britannique, Canada.
 
 Et dans vos vies quotidiennes, je vois maintenant combien il est important de donner en prière et en amour à tous mes amis terrestres autant que je le peux et je le ferai, je vous le promets, je serai avec chacun d’entre vous qui désire que je sois avec vous et rappelez-vous que l’Amour est la chose la plus importante, l’Amour est la chose la plus importante.
 

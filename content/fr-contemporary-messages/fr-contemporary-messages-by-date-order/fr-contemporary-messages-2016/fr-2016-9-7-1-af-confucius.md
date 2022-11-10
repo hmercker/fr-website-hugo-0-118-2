@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes bercés par Ses soins
 
-Confucius - reçu par Al Fike le 7 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 7 Septembre 2016, Francfort, Allemagne.
 
 Vous êtes désirés et aimés, enfants précieux. Dieu vous a dans Ses Mains, vous berçant de Ses soins et de Sa protection, la puissance de Son Amour, infusant chaque partie de votre être, âmes bien-aimées. Vous êtes bercés dans les Mains de Dieu. Permettez à Son doux Amour et à Ses soins de vous infuser, de vous porter, de vous guider, car Il souhaite guérir chaque partie de votre être, chaque crevasse de votre âme. Il souhaite vous guérir et vous rendre entier, et rempli de joie et de sagesse et de perceptions profondes qui vous amèneront dans un monde nouveau, un monde de la création de Dieu, un monde qui se révèle dans toute sa gloire, que vos yeux s’ouvrent, que votre cœur soit plein et que votre âme résonne de l’Amour, mes bien-aimés. De cette façon, Dieu vous portera en avant dans ce fleuve puissant qui vous emmènera sur les chemins de votre destinée.
 

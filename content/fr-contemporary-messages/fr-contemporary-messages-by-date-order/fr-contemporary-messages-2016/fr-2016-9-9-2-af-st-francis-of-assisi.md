@@ -9,7 +9,7 @@ weight:
 ---
 ### Nourrir son âme
 
-St François d'Assise - reçu par Al Fike le 9 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+St François d'Assise - reçu par Al Fike le 9 Septembre 2016, Belgrade, Serbie.
 
 Et je suis ton guide, mon fils. Oui, ton amour des animaux fait de nous des frères et ton désir de servir tes frères et sœurs fait de nous des alliés au service de Dieu et de Son Amour et je viens te dire que j’ai souvent été avec toi et que je serai à tes côtés alors que tu continues dans cette œuvre apportant la vérité à ceux qui sont réceptifs pour la recevoir, apportant l’Amour partout où tu vas, montrant le chemin. Tu dois prier avec ferveur Dieu et lui demander de te guider et d’ouvrir tes sens afin que tu puisses être dans le flux de l’intention et de la Volonté guidées de Dieu. Et de cette façon, tu trouveras ton chemin, tu attireras à toi de nombreuses âmes brillantes qui te soutiendront, ajouteront leur Lumière à votre Lumière et apporteront le changement dans cette partie du monde qui en a tant besoin.
 

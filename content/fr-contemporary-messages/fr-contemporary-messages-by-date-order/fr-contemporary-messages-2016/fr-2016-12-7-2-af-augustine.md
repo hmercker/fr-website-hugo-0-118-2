@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez pleinement avec Dieu dans vos prières
 
-Augustin - reçu par Al Fike le 7 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 7 Décembre 2016, Oahu, Hawaii, USA.
 
 Notre Maître vous a donné une puissante bénédiction. Il apporte son amour pour vous encourager dans votre voyage et dans vos efforts pour travailler ensemble dans la lumière. Il est en effet bon de prier pour les autres, d’apporter votre soutien affectueux à beaucoup et ne vous avons-nous pas fourni un véhicule pour prier pour les autres sous la forme du bol de prière ? De cette façon, vous pouvez écrire leurs noms, les amener dans votre conscience et les placer dans ce récipient. Cela vous permet, dans vos prières, d’aller au plus profond de vous-même et d’être libéré de cette obligation mentale de prier pour les autres.
 

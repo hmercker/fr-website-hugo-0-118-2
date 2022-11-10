@@ -9,7 +9,7 @@ weight:
 ---
 ### Rangez votre bouclier et votre armure et dirigez avec amour
 
-André - reçu par Al Fike le 9 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 9 Septembre 2016, Belgrade, Serbie.
 
 C’est une nation sans confiance. Chaque âme, semble-t-il, dans ce lieu est craintive et trouve très difficile de faire confiance à l’autre. Et ils trouvent effectivement un certain réconfort les uns dans les autres en construisant une condition provisoire de confiance, les uns envers les autres, mais ils sont toujours las de la trahison, très sensibles à la plus petite insinuation. C’est une condition très difficile à surmonter. La plupart de l’humanité doit faire face à cette suspicion et à ce manque de confiance envers l’autre, car nombreux sont ceux qui voudraient en profiter et faire souffrir les autres. Pourtant, il y en a beaucoup plus qui aspirent à aimer, qui aspirent à vivre dans un lieu de paix, de confiance et d’amour.
 

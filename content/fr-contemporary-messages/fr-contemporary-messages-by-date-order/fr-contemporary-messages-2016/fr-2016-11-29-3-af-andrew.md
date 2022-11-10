@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre capacité à aimer est limitée par les entraves de votre esprit
 
-André - reçu par Al Fike le 29 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 29 Novembre 2016, Waianae, Hawaii, USA.
 
 C’est moi, André.
 

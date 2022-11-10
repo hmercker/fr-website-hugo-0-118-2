@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour Divin va changer le monde, en commençant par vous
 
-Augustin - reçu par Al Fike le 10 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 10 Septembre 2016, Belgrade, Serbie.
 
 Je suis Augustin, je fus autrefois évêque d'Hippone lorsque j'ai marché sur cette Terre et je suis responsable de l'établissement de nombreux principes de vos églises. Malheureusement, cela ne me donne pas une grande satisfaction, car une grande partie de ce que j'ai établi et des enseignements de l'église était incorrecte et lorsque je me suis aventuré dans le monde de l'esprit, j'ai réalisé ma grande erreur et maintenant je reviens vers toutes les âmes de ce monde qui sont prêtes à écouter pour enseigner la vérité, la simple vérité.
 

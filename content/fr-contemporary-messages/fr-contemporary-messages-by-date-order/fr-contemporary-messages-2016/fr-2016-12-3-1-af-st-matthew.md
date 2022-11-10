@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouvrez vos âmes à l’Amour de Dieu
 
-St Matthieu - reçu par Al Fike le 3 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 3 Décembre 2016, Oahu, Hawaii, USA.
 
 Je vous remercie de vous être rassemblés ici en ce jour. Merci d’avoir dit la prière pour l’Amour du Père, car en effet, vous êtes tous les objets des soins et des attentions les plus tendres et je vous demanderai à tous de rechercher l’amour par-dessus tout et d’apporter dans vos êtres, vos âmes, cette touche d’Amour Divin.
 

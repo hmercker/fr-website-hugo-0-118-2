@@ -9,7 +9,7 @@ weight:
 ---
 ### Défendez la vérité
 
-Martin Luther - reçu par Al Fike le 9 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Martin Luther - reçu par Al Fike le 9 Décembre 2016, Oahu, Hawaii, USA.
 
 Oui, votre cercle est très grand en effet. Vous avez fait entrer dans le cercle de nombreuses âmes qui sont sur ce plan terrestre et de nombreuses âmes qui sont en esprit. Vous vous baignez dans cette lumière tous ensemble, âmes bien-aimées et Dieu déverse son amour en vous, répondant à vos prières, vous amenant à un endroit plus proche de sa grande âme.
 

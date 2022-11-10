@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous avez rejoint un réseau de Lumière
 
-André - reçu par Al Fike le 10 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 10 Septembre 2016, Belgrade, Serbie.
 
 C’est moi, André. Vous vous êtes réunis et avez prié ensemble et, ce faisant, vous vous êtes joints à un réseau de Lumière qui vous apportera de nombreuses bénédictions, et qui vous enchevêtrera, pour ainsi dire, dans le magnifique flux de Dieu de Ses bénédictions au monde. Chaque fois que vous prierez, vous bénéficierez de cette connexion que vous avez établie cette nuit. Vous trouverez que la prière sera plus facile, qu’il y aura une ouverture à Dieu d’une manière plus profonde et si vous demandez de l’aide dans vos prières, de l’aide pour être capable de prier, de l’aide pour arriver à connaître cette Vérité, Dieu vous enverra un ange, pour vous aider dans cette lutte, pour vous élever au-dessus de la condition humaine dans un lieu de paix profonde et de présence de Dieu.
 

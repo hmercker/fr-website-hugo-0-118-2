@@ -9,7 +9,7 @@ weight:
 ---
 ### Gardez votre foi en moi
 
-Le Père - reçu par  Michael le 14 Février 2013.
+Le Père - reçu par Michael le 14 Février 2013.
 
 *[Michael : Père j’ai vraiment besoin de ton aide, de ton amour et de ton soutien dans tous les aspects de ma vie. Je prie pour que tu me guides et que j’entende et écoute.]*
 

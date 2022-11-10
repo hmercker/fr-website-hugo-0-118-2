@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaissez votre âme éveillée
 
-Augustin - reçu par Al Fike le 8 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 8 Décembre 2016, Oahu, Hawaii, USA.
 
 Dieu vous bénisse mes étudiants, c’est votre enseignant Augustin.
 

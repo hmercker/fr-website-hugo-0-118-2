@@ -9,7 +9,7 @@ weight:
 ---
 ### Je suis votre frère
 
-Jésus - reçu par Al Fike le 2 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 2 Septembre 2016, Francfort, Allemagne.
 
 Et je marche parmi vous, âmes bien-aimées. Je marche parmi vous et avec chaque âme qui aspire à l’Amour du Père, je vais marcher avec vous, dans mon amour. Oui, je suis revenu sur Terre et je l’ai fait de nombreuses fois pour aider à éduquer et influencer les âmes de la Terre à la vérité de l’Amour du Père. Et chaque âme ouverte à cette grande bénédiction de l’Amour Divin recevra ce cadeau, car dans leurs désirs, dans leur grand désir d’être avec Dieu dans l’amour, d’être avec Dieu directement, ils seront bénis ; ils seront bénis.
 

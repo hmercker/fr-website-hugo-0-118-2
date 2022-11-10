@@ -9,7 +9,7 @@ weight:
 ---
 ### Se tourner vers l’âme plutôt que vers l’esprit
 
-Augustin - reçu par Al Fike le 2 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 2 Décembre 2016, Oahu, Hawaii, USA.
 
 C’est moi, Augustin.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Attirer vers vous de nombreuses âmes sœurs
 
-Augustin - reçu par Al Fike le 27 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 27 Novembre 2016, Hawaii, USA.
 
 C'est votre enseignant Augustin.
 

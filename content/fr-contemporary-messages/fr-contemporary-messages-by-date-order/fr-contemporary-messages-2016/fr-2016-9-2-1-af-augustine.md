@@ -9,7 +9,7 @@ weight:
 ---
 ### L’amour naturel et l’Amour Divin
 
-Augustin - reçu par Al Fike le 2 Septembre 2016, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 2 Septembre 2016, Francfort, Allemagne.
 
 Je suis Augustin, votre enseignant, je fus, autrefois, l’évêque d’Hippone, il y a de très nombreuses années et j’ai passé de nombreux siècles dans le monde de l’Esprit et je réside maintenant au sein des Cieux Célestes, car mon âme a été rachetée par l’Amour du Père.
 

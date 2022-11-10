@@ -9,7 +9,7 @@ weight:
 ---
 ### Priez avec votre cœur
 
-Jésus - reçu par Al Fike le 7 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 7 Décembre 2016, Oahu, Hawaii, USA.
 
 Par la grâce de Dieu, je vous donne mes bénédictions, c’est Jésus.
 

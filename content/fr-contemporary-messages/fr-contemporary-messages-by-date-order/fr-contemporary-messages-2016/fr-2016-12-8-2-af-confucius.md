@@ -9,7 +9,7 @@ weight:
 ---
 ### N’ayez pas peur d’exprimer ce qui est dans votre âme
 
-Confucius - reçu par Al Fike le 8 Décembre 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 8 Décembre 2016, Oahu, Hawaii, USA.
 
 C’est Confucius. Dieu vous bénisse. Dieu vous bénisse, mes bien-aimés, et Dieu vous bénit en ce moment même alors que vous multipliez vos prières ensemble pour recevoir le grand amour de Dieu qui se déverse dans vos âmes en ce moment même.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Car le changement doit venir, l’amour doit apporter l’harmonie
 
-Seretta Kem - reçu par Al Fike le 28 Novembre 2016, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 28 Novembre 2016, Hawaii, USA.
 
 Bien que vous soyez peu nombreux dans ce cercle, vous êtes grands en puissance et dans vos efforts et dans vos prières, vous influencez de nombreuses âmes dans ce monde et dans mon monde. Beaucoup sont influencés, il y a plusieurs centaines d’esprits autour en ce moment et les anges entourent chacun d’entre vous, apportant une lumière qui est brillante et intense et attirant beaucoup de personnes du monde des esprits pour faire partie de ces cercles. Pour ceux pour qui vous avez prié, et pour ceux qui résident dans cette région, il y a beaucoup de leurs ancêtres ici en ce jour, qui observent et sont enseignés sur le chemin de l’Amour de Dieu.
 
