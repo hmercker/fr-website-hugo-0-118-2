@@ -1,15 +1,37 @@
 ---
-title: "Q&R : La notion d'esprit intérieur n'est pas exacte"
+title: "Q&R : La notion de mental intérieur n'est pas exacte"
 menu_title: ""
-description: "Q&R : La notion d'esprit intérieur n'est pas exacte"
+description: "Q&R : La notion de mental intérieur n'est pas exacte"
 date: 2022-06-01 06:00:01+00:768
 draft: False
 hidden: True
 weight:
 ---
-### Q&R : La notion d'esprit intérieur n'est pas exacte
+### Q&R : La notion de mental intérieur n'est pas exacte
 
-Josephus - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
+Josephus - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+
+Je suis Flavius Josèphe et je suis revenu comme promis. Je suis prêt à recevoir quelques questions de votre part, mes amis bien-aimés. Si la question est nécessaire et qu’elle est pertinente pour la croissance et le développement de votre âme, je suis prêt à répondre du mieux que je peux par le biais de cet instrument. J’attends donc votre réponse.
+
+[Question : J’ai une question, mais je serais heureux de l’oublier si vous choisissez de ne pas répondre. Elle est liée à cette étape du développement de mon âme. Ce que je comprends d’autres sources et ce que j’ai personnellement expérimenté, c’est que j’ai dans mon esprit ce que j’appelle un esprit intérieur. J’ai eu quelques… je n’ai pas eu beaucoup de succès dans la communication avec cet être, à tel point que je n’essaie presque plus. Ma question est donc la suivante : dois-je… dois-je anticiper cette communication ? Je suppose que je devrais commencer par cette question : Est-il correct de supposer que c’est vrai ? Et vous sauriez qui je crois que cette entité est et vous pourriez commenter cela ou non. Ensuite, je demanderais s’il est important pour moi d’établir cette communication et si je dois y travailler. Merci].
+
+C’est une question complexe, mon cher fils, et une question à laquelle on peut s’attendre en raison de votre exploration curieuse et détaillée de la spiritualité. C’est le penchant des hommes de catégoriser, de disséquer et d’étiqueter les aspects de la création de Dieu, que ce soit les éléments en vous-mêmes ou les éléments du monde matériel. Cela permet à l’esprit d’accepter et de comprendre ces choses qui sont difficiles à comprendre par le mental. Ce terme que vous utilisez est un terme curieux pour moi, car je me vois comme un être qui vit et réside dans le Royaume Céleste et non comme un être qui a des aspects particuliers qui sont distincts et avec lesquels je peux communiquer et avoir une conversation, si vous voulez, entre mon moi conscient et un autre moi intérieur. Ainsi, ce que vous appelez un esprit intérieur est simplement votre esprit, votre être qui réside à l’intérieur et qui peut être facilement interprété comme votre âme. Pourtant, votre âme comporte des aspects que vous pouvez considérer comme distincts à ce stade de votre développement. Mais en vérité, une fois que l’âme a été complètement transformée par l’Amour Divin de Dieu, il n’y a plus de séparation. Il y a simplement l’existence et cette existence est l’unité. Tout ce qui est à l’intérieur de l’âme et des autres aspects de votre être se fond dans l’unité, de sorte qu’il n’y a pas de dichotomie de la conscience. Il n’y a que l’unité de votre être, c’est-à-dire une âme éveillée, transformée, vivante et expressive, réunie par le pouvoir de l’Amour de Dieu.
+
+Oui, de nombreux enseignants dans votre monde, de nombreux écrits et spéculations décrivent les aspects de l’âme de l’individu et suggèrent qu’elle est compartimentée de diverses manières, ce qui est une erreur, bien que ce ne soit pas tant du point de vue humain que du mien, en tant qu’âme Céleste. J’ai trouvé l’unité en moi-même et je cherche à m’unir à Dieu, qui est au-delà de moi-même. Ce sont les deux seuls éléments en jeu concernant la communication de mon âme. D’autres éléments, bien sûr, entrent en jeu pour communiquer avec les autres, que ce soit avec vous, mortels, dans ce monde ou avec mes compagnons Célestes dans mon monde. Mais ceci est une toute autre affaire. Cela ne nécessite pas une certaine séparation de ce que je suis, une âme dans toutes ses composantes travaillant ensemble dans, comme je le dis, un état d’être complet et unique.
+
+J’espère que cela répond à ta question, mon cher fils. Je suis prêt à répondre à d’autres questions si ce n’est pas le cas.
+
+[Question : Eh bien, cela a beaucoup d’implications. Je suis sûr que vous connaissez la source de l’information. Je n’ai pas choisi de l’annoncer dans le cercle, mais je suis sûr que vous êtes au courant de la source de cette information et vous savez sans doute aussi que j’ai du matériel sur mon site web qui tend à soutenir cela, plus des messages d’un médium d’Amour Divin qui le soutient. Donc, dans la mesure où je prends à cœur ce que j’ai entendu, je dois retirer ce matériel. Donc, je vous remercie quand même pour ce que vous avez réussi à délivrer. Merci].
+
+Eh bien, je voudrais vous dire que ce que vous lisez et exprimez de ces différentes manières est une tentative d’expliquer quelque chose qui est très difficile à expliquer, qu’il y a une difficulté de communication de quelque chose qui dépasse la compréhension de l’esprit humain. L’esprit humain a une grande tendance à vouloir disséquer et catégoriser les choses afin de les rendre plus compréhensibles. Mais au fur et à mesure que vous progressez dans le développement de l’âme, dans la perception et les facultés de l’âme, cet état d’unité est plus compréhensible. Parce que l’esprit matériel est absorbé par l’esprit de l’âme, tout devient un et il n’y a pas de séparation. Même aujourd’hui, pour beaucoup d’entre vous, lorsque vous communiquez avec vous-même, vous avez l’impression d’être deux personnes, ce qui donne lieu à une perception de la réalité par l’âme et par l’esprit qui apporte également sa perception attentive de la réalité. Cette dualité est un grand dilemme pour beaucoup d’entre vous.
+
+Vous souhaitez parvenir à ce lieu d’unité dont je parle parce que c’est le désir de l’âme d’être dans un état d’unité et de plénitude en elle-même. Lorsque cela est réalisé, il n’y a certainement aucune condition de confusion ou de séparation de ces parties de vous-même. Dans l’unité se trouve une grande joie, une grande fluidité de compréhension, une grande profondeur d’expérience spirituelle. C’est votre grande récompense pour tous vos efforts afin de recevoir ce grand cadeau de l’Amour Divin. Pour que cela puisse être réalisé, et pour ceux qui n’y parviennent pas, il y a en effet un sentiment de séparation, de dualité. Cela devient la réalité de ceux qui marchent sur le chemin de l’amour naturel et recherchent la réalité du chemin de l’amour naturel. Ainsi, dans un certain sens, ce que vous dites est vrai pour ceux qui suivent ce chemin, même ceux qui sont parvenus à ce lieu de pureté dans l’amour naturel, car ils ne parviendront jamais à l’unité dont je parle. Ce n’est pas possible, car l’âme a besoin d’être éveillée par l’Amour Divin, l’Essence de Dieu pour que cette unité de l’âme soit atteinte. Le grand dilemme des mortels et des esprits dans cette séparation et cette dualité est qu’ils peuvent être sauvés, éveillés et réunis de sorte qu’il n’y ait plus de sentiment d’incapacité à communiquer avec Dieu de cette manière, ce sentiment de séparation. Il s’agit plutôt d’un voyage vers l’unification, tant à l’intérieur qu’avec Dieu. On y parvient dans une certaine mesure en continuant à progresser et à marcher sur ce chemin divin qui, comme vous le savez, est une entreprise et une expérience éternelles de l’âme.
+
+Je vous remercie, mes amis. Je vais maintenant vous quitter. Je pense que j’en ai dit assez pour que vous puissiez les digérer pour aujourd’hui. Que Dieu vous bénisse tous dans vos efforts pour comprendre véritablement vos âmes et comprendre votre relation avec Dieu et tout ce que Dieu a créé dans son univers beau et parfait. Que Dieu vous bénisse, mes amis. Je suis Flavius Joseph et je reviendrai. Que Dieu vous bénisse.
+
+**Note :** Une question complémentaire a été posée ultérieurement : Q&R : Les adeptes du Livre d’Urantia sont-ils à l’écoute de leur âme ?
+
+
 
 
 
