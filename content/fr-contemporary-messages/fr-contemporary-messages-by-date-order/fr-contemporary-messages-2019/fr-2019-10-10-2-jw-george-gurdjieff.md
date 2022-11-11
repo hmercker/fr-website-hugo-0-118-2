@@ -9,7 +9,15 @@ weight:
 ---
 ### L'empereur n'a pas de vêtements
 
-George Gurdjieff - reçu par Jimbeau Walsh le 10 Octobre 2019, Punalu’u, Oahu, Hawaii, USA.
+George Gurdjieff - reçu par Jimbeau Walsh le 10 Octobre 2019, Punalu’u, Oahu, Hawaii, USA
+
+Je suis George Gurdjieff. J’ai étudié de nombreuses traditions provenant de nombreux endroits. J’ai essayé d’utiliser les enseignements les plus élevés qui avaient touché mon âme et, bien que vous ne le sachiez peut-être pas, je priais constamment. J’ai vu que lorsque je suis allé en Occident, les gens n’avaient aucun concept de la vraie prière et aucun concept réel de Dieu. Ils étaient complètement distraits par la vie de tous les jours.
+
+Je m’étais réveillé dans l’Amour. Je pouvais voir le sommeil omniprésent dans le monde et j’ai abordé ces questions. Je dirais que dans une certaine mesure, peu de choses ont changé. Et comme je l’ai dit lorsque j’étais sur terre, si vous pouviez voir le sommeil des dirigeants de ce monde, vous seriez horrifiés. Mais si nous avions ne serait-ce que quelques centaines d’êtres éveillés, tout pourrait changer. Vous, mes chers amis, êtes cette promesse.
+
+L’empereur n’a pas de vêtements. Je l’ai dit alors et je le dis maintenant, ceux qui reçoivent l’Essence du Créateur obtiendront l’immortalité. Vous, mes amis, comprenez cela. Je suis si heureux de vous présenter cela à travers cet instrument aujourd’hui. J’ai attendu longtemps pour parler et je souhaite que vous sachiez que je suis là pour vous aider à chaque fois que vous en avez besoin, comme beaucoup. Si vous pouviez voir le nombre, vous seriez stupéfaits. Vous êtes notre promesse. Vous êtes notre espoir dans l’Amour de Dieu.
+
+Merci de m’avoir permis de passer ce temps avec vous. Que Dieu vous bénisse tous et vous change. Je suis votre frère et ami George Gurdjieff.
 
 
 
