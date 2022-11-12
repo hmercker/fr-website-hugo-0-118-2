@@ -9,7 +9,9 @@ weight:
 ---
 ### Les conditions énergétiques de la Terre vous affectent tous
 
-St Luc - reçu par Al Fike le 17 Novembre 2019, Gibsons, Colombie-Britannique, Canada.
+St Luc - reçu par Al Fike le 17 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+
+
 
 
 
