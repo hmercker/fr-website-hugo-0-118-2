@@ -9,9 +9,9 @@ weight:
 ---
 ### Salutations de Percy depuis le Royaume d'Amour de Dieu
 
-Percy Hayes - reçu par Al Fike le 12 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Percy Hayes - reçu par Al Fike le 12 Octobre 2017, FUCS, Burnaby, Colombie-Britannique, Canada.
 
-"Ho ho ho". Quelle merveilleuse bénédiction de pouvoir vous parler à travers cet instrument. Comme je l'ai dit à maintes reprises, c'est un merveilleux médium. J'ai la bénédiction de pouvoir parler si peu de temps après mon décès. Mon décès n'a pas été si difficile, mes amis. C'était comme enfiler une vieille paire de pantoufles, si familière et si confortable. Je commence donc effectivement une nouvelle vie.
+« Ho ho ho. » Quelle merveilleuse bénédiction de pouvoir vous parler à travers cet instrument. Comme je l'ai dit à maintes reprises, c'est un merveilleux médium. J'ai la bénédiction de pouvoir parler si peu de temps après mon décès. Mon décès n'a pas été si difficile, mes amis. C'était comme enfiler une vieille paire de pantoufles, si familière et si confortable. Je commence donc effectivement une nouvelle vie.
 
 Mais je veux vous parler de mon ancienne vie, de la manière dont j'ai servi Dieu, mais pas parce que j'avais fait de grands projets de service. Lorsque j'ai découvert l'Amour de Dieu, j'étais enthousiaste, j'étais béni de connaître cet Amour et de sentir la grande bénédiction de cet Amour en moi alors que je continuais à prier pour lui. J'ai toujours voulu servir les gens, apporter un peu de lumière et de rire dans le monde. J'ai donc demandé à Dieu de m'utiliser pour apporter des bénédictions aux autres et je l'ai laissé faire. Il a répondu à mes prières et il m'a donné des occasions de servir, d'apporter de la lumière, de parler de Son Amour. J'ai été utilisé pour bénir les enfants. J'ai été utilisé pour bénir ceux qui sont fatigués de la vie et confus. J'ai été utilisée chaque jour pour apporter de la lumière à quelqu'un parce que j'ai prié Dieu de m'utiliser comme un canal de Son Amour dans le monde, de la manière dont Il voulait que je serve. 
 
@@ -26,6 +26,3 @@ Je souhaite donner mon amour à mes filles qui m'ont tant donné. Quelles belles
 Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Je suis Percy. Oui, c'est moi. Je vous aime tous. Merci. Merci de chercher à être dans la Lumière. Le monde a besoin de tellement plus de belles personnes comme vous. Continuez à prier pour Son Amour, mes bien-aimés. Priez pour Son Amour. Tout ira bien. Je continuerai à être avec vous alors que vous grandissez dans l'Amour et cherchez à servir Dieu dans ce monde. Je sais que je serai avec vous pour vous aider, pour prier pour vous, pour vous apporter l'Amour et la Lumière. Dorothy et Darlene le savent, je ne vous quitterai jamais. Mon amour est toujours avec vous et je serai proche. Et avec tout le reste de la famille, je serai proche.
 
 Que Dieu vous bénisse. Je vous aime. Je vous aime tous. Vous êtes tous merveilleux. Vous êtes tous merveilleux. Que Dieu vous bénisse dans Son Amour. Que Dieu vous bénisse.
-
-
-

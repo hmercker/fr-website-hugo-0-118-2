@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment vos dons vont émerger
 
-Augustin - reçu par Al Fike le 20 Août 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 20 Août 2017, Gibsons, Colombie-Britannique, Canada.
 
 vers l'unification avec Dieu. Je suis venu en réponse à votre conversation, mes bien-aimés, et à la requête de la belle âme, cette fille, qui cherche une confirmation et des conseils concernant l'ouverture de ses dons. C'est un processus par lequel chaque âme passe, alors que les dons s'ouvrent et que de nouveaux aperçus et de nouvelles prises de conscience apparaissent. Il y a une exaltation et un enthousiasme initiaux. On se laisse souvent emporter par ces différentes expériences. Il faut se rappeler que lorsque cette porte s'ouvre juste un peu, la lumière semble un peu écrasante. Il est facile d'être consumé par cette expérience et pourtant ce n'est qu'une fente. Au fur et à mesure que cette porte continue à s'ouvrir et que des perspectives plus larges et des capacités plus profondes de vos dons émergent, vous deviendrez familiers avec cette expérience et vous comprendrez comment utiliser ce don et être disciplinés dans cette utilisation. Donc, je te conseille vivement, ma fille, d'être patiente.
 

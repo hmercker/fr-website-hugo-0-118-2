@@ -9,7 +9,7 @@ weight:
 ---
 ### Les âmes que vous attirerez pour travailler ensemble
 
-Élie & Ésaïe - reçu par Al Fike le 16 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Élie & Ésaïe - reçu par Al Fike le 16 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Enfants de Dieu, écoutez-moi. Je suis le prophète d'autrefois, Élie, et je viens vous parler de votre avenir. Vous portez en vous un cadeau, mes bien-aimés, un cadeau puissant, qui continue de mûrir en vous et qui sera porté par les vents de changement de ce monde. Car Dieu vous a imprégné d'un don, un don pour aider l'humanité dans les temps à venir, un don qui apportera la sagesse et l'Amour, la force et un nouveau sens du but à l'humanité. Vous êtes toutes porteuses de ce don, âmes bien-aimées. Vous avez chacun un rôle à jouer dans le déroulement du plan de Dieu pour l'humanité. Et c'est ainsi que Dieu vous a profondément touchées, mes bien-aimées, il vous porte en avant. 
 
@@ -26,6 +26,3 @@ Acceptez vos destins, âmes bien-aimées. Ayez la foi et la confiance en ce que 
 Beaucoup de choses se préparent, comme vous le savez bien, et les opportunités augmenteront de jour en jour, car ces grands changements apportent également de merveilleuses opportunités et expressions de votre don. Les énergies que Dieu apporte à ce monde rendront l'expression de ces dons puissante et claire. Vous marchez dans la volonté de Dieu maintenant mes amis, c'est votre vie, ce sera en harmonie avec Sa volonté. Vous êtes bénis et vous connaîtrez une grande Lumière. Vous aurez la puissance de l'Amour de Dieu en vous et tout sera exprimé en accord avec Sa Volonté et le rythme de Son Temps et la gloire de Sa Création. Tout sera donné et tout se manifestera dans le cadre de Son plan.
 
 Vous portez ce don, âmes bien-aimées, n'en doutez pas, vous êtes bénies. Je suis Isaïe et je vous bénis mes bien-aimés dans la sainte lumière de Dieu. Son Saint-Esprit descend sur vous. Et vous êtes bénis. Dieu vous bénit.
-
-
-

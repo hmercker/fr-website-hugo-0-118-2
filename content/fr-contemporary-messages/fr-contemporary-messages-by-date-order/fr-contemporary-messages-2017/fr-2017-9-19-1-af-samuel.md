@@ -9,7 +9,7 @@ weight:
 ---
 ### C'est aujourd'hui que vous servez Dieu
 
-Samuel - reçu par Al Fike le 19 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Samuel - reçu par Al Fike le 19 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Samuel. Je suis venu pour vous encourager dans vos efforts pour être des canaux clairs de l'Amour du Père, pour placer votre relation avec Dieu au-dessus de tout. Lorsque vous êtes avec Dieu, ne permettez à rien de la nature matérielle et de votre mental de perturber et d'interférer avec cette connexion avec votre Père Céleste. Ce qui est le plus important en ce moment, c'est de prier intensément, de demander sincèrement que l'Amour du Père coule dans vos âmes, d'être dans cette condition de pureté, de Lumière, de paix et d'Amour.
 
@@ -30,5 +30,5 @@ Ainsi, il y a ceux qui cherchent à connaître le Plan, le Plan de Dieu pour le 
 Oui, il y aura beaucoup d'expériences et d'expressions de la Volonté de Dieu dans votre vie et bien que votre esprit souhaite connaître les détails, savourer cette connaissance, je vous le dis, aujourd'hui est le jour où vous servez Dieu et aujourd'hui est le jour où le Plan de Dieu sera exécuté dans votre vie. C'est aussi simple que cela. Cela ne nécessite pas de plans complexes ni de compréhension. Il suffit que vous acceptiez la volonté de Dieu et que vous désiriez recevoir Son Amour en plus grande abondance chaque jour. Tout le reste se mettra en place. C'est ce qu'il continue de faire. Ne voyez-vous pas cela ? Comme Dieu planifie votre vie de différentes manières, les opportunités abondent, beaucoup se manifeste parce que la main de Dieu est sur vous et beaucoup plus est à venir. Pourtant, aujourd'hui est le jour, aujourd'hui apporte les possibilités du désir de Dieu pour vous de servir, d'être un canal de Son Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Samuel. Je suis heureux de vous parler. J'espère que je vous ai encouragés dans votre voyage pour voir que vous êtes Lumière et que vous suivez la volonté et le plan de Dieu dans vos expériences quotidiennes, les choix que vous faites, l'amour que vous donnez et l'amour que vous recevez. En faisant cela, vous commencez à cultiver en vous un amour profond pour vos frères et sœurs. C'est le plan de Dieu. C'est Son cadeau pour vous, pour changer vos pensées, vos désirs, vos motivations et la condition humaine, en un flux gracieux de la volonté et de la lumière de Dieu.
-Vous êtes bénis, âmes bien-aimées. Dieu vous bénit. Je suis Samuel. Je vous aime aussi. Que Dieu vous bénisse.
 
+Vous êtes bénis, âmes bien-aimées. Dieu vous bénit. Je suis Samuel. Je vous aime aussi. Que Dieu vous bénisse.

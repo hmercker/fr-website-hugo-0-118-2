@@ -9,8 +9,7 @@ weight:
 ---
 ### Marcher dans la lumière
 
-Guru Nanak - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada
-
+Guru Nanak - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, je suis fondateur de la grande foi Sikh. Merci de dire mon nom (M) car cet instrument avait du mal à le prononcer. Oui, nous avons pris des dispositions pour que vous ayez une relation avec ceux qui apportent cette religion dans le monde. Car c'est le plan de Dieu que toutes les religions se réunissent dans l'amour. Votre cher ami et serviteur de Dieu le comprend et reconnaîtra vos efforts, comme vous reconnaissez les siens, car vous apportez tous une plus grande lumière à votre monde. Vous en rencontrerez beaucoup d'autres, mes amis, beaucoup d'autres qui sont prêts à apporter une plus grande lumière à l'humanité et à vivre la vérité de l'amour, à donner l'exemple de cette vérité. Avec le temps, toute erreur qui pourrait subsister dans cette religion de la compréhension sikh tombera et la vérité régnera avec tous ceux qui suivent cette foi.
 
@@ -20,9 +19,6 @@ Vous trouverez votre chemin dans de nombreux endroits de ce monde et vous saluer
 
 Puissiez-vous être clairs dans votre compréhension, mes amis, clairs dans l'amour et clairs dans la lumière. Tant, tant de choses sont données à l'âme pénitente, à l'âme qui cherche la vérité, à l'âme resplendissante d'amour. Tant de choses sont données. Puissiez-vous partager vos richesses et apporter votre vérité, tous dans l'amour, tous dans la sincérité et l'humilité, tous dans la compréhension, dans la connaissance de la beauté qu'est cette vaste Création de Dieu et des nombreuses variations auxquelles l'humanité souscrit dans son existence en ce monde. Apprenez à apprécier ces différences et à voir que tout cela fait partie de la grande tapisserie de la vie. Ajoutez votre vérité comme un fil d'or à travers tout cela. Que Dieu vous bénisse et vous remercie.
 
-Wahe Guru Ji Ka Kelsa, Wahe Guru Ji Ki Fateh.
+*Wahe Guru Ji Ka Kelsa, Wahe Guru Ji Ki Fateh.*
 
 Sat Nam à vous, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

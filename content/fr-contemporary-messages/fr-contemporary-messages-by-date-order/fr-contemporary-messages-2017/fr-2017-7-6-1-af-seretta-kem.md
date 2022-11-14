@@ -9,7 +9,7 @@ weight:
 ---
 ### Avec le développement de ce don, un nouveau niveau de communication sera atteint
 
-Seretta Kem - reçu par Al Fike le 6 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 6 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je vois que vous continuez à faire vos enquêtes, à dire vos prières et à tenter de changer vos habitudes physiques et mentales. Vous travaillez en effet avec diligence pour atteindre vos objectifs et nous sommes heureux de voir ces efforts accomplis. Cela nous rend optimistes quant à la réalisation de nos objectifs pour la Voix Directe, car vous avez fait preuve d'un engagement et d'un désir profonds envers ce projet.
 
@@ -30,6 +30,3 @@ La seule chose qui vous empêchera de progresser, ce sont vos propres pensées s
 Entrez dans la prière, mes bien-aimés, autant que vous le pouvez. Soyez en prière, soyez aimants, soyez avec Dieu et que tout ce que vous faites soit une expression aimante de la beauté qui se trouve dans vos âmes. Quand vous pensez à cette grande aventure dans laquelle nous nous sommes embarqués, pensez à combien d'âmes dans ce monde bénéficieront de vos efforts. Une partie de la crédibilité que vous devez gagner auprès de ces âmes est la capacité de vous aimer, d'être dans cette lumière et de briller avec cette lumière d'amour comme Jésus l'a fait sur cette terre. Comment ne pas attirer de nombreuses âmes à vous, alors que Dieu vous utilise comme Son canal d'Amour, alors que vous acceptez et vous engagez joyeusement dans ce merveilleux flux de bénédictions pour les autres et pour vous-même. Dieu souhaite que vous ayez tout le bien, tout l'émerveillement, un flux infini d'Amour. Puissiez-vous accepter Son invitation et marcher dans cette Lumière car avec chaque choix vous continuez à accepter, à exprimer et à être Son enfant dans la grâce de Son Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Vous êtes tellement aimés, vous êtes tellement précieux pour Dieu et pour Ses Anges et pour beaucoup. Je sais que vous ne pouvez pas vraiment comprendre cela, mais permettez, permettez-vous d'accepter que vous êtes un cadeau précieux dans ce monde. Vous êtes magnifique. Vous êtes une merveille de la création de Dieu et vous êtes vraiment aimé et jamais, jamais seul. Dans cet aveu, dans cette reconnaissance, vous glisserez à travers la préparation et l'exécution de ce cadeau. Acceptez vraiment l'amour. Acceptez vraiment votre propre beauté et tout se mettra en place comme il se doit, en harmonie et en grâce. Dieu vous bénisse, je suis Seretta Kem et je vous aime, mes belles et précieuses charges. Je vous aime tendrement et je continuerai à vous soutenir. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

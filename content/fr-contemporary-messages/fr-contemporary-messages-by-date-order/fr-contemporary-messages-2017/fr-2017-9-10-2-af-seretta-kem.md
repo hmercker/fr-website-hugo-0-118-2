@@ -9,7 +9,7 @@ weight:
 ---
 ### Les différents objectifs de la prochaine retraite
 
-Seretta Kem - reçu par Al Fike le 10 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 10 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je viens à l'heure prévue pour vous parler et vous encourager dans vos efforts pour vous préparer à ce grand cadeau et au rassemblement de chacun d'entre vous pour créer avec le cercle qui apportera le don de la Voix Directe. Chacun d'entre vous continue à se préparer, à rechercher des moments de prière, à être en bonne condition physique, à marcher sur cette terre en harmonie, à penser et à s'envoyer de l'amour les uns aux autres afin que lorsque vous vous réunissez, vous soyez en harmonie, afin que les conditions soient harmonieuses et idéales pour cet effort.
 
@@ -38,6 +38,3 @@ Mes bien-aimés, nous continuons à marcher avec vous, à prier avec vous, à vo
 Êtes-vous prêts, mes bien-aimés ? Êtes-vous prêts ? Êtes-vous assez forts ? Votre foi est-elle le fondement de votre vie ? Avez-vous confiance en la volonté de Dieu ? Marchez-vous dans la lumière de Son Amour ? Pouvez-vous renoncer à ces choses en vous qui entravent votre progression et ne sont pas de l'Amour ? Je vous demande de penser à ces choses chaque jour et de les porter à la prière pour que vous puissiez effectivement grandir dans cet Amour, libérer toutes ces conditions qui ne sont pas de l'Amour, et reconnaître la Lumière en vous pour que vous puissiez continuer à grandir dans cette Lumière et vivre dans l'Amour. Car vous et ceux qui sont comme vous êtes l'espoir du monde, un monde si déchiré, un monde qui souffre tant, un monde qui pour beaucoup semble en ordre mais qui ne l'est pas et continue à s'effriter, à se déplacer, et continuera à se désintégrer permettant à cette nouvelle Lumière, cette nouvelle harmonie, ce nouvel Amour de s'épanouir et de guérir ce monde.
 
 Continuez dans vos efforts, mes bien-aimés. Nous continuerons à vous assister et à vous aider à comprendre, à savoir, à être dans la Lumière. Que Dieu vous bénisse. Je suis Seretta Kem. Je réside dans le Royaume Céleste. Je suis un ange de Dieu, racheté par Son Amour et béni par Sa Lumière. Je suis venu pour apporter cette Vérité au monde, comme beaucoup, comme beaucoup d'autres. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je vous aime.
-
-
-

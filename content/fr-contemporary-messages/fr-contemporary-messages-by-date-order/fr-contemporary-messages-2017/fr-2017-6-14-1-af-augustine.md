@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez toujours l’amour le plus élevé
 
-Augustin - reçu par Al Fike le 14 Juin 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 14 Juin 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite vous rappeler et renforcer l’idée et l’effort de toujours prier pour l’Amour Divin. Je sais que vos pensées sont dirigées sur ce projet de Voix Directe et je sais que cela est en effet requis de vous pour être vigilants et attentifs et avoir vos désirs alignés vers cet effort merveilleux. Mais rappelez-vous, mes bien-aimés, c’est le pouvoir du grand Amour de Dieu, Sa Sainte Essence, qui apportera ce cadeau dans toute sa plénitude. Vous pouvez lire de nombreux articles, faire des recherches sur ce phénomène, et considérer les possibilités de ce don. Rappelez-vous, âmes bien-aimées, que ces dons ont été apportés par des esprits qui n’avaient pas le développement de l’âme que vous possédez en ce moment, et qu’ils n’avaient pas non plus les anges Célestes qui les assistaient dans cet effort. Cette manifestation n’a pas non plus été spécialement bénie par Dieu. Non, mes bien-aimés, il s’agissait d’un effort des esprits naturels et des mortels pour provoquer un phénomène naturel dans ce monde.
 
@@ -26,8 +26,3 @@ Je ne suggère pas que vous vous écartez du Chemin Divin. Non, mes bien-aimés,
 Merci de m’avoir écouté. Vous êtes bénis d’avoir le bel esprit, ayant l’être Céleste Seretta Kem à vos côtés, vous conseillant et vous enseignant à cet égard et je continuerai à venir et à compléter ses enseignements avec mes encouragements et mon amour. D’autres le feront également, car nous sommes tous engagés, comme vous l’êtes, en tant que groupe, pour obtenir les résultats les plus élevés et les meilleurs. Il est important de réaliser ce qui doit venir en premier lieu dans vos vies. Dans cette vie, dans ces conditions matérielles, il est si souvent facile d’être distrait, d’être égaré dans une certaine mesure. Dieu vous remet toujours sur la bonne voie, à condition que vous soyez ouverts et disposés à être guidés, et je vois que vous l’êtes, et avec empressement. Ainsi, puissiez-vous continuer à marcher sur ce chemin Divin d’une manière droite et directe afin d’atteindre rapidement vos objectifs, que votre instrumentation soit efficace, puissante, belle et que tous soient touchés par l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant, Augustin. Je suis toujours à vos côtés et je vous aime. Que Dieu vous bénisse.
-
-
-
-
-

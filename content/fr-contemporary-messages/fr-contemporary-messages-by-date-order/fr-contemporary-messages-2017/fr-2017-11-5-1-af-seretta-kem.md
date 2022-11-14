@@ -9,7 +9,7 @@ weight:
 ---
 ### Je suis profondément touché par vos efforts
 
-Seretta Kem - reçu par Al Fike le 5 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 5 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Seretta Kem. Nous sommes grandement amusés, car nous vous avons donné de copieuses quantités d'informations et de messages. Avez-vous lu ces informations, mes amis ? Avez-vous étudié ce que nous vous avons dit ? Il y a beaucoup, beaucoup de pages disponibles pour vous, à lire, à étudier et je vous suggère d'étudier comme on le ferait pour un examen. Prenez les bribes d'informations que vous glanez dans ces messages et écrivez-les sous forme de points, ce qui vous donnera beaucoup de détails sur ce que l'on attend de vous et sur ce que vous pouvez faire chaque jour afin de maintenir les conditions qui ont été construites grâce à vos prières lors de vos rencontres dans la chambre noire et ici. Quant au stade de développement auquel nous nous trouvons actuellement, pensez-y comme lorsque vous mettez dans un bol tous les ingrédients pour faire un gâteau. De nombreux ingrédients différents doivent entrer dans le bol et être mélangés ensemble.
 
@@ -50,8 +50,3 @@ Soyez simples dans vos pensées, soyez humbles dans vos actions, soyez concentr�
 Il n'y a pas lieu de s'inquiéter, seulement de la Lumière et du bien-être de votre propre être qui est soumis à vos propres choix et actions. Soyez responsable, mature et fort. Choisissez les pensées qui sont de nature élevée. Prononcez les paroles porteuses d'amour. Permettez à Dieu de toucher chaque partie de votre être, de vous élever et de vous tenir dans Son étreinte alors qu'Il déverse Son Amour dans vos âmes. Vous le savez, chacun d'entre vous le comprend clairement et nous continuerons à avancer. Nous ferons notre travail, nous vous le promettons. Nous ferons tout notre possible pour que ce don se réalise. Pouvez-vous nous promettre que vous ferez tout votre possible pour le faire naître dans votre monde ? C'est tout ce que nous vous demandons, mes bien-aimés. C'est simple. Que la beauté de la Volonté de Dieu et de Son Amour pour ce monde se manifeste et devienne réelle pour tous ceux qui sont dans ce monde, qu'il n'y ait pas de doute ou de confusion, que la Vérité et l'Amour puissent prévaloir.
 
 Dieu vous bénisse mes chers amis, je suis Seretta Kem et je vous aime beaucoup. Parfois, vous m'amusez beaucoup et d'autres fois, je suis profondément émue par vos efforts. Vous êtes aimés. Vous êtes vraiment aimés. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-
-
-

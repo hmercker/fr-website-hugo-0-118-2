@@ -9,7 +9,7 @@ weight:
 ---
 ### La guérison et la loi de l'harmonie Partie 2
 
-Seretta Kem - reçu par Al Fike le 21 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 21 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je souhaite poursuivre mon propos sur la guérison, car il y a de nombreux aspects de la guérison et des conditions autour d'une guérison réussie qui peuvent être discutés en ce moment.
 
@@ -37,6 +37,4 @@ Choisissez bien, mes bien-aimés, choisissez la Lumière, choisissez la sagesse,
 
 Alors ne résistez pas à ces changements, âmes bien-aimées. Cédez à la volonté de Dieu. Permettez à Ses Vérités parfaites, à Son Amour puissant d'opérer les changements nécessaires pour vous apporter ce que vous désirez, à savoir l'harmonie, la guérison et la joie. C'est ce que votre âme recherche, être dans le flux de l'Amour de Dieu chaque jour, chaque jour plus proche de Dieu dans une plus grande harmonie, plus fort dans la Lumière, dans la plénitude intérieure. La sagesse, la sagesse, mes bien-aimés, vient avec l'Amour de Dieu.
 
-Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je vous remercie de m'accorder ce temps pour vous parler. Voyez-vous, mes bien-aimés, le pouvoir de guérison qui vient avec l'amour de Dieu ?
- C'est le plus grand pouvoir de tout l'univers, un puits de ressources et de bénédictions qui vient avec une simple prière et une vraie foi et confiance en Dieu. Que Dieu vous bénisse, mes bien-aimés. Qu'il vous garde en bonne santé alors que vous traversez cette vie et qu'il vous guide afin que vous puissiez découvrir votre véritable objectif et le plan que Dieu a pour chacun d'entre vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je vous remercie de m'accorder ce temps pour vous parler. Voyez-vous, mes bien-aimés, le pouvoir de guérison qui vient avec l'amour de Dieu ? C'est le plus grand pouvoir de tout l'univers, un puits de ressources et de bénédictions qui vient avec une simple prière et une vraie foi et confiance en Dieu. Que Dieu vous bénisse, mes bien-aimés. Qu'il vous garde en bonne santé alors que vous traversez cette vie et qu'il vous guide afin que vous puissiez découvrir votre véritable objectif et le plan que Dieu a pour chacun d'entre vous. Que Dieu vous bénisse. Que Dieu vous bénisse.

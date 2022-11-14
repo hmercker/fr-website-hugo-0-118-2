@@ -9,7 +9,7 @@ weight:
 ---
 ### Débarrassez-vous de ces choses qui ne sont pas d’Amour
 
-St Luc - reçu par Al Fike le 11 Janvier 2017, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 11 Janvier 2017, Abbotsford, Colombie-Britannique, Canada.
 
 Je vous apporte mes bénédictions d’amour. Âmes précieuses et bien-aimées, chaque jour vous êtes confrontées à de nombreux choix. Vous êtes mis au défi par les conditions de ce monde et pourtant Dieu vous touche et nous tend la main pour vous apporter la lumière et comme vous priez pour l’Amour du Père, vous recevez cette bénédiction, son toucher. Avec cette touche d’Amour, cette ouverture de votre âme et l’éveil de votre âme vient une plus grande sensibilité. Et vous prenez conscience de votre propre condition, une condition du monde avec laquelle chaque âme lutte sur son propre chemin de vie.
 
@@ -20,6 +20,3 @@ Et pourtant, dans votre âme, il y a une lumière. En vous, il y a un fort dési
 Et cela, vous le savez bien, vient avec la prière, cherchant votre connexion avec Dieu. Ayez la confiance et la foi que Dieu vous guérira vraiment de toutes ces choses qui ne sont pas de Lui et vous permettra de marcher au-delà de ces conditions qui se sont accumulées dans votre âme et votre être, ces pensées qui sont des erreurs, et ces sentiments qui sont de peur et ces réactions qui sont de colère. Âmes bien-aimées, poursuivez vos efforts. Permettez-vous de marcher hardiment dans la lumière ; ne laissez pas vos perceptions et vos sensibilités qui vous donnent un sens des ténèbres dans ce monde, ne laissez pas ces choses être un fardeau pour vous, mes bien-aimés. Une âme dans la lumière est une âme qui émane la joie et la sagesse, la vérité et l’amour. C’est un déploiement et une ouverture qui émanent du canal de l’Amour de Dieu en vous. Vous devez être patients, vous devez vous pardonner et permettre à la puissance de l’Amour de Dieu de brûler ces impuretés, d’ouvrir la voie pour que ce chemin de lumière soit le foyer prédominant de votre vie.
 
 Ce n’est pas facile, mais vous trouverez votre chemin et vous vous débarrasserez de ces conditions qui ne sont pas en harmonie avec Dieu. Vous devez compter sur la puissance de son toucher, sur la paix qui vient et sur la joie qui jaillit en vous. Et c’est ce qui vous arrive le plus souvent et cela continuera à se produire dans une mesure de plus en plus grande jusqu’à ce que ce soit bien qui vous êtes et comment vous êtes dans le monde. Âmes bien-aimées, cherchez l’Amour de Dieu et tout le reste suivra en harmonie et dans un beau déroulement et une effusion de ces choses qui ne sont pas d’Amour. Que Dieu vous bénisse. Je suis Luc et je vous aime, je vous le dis, c’est une ouverture et un déploiement incrémentiel du canal de l’Amour de Dieu en vous. Vous devez être patients, vous devez vous pardonner et permettre à la puissance de l’Amour de Dieu de brûler ces impuretés, d’ouvrir la voie pour que ce chemin de lumière soit le foyer prédominant de votre vie.
-
-
-

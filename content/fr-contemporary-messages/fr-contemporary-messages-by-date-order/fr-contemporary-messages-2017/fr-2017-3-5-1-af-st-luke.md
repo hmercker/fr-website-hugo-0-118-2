@@ -9,7 +9,7 @@ weight:
 ---
 ### Se lier d’amitié avec son âme
 
-St Luc - reçu par Al Fike le 5 Mars 2017, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 5 Mars 2017, Gibsons, Colombie-Britannique, Canada.
 
 Bienvenue dans ce Cercle de Lumière, cette oasis de Paix, votre sanctuaire d’Amour.
 
@@ -28,6 +28,3 @@ Pourtant, vous, mes bien-aimés, vous êtes réunis dans la prière, dans votre 
 Je vous en conjure, mes beaux amis, faites un effort pour dire ces prières et le cours de votre vie changera irrévocablement. Les résultats seront profonds. Votre conscience intérieure changera et vous connaîtrez une joie profonde dans votre relation avec Dieu. Un simple acte, une simple prière, une volonté d’ouverture, une reconnaissance du véritable désir de votre âme, voilà tout ce qu’il faut et en cela vous gagnerez le monde, le monde de Dieu.
 
 Dieu vous bénisse et merci de m’avoir écouté. Je suis Luc et je vous aime. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

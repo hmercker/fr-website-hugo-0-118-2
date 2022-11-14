@@ -9,7 +9,7 @@ weight:
 ---
 ### Une question sur la 7ème Sphère
 
-Seretta Kem - reçu par Al Fike le 14 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je tiens à te remercier, ma fille, d'avoir conseillé à cet instrument le repos. Car bien qu'il puisse voir et discerner les anges, il a beaucoup de mal à comprendre ses propres besoins. Et parfois, il a besoin des conseils de ceux qui sont sages, comme toi, ma fille bien-aimée. Et tu as posé une question concernant les conditions nécessaires pour faire émerger la voix directe dans ton groupe. Et nous avons donné de nombreuses instructions à ce sujet, et il y a une idée selon laquelle vos âmes doivent atteindre la condition de la 7ème sphère afin de réussir dans cette entreprise. Il s'agit d'un malentendu, peut-être parce que le langage utilisé était ambigu. Vous devez comprendre qu'apporter des messages par le biais d'un instrument peut parfois causer une certaine confusion, parce que le concept n'est pas clair et vous devez toujours le considérer à la lumière de la prière et de vos prières pour vos âmes bien-aimées, avant de formuler. 
 
@@ -37,6 +37,3 @@ Puissiez-vous continuer à vous ouvrir à l'émerveillement de la Création de D
 Ne vous sentez-vous pas vous élever dans la Lumière, sentant que vous êtes proches de Dieu, voire de la Lumière de la présence de Dieu ? Sa Paix qui dépasse toute compréhension, Son Amour si beau, sont avec vous en ce moment. Buvez profondément ces bénédictions, soyez avec Dieu et nous serons aussi avec vous dans vos prières, dans cette Lumière.
 
 Dieu vous bénisse, je suis Seretta Kem et j'ai un profond Amour pour chacun d'entre vous. Que Dieu vous bénisse.
-
-
-

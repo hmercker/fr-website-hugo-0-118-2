@@ -9,7 +9,7 @@ weight:
 ---
 ### Beaucoup de choses vous attendent
 
-Seretta Kem - reçu par Al Fike le 17 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 17 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je te salue, ma fille (L), qui est venue partager cette bénédiction et cette prière. Oui, nous avons rassemblé toutes les âmes qui font partie de cette entreprise. Car la distance ne signifie rien à cet égard. Tous sont présents et il y a un lien profond entre vous tous, qui est nécessaire, l'harmonie, l'amour, une main tendue de l'un à l'autre, une mise en commun de vos ressources spirituelles, et des désirs, et de la Lumière. Dans cette mise en commun, beaucoup de choses vont se manifester, mes bien-aimés, beaucoup de belles manifestations dont la voix directe ne sera qu'une.
 
@@ -35,5 +35,4 @@ Puissiez-vous continuer à grandir dans l'Amour et à placer la poursuite de l'A
 
 Que Dieu vous bénisse, âmes bien-aimées, dans tous vos efforts et toutes vos prières, dans toutes vos tentatives d'aimer, de vous aimer vous-même, de vous aimer les uns les autres et d'aimer ceux qui sont dans ce monde. En cela, Dieu est avec vous, en cela la Lumière s'épanouit et vous êtes profondément touchés lorsque vous continuez à aimer. Vous continuez donc à permettre à l'amour de s'écouler en vous et ainsi de suite. Pour l'éternité, cet amour continuera à s'épanouir à l'intérieur de vous, à croître et à s'étendre sur votre chemin vers l'unification, vers cette communion extatique, béate et impressionnante avec Dieu.
 
-Soyez bénis, mes bien-aimés. Je suis Seretta Kim et je vous aime. Vous commencez à aimer un peu plus chaque jour, et nous nous joindrons dans l'amour à cette grande entreprise, cette aventure et ce réveil. Que Dieu vous bénisse, mes bien-aimés.
-
+Soyez bénis, mes bien-aimés. Je suis Seretta Kem et je vous aime. Vous commencez à aimer un peu plus chaque jour, et nous nous joindrons dans l'amour à cette grande entreprise, cette aventure et ce réveil. Que Dieu vous bénisse, mes bien-aimés.

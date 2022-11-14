@@ -26,15 +26,9 @@ La plupart d'entre vous ne conservent pas ces souvenirs car ils n'ont pas été 
 Malheureusement, la plupart des âmes sur ce monde sont conditionnées et contrôlées pour penser, ressentir et croire aux illusions mises en place par les dynasties de pouvoirs et de principautés créées pour vous distraire de l'utilisation de votre âme-esprit. Où se trouve l'âme-esprit ? C'est dans le calme d'un moment tranquille où vous réfléchissez profondément à votre vie et à l'éternité - les mystères de la vie - dans l'imagination où naît la créativité. C'est l'espace où vous osez poser les grandes questions - qui suis-je, pourquoi suis-je ici, et quel est le sens de la vie ? C'est là que vous puisez dans l'âme-esprit, mes amis - c'est là que vous trouverez les fragments de souvenirs dans la vie endormie de l'âme.
 Paix à vous, « Le Cercle des Sept ».
 
-© The 11:11 Progress Group.
+*© The 11:11 Progress Group.*
 
 **Note :** Vous pouvez trouver plus d'informations, en anglais, sur l'état de sommeil en cliquant sur le lien suivant : https://new-birth.net/life-after-death/the-sleep-state/
 <small>
 
 1. <large id=”f1”> La notion de monde des maisons est une notion propre au livre d'Urantia. Plus d'explications sont disponibles par l'intermédiaire de ce lien : https://www.urantia.org/fr/le-livre-d-urantia/fascicule-47-les-sept-mondes-des-maisons.[↩](#a1)
-
-
-
-
-
-

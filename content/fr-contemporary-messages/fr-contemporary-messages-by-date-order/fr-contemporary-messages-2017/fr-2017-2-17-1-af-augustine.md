@@ -9,9 +9,9 @@ weight:
 ---
 ### Changements dans le monde
 
-Augustin - reçu par Al Fike le 17 Février 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 17 Février 2017, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/paysage-de-printemps3-1.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-paysage-de-printemps3-1.jpg)
 
 Je suis Augustin. On a beaucoup parlé ces derniers temps du changement, des changements dans le monde et je suis venu en parler et j’espère ajouter un peu de clarté pour ceux qui sont concernés et ceux qui souhaitent agir pour assurer leur sécurité et celle des autres.
 
@@ -40,6 +40,3 @@ Cette relation individuelle, magnifique, qui vient avec la prière et la vérita
 Cela apportera les solutions, cela ouvrira les portes et de nombreuses révélations viendront dans cette relation. Vous ne devez pas vous inquiéter. Vous ne devez pas courir pour essayer de trouver des solutions là où il n’y en a pas. Non, les vraies solutions viennent de Dieu et vous devez vous ouvrir à ce que Dieu a à donner, car cette porte, une fois ouverte, permettra d’accéder à un trésor de connaissances profondes, de solutions puissantes, belles et simples, basées sur l’amour, sur la vérité, sur l’intégrité et la générosité, alors que l’humanité apprend à s’embrasser les uns les autres plutôt que de rivaliser, d’écarter, d’accumuler et de nourrir ce besoin de pouvoir et de contrôle. Non, mes bien-aimés, le temps pour cela touche à sa fin. Le temps de la paix sur Terre se lève et vous, mes bien-aimés, pouvez être utilisés pour l’inaugurer, étant donné votre désir de le faire et vos efforts pour renforcer vos âmes dans l’amour. Dieu a un plan. Cherchez à trouver ce plan qui est pertinent pour vous.
 
 Je vous apporte mon amour et mes bénédictions. Je suis votre enseignant Augustin et je vous remercie pour cette opportunité de parler car beaucoup ont des préoccupations. Et je souhaite rassurer chaque enfant qui cherche l’amour du Père qu’il y aura des solutions et des réponses à ces dilemmes. Faites partie de cela, mes bien-aimés, et grandissez toujours dans l’Amour. Que Dieu vous bénisse. Que Dieu vous bénisse. Je t’aime.
-
-
-

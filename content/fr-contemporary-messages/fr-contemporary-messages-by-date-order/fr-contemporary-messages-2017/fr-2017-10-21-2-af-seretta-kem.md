@@ -9,7 +9,7 @@ weight:
 ---
 ### Se préparer à l'arrivée de la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 21 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 21 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse. Nous nous adresserons à votre cercle demain et chacun de nous dira quelques mots d'encouragement. Vous faites partie de votre cercle et vous êtes un partenaire privilégié pour l'un et l'autre et pour tous les autres qui viendront, et c'est ainsi que nous commencerons nos efforts. Ma fille, tu as raison de penser qu'il faudra un dévouement spécial parmi vous pour créer et maintenir les conditions et le pouvoir nécessaires afin que nous puissions accomplir ces tâches et ce développement en vous. 
 
@@ -22,8 +22,3 @@ Vous avez donc répondu à l'appel, vous vous êtes dévoués dans les prières 
 Vous avez beaucoup de questions dont certaines sont difficiles à répondre, mais nous pourrons vous révéler beaucoup de choses au fur et à mesure et nous serons heureux de le faire. Pour certains d'entre vous, vos cerveaux sont aussi assoiffés que vos âmes et nous le comprenons. Moi aussi, j'ai une grande curiosité et j'ai étudié pendant de nombreuses années, avec une grande satisfaction, pour comprendre les subtilités de la création de Dieu. Ce que vous êtes sur le point de rencontrer, ce sont de nouvelles révélations sur les potentiels que Dieu a mis en chacun de nous et sur la façon dont Son Amour peut donner vie à ces dons et potentiels. Nous allons donc poursuivre ce voyage et nous régaler des merveilles de la Création de Dieu, de Ses Bénédictions, de Son Amour - en nourrissant le mental et l'âme, en apportant révélation sur révélation, vérité sur vérité et la sagesse grandira en vous, âmes bien-aimées. Laissez vos yeux s'ouvrir et vos âmes s'éveiller. Ainsi, il en sera pour toute l'éternité, mes bien-aimés. Ce voyage ne se terminera jamais. Ce que vous cherchez à connaître aujourd'hui n'est qu'une goutte dans l'océan de la connaissance de Dieu. Que Dieu vous bénisse, mes bien-aimés ; mon amour est avec vous. 
 
 Je suis Seretta Kem. Je vous aime. Que Dieu vous bénisse.
-
-
-
-
-

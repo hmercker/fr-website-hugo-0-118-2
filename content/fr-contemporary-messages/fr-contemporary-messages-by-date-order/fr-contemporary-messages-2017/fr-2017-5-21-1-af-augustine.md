@@ -9,9 +9,9 @@ weight:
 ---
 ### Le désir de l’âme est une prière
 
-Augustin - reçu par Al Fike le 21 Mai 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 21 Mai 2017, Bend, Oregon, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/spiritualite-14.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-spiritualite-14.jpg)
 
 Que l’Amour du Père trouve un afflux constant dans vos âmes, mes bien-aimés. Que vous trouviez ce que vos âmes cherchent, car c’est ce que Dieu vous invite à faire, à connaître les désirs de vos âmes, à connaître Dieu de cette façon. Car en vérité, le mental a très peu à voir avec la progression spirituelle de l’âme. Toutes ces spéculations et doctrines sont quelque peu hors de propos, car l’âme sait comment aller vers Dieu. L’âme désire ardemment être avec Dieu. Vos âmes aspirent à être avec Dieu.
 
@@ -38,4 +38,3 @@ Je vous invite à continuer à prier ensemble pour Son Amour et Son Toucher. Je 
 Merci d’être venus ensemble, mes chers étudiants. Merci d’avoir prié, d’avoir fait cet effort. Je continuerai à venir et à enseigner. Je vais imprégner chacun d’entre vous de plus de vérités. Vous connaîtrez cette inspiration d’une manière consciente et mon amour sera avec vous.
 
 L’Amour de Dieu vous entoure, mes bien-aimés. Marchez dans cet Amour, marchez dans cet Amour, le monde a besoin de plus de personnes qui marchent dans l’Amour. Dieu vous bénisse. Dieu vous bénisse, je suis Augustin et je vous aime.
-

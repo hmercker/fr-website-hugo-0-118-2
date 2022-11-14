@@ -9,7 +9,7 @@ weight:
 ---
 ### Relation entre le mental matériel et le mental de l'âme
 
-Leytergus - reçu par Al Fike le 11 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Leytergus - reçu par Al Fike le 11 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je m'appelle Leytergus. Je fus, autrefois, dans les temps anciens, bien avant que Jésus ne vienne en ce monde, un philosophe. Je suis maintenant un habitant du Royaume Céleste. Je suis venu vous parler de la relation entre l'âme et le mental, c'est-à-dire le mental matériel et le mental de l'âme. Ce sont deux entités distinctes au sein d'un même individu.
 
@@ -21,7 +21,4 @@ Dans cette recherche, vous rencontrez le dilemme d'amener la conscience de l'âm
 
 Pour ceux qui ne sont pas éveillés de cette manière, l'âme trouve sa place en relation avec chaque individu dans le temps, pas nécessairement dans ce monde, dans cette vie, mais au fur et à mesure que la vie progresse à travers les sphères de l'esprit, elle finit par atteindre ce lieu de perfection dans la sixième sphère. Il y a une compréhension dans l'âme, limitée, parce que dans ces efforts pour atteindre les plans supérieurs, tout ce qui peut être accompli est la purification de l'âme, l'entretien de l'amour naturel dans cette âme. Pourtant, le mental, qui est souvent à ce stade le mental de l'esprit, continue à dominer et à dicter la réalité de l'existence de cet individu. Les bénédictions que vous avez avec l'éveil de l'âme par l'Amour Divin dépasseront de loin les capacités du mental de l'esprit. Car le mental d'un esprit est limité et ne peut aller au-delà d'un certain point de compréhension. Maintenant, si vous pouviez comprendre les capacités de cet esprit et de cette réalité, vous verriez qu'il y a en effet beaucoup de potentiels, de capacités, inhérents à cette condition d'esprit. Il vous serait difficile de concilier le fait qu'il s'agit d'une condition de conscience limitée, car vous n'êtes pas si loin dans la progression de la conscience.
 
-Pourtant, il en est ainsi, nous, dans le Royaume Céleste, observons les limitations… (l'enregistrement se termine prématurément)
-
-
-
+Pourtant, il en est ainsi, nous, dans le Royaume Céleste, observons les limitations… *[l'enregistrement se termine prématurément]*

@@ -9,7 +9,7 @@ weight:
 ---
 ### Orientations concernant la prochaine phase de développement
 
-St Matthieu - reçu par Al Fike le 4 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 4 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Ainsi, mes enfants souhaitent courir plutôt que de marcher ? Ils sont impatients de commencer et de manifester ce don de voix directe sans comprendre soigneusement ce que cela implique. Cependant, vous avez reçu beaucoup de conseils, mes amis, beaucoup de conseils. Comprenez-vous vraiment ce que nous essayons d'accomplir ? Passer des conditions de ce monde aux conditions d'un être Céleste ? C'est un très long chemin à parcourir, un très long chemin en effet. Pourtant, vous avez en vous une lumière, les bénédictions de l'Amour Divin de Dieu vous poussant dans ce voyage, vous aidant à atteindre une lumière en vous et, en effet, cette lumière brûle magnifiquement comparée au contraste de l'obscurité de ce monde. Elle est belle en effet, la lumière qui brille en chacun de vous.
 
@@ -32,6 +32,3 @@ Vous vous êtes donc engagés sur la voie du changement, de l'évolution de votr
 Au fur et à mesure que le temps passe, que vous êtes ensemble, vous verrez, vous reconnaîtrez ces étapes au fur et à mesure que vous les vivrez et que vous passerez par ces procédures. En effet, que votre curiosité ouvre vos sens à ce qui se passe et que l'enthousiasme dans votre âme d'un grand et profond désir de servir Dieu aide tout ce qui est censé venir et être en vous. Oui, vous êtes certainement sur le point de vivre quelque chose de miraculeux, de très beau et de très puissant. Comment l'Amour peut créer une telle beauté, des choses si merveilleuses, en libérant le potentiel de votre âme, en permettant à Dieu de travailler à travers vous de façon merveilleuse, en apportant la Vérité, le tout infusé d'amour et d'harmonie. Vous êtes clairement des enfants bénis, aimés par Dieu et nourris par les anges. Quelle bénédiction, quels cadeaux. Puissiez-vous continuer à vous épanouir dans cet amour, à viser le plus haut et à travailler pour le bien de l'humanité en connaissant la volonté de Dieu.
 
 Âmes bénies, je suis Matthieu et je vous aime. Je continue à travailler avec vous alors que nous allons de l'avant, comme le font tous ceux qui se sont engagés dans ce projet. Nous ne vous quitterons jamais, mes amis, nous ne vous quitterons jamais. Vous êtes aux bons soins des anges. Vous avez les belles bénédictions de Dieu qui se déversent sur vous. Ouvrez-vous à cela, ouvrez grand, ouvrez-vous toujours à recevoir. Faites de chaque jour une consécration à cette merveilleuse effusion de Dieu sur vous et tout ira bien. Tout ira bien, mes amis. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

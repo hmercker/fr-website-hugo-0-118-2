@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne vous prenez pas trop au sérieux
 
-Goldie - reçu par Al Fike le 18 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Goldie - reçu par Al Fike le 18 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Nous sommes très excités aussi ! !! Je suis Goldie ! !! Ne vous prenez pas trop au sérieux, mes amis. Priez simplement Dieu qu'Il vous utilise de cette belle façon pour apporter plus de Vérité au monde. Avec la joie dans votre cœur et vos âmes rayonnant dans l'Amour et la foi, vous accomplirez vos objectifs. Soyez harmonieux ensemble. Il n'y a pas besoin de différer dans vos opinions car au sein de vos âmes vous êtes tous en harmonie et en accord. C'est cela qui est important. Les détails s'arrangeront d'eux-mêmes à mesure que vous progresserez dans ce grand effort pour la Voix Directe.
 

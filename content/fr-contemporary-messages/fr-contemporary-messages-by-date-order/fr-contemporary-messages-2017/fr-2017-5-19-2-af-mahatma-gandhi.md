@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous pouvez changer le monde
 
-Mahatma Gandhi - reçu par Al Fike le 19 Mai 2017, Gibsons, Colombie-Britannique, Canada
+Mahatma Gandhi - reçu par Al Fike le 19 Mai 2017, Bend, Oregon, USA.
 
 Je suis Mahatma Gandhi et je souhaite communiquer avec cette chère âme qui vous accueille dans cette maison et lui dire que j’ai été avec elle et que je lui ai apporté mon influence pour l’aider dans le travail qu’elle fait et le travail qui se manifestera de son vivant pour aider à apporter l’harmonie dans ce monde. Il y a une grande porte qui est sur le point de s’ouvrir, mon amie, pour vous dans le service. Vous vous êtes bien préparé. Vous avez de profondes connaissances et une âme qui aspire à servir Dieu. Et Dieu ne gaspillera pas vos talents et vos aspirations. Dieu utilisera ceux qui souhaitent servir et fera naître des opportunités qui apporteront la Lumière, la Paix et la Vérité à ce monde.
 
@@ -22,7 +22,5 @@ J’étais un petit homme qui a changé le cours de l’histoire dans mon monde,
 Lorsque l’on agit dans la foi, de grandes œuvres peuvent être accomplies. Lorsqu’on le fait avec humilité et avec le désir de connaître la volonté de Dieu, des œuvres merveilleuses peuvent être accomplies. Dieu a besoin de toutes les lumières, de toutes les belles âmes, pour apporter le changement et l’harmonie afin d’éclairer le monde. Êtes-vous prêts ? Rappelez-vous que ce petit homme a ouvert les yeux de beaucoup, qu’il a été aimé par beaucoup, parce que j’ai suivi la Vérité, j’ai dit la Vérité, et j’ai été ferme avec Dieu. Chacun de vous a cette capacité et cette aptitude. Chacun d’entre vous peut changer le monde avec suffisamment de foi, avec suffisamment de détermination, équipé de la Vérité et de l’Amour de Dieu.
 
 Je vous remercie de m’avoir écouté. Je continuerai à vous assister, ma fille bien-aimée, dans vos efforts. Car chaque âme qui aspire à la Lumière a un ange avec elle à tout moment. Vous n’êtes jamais seule. Dieu est toujours avec vous.
+
 Dieu vous bénit, âmes bien-aimées. Je suis Gandhi et je marche avec vous. Que Dieu vous bénisse.
-
-
-

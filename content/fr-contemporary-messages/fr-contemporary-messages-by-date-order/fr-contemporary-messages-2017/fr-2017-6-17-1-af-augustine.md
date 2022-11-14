@@ -35,6 +35,3 @@ Rappelez-vous, mes bien-aimés, vous avez le libre arbitre. Chaque jour est un c
 Oui, c’est un grand saut en avant pour vous, un grand défi, une belle opportunité et Dieu ne vous donne pas ces défis qui sont au-delà de votre capacité à les relever. Non, mes bien-aimés, vous pouvez plier mais vous ne romprez pas et à travers cette expérience, vous grandirez énormément. Âmes bien-aimées, vous trouverez ce précieux et insaisissable équilibre entre le mental et l’âme et vous y trouverez l’harmonie, une grande harmonie et la joie. Cela arrive. Nous vous aiderons lorsque vous choisirez de grandir dans la Lumière. Vous aurez toujours cette aide et l’élévation et la guérison abonderont. Dieu vous guidera. Nous sommes avec vous et vous continuerez à marcher sur ce grand Chemin vers la Lumière de mille soleils, la gloire de la fontaine de l’Amour de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin. Je continue à marcher avec vous sur ce grand voyage de découverte, ce merveilleux chemin de l’Amour. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
-
-
-

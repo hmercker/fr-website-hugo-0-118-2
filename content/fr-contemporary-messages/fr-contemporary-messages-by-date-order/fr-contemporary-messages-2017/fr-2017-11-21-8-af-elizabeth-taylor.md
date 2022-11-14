@@ -16,6 +16,3 @@ Je m'appelle Elizabeth Taylor. Je souhaite moi aussi me joindre à mes amis pour
 Mon amour est avec vous. J'ai observé avec attention vos progrès. Je vous remercie pour vos efforts. 
 
 Merci pour tout ce que vous faites pour essayer de rapprocher notre monde et le vôtre et de rapprocher la Vérité et Dieu de l'humanité. Mes bénédictions à vous, mes amis, mon amour, mon amour. Continuez, s'il vous plaît, continuez.
-
-
-

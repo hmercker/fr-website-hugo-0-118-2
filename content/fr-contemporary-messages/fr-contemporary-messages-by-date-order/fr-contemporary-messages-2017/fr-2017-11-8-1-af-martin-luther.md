@@ -9,11 +9,11 @@ weight:
 ---
 ### Apprivoiser le mental
 
-Martin Luther - reçu par Al Fike le 8 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 8 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Martin Luther et je suis venu m'adresser à ces conditions mentales qui vous contrarient si souvent dans ce monde matériel.
 
-À l'intérieur de votre cerveau sont attachées diverses échelles ou nodules de conditions aux structures complexes du cerveau. C'est ainsi que l'information est traitée à l'intérieur du cerveau. Je ne peux pas entrer dans les détails , mais je souhaite vous faire remarquer que lorsque les diverses pensées et réactions que vous avez au cours de vos activités quotidiennes sont constamment renforcées dans votre mental et que ces informations affluent dans votre cerveau, elles sont pour ainsi dire capturées par ces nodules de pensées et de réactions dans votre cerveau. Il est donc difficile pour vous d'éviter la réponse presque réflexe aux conditions qui prévalent dans votre expérience sur Terre. Beaucoup pensent qu'il est presque impossible de neutraliser ces conditions qui sont si répandues dans votre mental. 
+À l'intérieur de votre cerveau sont attachées diverses échelles ou nodules de conditions aux structures complexes du cerveau. C'est ainsi que l'information est traitée à l'intérieur du cerveau. Je ne peux pas entrer dans les détails <sup id="a1">[1](#f1)</sup>, mais je souhaite vous faire remarquer que lorsque les diverses pensées et réactions que vous avez au cours de vos activités quotidiennes sont constamment renforcées dans votre mental et que ces informations affluent dans votre cerveau, elles sont pour ainsi dire capturées par ces nodules de pensées et de réactions dans votre cerveau. Il est donc difficile pour vous d'éviter la réponse presque réflexe aux conditions qui prévalent dans votre expérience sur Terre. Beaucoup pensent qu'il est presque impossible de neutraliser ces conditions qui sont si répandues dans votre mental. 
 
 Je dis que vous pouvez en effet neutraliser les pensées négatives, ces réactions qui sont si prédominantes dans votre pensée qui n'est ni positive ni aimante, mais cela demande un certain effort, mes bien-aimés. L'Amour Divin dans votre âme crée certainement une atmosphère, un environnement d'amour en vous, sa lumière brille toujours dans votre être. Cependant, le mental est indépendant de l'âme, et il domine souvent, très souvent. Alors, comment devez-vous neutraliser ces conditions négatives, ces schémas de pensée indésirables ?
 
@@ -38,6 +38,7 @@ Ce sont des temps passionnants, mes âmes bien-aimées, des temps magnifiques o�
 Ainsi, nous, les anges, continuons à nous tenir à vos côtés et à vous aider dans cette révolution intérieure, le réveil de votre âme. C'est un temps de joie, mes bien-aimés, d'acceptation et de reconnaissance joyeuse de la puissance de l'Amour de Dieu en vous, de l'émerveillement de ses complexités, de ses bienfaits et de ses bénédictions. L'ouverture de tant d'avenues de compréhension et de conscience de la vérité qui ne pourrait pas venir à vous à moins que votre âme ne soit éveillée. Ainsi, vous continuez à progresser. Votre voyage continue à s'intensifier. Votre capacité à aimer, à donner de l'amour, à être dans le flux de l'Amour de Dieu augmente chaque jour. Soyez joyeux dans votre voyage mes bien-aimés, soyez avides de plus. Soyez capables de dompter l'intransigeance de votre esprit et soyez assez forts pour dire : « Je souhaite une harmonie de mon âme, vivifiée par l'Amour de Dieu ». C'est la maturité, mes âmes bien-aimées, c'est une position mature, une acceptation forte et merveilleuse de la Volonté de Dieu pour vous, pour toutes les âmes de se connaître vraiment, de s'aimer et de s'aimer et d'aimer Dieu. Tout cela vient en son temps, à sa propre manière. Chaque individu trouve son chemin. Chaque individu a ses propres luttes et pourtant tout est unifié dans l'amour et mis en harmonie avec le pouvoir de l'amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Martin Luther et je suis heureux de vous avoir parlé en ce jour. Que les bénédictions de Dieu soient toujours sur vous, que son amour se déverse en vous. Nous sommes avec vous et nous vous aimons. Que Dieu vous bénisse.
+<small>
 
-
-
+1. <large id="f1"> Martin Luther est limité dans son expression ici car le médium n'a aucune connaissance de la façon dont le cerveau fonctionne. C'est toujours une limite de la médiumnité, car l'esprit doit utiliser des mots et des concepts qui existent dans l'esprit du médium.
+[↩](#a1)

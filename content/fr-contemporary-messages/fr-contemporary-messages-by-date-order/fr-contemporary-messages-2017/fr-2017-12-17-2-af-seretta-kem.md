@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous regardez vers l'avenir
 
-Seretta Kem - reçu par Al Fike le 17 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 17 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Oui, vous regardez vers l'avenir avec de nombreuses questions et vous vous demandez quelles seront ces prochaines étapes, comment mettre en œuvre ce que vous avez appris, comment exprimer les éveils de vos âmes. Je dis que ce sont toutes de bonnes pensées, des idées importantes pour découvrir et connaître la vérité concernant vos vies personnelles et vos mouvements dans ce monde. Vous vous interrogez sur ce don, ce don qui, dans un sens, est si insaisissable et, dans un autre, si puissant.
 
@@ -24,6 +24,3 @@ Lorsque vous serez prêts, je crois que vous vous réunirez une fois de plus dan
 Maintenant, nous pouvons continuer à vous enseigner de plus grandes choses lorsque vous aurez digéré ce que vous avez appris plus complètement. Allez dans le monde, mes bien-aimés, et exprimez votre véritable moi dans l'Amour. Lorsque vous êtes prêts, testez ces nouveaux dons, testez votre propre capacité à choisir la Lumière, à être la Lumière dans ce monde. Nous continuerons à être avec vous pour vous encourager et vous inspirer, pour vous apporter notre amour. Sachez que la Main de Dieu est toujours sur vous, âmes bien-aimées, toujours sur vous. Nous vous remercions, mes bien-aimés, pour tous vos efforts, votre engagement et votre amour et pour tous les efforts de ceux qui vous ont soutenus dans ce monde et tous les efforts des esprits et des anges qui se sont réunis de manière remarquable et ont apporté des résultats remarquables alors que nous continuons à travailler ensemble. Oui, les dons sont en vous, de nombreux dons qui sont en sommeil vont se manifester. Les prises de conscience, les réveils, les révélations, la sagesse, la paix, la joie et l'Amour sont avec vous et continueront à se déployer en vous.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Nous allons continuer, nous allons continuer, âmes bien-aimées. Ne pensez pas que vous avez terminé, mais vous avez accompli le premier de beaucoup pas. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et vous garde toujours dans son amour et sa lumière. Que Dieu vous bénisse.
-
-
-

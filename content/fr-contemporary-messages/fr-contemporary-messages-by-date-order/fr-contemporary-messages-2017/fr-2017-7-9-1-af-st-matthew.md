@@ -9,7 +9,7 @@ weight:
 ---
 ### Guides individuels pour la voix directe
 
-St Matthieu - reçu par Al Fike le 9 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 9 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Matthieu et je suis heureux que vous soyez réunis ici ce soir avec ces autres personnes venues d'au-delà des mers pour prier et se préparer à la voix directe. Je ferai partie de ceux qui travaillent étroitement avec vous dans la préparation et l'exécution de ce don. Je donnerai des conseils au fur et à mesure que nous progresserons, avec notre bien-aimé Serreta Kem. Maintenant, un groupe d'anges, un conseil en quelque sorte, a été nommé à ce groupe. Je vais vous donner les noms de chaque âme bien-aimée qui participe afin que vous puissiez faire appel à ces magnifiques êtres Célestes pour vous soutenir et vous guider alors que vous continuez à prier séparément et ensemble.
 
@@ -30,6 +30,3 @@ Pour connaître la volonté de Dieu, vous devez connaître votre propre âme ou,
 Alors que vous allez plus profondément dans vos âmes et que Dieu vous éveille plus pleinement à qui vous êtes vraiment, marchez sur ce chemin avec nous, les âmes bien-aimées - nous qui nous sommes engagés à apporter une plus grande lumière à votre voyage, à votre éveil et à vos efforts parce que nous vous aimons, mes bien-aimés. Nous sommes vos amis spéciaux, vos enseignants. Nous sommes ici pour vous soutenir, vous protéger et vous guider. Utilisez notre compagnie et notre influence à votre avantage. Lorsque vous priez, nous prions avec vous. Lorsque vous vivez chaque jour, nous marchons avec vous. Lorsque vous luttez, nous vous aiderons à faire tomber ces barrières et à dégager votre chemin. Notre tâche est gratifiante car nous sommes heureux de nos efforts et de notre désir de vous aider dans les vôtres. Nous connaîtrons les gloires d'une plus grande lumière, de l'apport de la vérité à l'humanité, de la marche sur un chemin noble, un chemin rempli de buts, de sens et de grands efforts au service de l'humanité. Que pourriez-vous désirer de plus ? Quels plus grands cadeaux que celui-ci, travailler dans le flux de l'Amour de Dieu, être un instrument de sa volonté, donner l'exemple de la puissance de Son amour et enseigner ce don ?
 
 Vous êtes vraiment bénis, mes enfants bien-aimés. Nous sommes tous bénis, car nous sommes tous touchés par Dieu. Nous continuerons à voyager ensemble dans ce puissant effort. Que Dieu vous bénisse à chaque pas, chaque respiration, chaque prière et chaque effort que vous faites pour apporter une plus grande lumière à ce monde. Que Dieu vous bénisse puissamment, âmes bien-aimées, et vous mette sur le chemin désigné par Dieu pour chacun d'entre vous. Merci de m'avoir écouté. Je reviendrai encore et encore pour apporter mes conseils, tout comme les autres enseignants et ceux qui vous soutiennent dans votre entreprise, car nous sommes tous désireux de vous soutenir et de vous aimer, âmes bien-aimées. Que Sa paix et Son grand amour vous enveloppent toujours. Que Dieu vous bénisse. Je suis Matthieu et je vous aime. Que Dieu vous bénisse.
-
-
-

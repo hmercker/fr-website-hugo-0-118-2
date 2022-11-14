@@ -9,7 +9,7 @@ weight:
 ---
 ### L'arrivée de H
 
-Confucius - reçu par Al Fike le 20 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 20 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Confucius. Ne vous ai-je pas dit que mes petits oiseaux se rassembleront, qu'ils entendront mon appel et viendront pour s'aimer, pour connaître la joie de la compagnie des uns et des autres dans ce grand amour et cette lumière.
 
@@ -22,10 +22,3 @@ Ainsi, lorsque vous vous consacrez à ce but, Dieu vous réapprovisionnera, mes 
 Vous tracez donc votre ligne dans l'amour, en faisant confiance à Dieu pour s'occuper des questions de ce monde pendant que vous vous occupez des questions de Dieu. Ne laissez pas vos esprits vous distraire et le grand bavardage qui accompagne le fait d'être dans ce monde. Laissez aller ceci, mes bien-aimés, et permettez à la Grâce de Dieu d'infuser chaque partie de vous, de laisser l'esprit de votre moi humain s'éloigner dans cette lumière parfaite, cette paix et cet amour. Vous vous élèverez mes bien-aimés, vous vous élèverez vers une plus grande lumière et Dieu vous touchera profondément et vous connaîtrez une grande joie dans votre travail ensemble et il y aura beaucoup de bénédictions qui en découleront : des manifestations, des démonstrations de la vérité avec les potentiels que chaque âme a pour apporter les bénédictions de Dieu à ce monde étant donné l'expansion de l'âme dans l'amour. Vous êtes prêts mes bien-aimés, vous êtes prêts - à avancer de cette manière. Continuez dans vos prières ferventes, continuez dans votre foi forte, continuez dans votre amour les uns pour les autres et votre amour pour Dieu et tout ira bien, mes âmes bien-aimées, tout ira bien alors que vous avancez dans la lumière.
 
 Dieu vous bénisse, mes bien-aimés, je suis Confucius et je continue à me tenir à vos côtés alors que vous grandissez dans l'amour et cherchez à servir Dieu avec humilité, grâce et beauté. Dieu vous touche profondément, âmes bien-aimées, et il continuera à le faire. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
-
-
-
-
-
-
-

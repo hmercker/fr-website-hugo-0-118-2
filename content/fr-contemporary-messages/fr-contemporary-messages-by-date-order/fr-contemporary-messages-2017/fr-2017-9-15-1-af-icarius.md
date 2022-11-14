@@ -9,7 +9,7 @@ weight:
 ---
 ### Le mental de l’âme doit compléter le mental matériel
 
-Icarius - reçu par Al Fike le 15 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Icarius - reçu par Al Fike le 15 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Puissiez-vous recevoir un afflux constant dans vos âmes, mes amis bien-aimés. Car à travers ce don émergent tous les dons puissants de l’âme. Avec cette bénédiction vient l’éveil de la conscience et la compréhension des lois et des vérités de Dieu. La graine de la conscience s’épanouit en une véritable compréhension. Je suis Icarius et je suis venu vous parler de la fusion de l’esprit, de l’âme et de l’esprit matériel.
 
@@ -32,4 +32,3 @@ Continuez à prier pour cet Amour, à le chercher de tout votre cœur et de tout
 Beaucoup d’autres esprits viennent parler alors que vous continuez à prier ensemble et à chercher à connaître la Vérité pour être éduqués de cette façon. Souvenez-vous qu’il y a encore tant de choses à connaître et à comprendre. En vous transmettant ces vérités, vous transmettrez aux autres une sagesse et une connaissance qui leur permettront de comprendre plus facilement. De nombreux cadeaux sont à venir, de nombreuses expériences vous attendent alors que l’Amour continue à vous propulser en avant et que votre compréhension et votre capacité à embrasser les autres et à donner la Vérité de manière à ce qu’ils puissent comprendre.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-

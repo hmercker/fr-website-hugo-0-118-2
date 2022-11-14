@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jane Gartshore le 26 Mars 2017.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/tree-736885_orig.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-tree-736885_orig.jpg)
 
 Le but de La dévotion est de montrer à Dieu votre amour pour lui. Lorsque vous aimez Dieu, c'est sans aucune condition. Votre expression d'amour est inconditionnelle. Vous ne demandez rien en retour. Vous appréciez tout ce qu'il est et la générosité qu'il vous a apportée, et le grand don de cette vie qu'il vous a donné.
 

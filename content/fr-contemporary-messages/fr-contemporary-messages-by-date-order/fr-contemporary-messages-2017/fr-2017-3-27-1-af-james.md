@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer la volonté propre et embrasser la volonté parfaite de Dieu
 
-Jacques - reçu par Al Fike le 27 Mars 2017, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 27 Mars 2017, Gibsons, Colombie-Britannique, Canada.
 
 Ah, vous vous sentez découragés, n’est-ce pas, lorsque ces plans bien conçus que vous faites ne se réalisent pas, lorsque vos ambitions et vos désirs ne sont pas satisfaits et réalisés, lorsqu’il est difficile de comprendre la Volonté de Dieu, de la connaître vraiment, de renoncer à vos propres volontés et désirs en faveur de la volonté et du désir de Dieu pour vous dans votre vie. Oui, vous êtes immergés dans les conditions complexes et difficiles de ce monde, la condition humaine. On vous a appris à vous investir dans le monde, à trouver ce que vous appelez le succès, à exprimer vos dons spirituels et à trouver une reconnaissance dans ces efforts.
 
@@ -22,6 +22,3 @@ Ce qui vous retient ce n’est pas tant ces vieilles conditions intérieures que
 Cherchez le Royaume, mes bien-aimés, le Royaume de l’Amour de Dieu. Tout le reste suivra. En effet, tout suit et se met en place, et vous le ressentez, bien que votre esprit se débatte et que vous ressentiez un sentiment de déconnexion, d’inquiétude pour votre propre avenir, une confusion concernant vos priorités et ce qui est important dans votre vie. Tout cela fait partie de la transition de votre lumière spirituelle qui infuse vos beaux esprits afin que tout fonctionne en harmonie et en conjonction avec la grande volonté de Dieu. Poursuivez vos efforts pour être en harmonie avec la volonté de Dieu, pour être en harmonie avec l’Amour de Dieu, pour marcher dans la lumière et vous verrez, à mesure que vous progressez, que vous marchez effectivement sur le chemin qui vous est destiné et que vous suivez en harmonie avec le plan que Dieu a pour chacun de vous et pour le salut de l’humanité. Oui, vous êtes à l’avant de cette ligne, de cette vague de changement, et ce n’est pas facile. Vous continuerez à lutter, mais après chaque succès, chaque changement et chaque guérison intérieure, vous connaîtrez la joie et un véritable réveil.
 
 Que Dieu vous bénisse, mes chers amis. Je suis Jacques et je vous aime. Je marque vos progrès. Vous êtes dans la Lumière. Vous continuez à être dans le flux de la volonté de Dieu et cela sera plus intense à mesure que le temps avance dans votre vie, ici dans ce monde et dans le prochain. Beaucoup de choses vous attendent. Ne vous sentez pas découragé mon fils, sentez-vous encouragé par le fait que vous vous débarrassez de ces vieilles méthodes et bientôt vous verrez clairement les nouvelles méthodes qui apparaîtront comme de nouveaux vêtements sur vous. Que Dieu vous bénisse. Je suis avec vous et je vous aime. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Martin Luther salue H
 
-Martin Luther - reçu par Al Fike le 20 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 20 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Martin Luther. Nous poursuivrons nos efforts pour apporter des messages qui enseigneront les autres alors que vous priez ensemble en dehors de vos cercles vocaux directs. Il y aura des messages prolifiques, car il y a encore beaucoup de choses qui doivent être abordées, pour enseigner les autres. Car lorsque ce don de voix directe sera accompli, vous susciterez beaucoup d'intérêt dans ce monde et vous devrez vous présenter à ceux qui sont curieux, qui ont un profond désir de connaissance et de vérité. Dans de nombreux cas, vous devez d'abord nourrir leurs pensées afin qu'ils soient à l'aise pour nourrir leurs âmes dans cette voie de la prière et nous donnerons donc des messages d'enseignement lorsque vous serez ensemble en prière.
 
@@ -22,6 +22,3 @@ Même si ce don de voix directe n'est pas accompli, vous avancerez dans le monde
 Vous êtes tenus fermement par Dieu. Vous êtes nourris et protégés, aimés et bénis. Vous n'échouerez pas dans votre désir d'apporter la vérité de l'Amour de Dieu à l'humanité. Vous faites vraiment partie de Son plan et vous n'échouerez pas, vous avancerez de manière spectaculaire et surprenante, avec des résultats inattendus, des surprises et des opportunités inimaginables. Vous rencontrerez de nombreuses âmes dans ce monde, certaines qui sont des leaders dans ce monde et bien connues dans ce monde et beaucoup qui sont vos frères et sœurs dans ce monde vivant comme ils peuvent, luttant dans la lumière, cherchant à dissiper les ténèbres. Dieu souhaite que vous touchiez beaucoup, beaucoup d'âmes en tant que Ses canaux d'Amour, et vous le ferez, mes bien-aimés. Votre force se développe chaque jour, vos dons se déploient et votre amour grandit. C'est ce qui est requis et vous suivez la volonté de Dieu de bien, bien des façons. Vous construisez une lumière en vous par vos prières, par vos désirs et par vos aspirations vers Dieu. Le monde de Dieu continue de s'ouvrir à votre conscience. Ce que vous voyez maintenant n'est qu'un aperçu de ce qui va arriver et cela arrive rapidement et sans détour dans ce monde et vous serez prêts pour ce qui va arriver.
 
 Dieu vous bénisse, mes bien-aimés, je suis Martin Luther. Je serai avec toi ma fille bien-aimée pour tous les jours de ta vie et il y a beaucoup de jours à venir ma fille bien-aimée, beaucoup de jours à venir. Sache que je me tiens à tes côtés et que je te guiderai et te protégerai, je t'encouragerai et prierai avec toi car je t'aime profondément ma fille bien-aimée. Une telle lumière, tu es une si belle lumière et Dieu t'aime tellement, comme moi et beaucoup d'autres. Dieu vous bénit mes chéris, Dieu vous bénit.
-
-
-

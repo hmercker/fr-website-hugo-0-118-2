@@ -9,9 +9,9 @@ weight:
 ---
 ### Ce qui apporte l'harmonie dans ce monde continue
 
-Martin Luther - reçu par Al Fike le 16 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 16 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
-Je suis Martin Luther et je suis revenu pour poursuivre ma conversation sur ce qui apporte l'harmonie dans ce monde.
+Je suis Martin Luther et je suis revenu pour poursuivre [ma conversation sur ce qui apporte l'harmonie dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-1-af-martin-luther/).
 
 J'ai mentionné que toute la vie dans la Création de Dieu et dans l'univers obéit à des cycles, des rythmes et des vagues, alors que les énergies traversent le cycle, que les événements arrivent sous forme de vagues et qui dans l'océan présentent des pics et des creux, de sorte que ces énergies atteignent un pic puis s'affaiblissent, en se répétant sans cesse. Il en va de même pour vos propres corps, à certains moments vous ressentez plus d'énergie, plus de vitalité, à d'autres vous avez besoin de plus de repos, de calme. Lorsque vous prenez soin de votre corps, vous ressentez une plus grande vitalité, ce pic d'énergie augmente. Pourtant, vous devez encore vous reposer et être tranquille.
 

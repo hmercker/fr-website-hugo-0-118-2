@@ -9,7 +9,7 @@ weight:
 ---
 ### Le salut du monde
 
-Lotus Blossom - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Lotus Blossom - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, mes enfants bien-aimés, je suis Fleur de Lotus. Lorsque vous parlez du salut de l'humanité, vous devez également inclure le salut de votre monde, car ce n'est pas seulement l'humanité qui souffre, c'est chaque créature de ce monde qui souffre du déséquilibre et des conditions que l'humanité a apportées à cette planète, car de nombreux choix sont faits dans ce monde qui sont contraires aux Lois de la Création, et apportent la souffrance.
 
@@ -30,4 +30,3 @@ Donc vous, mes bien-aimés, cherchez la Vérité entière et bien que cela ne vi
 L'élan se construira vers ce grand salut, ce changement à venir dans le monde. Alors que vous grandissez dans votre force, votre foi, votre amour, vos perceptions et vos dons, Dieu vous utilisera de très nombreuses façons, des façons que vous ne pouvez pas imaginer mais qui arrivent. Permettez à Dieu de vous guider, de vous influencer et de vous inspirer, âmes bien-aimées. Ainsi, vous continuerez à avancer, à grandir dans votre conscience, à aimer et à grandir en harmonie avec votre monde, le monde que Dieu a créé, le monde qui est censé être.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Fleur de Lotus. Je suis heureuse de vous parler aujourd'hui. Je vous aime. Je fais partie de ce grand effort pour le salut du monde. Je vous aime. Je suis avec vous. Que Dieu vous bénisse.
-

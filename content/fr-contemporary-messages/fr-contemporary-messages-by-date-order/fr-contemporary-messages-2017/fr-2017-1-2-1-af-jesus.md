@@ -9,7 +9,7 @@ weight:
 ---
 ### La route est claire devant vous
 
-Jésus - reçu par Al Fike le 2 Janvier 2017, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 2 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Jésus.
 
@@ -26,4 +26,3 @@ Je vous bénis, mes bien-aimés, dans votre voyage et je vous guiderai et serai 
 Acceptez et honorez et sachez vraiment ce qu’est l’Amour, l’Amour de Dieu, et ce que Dieu et Son Être Merveilleux peuvent donner à chacun de vous, mes bien-aimés ; des trésors sans prix, un Amour infini, une connaissance profonde qui vient avec cette Bénédiction alors qu’elle grandit dans vos âmes et vous rapproche toujours plus du Créateur. Marchez dans cette Lumière, mes bien-aimés. La route est claire devant vous. Marchez dans cette Lumière et vous connaîtrez la paix profonde et la plénitude d’une âme rachetée dans l’Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Ma bénédiction à vous. Le Grand Esprit Saint de Dieu touche chaque âme dans cette pièce et beaucoup d’autres. Que Dieu vous bénisse. Que Dieu vous bénisse.
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les différents ajustements effectués dans votre corps
 
-Seretta Kem - reçu par Al Fike le 1 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 1 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Nous continuons à faire divers ajustements à l'intérieur de vos corps en apportant différents produits chimiques dans vos corps physiques et votre corps spirituel en préparation de la voix directe. Certains d'entre vous ont ressenti des changements physiques en eux. C'est notre travail, nos efforts pour apporter une harmonie dans vos corps qui peut être utilisée pour créer les conditions nécessaires à la voix directe. Vous avez également ressenti les conditions édifiantes qui sont mises en place dans ce beau sanctuaire et cela continuera. Nous continuerons à vous soutenir et à vous épauler. Nous travaillons chaque minute de chaque heure de chaque jour en votre nom. Lorsque vous êtes dans votre état de sommeil, nous continuons à travailler. En fait, il y a encore une session dans la chambre noire, dans votre état de sommeil, et cela contribue à faciliter l'avancement des conditions de la voix directe.
 
@@ -22,7 +22,3 @@ Mais comme je l'ai dit, vous faites de grands progrès à bien des égards. Vous
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse dans ces efforts. Que cette joie continue à grandir en vous, ce sentiment profond de proximité avec Dieu et la conscience de cette paix qui dépasse toute compréhension. Ne permettez pas à votre esprit d'interférer avec ce que votre âme sait déjà et exprime dans le monde. Taisez-vous lorsque vous voyez que vous vous exprimez d'une manière qui n'est pas en harmonie avec l'amour, taisez-vous, mes bien-aimés. Soyez simples dans vos interactions, aimants et gracieux, tolérants et continuez à vous reconnaître mutuellement de manière aimante. Il est si important que vous exprimiez ce que vous voyez, la beauté qui est en vous, car vous avez un pouvoir en cela, le pouvoir de guérir et de réconforter, d'élever et d'encourager chacun de vous à se voir dans cette lumière, cette belle lumière d'amour.
 
 Que Son Toucher continue à opérer les changements à l'intérieur de vous, à vous porter vers le Ciel, à trouver la vraie joie qui vient avec la connaissance de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je vous aime.
-
-
-
-

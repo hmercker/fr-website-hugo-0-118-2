@@ -9,7 +9,7 @@ weight:
 ---
 ### Tout en harmonie
 
-Seretta Kem - reçu par Al Fike le 14 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Fille bien-aimée, tu as effectivement un rôle à jouer dans le cadre des efforts que ces personnes consacrent au développement de la voix directe. Lorsque ce don sera accompli, il y aura beaucoup de travail et de nombreuses occasions de le faire connaître au monde. Il y a une nécessité pour ceux qui sont prêts à aider à soutenir ces instruments dans leurs efforts et dans leurs voyages. Il y aura des moments où vous aussi vous voyagerez avec eux et ferez partie de ce groupe.
 
@@ -22,6 +22,3 @@ Il y a beaucoup de travail à faire - beaucoup de choses à comprendre. Comme vo
 Je vous demande de vous concentrer sur cela dans vos prières, dans vos pensées et d'être ouverts à la guidance et à l'inspiration qui viennent. Car beaucoup de choses sont destinées à venir, beaucoup de choses sont destinées à vous faire connaître. C'est un temps dynamique, c'est un temps de formulation et de préparation et de voir clairement la direction dans laquelle vous devez aller. Et j'ai dit que chacun d'entre vous est capable et a des dons à partager. Puissiez-vous voir clairement votre propre but, ce que vous êtes destinés à faire, et voir que c'est exactement la bonne chose pour vous, en harmonie avec votre lumière. Dieu travaille de cette façon. Ses plans sont parfaits et la place que vous y occupez est parfaitement adaptée à ce que vous êtes et à ce que vous avez à donner. C'est ainsi que fonctionne le Père Céleste. Tout est en harmonie, tout est en temps opportun, tout est très, très ciblé. Puissiez-vous voir cela, mes chères âmes, et en venir à reconnaître votre place dans ce beau flot de Lumière, d'Amour et de Vérité. Que tout cela soit dans la Volonté de Dieu, exprimé en harmonie, Son plan pour le salut de l'humanité, si désespérément nécessaire dans ce monde.
 
 Vous avez tous un rôle à jouer. C'est une chose joyeuse, de savoir que vous pouvez servir Dieu d'une si belle manière. Les récompenses seront grandes, mes bien-aimés. Le travail sera intense, mais gratifiant. Vous serez sollicités pour de nombreuses choses. Soyez humbles, acceptez et soyez fidèles à ce que vous savez en vous-mêmes être juste, mes âmes bien-aimées. Que Dieu vous bénisse abondamment et vous garde toujours dans cette Lumière. Sachez que vous êtes aimées. Vous n'êtes jamais seules. Tout ira bien. Prenez la vie un jour à la fois, âmes bien-aimées et chaque petite pièce du puzzle se mettra en place. Que Dieu vous bénisse. Je suis Seretta Kem. Je continuerai à vous soutenir et à vous guider dans cette grande aventure. Que Dieu vous bénisse, que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les bénédictions de son amour vous envahiront comme un puissant torrent
 
-Seretta Kem - reçu par Al Fike le 2 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 2 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, je suis Seretta Kem. Le Maître Jésus vous aime tendrement, mes bien-aimés. Et il vous connaît bien, et vous le connaissez plus que vous ne le pensez. Il y a beaucoup de personnes dans le monde de l'esprit que vous avez rencontrées dans vos états de sommeil, et vous avez eu de nombreuses conversations et expériences ensemble. Plus vous vous rapprocherez de la réalisation de la voix directe, plus vous entrerez en contact avec de nombreux autres esprits qui souhaitent utiliser cette ouverture, ce portail de communication avec l'humanité. Il est donc important que vous établissiez ces liens avec ces beaux esprits et anges qui souhaitent parler. Car dans cette connexion d'Amour, de réponse et de confiance qui se construit, viendront de puissantes manifestations et ce cadeau.
 
@@ -20,8 +20,3 @@ Ainsi, chacun de vous comprend et reconnaît qu'il lui reste un chemin à parcou
 Puissiez-vous trouver ce rapport profond avec Dieu et absorber toute la merveilleuse Lumière et l'Amour et les bénédictions que Dieu veut donner à chacun d'entre vous. Car beaucoup vous attend. C'est comme un barrage rempli de toutes ces bénédictions. C'est à vous de vous tenir devant, sans crainte, alors que les barrières se brisent et que l'Amour se déverse sur vous, ce grand lavage des eaux vives et les bénédictions de Dieu se déversant sur vous, vous transportant vers le courant là où vous devez être afin que vous puissiez servir, exposer et démontrer la Vérité de Dieu. Que Ses merveilleuses bénédictions vous inondent, mes amis, que vous puissiez sentir le grand courant des eaux vives qui vous nettoient et vous renouvellent dans la Lumière de Dieu. Que vos âmes aspirent à cela, que vos esprits en viennent à le désirer, et que tout ce qui se tient sur votre chemin s'écroule et tombe en poussière. Car la Main de Dieu peut faire cela, et peut vous enlever tout ce qui n'est pas de Sa Création. Vous n'avez qu'à prier pour cela, et à être disposés et ouverts à la touche d'attente et à la main douce de Dieu afin que vous puissiez être profondément bénis, mes bien-aimés, toujours profondément bénis et élevés dans la Lumière.
 
 Que Dieu vous bénisse, mes amis. Seretta Kem est à vos côtés et vous aime tendrement. Mes précieux frères et sœurs qui cherchent la Vérité et désirent la Lumière et connaissent l'Amour du Père. Connaissez profondément cet Amour. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-
-
-

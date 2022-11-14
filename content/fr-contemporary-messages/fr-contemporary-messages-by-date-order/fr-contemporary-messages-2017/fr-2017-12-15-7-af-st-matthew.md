@@ -9,7 +9,7 @@ weight:
 ---
 ### La volonté de Dieu
 
-St Matthieu - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 La volonté de Dieu, la volonté de Dieu, quelle bénédiction que de connaître la volonté de Dieu. Être nourri par la Volonté de Dieu, être guidé par la Volonté de Dieu, pour vos âmes se déplacer dans la Volonté de Dieu est une grande bénédiction, âmes bien-aimées. Quand on accepte la Volonté de Dieu, il n'y a rien de perdu dans cet arrangement entre votre âme et Dieu, mais beaucoup à gagner. Comme un arbre qui trouve sa nourriture dans le sol en dessous de lui et grandit pour devenir un spécimen puissant et magnifique de la création de Dieu, ainsi vos âmes grandissent et deviennent magnifiques dans le flux de l'Amour de Dieu et dans ce flux vient la volonté de Dieu qui coule dans vos âmes créant en vous une connaissance, une compréhension des désirs de Dieu pour vous. C'est à la fois doux et puissant, subtil mais tellement beau. Vous en viendrez tous à connaître la Volonté de Dieu, chers amis, comme le sang de la vie en vous, elle coulera et apportera des réveils et des connaissances, auxquels seule votre âme peut avoir accès par la bénédiction de l'Amour du Père.
 
@@ -26,6 +26,3 @@ Puissiez-vous continuer à grandir dans cette Lumière, à sentir en vous la pui
 Dieu vous bénisse mes amis, je suis Matthieu et je vous aime et je connais chacun d'entre vous, je vois vos lumières, je connais vos désirs, je connais votre but et je marche avec vous, comme beaucoup qui continuent à apporter leur amour et leur soutien, leur force et leurs dons à ajouter aux vôtres afin que vous puissiez faire ce travail dans le monde. Que Dieu vous bénisse, âmes bien-aimées, et je vous aime. 
 
 Que Dieu vous bénisse.
-
-
-

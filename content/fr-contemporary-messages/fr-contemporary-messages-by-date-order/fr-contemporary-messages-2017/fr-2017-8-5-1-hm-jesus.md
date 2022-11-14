@@ -9,7 +9,7 @@ weight:
 ---
 ### L'avancée de l'âme
 
-Jésus - reçu par Helge Mercker le 5 Août 2017, Elim, Namibie
+Jésus - reçu par Helge Mercker le 5 Août 2017, Swakopmund, Namibie.
 
 Je suis venu, je suis là, oui c'est Jésus. Vous avez ressenti mes incitations et je suis heureux que vous ayez prié avec sérieux et que vous sentiez ma proximité. Je suis venu vous parler de l'Amour du Père et de la puissance qu'il apporte à chaque âme et de l'avancement de l'âme dans sa progression vers une proximité toujours plus grande avec le Père. C'est le fait de se rapprocher toujours plus de l'état de renaître dans la divinité de Son Amour. Et chaque prière qui vient avec un désir sincère de l'âme pour cet Amour est un pas de plus vers ce grand moment d'un nouvel être, d'une nouvelle réalité. Chaque personne en fait l'expérience d'une manière différente, avec une conscience et une reconnaissance différentes. Pour la plupart, c'est un processus progressif. C'est un voyage, c'est un processus.
 
@@ -32,4 +32,3 @@ Avancez avec une constance et un savoir qui est convaincant pour les autres, qui
 Vos préparatifs se font à petits pas et à chaque prière, vous grandissez intérieurement. Avec chaque conversation et communion avec notre Père céleste, vous atteignez de plus grandes profondeurs en vous et une proximité avec une confiance toujours plus grande et une confiance toujours plus grande dans les conseils de notre Père. En faisant toujours confiance à la voie à suivre, en faisant toujours confiance au déroulement de Son plan - même s'il n'a aucun sens pour vos concepts de compréhension - la foi et la confiance en notre Père vous permettront d'avancer en sachant que vous vous tenez dans la Vérité, dans l'Amour.
 
 Ainsi, ma chère fille et sœur dans l'Amour de notre Père, nous vous guidons tous. Nous avons vraiment besoin de votre aide pour mener à bien cette entreprise dans le cadre du grand plan. Nous vous remercions pour vos efforts et vos désirs. Que notre Père vous bénisse puissamment pour votre engagement. Nous vous remercions et nous vous saluons cet après-midi. C'est Jésus. Je suis le Maître des Cieux Célestes et je suis votre frère et votre ami et je vous guide sur votre chemin. Je vous aime et je vous souhaite un bon après-midi.
-

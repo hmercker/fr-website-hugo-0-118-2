@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière simultanée crée un treillis de lumière
 
-Augustin - reçu par Al Fike le 12 Février 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 12 Février 2017, Abbotsford, Colombie-Britannique, Canada.
 
 Belles âmes, votre enseignant Augustin est ici. Combien il est important pour vous de prier et de vous connecter avec ces groupes du monde entier qui prient eux-mêmes pour l’Amour du Père, en priant ensemble dans des cercles de lumière. Car dans cet effort qui est coordonné entre vous, il y a un bénéfice mutuel et un bénéfice pour nous qui servons dans le désir de Dieu de vous bénir tous.
 
@@ -28,6 +28,3 @@ En effet, ces moments de confusion et d’inquiétude s’atténueront en vous. 
 Vous devez prier pour l’Amour du Père à chaque respiration, car c’est dans cette bénédiction que tout se déroulera en harmonie et vous trouverez vos pas, votre stabilité, votre force et vous serez une fontaine d’amour dans le monde. Car dans ce lieu, si différent de tant de gens, vous serez un canal d’amour vers lequel beaucoup, beaucoup seront attirés. N’est-ce pas ce que chacun cherche, mes bien-aimés, être fermement ancrés dans l’Amour – exprimer l’amour d’une manière pure ? Être le canal d’Amour de Dieu, toucher l’autre et apporter une guérison et un réconfort – un sentiment qu’il est vu et reconnu ? Vous apporterez cela mes bien-aimés, vous apporterez cela en grandissant – en acceptant ce nouveau soi émergeant né de l’Amour et exprimé dans l’Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin continue à se tenir à vos côtés alors que vous émergez et devenez cette expression de lumière et d’amour dans le monde. Je vous aime tendrement et vous avez de nombreux participants – anges de lumière – qui sont avec vous dans ce processus de naissance et nous vous aimons tendrement. Dieu vous touche profondément. Dieu vous bénit, Augustin vous aime. Que Dieu vous bénisse.
-
-
-

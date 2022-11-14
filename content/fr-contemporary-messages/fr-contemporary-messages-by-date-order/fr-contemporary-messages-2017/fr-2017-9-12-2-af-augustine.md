@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérez vos limites
 
-Augustin - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Augustin. Chacun d’entre vous est conscient de ses limites. Vous vivez dans ce monde. Vous vivez dans un corps de chair.
 
@@ -28,6 +28,3 @@ Vous n’êtes jamais seuls et vous n’êtes jamais abandonnés, mes bien-aimé
 Vous êtes aimés. Nous prenons soin de vous. Nous vous donnons ce dont vous avez besoin. Soyez joyeux dans votre journée. Soyez aimant dans votre visage. Soyez fidèle dans vos prières. Soyez toujours avec Dieu. Tout se mettra en place lorsque vous serez les canaux d’amour du Père.
 
 Que Dieu vous bénisse. Votre maître Augustin vous aime tendrement et continuera à parler, à enseigner, à aimer. Que Dieu vous bénisse.
-
-
-

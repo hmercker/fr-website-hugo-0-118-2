@@ -9,7 +9,7 @@ weight:
 ---
 ### Message pour la Nouvelle Année
 
-Samuel - reçu par Al Fike le 31 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Samuel - reçu par Al Fike le 31 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, que l'Esprit Saint touche profondément vos âmes. Je suis Samuel et je suis venu parce que vous m'avez appelé avec vos prières. Dieu m'a envoyé pour toucher vos âmes, mes bien-aimés, pour toucher vos âmes afin que vous puissiez vous ouvrir et fleurir dans les bénédictions de l'Amour du Père.
 
@@ -22,6 +22,3 @@ Chaque jour, une nouvelle porte s'ouvrira pour vous, mes bien-aimés. Dans les j
 Dieu vous bénit, âmes bien-aimées. Portez la foi en vous. Marchez dans cette Lumière. Faites confiance à la volonté de Dieu et au timing de Dieu, car tout se déroulera dans un timing parfait, la séquence des événements étant orchestrée par Dieu avec un grand dessein et une grande délibération. Cela apportera les bénédictions requises, les changements à venir, le réconfort nécessaire et la Vérité qui doit être donnée aux âmes désireuses de savoir. Vous êtes tous porteurs d'un grand dessein. Vous devez accepter et marcher avec ce but dans une grande foi, force et amour.
 
 Que Dieu vous bénisse, mes chers, chers amis. Je suis Samuel et je vous apporte mon amour. De nombreux anges vous entourent alors que vous marquez le début d'une nouvelle année. Ce sera une année comme aucune autre, pleine de nombreuses bénédictions et d'opportunités ouvrant des portes. Vous travaillerez en étroite collaboration avec les anges. Que Dieu vous bénisse, mes bien-aimés, et vous garde toujours dans Son Amour. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

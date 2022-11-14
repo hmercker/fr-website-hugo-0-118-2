@@ -9,7 +9,7 @@ weight:
 ---
 ### Créer une condition de base pour la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 25 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 25 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Que Dieu vous bénisse. J'espère que toutes les préoccupations matérielles sont traitées et que nous pouvons parler de choses plus profondes qui sont plus spirituelles. Maintenant, comme cet instrument l'a indiqué, ces premières semaines sont fondamentales, et les problèmes qui surgissent parmi vous doivent être résolus. Quant aux conditions personnelles/émotionnelles en vous, nous vous avons demandé de les amener à la surface de votre conscience, de dire une prière et d'avoir la plus grande foi qu'elles seront remises à Dieu. La condition humaine a tendance à s'accrocher à ces traumatismes émotionnels, à ces sentiments qui ne sont pas de l'Amour, mais de la souffrance et de la douleur. Et parfois, certains font une fixation sur ces sentiments et y reviennent sans cesse, même si en vérité ils ont été expiés de l'âme. Mais le mental continue dans ses habitudes et ses schémas jusqu'à ce qu'il soit important pour vous de reconnaître que vous devez changer ces habitudes et schémas en vous et résoudre ces choses dans vos pensées. Car vous recevez de nombreuses bénédictions, le pouvoir de l'amour de Dieu à l'intérieur et cela élimine effectivement ces conditions tant que vous êtes disposés et désireux de le faire. Cela peut arriver.
 
@@ -36,4 +36,3 @@ Cherchez les bénédictions de Dieu. Mettez de côté vos soucis et vos préoccu
 Puissiez-vous continuer à prier ensemble, faire ces efforts dans vos routines, dans vos interactions, dans vos prières quotidiennes. Et comme de vieilles peaux, elles vont se détacher de vous, ces conditions, elles vont être éliminées. Vous vous développerez et grandirez et vous vous sentirez rafraîchis dans cette nouvelle façon d'être.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je vous aime et je prie pour votre guérison, comme le font de nombreux anges. Que vous puissiez être élevés vers un lieu de joie, libérés de toute condition qui n'est pas de l'Amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde a besoin de plus de gens comme vous
 
-Alec Gaunt - reçu par Al Fike le 26 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 26 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre ami Alec. Oui, je n'ai pas parlé depuis un certain temps. Cela ne veut pas dire que j'ai été absent. J'ai été avec vous, très souvent, observant vos efforts, vos discussions, vos tentatives d'être en plus grande harmonie et de vous préparer à la Voix Directe.
 
@@ -24,4 +24,3 @@ Lorsque vous avez l'impression de ne pas être productif, que peu de choses se p
 Pourtant, alors que vous continuez à grandir dans votre amour et votre foi, je vous encourage à mettre de côté vos doutes, vos auto-récriminations, vos sentiments d'indignité et toutes ces conditions humaines qui assaillent l'humanité, et à être dans le monde mais pas du monde. Car vous êtes de quelque chose d'autre qui grandit en vous, la transformation de votre être de mortel à angélique. Il s'agit d'une magnifique étape de l'évolution qui commence par votre âme et qui remplit et influence chaque partie de votre être. N'est-il pas magnifique de voir comment les dons de Dieu se déploient dans ce merveilleux kaléidoscope, exprimant qui vous êtes dans de si beaux modèles, de si belles manières, exquises, délicates mais puissantes. Telles que vous êtes, âmes bien-aimées, de belles fleurs s'ouvrant un pétale à la fois, face au soleil de la grande Âme de Dieu. Une telle beauté, une telle beauté.
 
 Que Dieu vous bénisse, mes amis. Puissiez-vous continuer dans votre service, vos désirs, vos prières, votre vie spirituelle car le monde a besoin de plus comme vous, âmes bien-aimées, le monde a besoin de plus. Que Dieu vous bénisse. Je suis votre ami Alec, je vous aime et je suis avec vous. Que Dieu vous bénisse.
-

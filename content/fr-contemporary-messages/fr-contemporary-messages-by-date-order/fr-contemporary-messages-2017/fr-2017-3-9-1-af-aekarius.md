@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de l’astronomie et de l’astrologie est limité
 
-Aekarius - reçu par Al Fike le 9 Mars 2017, Gibsons, Colombie-Britannique, Canada
+Aekarius - reçu par Al Fike le 9 Mars 2017, Abbotsford, Colombie-Britannique, Canada.
 
 Je m’appelle Aekarius et je ne me suis jamais exprimé par le biais de cet instrument auparavant. Je suis un habitant du Royaume Céleste et je fus, autrefois, un astrologue et un astronome, il y a très longtemps, dans le royaume que vous décrivez comme la Phénicie.
 
@@ -28,6 +28,3 @@ Ainsi mes amis, ce vieil astrologue est arrivé à de nouvelles compréhensions 
 Ainsi, mes amis, vous voyez que la vraie connaissance vient étape par étape. Oui, vous pouvez commencer avec ces concepts rudimentaires de l’univers, mais je vous assure que vous ne vous arrêterez pas là. Car la Vérité Absolue ne viendra jamais du mental imprégné d’idées et de concepts issus du mental. La Vérité Absolue vient avec l’âme éveillée. Et vous, mes chers amis, vous êtes sur ce voyage, ce chemin qui mène à l’éveil, à la transformation et à l’union avec Dieu. Quelle chance vous avez, car si peu de gens prennent cette route si tôt dans leur existence, pourtant vous l’avez choisie et vous récolterez les fruits de vos efforts de bien des façons.
 
 Que Dieu vous bénisse. Je suis Aekarius et je suis très heureux de pouvoir vous parler en ce jour. Que Dieu vous bénisse, que Dieu vous bénisse.
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### Le voyage de l'éveil
 
-Augustin - reçu par Al Fike le 11 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 11 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
-Je suis votre enseignant Augustin. Que l'Amour du Père continue d'inonder vos âmes et de vous amener à l'expiation. Oui, j'ai participé à l'introduction de l'erreur dans ce monde. Je l'ai fait en croyant sincèrement que j'apporterais l'ordre, le bon sens et la vérité à l'humanité. C'était une période d'ouverture d'une nouvelle religion dans le monde. Beaucoup d'âmes recherchaient avidement nos avis et nos conseils. Et c'est ainsi que j'ai été emporté par ce grand fleuve de désir et d'empressement à établir  « la parole du Seigneur Jésus » dans ce monde. Vous avez entendu l'expression :  « la route de l'enfer est pavée de bonnes intentions. »
+Je suis votre enseignant Augustin. Que l'Amour du Père continue d'inonder vos âmes et de vous amener à l'expiation. Oui, j'ai participé à l'introduction de l'erreur dans ce monde. Je l'ai fait en croyant sincèrement que j'apporterais l'ordre, le bon sens et la vérité à l'humanité. C'était une période d'ouverture d'une nouvelle religion dans le monde. Beaucoup d'âmes recherchaient avidement nos avis et nos conseils. Et c'est ainsi que j'ai été emporté par ce grand fleuve de désir et d'empressement à établir  « la parole du Seigneur Jésus » dans ce monde. Vous avez entendu l'expression : *« la route de l'enfer est pavée de bonnes intentions. »*
 
 Bien que je n'aie pas atterri dans les enfers à la suite de mes efforts, j'ai été très surpris lorsque je suis passé pour ne pas être à la droite de Dieu, car j'ai dû désapprendre beaucoup, beaucoup de choses afin de faire évoluer mes perceptions vers la Vérité et apprendre à ne faire qu'un avec Dieu. Dieu le Créateur, et non le Dieu du Seigneur Jésus qui était une erreur. Ainsi, vous rencontrerez de très nombreuses âmes dans ce monde qui portent des erreurs dans leur esprit, mais qui cherchent sincèrement à être avec Dieu. Vous devez donc être tolérants et accepter les conditions imparfaites de ce monde. Non, rien n'est en ordre et précisément de la Vérité dans ce monde, rien. Vous devez donc comprendre que même vous, avec tout ce que vous avez reçu, vous ne connaissez pas entièrement la Vérité, et que vous ne marchez pas complètement dans la Vérité. Vous êtes encore humains. Vous continuez à héberger certaines des conditions humaines en vous, bien que chaque jour vous continuiez à vous rapprocher de Dieu, d'une plus grande harmonie et de la Vérité alors que Son Amour a son effet en vous.
 
@@ -32,7 +32,3 @@ Que Dieu continue à vous guider vers l'avant pour vous apporter ces cadeaux que
 Et ainsi vous continuez mes âmes bien-aimées sur ce voyage ensemble et vous désirez le don de la voix directe et vous désirez le don de l'Amour du Père. Vous aspirez à connaître la Vérité, à vous connaître vous-mêmes, à être éclairés dans vos âmes et vous êtes bien engagés dans ce voyage, mes âmes bien-aimées. Rappelez-vous d'avoir de l'humilité, de chercher tout ce que vous demandez à Dieu. Marchez sur ce chemin en sachant que chaque bon et beau cadeau, chaque expérience merveilleuse, chaque goutte d'amour, chaque touche de guérison, de grâce, de paix et de joie est un cadeau de Dieu. Ainsi, vous allez parcourir ce chemin de service à travers les nombreuses bénédictions données, la guidance, la protection et l'amour. La sagesse et la force, que Dieu vous donnera, mes bien-aimés, il en sera ainsi. Vous êtes Ses enfants et vous vous éveillez à cette Vérité. Puissiez-vous continuer à profiter de vos connaissances et des bénédictions données, et puissiez-vous continuer à être un canal de Son Amour dans le monde. Tout cela est un cadeau, un cadeau pour vous.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions individuelles
 
-Jésus - reçu par Al Fike le 7 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 7 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus et j'ai observé l'ouverture de vos âmes et le flot d'émotions qui vient avec la reconnaissance de là où vous avez besoin du Toucher et de la bénédiction du Père en vous. Ainsi, avec cette ouverture et ce désir de prière, Dieu vous a touché profondément, âmes bien-aimées. La puissance de Son Amour continue à fissurer l'armure de pensées. Vous commencez à vous réunir en harmonie, dans la paix et la joie. C'est le pouvoir de l'Amour de Dieu. C'est la bénédiction de l'Amour de Dieu. Pour chaque âme qui aspire à être touchée par Son grand amour merveilleux, il se déversera en vous, mes âmes bien-aimées, dans une abondance toujours plus grande à mesure que vous vous ouvrez, que vous venez à Dieu dans cette vulnérabilité et cette vérité. Vos âmes s'éveillent, mes bien-aimés. Vos âmes s'éveillent avec le toucher de Dieu. Ainsi, vous continuerez à ouvrir vos yeux et à connaître Sa Présence en vous et dans vos vies, mes bien-aimés.
 
@@ -34,8 +34,3 @@ Il y a beaucoup de travail à faire pour vous tous, mes âmes bien-aimées, beau
 Mon amour est avec vous mes bien-aimés frères et sœurs. Mes prières sont avec vous mes bien-aimés. Vous continuerez à être élevés. Vous continuerez à être guéris. Comme vous continuez à vous ouvrir au don de l'Amour du Père, beaucoup de choses vous seront révélées et beaucoup de cadeaux se déploieront à partir de vos efforts de prière, de foi et de confiance en Dieu. Tant de choses vous attendent, mes bien-aimés. Tant de choses vous attendent. Puissiez-vous continuer à faire confiance à ce qui se passe à l'intérieur de chacun d'entre vous et à ce qui vous arrive ensemble alors que vous cherchez à servir Dieu et à faire avancer ce don. Ainsi, il en sera. Ainsi, ce sera en accord avec votre foi, votre amour, votre lumière. Ainsi, il en sera ainsi.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et je suis votre ami. Je suis Jésus. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je continue à marcher avec vous, toujours. Toujours. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-
-
-

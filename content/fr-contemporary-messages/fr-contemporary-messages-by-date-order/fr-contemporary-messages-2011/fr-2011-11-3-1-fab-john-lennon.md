@@ -10,6 +10,7 @@ weight:
 ### Espoir d’un Beatle
 
 John Lennon <sup id="a1">[1](#f1)</sup> - reçu par FAB le 3 Novembre 2011, Santa Cruz, Californie, USA.
+
 C’est moi, John Lennon.
 
 Oui, c’est moi. Je ne suis certainement pas une icône ici. J’ai eu à me soumettre à ce que doivent endurer tous les esprits : les conséquences de mes mauvais choix et les péchés.

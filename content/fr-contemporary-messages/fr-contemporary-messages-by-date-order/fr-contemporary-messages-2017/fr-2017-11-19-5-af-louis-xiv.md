@@ -22,5 +22,3 @@ Je ne comprenais pas l'humanité lorsque je marchais sur cette terre. J'ai vécu
 Il y a tant de possibilités de ce don, mes amis, tant de portes ouvertes pour que la communication entre nous et vous soit claire, définitive et pleine de Vérité. Je serai donc à vos côtés, mes amis. Beaucoup sont mes côtés qui prieront pour vous dans l'espoir d'apporter la Vérité à l'humanité et dans l'espoir que beaucoup changeront leurs habitudes et chercheront à marcher dans la Lumière, à suivre cette règle d'or pour apporter plus de justice et d'harmonie à ce monde, l'égalité pour tous, assez pour que tous puissent vivre une vie voulue par Dieu.
 
 Que Dieu vous bénisse, mes amis. Merci de m'avoir écouté. Je reviendrai certainement au médium pour dire mes mots dans ma propre langue à mon propre peuple. Que Dieu vous bénisse, que Dieu vous bénisse. Je suis Louis XIV. Que Dieu vous bénisse.
-
-

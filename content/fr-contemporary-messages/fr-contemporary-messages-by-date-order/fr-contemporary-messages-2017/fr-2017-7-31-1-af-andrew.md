@@ -9,7 +9,7 @@ weight:
 ---
 ### La prière sincère est un désir de l'âme
 
-André - reçu par Al Fike le 31 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 31 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
 
 Engagez-vous dans la prière, mes bien-aimés. Passez du temps chaque jour en prière, pour être avec votre Père Céleste, pour être en vous-mêmes, votre âme, pour rechercher Son Amour, pour être dans Sa Présence. Vous voyez, cette pratique et cette habitude vont nourrir votre âme dans la Lumière. Faire ainsi chaque jour, s'engager dans cette pratique de la prière assurera que Dieu aura Sa Main sur vous, âmes bien-aimées, assurera que vous construisez une Lumière en vous, assurera une mesure d'harmonie, de paix et de joie.
 
@@ -19,9 +19,6 @@ Alors, âmes bien-aimées, dites vos prières avec émotion, exprimez vos prièr
 
 Je sais, mes bien-aimés, que vous appréciez la compagnie des autres, que vous ressentez la joie de la communion. Vous vous réunissez, vous vous exprimez joyeusement les uns aux autres. Lorsque vous vous réunissez pour Dieu, vous devez vous concentrer sur le Père Céleste. Soyez avec Dieu dans votre cœur, aspirez à ce grand afflux, aspirez à être guidés, à être embrassés et réconfortés. Soyez dans cette grande rivière de Son Amour et tout coulera librement et abondamment, tout sera donné conformément à ce que vous désirez. Venez à connaître vos vrais désirs, âmes bien-aimées, venez à le savoir à partir de ce véritable endroit en vous, cet endroit où vous résidez vraiment dans votre âme et exprimez cela, exprimez cela, âmes bien-aimées. "Cherchez le Royaume et tout viendra à vous", cette vieille, vieille phrase de notre bien-aimé Maître Jésus - le Royaume de Dieu attend votre appel et est disponible à tout moment où vous exprimez votre désir, votre envie, votre prière sincère à Dieu.
 
-Le moment est venu, mes bien-aimés. Apprenez à connaître le désir qui est en vous, apprenez à connaître la réponse de Dieu lorsque vous recevez ses bénédictions. Soyez ensemble d'une seule voix, mes âmes bien-aimées, dans cette prière qui ne vient pas de la tête, mais de votre âme : "Père, ouvre mon âme à l'afflux de Ton Essence Divine, ouvre mon âme". Sentez-vous le désir en vous, mes bien-aimés ? Apprenez à le connaître, à l'exprimer. Ce désir est votre ami, ce désir est vraiment vous. Ne négligez jamais d'être conscients, d'honorer ce désir dans votre âme et Dieu sera toujours là, présent, aimant, déversant son amour en vous.
+Le moment est venu, mes bien-aimés. Apprenez à connaître le désir qui est en vous, apprenez à connaître la réponse de Dieu lorsque vous recevez ses bénédictions. Soyez ensemble d'une seule voix, mes âmes bien-aimées, dans cette prière qui ne vient pas de la tête, mais de votre âme : *« Père, ouvre mon âme à l'afflux de Ton Essence Divine, ouvre mon âme »*. Sentez-vous le désir en vous, mes bien-aimés ? Apprenez à le connaître, à l'exprimer. Ce désir est votre ami, ce désir est vraiment vous. Ne négligez jamais d'être conscients, d'honorer ce désir dans votre âme et Dieu sera toujours là, présent, aimant, déversant son amour en vous.
 
 Dieu vous bénisse, âmes bien-aimées, Dieu vous bénisse. Que cette Paix qui dépasse toute compréhension soit la vôtre, un cadeau pour vous, mes bien-aimés. Dieu vous bénisse.
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ###  Jésus parle de la Pentecôte
 
-Jésus - reçu par Al Fike le 11 Mai 2017, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 11 Mai 2017, Indio, Californie, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/pentecost-and-mission-1.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-pentecost-and-mission-1.jpg)
 
 Cher Dieu miséricordieux, que toutes vous bonnes bénédictions viennent vers ces sincères âmes dans ce monde, que toute la Lumière et le Confort et l’Amour soient Votre Cadeau pour elles. Car elles travaillent dur sur ce Chemin de recherche de la Vérité, cherchant à être un canal de Votre Amour pour les autres. Elles travaillent dur pour venir à te connaître et être avec Vous. Qu’elles soient bénies dans la plénitude et la richesse de Votre Promesse, qu’en temps voulu leurs âmes puissent être rachetées dans l’Amour, que leurs âmes puissent être refaites dans l’Amour et s’unir et se réconcilier avec Vous, Dieu bien-aimé.
 
@@ -32,7 +32,3 @@ Pouvez-vous venir à cet endroit, mes bien-aimés ? Êtes-vous prêt à avancer 
 C’est comme ce barrage de l’Amour, ces eaux vivantes, qui sont sur le point de céder et tous vous vous placez devant pour le retenir. Vous ressentez la capacité, la pression de ce grand réveil à venir, mais, au plus profond de votre cœur, beaucoup d’entre vous craignent que les effets de cette eau se précipitant sur vous en vous entraînant. Que perdrez-vous mes frères et sœurs, que perdrez-vous ? Vous gagnerez beaucoup plus que vous ne perdrez, alors que ce grand barrage de l’Amour cédera et vous portera en avant. Ce n’est pas destructif, mais curatif. Cela apportera des changements, il n’y a aucun doute à ce sujet. Que pouvez-vous retenir actuellement qui soit si précieux, si important que vous ne puissiez pas laisser aller et permettre à la puissante rivière de Dieu de vous entraîner où vous êtes censé aller, une vie qui est destinée à une âme éveillée ? Je vous parle très sincèrement, mes frères et sœurs, tous mes disciples. Je vous parle avec amour. Je vous parle parce que je continue de vouer chacun de vous à un Amour plus grand et à une plus grande compréhension, à marcher dans ce monde comme mes disciples, disciples de la Vérité, disciples de l’Amour.
 
 C’est une qualité de l’Amour Divin, mes bien aimés, c’est un défi. Il dit venez à l’harmonie, venez à Dieu. Rappelez-vous ceci, mes bien aimés, car chacun de vous doit venir à l’harmonie et chacun de vous est sur ce voyage vers Dieu. Je serai avec vous. Je vous conduirai et apporterai mon amour et ma lumière à chacun de vous alors que vous continuez à lutter et à relever ce défi et à surmonter ces obstacles et à apprendre à aimer dans ce monde si privé d’amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et vous savez combien je vous aime, mes bien-aimés. Je vous aime. Je vous aime tendrement. Que Dieu vous bénisse et vous garde dans Sa Lumière. Que Dieu vous bénisse.
-
-
-
-

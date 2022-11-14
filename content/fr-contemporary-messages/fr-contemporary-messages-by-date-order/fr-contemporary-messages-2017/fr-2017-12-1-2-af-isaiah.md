@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu apportera une nouvelle lumière dans ce monde
 
-Isaïe - reçu par Al Fike le 1 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Isaïe - reçu par Al Fike le 1 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Isaïe. Oui, mes frères, le monde est sur le point de changer car Dieu apporte l'élan du changement dans Ses bénédictions pour l'humanité et pour ce monde. Car la plupart de l'humanité est endormie. Elle sommeille dans ses illusions. Elle sommeille parce qu'elle ne peut pas voir au-delà du monde matériel. Les hommes, et les femmes, ne comprennent pas leur véritable nature. Ils ne voient pas qu'ils sont des enfants de Dieu. Ils ne peuvent pas reconnaître leur véritable moi, leur âme, car ils manquent de foi et de confiance en leur Créateur. Dieu a donc un plan pour réveiller l'humanité. Dieu va amener l'humanité à un endroit au-delà de son sommeil où elle doit se réveiller, car les conditions de ce monde qui arrivent vont la secouer et l'amener à un endroit où elle doit reconnaître qui elle est vraiment.
 
@@ -22,6 +22,3 @@ Ceux d'entre vous qui sont à l'avant-garde de ce grand changement seront proté
 Vous avez été réunis en ce moment dans un but précis. Vous continuez à renforcer les liens qui vous unissent. Vous avez reçu de grandes opportunités et de grandes bénédictions. Permettez à la Lumière de vous laver et de purifier votre être afin que vous puissiez vous élever dans la Lumière et permettre à l'émerveillement de votre âme d'être présent dans vos vies et dans votre conscience. Vous vous éveillez lentement, mes amis. Vous en arrivez à connaître votre vrai moi et vous en arrivez à voir honnêtement ces choses en vous qui ne sont pas de Dieu. Il en sera ainsi pour l'humanité, une sorte de compte-rendu, où l'honnêteté et la vérité, la perception et la conscience profondes viendront à chaque âme afin qu'elle puisse voir par elle-même l'imprudence de la volonté de l'homme et qu'elle se tourne vers la Volonté de Dieu. C'est votre défi, mes âmes bien-aimées, de vous faire face dans la Vérité, d'être assez fort pour laisser partir ces choses en vous qui ne sont pas en harmonie avec l'Amour. Car si vous devez être des leaders dans ce monde, alors vous devez en être un exemple. Il ne peut en être autrement. Chaque jour est un test et un défi, chaque moment est une occasion d'accroître votre lumière, de permettre à l'Amour de Dieu de vous remplir. Bien que vous puissiez être distraits par les conditions de ce monde et les demandes de ce monde, au sein de vos âmes vous arrivez à un endroit de plus grande harmonie et de plus grand Amour. Permettez à ceci d'être votre mantra : « Aimer, aimer, aimer ». Je suis un enfant de Dieu et je suis un canal d'Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse et vous garde près de Lui dans cette belle Lumière. Que Dieu vous bénisse.
-
-
-

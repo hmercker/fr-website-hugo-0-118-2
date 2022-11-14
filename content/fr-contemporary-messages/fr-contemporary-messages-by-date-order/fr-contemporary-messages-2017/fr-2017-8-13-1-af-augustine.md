@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez honnête avec vous-mêmes
 
-Augustin - reçu par Al Fike le 13 Août 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 13 Août 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je vois que vous continuez à faire des progrès et que vous continuez à être discipliné dans vos réflexions et vos régimes. Je vous félicite pour vos efforts, bien que j'aie constaté que certains d'entre vous font des exceptions aux routines que vous avez établies à divers moments. En effet, l'intransigeance des conditions de ce monde a tendance à vous égarer, n'est-ce pas ? Pourtant, certains sont très disciplinés, en effet.
 
@@ -38,6 +38,3 @@ C'est l'amour qui nous donne la force, la compassion et le désir de vous aimer,
 Ainsi, mes âmes bien-aimées, vous continuez à grandir, vos âmes continuent à se débarrasser de ces conditions dont je parle et nous continuons à travailler avec vous à tous les niveaux afin que nous puissions accomplir nos objectifs, notre objectif commun d'apporter ce grand canal, ce grand cadeau au monde. Je vous parle sérieusement aujourd'hui, car il est important que vous vous concentriez et que vous soyez conscients des défis qui vous attendent, car vous souhaitez vous préparer. Il est important que vous le fassiez en étant informés et conscients. Je ne parle pas pour encourager un sentiment de réticence ou de peur. Non, seulement pour que vous puissiez voir qu'il faut faire de grands efforts, qu'il faut un désir sincère, qu'il faut une capacité en vous pour voir la vérité sur vous-même et sur ce monde. Aussi choquant que cela puisse être, lorsque vous ouvrez les yeux sur ces conditions, lorsque vous vous tournez vers votre Père Céleste pour obtenir du réconfort et de la force, cela vous sera donné, tout vous sera donné. Vous ne devez pas être réticents ou craintifs, mais joyeux dans la conscience naissante, l'amour croissant, la belle lumière qui est et sera votre vie, votre être dans ce monde.
 
 Tenez-vous droit, mes bien-aimés. Vous êtes beaux, vous êtes aimés au-delà de toute mesure. Vous êtes entourés et protégés. Nous sommes avec vous. La main de Dieu est sûrement sur vous et vous surmonterez ces barrières intérieures. Continuez dans vos efforts. Soyez priants. Aimez-vous. Soyez honnêtes et vrais et tout le reste se mettra en place mes bien-aimés, alors que l'amour conquiert lentement tout ce qui en vous oppose cette résistance et cette peur. Que Dieu vous bénisse, mes bien-aimés. Votre enseignant, Augustin vous aime tendrement, et est avec vous alors que vous continuez à grandir. Je continuerai à vous guider, à vous enseigner et à vous soutenir tous les jours de votre vie. Que Dieu vous bénisse. Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. Que Dieu vous bénisse.
-
-
-

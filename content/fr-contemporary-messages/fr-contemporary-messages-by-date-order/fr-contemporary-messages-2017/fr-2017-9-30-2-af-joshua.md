@@ -9,7 +9,7 @@ weight:
 ---
 ### Réduire les différences avec amour
 
-Josué - reçu par Al Fike le 30 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Josué - reçu par Al Fike le 30 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse. Je m'appelle Josué. Je suis venu vous parler des différences dans le monde.
 
@@ -36,6 +36,3 @@ Chaque âme recherche cette Lumière, ce réconfort, cette Vérité ; bien que l
 Il s'agit de mettre de côté ces choses humaines et de vivre dans la réalité de Dieu et de Son précieux Amour. Ainsi, le salut de l'âme est ce qui attirera beaucoup de gens, car une âme qui est vraiment transformée par Dieu aura un impact puissant dans ce monde et bien que chacun d'entre vous soit sur ce chemin et s'éveille et se transforme progressivement, vous devez avoir la foi que ce qui est maintenant vivant en vous s'exprimera de belles manières et informera votre voyage.
 
 Je m'appelle Josué. Je suis un personnage Biblique et j'habite le Royaume Céleste. Je suis un ange de Dieu avec une âme rachetée. Je suis heureux d'être parmi vous, car je suis celui que votre groupe d'anges souhaite vous présenter. Je continuerai à être au service de vos efforts, de votre désir d'apporter la Vérité à l'humanité. Que Dieu vous bénisse, âmes bien aimées, que Dieu vous bénisse et vous garde dans sa Lumière. Mon Amour est avec vous. Que Dieu vous bénisse.
-
-
-
