@@ -9,7 +9,9 @@ weight:
 ---
 ### Fou de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 29 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
+Care Derby Walsh - reçu par Jimbeau Walsh le 29 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+
+
 
 
 
