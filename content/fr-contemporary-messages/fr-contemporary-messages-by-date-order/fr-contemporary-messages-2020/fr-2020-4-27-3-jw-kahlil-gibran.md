@@ -9,7 +9,9 @@ weight:
 ---
 ### Le cœur spirituel reçoit sa vie de la prière 
 
-Kahlil Gibran - reçu par Jimbeau Walsh le 27 Avril 2020, Punalu’u, Oahu, Hawaii, USA.
+Kahlil Gibran - reçu par Jimbeau Walsh le 27 Avril 2020, Punalu’u, Oahu, Hawaii, USA
+
+
 
 
 

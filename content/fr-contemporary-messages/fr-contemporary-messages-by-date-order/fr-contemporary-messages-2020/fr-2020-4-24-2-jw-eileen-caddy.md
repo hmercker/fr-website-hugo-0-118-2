@@ -9,7 +9,9 @@ weight:
 ---
 ### Là où votre cœur est là, là est aussi votre trésor
 
-Eileen Caddy - reçu par Jimbeau Walsh le 24 Avril 2020, Punalu’u, Oahu, Hawaii, USA.
+Eileen Caddy - reçu par Jimbeau Walsh le 24 Avril 2020, Punalu’u, Oahu, Hawaii, USA
+
+
 
 
 
