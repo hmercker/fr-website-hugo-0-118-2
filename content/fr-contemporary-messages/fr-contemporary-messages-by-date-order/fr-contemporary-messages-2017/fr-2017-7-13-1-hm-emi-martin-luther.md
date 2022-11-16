@@ -9,7 +9,7 @@ weight:
 ---
 ### Courage
 
-Emi et Martin Luther - reçu par Helge Mercker le 13 Juillet 2017, Elim, Namibie
+Emi et Martin Luther - reçu par Helge Mercker le 13 Juillet 2017, Elim, Namibie.
 
 C'est l'Amour du Père qui t'apporte la joie, qui t'apporte les compréhensions, qui te guidera. C'est l'Amour de notre Père Céleste, l'Amour Divin dans ton âme, qui rayonne sur tout et tous ceux qui t'entourent. Continue à prier pour cet Amour - c'est l'essence vivante. Cet Amour rayonne brillamment en toi, ma chère fille et âme-sœur bien-aimée. Tu es profondément aimée et continue tes efforts. Continue, ma chère, continue.
 
@@ -21,9 +21,7 @@ La gestion des tâches quotidiennes ne doit pas être précipitée, elles ne doi
 
 Mon cher enfant, mon doux enfant, je t'aime de tout mon cœur. Sache que tu es en bonne compagnie, que beaucoup d'entre nous sont avec toi, te guident et partagent tes jours et tes nuits. Profite de l'Amour de Dieu. Profite de la paix. Il y a tant de choses à apprécier. Profite de la vie. Je t'aime, mon enfant, je t'aime, que Dieu te bénisse.
 
-C'est ta grand-mère bien-aimée,
-
-Emi.
+C'est ta grand-mère bien-aimée, Emi.
 
 **Je suis là, moi aussi, c'est Luther.** Oui, ta grand-mère est très proche de toi, et je suis heureux qu'elle soit toujours avec toi, et chaque fois que tu veux avoir de la compagnie, pense simplement à elle, à moi, à Jacques, à tous ceux qui t'accompagnent, car nous sommes très proches. Oui, il y a beaucoup de leçons à apprendre, ma chère, et il y a beaucoup de choses que je voudrais t'enseigner pour le développement de la Voix Directe en particulier, et aussi d'autres manifestations dans ce monde. Comme tu le sais - beaucoup de choses attendent, beaucoup de choses sont en attente - et beaucoup de changements vont se produire et ils se produisent rapidement. Je veux donc que tu sois ancrée et préparée à ces temps.
 
@@ -40,6 +38,3 @@ Je suis à tes côtés et je marche avec toi. Et beaucoup d'autres aussi. Alors 
 Mon amour, je suis avec toi. Je te guide. Je t'aime et je veux partager tant de choses avec toi. Beaucoup de choses nous attendent - toi et moi, et tous ceux qui s'engagent dans le projet de Voix Directe. Mais ce n'est pas tout - nous sommes engagés dans une tâche bien plus grande, bien plus grande - il est difficile de s'en rendre compte à ce stade - et ce n'est pas grave. Continuez simplement à avancer. Des petits pas. Très bien.
 
 Maintenant, passe une bonne journée, profite et sois dans le flux de l'Amour de Dieu. Tends la main, souris, embrasse. Je t'aime. Je suis Martin Luther.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Sur l'expiation de l'âme et le sentiment d'Amour Divin
 
-Seretta Kem - reçu par Al Fike le 12 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 12 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Vous avez eu une conversation intéressante concernant les conditions de vos âmes et comment vos âmes peuvent être améliorées par la guérison de ces conditions qui ne sont pas en harmonie avec l'Amour et la Lumière du Père à l'intérieur.
 
@@ -21,7 +21,7 @@ Dans ces parties de l'âme qui provoquent un blocage et une résistance à l'aff
 
 Idéalement, vous devez travailler à la condition du mental et de l'âme qui sont hautement réceptifs et sensibles à cette expérience, de sorte que toutes les parties de vous aspirent à ce don et ressentent un grand sentiment de satisfaction, un sentiment de joie et de reconnaissance lorsque l'Amour coule dans vos âmes. Et avec cette condition de renforcement de l'Amour et de la joie vient encore plus d'Amour et de joie. L'élan se construit et toutes les conditions autour de l'âme, toute erreur de la pensée commence à se désintégrer. Elles tombent avec le pouvoir de cet Amour, le pouvoir de cette expérience, construisant une sorte de foi, de compréhension et de conscience qui est inébranlable. Votre relation avec Dieu devient alors votre réalité, plutôt que toutes les fausses constructions de l'esprit et toutes les conditions de l'âme qui se sont accumulées dans une vie et une expérience dans le monde qui n'est pas de Dieu.
 
-C'est ainsi que nous parlons de fissures dans l'armure de l'âme, car ces incrustations sont comme une armure qui protège l'âme et la ferme à Dieu. Pourtant, Dieu peut trouver un chemin à travers cette condition apparemment impénétrable des incrustations. Il y a toujours un moyen, il y a toujours une route vers l'âme, que Dieu, par son Esprit Saint, trouvera. L'erreur qui enseigne que toute incrustation doit être libérée afin de recevoir ce don n'est pas vraie.<sup id=”a1”>[1](#f1)</sup> Mais pour les individus qui, d'une certaine manière, ont trouvé une racine où les désirs de l'âme sont reconnus et mis en œuvre dans la prière, alors le processus peut commencer. La Lumière trouve son chemin en imprégnant l'âme d'Amour.
+C'est ainsi que nous parlons de fissures dans l'armure de l'âme, car ces incrustations sont comme une armure qui protège l'âme et la ferme à Dieu. Pourtant, Dieu peut trouver un chemin à travers cette condition apparemment impénétrable des incrustations. Il y a toujours un moyen, il y a toujours une route vers l'âme, que Dieu, par son Esprit Saint, trouvera. L'erreur qui enseigne que toute incrustation doit être libérée afin de recevoir ce don n'est pas vraie <sup id=”a1”>[1](#f1)</sup>. Mais pour les individus qui, d'une certaine manière, ont trouvé une racine où les désirs de l'âme sont reconnus et mis en œuvre dans la prière, alors le processus peut commencer. La Lumière trouve son chemin en imprégnant l'âme d'Amour.
 
 Pour certains, cette expérience peut ne pas venir jusqu'à ce qu'ils aient neutralisé les conditions de leur âme à un degré tel qu'ils sont plus facilement sensibles à cette expérience, et pour beaucoup, lorsqu'ils commencent leur voyage sur ce monde et dans le monde de l'esprit, beaucoup de temps peut s'écouler avant qu'ils ne soient capables de recevoir ce don d'Amour, de sentir ses effets, d'être sensibilisés et de reconnaître ce don. Car leurs énergies vont ailleurs, leurs énergies vont vers la perfection de leur esprit et suivent ce que vous connaissez comme étant le chemin naturel. Pourtant, le long de cette route, chaque âme reçoit de nombreuses occasions de reconnaître le don de l'Amour Divin de Dieu. Bien qu'elles puissent choisir de ne pas reconnaître ou d'exploiter cette opportunité, Dieu ne les laisse pas complètement livrées à elles-mêmes.
 
@@ -40,9 +40,4 @@ Vous avez beaucoup à partager et vous le ferez, vous aurez l'opportunité de pa
 Que Dieu vous bénisse, mes amis. Je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Cette croyance est malheureusement assez répandue et pratiquée par des gens à qui l'on a enseigné qu'ils doivent personnellement libérer chaque  « émotion » négative ou erreur afin de commencer ce processus de réception de l'Amour Divin. Comme nous le verrons dans ce message, c'est tout simplement faux. Mais ce qui est vrai, c'est que l'identification et la libération peuvent accélérer la guérison. Et que ceux qui choisissent de s'accrocher aux erreurs ralentiront leur progression.[↩](#a1)
-
-
-
-
-
+1. <large id=”f1”> Cette croyance est malheureusement assez répandue et pratiquée par des gens à qui l'on a enseigné qu'ils doivent personnellement libérer chaque « émotion » négative ou erreur afin de commencer ce processus de réception de l'Amour Divin. Comme nous le verrons dans ce message, c'est tout simplement faux. Mais ce qui est vrai, c'est que l'identification et la libération peuvent accélérer la guérison. Et que ceux qui choisissent de s'accrocher aux erreurs ralentiront leur progression.[↩](#a1)

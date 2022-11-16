@@ -9,7 +9,7 @@ weight:
 ---
 ### Comprendre les lois de l'amour et la régénération de nos âmes
 
-Martin Luther - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Martin Luther. J'ai écouté votre conversation de ce soir. Je vois que vous êtes arrivé à un endroit où vous voyez qu'il y a des limitations et que Dieu a placé certaines règles en ce qui concerne l'existence de chaque âme.
 
@@ -36,6 +36,3 @@ Ainsi, mes belles âmes, puissiez-vous en venir à connaître toutes les règles
 Vous continuez à grandir dans l'Amour, à ouvrir vos facultés de l'âme afin que vous puissiez vraiment voir toutes ces choses dans toute leur gloire. Nous continuerons à vous aider à voir que vous pouvez en effet faire ces choix qui sont en harmonie avec Dieu et être dans le flux de Son Amour et de Sa Volonté pour vous. Vous comprendrez avec une telle profondeur et rien ne sera un mystère ou ne sera confus. Mais tout se réunira dans l'harmonie et l'Amour. C'est ce qui est destiné à chaque âme, de connaître la Vérité, de comprendre la merveille de la vie, et la merveille de Dieu et la merveille de votre propre être.
 
 Tant de choses attendent votre réveil et votre compréhension. Cela va se poursuivre, alors que Dieu vous nourrit avec amour de bouchées de Vérité, de bouchées de Lumière. Toute cette beauté et cette conscience viendront avec le temps. Puissiez-vous continuer à prier pour cet Amour qui alimente l'éveil de votre âme. Vous trouverez en effet les réponses que vous cherchez, la conscience que vous désirez au sein de votre âme, l'Amour que vous désirez de votre Père Céleste. Tout vous sera donné alors que vous poursuivez ce voyage. Que Dieu vous bénisse puissamment, âmes bien-aimées, et vous porte sur ce voyage dans l'Amour. Que Dieu vous bénisse. Je suis Martin Luther. Je t'aime. J'aime tous mes frères et sœurs. Que Dieu vous bénisse.
-
-
-

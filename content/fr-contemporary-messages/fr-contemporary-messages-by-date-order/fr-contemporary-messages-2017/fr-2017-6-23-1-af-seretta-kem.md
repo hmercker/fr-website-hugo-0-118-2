@@ -56,6 +56,3 @@ Beaucoup de choses reposent sur vous, mes bien-aimés. Ne vous inquiétez pas et
 Je dois répéter que tout dépend de vos choix quotidiens, de ce que vous êtes prêts à donner pour l’harmonie, de la façon dont vous êtes prêts à vivre en harmonie et de ce que vous êtes prêts à abandonner au nom de la Vérité et de la reconnaissance de l’Amour. C’est votre choix, mes bien-aimés, cela ne peut être que votre choix. Mais je vous le dis, vos âmes ont déjà choisi. Il est temps pour vos esprits d’accepter les grands désirs de votre âme. Dans cette reconnaissance joyeuse, tout le reste coulera et s’harmonisera. Dieu vous guidera ainsi et nous vous aimons et vous soutenons dans ce voyage d’éveil et de reconnaissance de la Vérité.
 
 Dieu vous bénisse, mes bien-aimés, je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
-
-
-

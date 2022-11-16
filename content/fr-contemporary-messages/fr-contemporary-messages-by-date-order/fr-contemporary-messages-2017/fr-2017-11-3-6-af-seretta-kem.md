@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos âmes chantent à la lumière de l'amour de Dieu
 
-Seretta Kem - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées. Je veux vous donner des instructions car nous entrons dans une nouvelle phase de notre développement ensemble. Et il est important que nous discutions de ces questions. Je souhaite expliquer ce qui se passe dans ce cercle, alors que vous entrez dans ce lieu de développement et d'ouverture à ce don de la voix directe. Vous avez fait beaucoup de progrès, âmes bien-aimées. Un grand progrès pour apporter l'harmonie entre vous et en vous. C'était votre objectif depuis plusieurs jours et vous l'avez accompli très facilement. Et je souhaite vous féliciter pour cet accomplissement.
 
@@ -28,6 +28,3 @@ Mais nous voyons maintenant que vous êtes pleinement engagés, que vos âmes ch
 Tant de choses vont commencer à se produire dans ce petit cercle. Vous êtes arrivés à l'endroit où nous commençons. Commencez sérieusement. Commencez avec un sentiment d'anticipation et de joie de pouvoir vraiment accomplir cette tâche et d'entrer dans le flux de la Volonté de Dieu pour vous et de Son Amour pour vous. Cette destinée qui attend chacun d'entre nous.
 
 Que Dieu vous bénisse. Je suis Seretta Kem. Je m'excuse d'interférer avec votre temps de silence, mais cet instrument est plus efficace à cette heure que le soir, il nous est donc plus facile de parler. Nous profitons de ce temps et je vous remercie de votre écoute. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

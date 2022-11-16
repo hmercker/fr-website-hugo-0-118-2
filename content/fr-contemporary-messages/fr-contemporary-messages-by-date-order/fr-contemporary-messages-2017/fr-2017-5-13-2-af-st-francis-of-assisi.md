@@ -9,7 +9,7 @@ weight:
 ---
 ### Le beau jardin de l’Amour de Dieu
 
-St François d'Assise - reçu par Al Fike le 13 Mai 2017, Gibsons, Colombie-Britannique, Canada
+St François d'Assise - reçu par Al Fike le 13 Mai 2017, Centre de réalisation de soi, Encinitas, Californie, USA.
 
 Oui, je me promène souvent dans le jardin de mon frère, car c’est aussi proche du Ciel que nous pouvons l’être, mes bien-aimés. Cette belle condition d’Amour, l’harmonie qui existe ici, chaque âme qui vient dans ce jardin est affectée, touchée par cette beauté et cette harmonie. Dans cette condition, nous pouvons travailler et apporter une bénédiction à chaque âme.
 
@@ -20,6 +20,3 @@ Bénédictions pour vous, bénédictions pour nous tous qui marchons dans ce jar
 Dieu vous bénisse, Dieu vous bénisse.
 
 Saint François.
-
-
-

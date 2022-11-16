@@ -29,7 +29,7 @@ St Luc | [Se lier d’amitié avec son âme](/fr-contemporary-messages/fr-contem
 Confucius | [S’abreuver de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-8-1-af-confucius/) | 8 Mars 2017
 Aekarius | [Le pouvoir de l’astronomie et de l’astrologie est limité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-9-1-af-aekarius/) | 9 Mars 2017
 Ingénieur céleste Isaac | [L’ingénierie et le passé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-14-1-gmb-celestial-engineer-isaac/) | 14 Mars 2017
-Jésus | [Worship](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-14-2-jg-jesus/) | 14 Mars 2017
+Jésus | [Culte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-14-2-jg-jesus/) | 14 Mars 2017
 Jésus | [La dévotion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-14-3-jg-jesus/) | 14 Mars 2017
 Jésus | [La dévotion (2ème partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-26-1-jg-jesus/) | 26 Mars 2017
 Jacques | [Libérer la volonté propre et embrasser la volonté parfaite de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-27-1-af-james/) | 27 Mars 2017

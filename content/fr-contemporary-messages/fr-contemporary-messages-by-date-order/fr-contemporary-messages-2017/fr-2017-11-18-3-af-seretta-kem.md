@@ -9,7 +9,7 @@ weight:
 ---
 ### Un rapport sur nos progrès
 
-Seretta Kem - reçu par Al Fike le 18 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 18 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, c'est moi, Seretta Kem. Oui, vous avez effectivement fait des progrès. Vous avez constamment progressé vers le haut de l'échelle de la Lumière. En effet, vous êtes maintenant à ce qui serait l'équivalent de la cinquième sphère dans vos prières et les conditions dans la chambre noire. Je dois vous féliciter pour ces efforts, car c'est un niveau difficile à atteindre. Pourtant, vous avez, avec nos efforts et notre collaboration, atteint un objectif important. Cela nous apporte une grande joie de savoir que vous avez effectivement répondu à une demande de notre part de faire les efforts nécessaires pour être à ce niveau de Lumière, d'Amour et d'harmonie lorsque vous priez ensemble dans la chambre noire.
 
@@ -34,6 +34,3 @@ Ne prenez donc pas la situation dans laquelle vous vous trouvez en ce moment ave
 Votre âme grandit, mes amis. Vous êtes plus proches de Dieu. Vous êtes en train de ressentir Sa Grâce d'une manière consciente et tangible. Permettez à ce sentiment de réchauffer chaque partie de votre être, de vous élever constamment pour vous amener à une conscience plus profonde, pour amener la conscience de Dieu pleinement dans vos vies. C'est l'éveil, mes amis, l'éveil de vos âmes. Au fur et à mesure que vous gravissez cette échelle de Lumière, le réveil se lève en vous, confirmant et multipliant les efforts que vous avez faits pour être dans cette Grâce. Dieu vous touche profondément, mes amis, son Amour toujours disponible pour vous. Recherchez ce don par-dessus tout. Laissez cet Amour continuer à vous transformer jusqu'à vos cellules, chaque partie de vous est imprégnée de Son Amour. C'est ainsi que le don de la Voix Directe se manifestera avec autant de facilité et de réflexion que possible. Il continue à se déployer, mes amis. Vous continuez à tenir compte de l'appel et à faire ces efforts.
 
 Que Dieu vous bénisse, mes chères et belles âmes, mes amis. Puissions-nous continuer ensemble sur ce chemin. Je ressens une telle joie à voir vos lumières croître, à voir ce qui se manifeste parmi vous, à voir la puissance de la Main de Dieu sur vous. Vous continuez à prospérer dans la Lumière de Dieu. Que Dieu vous bénisse. Mon Amour est avec vous. Que Dieu vous bénisse. Je suis Seretta Kem. Je vous aime.
-
-
-

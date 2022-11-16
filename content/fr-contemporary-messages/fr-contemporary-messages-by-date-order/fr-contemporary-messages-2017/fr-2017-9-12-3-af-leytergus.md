@@ -9,7 +9,7 @@ weight:
 ---
 ### Les différences entre la Sixième Sphère et les Sphères Célestes
 
-Leytergus - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Leytergus - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis de retour. Je suis Leytergus. Vous avez demandé ma présence et je suis venu. Vous souhaitez connaître un peu de mon histoire. Oui, j'ai vécu dans ce que vous appelez le Moyen-Orient. J'étais arabe. J'ai aidé à fonder l'université de cette région et les débuts de telles études dans le monde. En effet, cette université était très différente de ce que vous reconnaissez comme une université de nos jours, mais les principes sont toujours là, le désir de rechercher la vérité, de discuter et de débattre de nos perceptions de la vérité et de la réalité de ce monde.
 
@@ -28,7 +28,3 @@ C'est dommage, je le sais, car une si grande joie, une conscience extatique et b
 Pourtant, j'ai connu les deux, les deux conditions, les deux réalités. Je dois dire que je ne regrette pas d'avoir suivi le chemin de l'Amour Divin et d'avoir cherché à être uni à Dieu de cette façon. Ce que j'ai glané en expérience, en vérité et en connaissance est bien plus grand que tout ce que j'ai vécu dans la sixième sphère. J'ai une joie tellement plus grande que mes compagnons esprits qui vivent dans l'amour naturel. J'ai une compréhension beaucoup plus profonde. Oui, j'ai une grande compassion pour tous les esprits et tous les peuples car cela vient avec l'Amour de Dieu. Nous ne nous sentons pas supérieurs aux autres. Ce n'est pas ainsi que nous pensons. Nous avons une connaissance et une compréhension qui nous permettent de ressentir un grand amour pour les autres, une véritable compréhension de l'âme et de Dieu. C'est la bénédiction qui vient avec l’Amour de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je reviendrai et je parlerai. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-
-

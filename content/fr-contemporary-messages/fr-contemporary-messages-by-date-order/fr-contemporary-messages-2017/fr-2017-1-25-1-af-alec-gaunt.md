@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment être avec Dieu ?
 
-Alec Gaunt - reçu par Al Fike le 25 Janvier 2017, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 25 Janvier 2017, FUSC <sup id=”a1”>[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada.
 
 Je suis Alec et je suis venu à cette église de nombreuses fois au cours des nombreuses années où j’ai eu une association ici. Je suis venu en chair et en os. Je suis venu en esprit. J’ai travaillé avec beaucoup d’entre vous qui êtes ici. Je viens pour servir Dieu dans l’amour, dans mon désir de vous soutenir dans votre développement spirituel.
 
@@ -25,4 +25,6 @@ Je vous invite donc, mes chers amis, à ouvrir vos âmes chaque fois que vous le
 Merci à tous d’être ici de cette façon, d’apporter la lumière à ce monde dans cette prière, et comment Dieu peut utiliser cette lumière de tant de façons afin que dans votre monde beaucoup en bénéficient. Continuez à le faire, mes amis bien-aimés, à vous réunir de cette manière aimante et à faire naître ce cercle de Lumière avec vous et parmi vous, alors qu’il s’écoule dans ce monde.
 
 Que Dieu vous bénisse. Je suis Alec et mes bénédictions et mon amour vous accompagnent, mes bien-aimés. Que Dieu vous bénisse.
+<small>
 
+1. <large id=”f1”> First United Spiritualist Church (Première Eglise Spirituelle Unie).[↩](#a1)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Acceptez chaque âme unique, leurs différences ne vous feront pas de mal spirituellement
 
-Keea Atta Kem - reçu par Al Fike le 16 Janvier 2017, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 16 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
 
 Merci d’être venus, car vous avez été appelés. Et votre discussion de la matinée fut, en effet, très bonne, par le partage de vos préoccupations , de vos perceptions, de vos idées et de vos aspirations. C’est bien. Il est bon de révéler vos pensées et vos idées intérieures, de faire ressortir ce qui couve en vous et dans votre âme.
 
@@ -32,6 +32,3 @@ Réjouissez-vous d’être un enfant de Dieu et plutôt que d’être immergé d
 Chaque âme suit son chemin vers Dieu. Il leur est donné la bénédiction du libre arbitre, la liberté de choisir et l’opportunité de reconnaître ces choix, mes bien-aimés. Et alors que vous parcourez votre chemin, en brillant dans la vérité de l’Amour de Dieu, vous offrez à ceux que vous rencontrez l’opportunité de voir cette vérité se manifester en vous, dans votre belle âme. Et c’est ce que vous devez faire dans vos vies pour être cet exemple, cette vérité, cette reconnaissance joyeuse que Dieu est en effet Amour. Vous portez cet Amour en vous et que d’autres choisissent d’adopter cette vérité, de vivre cette vérité, ce n’est pas à vous de vous en préoccuper. C’est à vous de vivre cette vérité, de marcher dans cette vérité et d’exprimer cette vérité du mieux que vous pouvez. Qu’elle puisse briller à travers toutes les merveilleuses facettes de votre être dans votre vie. Et de cette belle façon, d’autres seront attirés et vous serez en mesure, en tant que canaux d’Amour de Dieu, de toucher de nombreuses âmes.
 
 Vous n’avez pas besoin de s’inquiéter des différences de ceux que vous rencontrez. Soyez acceptant et aimant. Vos pieds sont fermement plantés sur le Chemin Divin, marchant joyeusement vers Dieu, acceptant que votre chemin soit votre voyage unique et que les autres fassent l’expérience de leur voyage sur la route de leur vie. Soyez satisfaits de cela, mes bien-aimés, permettez que cela soit, car cela est vraiment aimant. Âmes bien-aimées, je suis Keea. Je vous aime. Je vous bénis.
-
-
-

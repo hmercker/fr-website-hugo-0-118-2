@@ -9,7 +9,7 @@ weight:
 ---
 ### Les préparatifs de l'esprit se poursuivent
 
-Seretta Kem - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Nous continuons à vous préparer, chacun, même ceux qui sont en voyage. Nous continuons à travailler avec vous et à vous encourager à amener les conditions de votre âme à un endroit plus élevé, à un niveau plus élevé. Alors que vous continuez à prier pour l'Amour du Père, le Père déverse Son amour en vous et vous assiste dans vos efforts pour éliminer les obstacles et les conditions qui peuvent entraver vos efforts pour la Voix Directe.
 
@@ -34,4 +34,3 @@ Car, mes âmes bien-aimées, le temps est vraiment venu pour vous d'avancer dans
 Cela vient à vous, âmes bien-aimées. Dieu continue de déverser Son Amour sur vous, de vous élever et de vous amener à ce lieu d'éveil. C'est ainsi que cela viendra et que vous émergerez lorsque votre âme viendra pleinement à la vie. Quelle merveille ce sera, quels dons émergeront, et une telle beauté sera exprimée. Le pouvoir de l'Amour de Dieu, Son Essence change tout, la beauté de cette transformation, l'émerveillement d'une âme rachetée et la joie qui vient avec cet éveil. Tant de choses vous attendent, mes bien-aimés, tant de choses que Dieu vous donne tout et que vous n'avez besoin de rien d'autre que de votre relation avec Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je continue à vous servir et à vous assister en cette période de transformation. Je vous aime, chacun d'entre vous, chacun d'entre vous est une lumière précieuse. Je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
-

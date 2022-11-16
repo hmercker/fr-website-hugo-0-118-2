@@ -9,7 +9,7 @@ weight:
 ---
 ### Les guides alloués prennent la parole
 
-Keea Atta Kem, St Matthieu, Lotus Blossom, Thomas d'Aquin & Martha - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem, St Matthieu, Lotus Blossom, Thomas d'Aquin & Martha - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 **C'est Keea Atta Kem.** Mon cœur se remplit de joie et d'amour pour vous, âmes bien-aimées, toutes précieuses, belles et précieuses âmes. Nous sommes reconnaissants que vous ayez entendu l'appel et que vous souhaitiez servir de cette manière. Puissiez-vous continuer à être édifiées et à être en harmonie afin de servir joyeusement, afin que vos yeux soient ouverts, que vos âmes se délectent de la Lumière de l'Amour du Père, que vous voyagiez vers des endroits où vous n'êtes jamais allées, vers des expériences nouvelles, édifiantes et belles, alors que vous en venez à connaître véritablement vos propres âmes et ce qui est possible avec l'Amour.
 
@@ -32,7 +32,3 @@ Nous devons tous travailler dur, mes amis, être diligents, nous efforcer d'atte
 Et enfin, mais non des moindres, **je suis Martha.** C'est un honneur et un privilège de faire partie de ce cercle. Comme j'ai vécu dans ce monde il n'y a pas si longtemps, cela me donne une certaine perspective et une compréhension des défis auxquels vous êtes confrontés. Je suis ici pour vous encourager à voir de manière claire et pratique comment vous pouvez exprimer vos dons dans le monde. Je guiderai chacun d'entre vous, donnant ce que j'ai de connaissance et de sagesse, cherchant à vous aider à dissiper tout doute, toute erreur et toute barrière. Car je vous comprends si bien, mes amis. Je comprends les défis que vous devez relever dans cette vie.
 
 Je suis ici pour vous aider, pour vous élever, pour permettre à ce qui vous retient d'être libéré, car j'ai le don de guérison que l'Amour de Dieu a allumé en moi. Ma compréhension compatissante vous sera bénéfique à tous, j'en suis sûre. Pensez à moi comme votre gentille grand-mère et faites appel à moi lorsque vous aurez besoin d'être réconfortés. Faites appel à moi lorsque vous êtes confus. Faites appel à moi lorsque vous avez besoin de quelqu'un pour vous aider à vous rapprocher de Dieu. Je prierai avec vous. Je serai avec vous comme un consolateur et un instrument de la volonté de Dieu. Car chacun d'entre nous qui s'est consacré à ce cercle est ici pour vous aider tous, pour servir à apporter le succès à vos entreprises. Que Dieu vous bénisse, mes bien-aimés. Que Son Amour trouve toujours un chemin dans vos âmes en apportant constamment une plus grande Lumière en vous, un bel Amour, de belles qualités, une belle Lumière. Que Dieu vous bénisse, mes bien-aimés. Je suis Martha. Je suis si heureuse d'être avec vous de cette façon. Je t'aime.
-
-
-
-

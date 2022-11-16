@@ -9,7 +9,7 @@ weight:
 ---
 ### La naissance de la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Seretta Kem. En effet, nous sommes proches d'atteindre le don de la voix directe parmi vous. Un cadeau que vous désirez ardemment, un cadeau que nous avons le désir de vous aider à obtenir et un cadeau que Dieu souhaite vous donner, âmes bien-aimées.
 
@@ -34,6 +34,3 @@ Le cadeau que vous portez apportera un profond réconfort à beaucoup et une cer
 Nous continuons à vous encourager à prier pour l'Amour du Père, à le faire avec ferveur, à amener la prière si pleinement dans vos vies qu'elle devienne une expression de la prière et ainsi le Père vous utilisera de nombreuses façons, vous emmènera dans de nombreux voyages, apportera la puissance de nombreux dons pour toucher l'humanité. Vous êtes sur le point de faire un voyage merveilleux, mes bien-aimés. Avancez dans la foi, libérez tout ce qui peut retenir l'Amour, ouvrez vos nouveaux yeux et soyez avec Dieu d'une manière dont vous n'avez pas été capables dans le passé mais dont vous êtes pleinement capables maintenant. Vous avez reçu de nombreuses bénédictions, mes bien-aimés. Dieu a déversé ses bénédictions sur vous. Il a envoyé ses anges puissants pour vous toucher, pour vous réveiller. Et ainsi un nouveau monde s'ouvre, de nouvelles perceptions, de nouveaux lieux en vous afin que vous puissiez avancer sur un chemin qui est éclairé, non seulement par Dieu mais par vos propres âmes en harmonie, en harmonie avec Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je me tiens devant vous dans un profond Amour et une profonde reconnaissance pour chacun, chacune de mes charges qui ont porté la lanterne et pris l'engagement et l'ont fait avec foi et confiance, comprenant que tout doit être fait dans l'Amour, avec l'Amour du Père. Je vous aime profondément, mes beaux, beaux amis. Je continuerai à marcher avec vous car ce cadeau, presque formé, aura besoin des administrations des anges pour garder ce nouveau-né vivant et capable de grandir. Nous le faisons tous ensemble, n'est-ce pas ? Envoyer nos soins et notre amour les plus tendres, notre appréciation et notre gratitude profondes pour les cadeaux que Dieu a donnés. Puissions-nous continuer, âmes bien-aimées. Que la volonté de Dieu soit faite sur la terre comme au ciel. Que Dieu vous bénisse, mes bien-aimés. Le monde commence à s'ouvrir, vu avec des yeux neufs, connu par des âmes sages, aimé par cette flamme brûlante en vous et tout sera bien, tout sera beau, tout sera en harmonie. Que Dieu vous bénisse. Dieu vous bénisse mes bien-aimés.
-
-
-

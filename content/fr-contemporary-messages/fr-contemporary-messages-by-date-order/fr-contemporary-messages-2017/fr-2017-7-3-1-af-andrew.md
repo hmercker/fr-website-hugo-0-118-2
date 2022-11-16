@@ -9,7 +9,7 @@ weight:
 ---
 ### Croissance de l'âme
 
-André - reçu par Al Fike le 3 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 3 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
 
 Il est si bon de vous voir, âmes bien-aimées réunies, dans la Lumière de l'Amour de Dieu, dans la lumière de vos liens et de votre amitié ensemble, cette fraternité d'Amour. Alors que vous vous réunissez et dans vos prières, vous créez ce puits d'Amour et de Lumière où vous pouvez être rafraîchis et bénis dans vos prières communes, alors que vous venez donner de l'amour les uns aux autres, reconnaître, être un canal d'Amour dans ce monde et dans votre monde.
 
@@ -30,6 +30,3 @@ Oui, vous en êtes arrivés là, mes bien-aimés, à cet endroit où vous devez 
 Non, mes bien-aimés, vous parviendrez à vous connaître véritablement et à mettre votre vie en véritable harmonie. Votre capacité à aimer, à vivre votre vie en harmonie, sera réalisée dans ce flux, ce voyage vers Dieu. Nous, en esprit, nous vous regardons avec joie, vous, les belles âmes qui êtes venues jusqu'ici, qui êtes fortes, qui avez de belles lumières, qui connaissez, vraiment, l'Amour de Dieu et qui êtes sur le point de vous éveiller. Chaque fleur en bouton est arrivée à cet endroit où elle s'ouvre et montre sa vraie et glorieuse beauté. Vous serez portées, âmes bien-aimées, nourries, protégées, et on vous montrera le chemin, comme toujours. Mais bientôt, vous verrez davantage les traces de vos pas. Les situations ne seront plus un mystère et vous aurez le sens du voyage et du service pour votre Père Céleste et pour toute l'humanité. Oui, un changement capital et un pas vers la Vérité sont en train de se produire pour chacun d'entre vous, alors que vous continuez à prier pour que l'Amour du Père réveille votre âme, ouvre vos yeux et apporte la Vérité à votre compréhension.
 
 Que Dieu vous bénisse, âmes bien-aimées, voyageurs intrépides sur le Chemin de l'Amour et de la Vérité. Nous sommes avec vous, toujours. La main de Dieu est sur vous, toujours. Vous continuerez à voyager vers l'avant dans la Lumière et vous resterez intacts. Vous serez renforcés, vous connaîtrez la paix et la joie. Vous embrasserez la Vérité. Vous connaîtrez, vous reconnaîtrez de votre âme et ce sera une grande joie pour vous et un réconfort lorsque vous vous réveillerez de votre sommeil. Que Dieu vous bénisse, mes bien-aimés. Je suis André et je vous accompagne dans vos voyages et je le ferai pour toute l'éternité car je suis votre vrai frère et ami et je vous aime. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les dons de la connaissance de la vérité de l'amour de Dieu
 
-Augustin - reçu par Al Fike le 25 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 25 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Le cadeau de l'Amour du Père est en grande abondance au milieu de vous par vos prières et vos désirs apportant cet Amour entre vous, et partageant ce désir de recevoir ce cadeau dans vos âmes. Vous devez voir, âmes bien-aimées, comme ce temps d'être ensemble dans l'Amour est précieux, pour prier ensemble, pour partager vos désirs sincères dans une communion d'amour avec Dieu. Car c'est dans ce désir sincère et sérieux que viennent de nombreuses bénédictions, la bénédiction de l'Essence du Père, la bénédiction de Sa guérison, la bénédiction de la paix qui dépasse toute compréhension et la bénédiction de la Lumière. Vous attirez parmi vous les anges du Royaume Céleste.
 
@@ -22,4 +22,3 @@ Telles sont les bénédictions de ceux qui marchent sur le chemin Divin et cherc
 Joignez-vous à cette sainte communion, à cette expérience profonde du toucher de Dieu et vous serez puissamment bénis en fonction de vos efforts et de vos désirs, de vos envies et de vos prières. Tous viendront avec ce don et aucun ne sera délaissé car Dieu donne à tous Ses enfants qu'Il aime tendrement. Il n'y a pas de jugement dans l'Amour. Il n'y a pas de reproche ou de retenue, seulement l'Amour et l'acceptation, la paix et la joie. Tels sont les dons de Dieu à Ses enfants.
 
 Puissiez-vous être puissamment bénis, âmes bien-aimées, et trouver votre chemin chaque jour vers une communion plus étroite avec le Créateur et une compréhension plus profonde de vos propres merveilles et de la merveille de la création. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Je vous aime tendrement, âmes bénies. Âmes bénies de ce monde, continuez à prier, à désirer et à être dans le flux de Son Amour. Je continuerai à être avec vous pendant votre voyage. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-

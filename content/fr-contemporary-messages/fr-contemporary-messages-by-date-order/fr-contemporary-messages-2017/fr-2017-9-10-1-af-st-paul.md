@@ -32,4 +32,3 @@ Dieu vous guidera vers de nombreuses âmes au fur et à mesure que vous serez re
 Cela arrive, mes bien-aimés. Vous continuerez à vous élever au-dessus des conditions de ce monde et à trouver votre place légitime dans cette Lumière et cette harmonie, cette paix et cette joie, alors que votre âme continue à se débarrasser de ses incrustations et à être glorieusement belle et en harmonie avec Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Paul, Paul, l'apôtre. Je vous aime. Je vous aime. Que Dieu vous bénisse.
-

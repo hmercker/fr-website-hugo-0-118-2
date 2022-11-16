@@ -9,7 +9,7 @@ weight:
 ---
 ### De nombreux dons vont apparaître
 
-Seretta Kem - reçu par Al Fike le 20 Août 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 20 Août 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je remercie notre cher et bien-aimé enseignant Augustin pour ses paroles de sagesse. Car en effet, vous vous embarquez tous dans un voyage d'éveil et de nombreux cadeaux vont émerger dans cet éveil de vos âmes. Quelle bénédiction que d'avoir votre enseignant bien-aimé avec vous, une âme brillante en effet qui réside très haut dans les Cieux Célestes et qui a beaucoup de sagesse à transmettre et beaucoup d'amour pour chacun d'entre vous.
 

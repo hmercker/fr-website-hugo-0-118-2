@@ -9,7 +9,7 @@ weight:
 ---
 ### Un nouveau jour se lève
 
-Thomas d'Aquin - reçu par Al Fike le 2 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Thomas d'Aquin - reçu par Al Fike le 2 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Mes chères âmes bien-aimées, vous continuez à vous éveiller et à arriver à cet état de conscience, et de perception aiguë où les facultés de vos âmes prennent vie, afin que vous puissiez vraiment être avec Dieu dans tout l'émerveillement et la gloire, toute la beauté et la sensibilité aiguë qui vous permet cette conscience, cet éveil à la véritable présence de Dieu. Et dans cette conscience, dans cet éveil, vient une grande joie et parfois une grande tristesse, car voir le monde tel qu'il est peut être vraiment décourageant. Mais à la place vient l'émerveillement de votre relation avec votre Père Céleste et avec nous tous, les anges qui vous accompagnent dans cette naissance de vos âmes.
 
@@ -30,6 +30,3 @@ Beaucoup plus est à venir. Vous sentez la lumière vacillante poindre en vous e
 Vous regarderez en arrière sur ce temps avec une grande joie et gratitude pour ce que Dieu a créé en vous, dans la Lumière et l'Amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Thomas d'Aquin. J'ai un grand Amour pour vous et moi aussi je me tiens près de vous, vous apportant mon Amour et ma chaleur alors que vous vous éveillez à un nouveau jour, un nouvel éveil de votre véritable moi.
 
 Que Dieu vous bénisse mes bien-aimés et je vous aime. Que Dieu vous bénisse.
-
-
-

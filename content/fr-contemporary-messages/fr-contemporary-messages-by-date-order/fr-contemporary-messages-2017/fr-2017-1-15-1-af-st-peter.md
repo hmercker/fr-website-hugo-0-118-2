@@ -9,7 +9,7 @@ weight:
 ---
 ### Les changements terrestres arrivent
 
-St Pierre - reçu par Al Fike le 15 Janvier 2017, Gibsons, Colombie-Britannique, Canada
+St Pierre - reçu par Al Fike le 15 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes précieuses, je suis Pierre. Des changements arrivent dans votre monde, des changements profonds. Des changements qui vont toucher chacun d’entre vous. Vous devez vous préparer en vous-mêmes. Vous devez être proches de Dieu, être sous la protection de Dieu, être dans ce grand flux de Son Amour et de Sa Lumière, connaître votre Père Céleste d’une manière profonde et durable. Cela exige un effort de votre part, mes bien-aimés, un effort profond pour aller au-delà de vous-mêmes et pour vous ouvrir au contact de Dieu, pour être portés par Son Amour, Sa Grâce, Sa Force, Sa Guidance.
 
@@ -26,6 +26,3 @@ C’est ce qui est nécessaire dans votre monde. C’est l’Amour qui guérira 
 Beaucoup de choses reposent sur vous, mes âmes bien-aimées. Ceux qui cherchent la Lumière reçoivent une grande responsabilité pour parcourir ce monde et exprimer la Vérité et l’Amour. Puissiez-vous être assez forts, assez clairs et avec Dieu d’une manière puissante pour que vous puissiez vraiment aider à amener ce monde vers un lieu d’harmonie et d’équilibre, de joie et de paix. Le pouvoir de l’Amour, mes bien-aimés, le pouvoir de l’Amour vous portera et portera ce monde vers ce lieu de Lumière et d’Harmonie. Marchez avec Dieu, âmes bien-aimées et soyez ce canal d’amour.
 
 Que Dieu vous bénisse. Je suis Pierre et je vous bénis avec le don de la force et de la perception afin que vous puissiez voir votre chemin à travers ces forêts de dilemmes, de confusion, vers un lieu de clarté et d’instrumentalité puissante dans le monde. Que Dieu vous bénisse. Embrassez cette lumière et soyez dans la lumière. Que Dieu vous bénisse.
-
-
-

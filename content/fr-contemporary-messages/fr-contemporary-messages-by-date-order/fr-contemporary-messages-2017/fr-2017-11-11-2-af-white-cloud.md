@@ -9,7 +9,7 @@ weight:
 ---
 ### Dites la vérité
 
-Nuage Blanc - reçu par Al Fike le 11 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Nuage Blanc - reçu par Al Fike le 11 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Salutations mes amis, je suis Nuage blanc.
 
@@ -20,6 +20,3 @@ Que l'amour du Grand Esprit Blanc infuse chacun d'entre vous. Cette lumière qui
 La Vérité de Dieu est simple. La Vérité de Dieu est pour tout le monde. L'Amour de Dieu est la plus grande et la plus puissante des guérisons. Laissez couler cet Amour. Que cet Amour coule à travers vous en touchant beaucoup d'autres, et avec cela un grand réconfort et une guérison viendront et la sagesse fleurira en vous, vous apportant la connaissance de ce que vous devez faire dans ce monde.
 
 Je suis avec vous mes amis et beaucoup de mes frères et sœurs sont avec vous dans cet effort pour apporter la paix à ce monde, la vérité à l'humanité, la guérison à tous. Je suis avec vous. Mes bénédictions sont avec vous. La lumière de beaucoup est avec vous. La vérité de Dieu est en vous. Parlez avec force et clarté, avec humilité et grâce. Tout va affluer, tout va affluer lorsque vous vous ouvrez aux souhaits du Grand Esprit Blanc, votre Créateur, votre Dieu, notre Dieu. Puissiez-vous être bénis mes amis. Je suis Nuage Blanc. Je suis avec vous. Que Dieu vous bénisse.
-
-
-

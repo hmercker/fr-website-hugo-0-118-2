@@ -9,7 +9,7 @@ weight:
 ---
 ### Seule l'âme peut connaître l'amour de Dieu
 
-St Matthieu - reçu par Al Fike le 21 Août 2017, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 21 Août 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que la Grâce de Dieu, qui est Son Amour, vous enveloppe et vous bénisse au sein de vos âmes, mes bien-aimés. Je suis Matthieu. Je suis venu pour extrapoler sur la lecture dont vous avez parlé. Je suis venu parler des sentiments de l'âme. Car, intellectuellement, l'homme trouve difficile de parler de sentiments, suggérant que mentalement il ne soit pas possible de ressentir, percevoir C'est faux lorsqu'il s'agit de la compréhension de l'âme, car une âme ressent sa compréhension, son appréhension d'une Vérité. Car lorsqu'une âme comprend une vérité, tous les aspects de cette âme sont engagés. Ainsi vient un sentiment, avec une perception, une conscience, une ouverture à une Vérité de Dieu.
 

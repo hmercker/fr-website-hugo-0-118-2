@@ -9,7 +9,7 @@ weight:
 ---
 ### C’est le temps de la purification
 
-Mère Terre-Gaïa - reçu par Anyas le 8 Septembre 2017, Oregon, USA
+Mère Terre-Gaïa - reçu par Anyas le 8 Septembre 2017, Oregon, USA.
 
 Urantia :  « Chère fille de Moi, tu souhaites que nous établissions une relation de cœur à cœur. Tu souhaites apprendre à Me connaître plus en profondeur. En effet, si peu de Mes enfants comprennent vraiment ce que Je suis.
 
@@ -29,7 +29,4 @@ Urantia :  « Chère fille de Moi, tu souhaites que nous établissions une relat
 
 « Apprenez à vous connecter à Moi dans l’Amour et la Paix. Cela changera le climat émotionnel et nous fera à tous un grand bien. L’amour et la paix restaurent l’âme et réparent les cœurs brisés. »
 
-The 11:11 Progress Group.
-
-
-
+*© The 11:11 Progress Group.*

@@ -9,7 +9,7 @@ weight:
 ---
 ### Rechercher et entretenir le don d'amour
 
-Augustin - reçu par Al Fike le 11 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 11 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous a fait un grand cadeau. C'est à vous d'accepter ce don, le don de son amour. Car pour le recevoir, vous devez le reconnaître. Vous devez demander à Dieu de placer ce don de Son Amour dans vos âmes afin qu'il puisse s'y épanouir et continuer à se déverser dans vos âmes affamées. Ce don est un don qui ne partira jamais, qui ne diminuera jamais. Vous pouvez l'oublier si vous le souhaitez, mais tant que vous gardez la lampe allumée dans votre âme, la conscience de l'Amour du Père, elle vous réconfortera pour toute l'éternité, mes bien-aimés. C'est le grand cadeau de l'Essence du Père, l'Amour de son âme donné à votre âme. Souhaitez-vous ce cadeau ? Priez-vous pour ce don ? Aspirez-vous à ce don ? Car sans une prière et un désir, une ouverture de votre âme à Dieu, il ne peut être reçu.
 
@@ -20,4 +20,3 @@ C'est si simple, mes bien-aimés, si simple. Pourtant, pour beaucoup d'entre vou
 Cette puissante Lumière d'Amour, la belle Touche de Dieu qui est ici pour vous maintenant, mes bien-aimés. Buvez profondément, buvez profondément de ces eaux vivantes afin que vous puissiez vraiment connaître votre Père Céleste qui désire ardemment être connu de vous car il vous connaît bien. Il vous aime au-delà de toute mesure. Il est vraiment connecté à votre être. C'est à vous de le découvrir, de l'accepter et de le connaître avec chaque fibre de votre être, chaque aspect de votre conscience, au plus profond de votre âme. Nous nous joignons donc à vous dans la prière et continuons à vous exhorter à rechercher l'Amour de Dieu, cette bénédiction qu'il vous appartient de demander, de rechercher et de connaître. Puissiez-vous le faire avec humilité et grâce, avec foi et confiance en votre Père Céleste.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin, évêque d'Hippone et votre maître. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-

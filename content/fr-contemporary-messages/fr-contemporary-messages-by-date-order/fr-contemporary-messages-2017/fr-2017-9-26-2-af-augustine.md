@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir du libre arbitre
 
-Augustin - reçu par Al Fike le 26 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 26 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je souhaite aborder un sujet dont j'ai parlé à plusieurs reprises et qui est le pouvoir du libre arbitre.
 
@@ -36,6 +36,3 @@ Il est donc important, lorsque vous parlez de ce don aux autres, de souligner qu
 Tel est l'amour de Dieu pour vous, mes bien-aimés, et pour tous ses enfants. Il n'insiste pas, mais Il invite et tente d'inspirer chaque âme à rechercher la Lumière. Vous devez donc faire de même. Ainsi, vous faites de même de nombreuses façons et Dieu continuera à ouvrir ces portes pour que vous puissiez exprimer cette simple Vérité de façon claire et sans ambiguïté, de façon vraie et authentique par rapport à votre expérience, votre connaissance et votre sagesse. Que Dieu vous bénisse dans cette entreprise. Que Dieu soit avec vous à chaque instant, car Il attend que vous leviez les yeux vers Sa Présence, que vous cherchiez Sa Présence, que vous cherchiez le saint toucher de Son Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je continue à marcher avec vous et je continuerai pour toute l'éternité, mes amis bien-aimés. Car nous marchons tous dans la même direction vers notre union avec Dieu. Que ce rythme soit rapide. Dieu vous bénisse, mes bien-aimés. Je vous aime. Que Dieu vous bénisse.
-
-
-

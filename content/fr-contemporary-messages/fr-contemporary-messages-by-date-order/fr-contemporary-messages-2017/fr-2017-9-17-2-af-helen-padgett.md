@@ -9,7 +9,7 @@ weight:
 ---
 ### Ceux qui servent dans l'amour feront des percées dans le monde
 
-Helen Padgett - reçu par Al Fike le 17 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Helen Padgett - reçu par Al Fike le 17 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Hélène, Hélène Padgett. Je prends ce temps pour vous parler, car souvent c'est mon mari qui parle mais je désire parler aussi à mes amis dans la chair car je suis proche de vous et souvent avec vous. Je continue à servir beaucoup de personnes dans ce monde qui poursuivent la Vérité de l'Amour de Dieu. 
 C'est un tel cadeau de service que d'être avec ceux dont les âmes sont désireuses de recevoir ce cadeau. 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Accepter l'appel de Dieu
 
-Augustin - reçu par Al Fike le 1 Août 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 1 Août 2017, Gibsons, Colombie-Britannique, Canada.
 
 Chacun d'entre vous a ressenti un changement au sein de son âme, une accélération, une ouverture et une compréhension accrue des véritables désirs de son âme. J'encourage chacun d'entre vous à poursuivre ce début d'éveil, à s'ouvrir davantage à Dieu, à s'ouvrir davantage à votre âme et à comprendre que ce processus, cet éveil, se poursuivra pour toute l'éternité. La capacité de l'âme à s'éveiller et à rassembler l'Amour et la Lumière, à comprendre l'univers, à connaître Dieu est infinie si elle reçoit une quantité adéquate de la bénédiction de l'Amour Divin, l'Essence de Dieu. Au fur et à mesure que cela s'accumule dans vos âmes bien-aimées, vos perceptions s'approfondissent, vos compréhensions changent, votre capacité d'aimer s'élève, s'élargit, et ces changements seront importants et profonds. Vous en viendrez à connaître votre véritable moi dans toute sa gloire, sa beauté et son charme.
 
@@ -22,4 +22,3 @@ Accepterez-vous l'appel de Dieu ? Allez-vous aider à la guérison de ce monde ?
 Prenez ce flambeau, âmes bien-aimées, marchez sur ce chemin de Lumière et nous vous accompagnerons, les anges vous entoureront et vous découvrirez que Dieu vous guidera de nombreuses façons, souvent surprenantes et délicieuses. Gardez vos oreilles et vos yeux ouverts mes bien-aimés. Marchez sur votre chemin de Vérité, soyez un canal d'Amour et il n'y a aucun moyen de savoir ce qui peut arriver dans votre avenir, car Dieu planifie votre destin et vous écoutez ses murmures et suivez sa guidance.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin et je vous aime. Je suis avec vous. Je continuerai à vous guider et à vous soutenir sur votre chemin car je vous aime, chacune d'entre vous, âmes précieuses, lumières précieuses, aimées de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-

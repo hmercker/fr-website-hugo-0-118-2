@@ -9,9 +9,21 @@ weight:
 ---
 ### Ensemble dans la joie de l'amour
 
-Goldie - reçu par Al Fike le 13 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Goldie - reçu par Al Fike le 13 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
-… je t'aime. (Jeanne : je t'aime aussi) Tu veux savoir où j'ai vécu ? (Jeanne : Oui, je veux tout savoir sur toi.) Je ne peux pas tout te dire, certaines choses sont un secret. (Jeanne : Oui, tu peux… oh, oui tu peux.) Oui, je suis morte alors que j'étais une petite fille dans un endroit que vous appelez la Belgique. C'était il y a de nombreuses années, et j'ai grandi en esprit. Il m'a été enseigné beaucoup de choses alors que je me développais dans le monde des esprits et que j'entrais dans le Royaume Céleste. Maintenant, je sers le cher Maître Jésus et notre Père céleste dans l'amour. J'ai connu une telle joie, et je suis la joie. C'est mon don d'apporter la joie.
+… je t'aime. 
+
+*[Jeanne : je t'aime aussi]* 
+
+Tu veux savoir où j'ai vécu ? 
+
+*[Jeanne : Oui, je veux tout savoir sur toi.]*
+
+Je ne peux pas tout te dire, certaines choses sont un secret. 
+
+*[Jeanne : Oui, tu peux… oh, oui tu peux.)]*
+
+Oui, je suis morte alors que j'étais une petite fille dans un endroit que vous appelez la Belgique. C'était il y a de nombreuses années, et j'ai grandi en esprit. Il m'a été enseigné beaucoup de choses alors que je me développais dans le monde des esprits et que j'entrais dans le Royaume Céleste. Maintenant, je sers le cher Maître Jésus et notre Père céleste dans l'amour. J'ai connu une telle joie, et je suis la joie. C'est mon don d'apporter la joie.
 
 Vous ne devez pas vous préoccuper de tous les détails de ma vie. Ce n'est pas important. Ce qui est important, c'est que nous soyons amis. Nous vous aimons et vous nous aimez. Nous faisons tous partie de cette belle lumière, la lumière dorée de l'amour de Dieu. Nous ne vous quitterons jamais. Je suis votre amie et je vous aime tendrement, tous autant que vous êtes. Je suis proche de vous. Je continuerai à vous aider, à vous élever et à vous amener à ce bel endroit où Dieu fait briller sa lumière sur vous.
 

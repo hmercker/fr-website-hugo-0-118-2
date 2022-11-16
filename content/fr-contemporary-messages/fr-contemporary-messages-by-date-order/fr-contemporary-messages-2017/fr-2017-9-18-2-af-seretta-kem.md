@@ -9,7 +9,7 @@ weight:
 ---
 ### La guérison et la loi de l'harmonie Partie 1
 
-Seretta Kem - reçu par Al Fike le 18 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 18 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je suis revenue pour vous parler, car il y a des questions sur la guérison et le pouvoir de la prière pour guérir le corps physique non seulement pour cet instrument, mais aussi pour ceux qui sont dans vos vies et dont vous vous souciez et que vous aimez. C'est un sujet complexe, car il y a des moments où les âmes sont guéries de leurs maladies physiques et pourtant il semble qu'il y ait très peu d'effort dans la prière, simplement une demande et en cela une bénédiction jaillit et la guérison a lieu. D'autres fois, de nombreuses âmes prient intensément pour un individu, mais il n'y a pas de réponse.
 
@@ -36,4 +36,3 @@ J'espère m'être expliqué clairement. En ce qui concerne cet instrument et sa 
 Ainsi, vous grandissez en sagesse, âmes bien-aimées. Vous grandissez en perception. Vous grandissez dans l'Amour. Cela continue alors que vous continuez à prier Dieu d'ouvrir ces avenues de compréhension et de perception qui intensifient vos prières, vos désirs à Dieu, augmentant votre foi alors que l'Amour se construit en vous. Cela continue pour toute l'éternité, mes âmes bien-aimées, pour toute l'éternité. Comme vous êtes belles, belles et tendres pousses qui poussent du sol, le miracle de la vie, le miracle d'une âme qui reçoit une nouvelle vie, la vie de l'Amour.
 
 Alors nous vous regardons comme vous grandissez, comme vous vous développez, comme tous les aspects merveilleux de votre être s'épanouissent dans cet Amour et cette Lumière. Ainsi vous êtes bénis, mes bien-aimés, et ainsi nous sommes bénis en observant votre soi grandissant dans l'Amour et la Lumière. Que Dieu vous bénisse. Je suis Seretta Kem. Je vous aime.
-

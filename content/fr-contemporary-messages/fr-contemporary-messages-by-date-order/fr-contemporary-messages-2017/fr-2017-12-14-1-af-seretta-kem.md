@@ -9,7 +9,7 @@ weight:
 ---
 ### Une veillée de prière jusqu'au succès
 
-Seretta Kem - reçu par Al Fike le 14 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Vous êtes près de la fin de votre voyage ensemble pour cette fois, cet effort. Et c'est certainement votre habitude de vous interroger sur les prochaines étapes, de vous demander ce qui est à venir. Comment le plan de Dieu va-t-il se déployer dans votre vie ? Il est vrai qu'il a fallu beaucoup de concentration et d'efforts ces derniers jours pour que ces manifestations aient lieu. Comme beaucoup d'entre vous le perçoivent, il y a beaucoup d'efforts à faire de notre côté de la vie pour que ces dons se produisent. Nous ne voulons pas précipiter ces manifestations, mais nous réalisons les limites de ce monde matériel et ce grand cadeau qui vous a tous réunis de cette façon. Nous souhaitons donc exploiter ces opportunités du mieux que nous pouvons et nous vous demandons à nouveau de garder vos pensées élevées, d'être en mode prière à chaque moment de chaque jour, de continuer à exprimer et à ressentir l'Amour entre vous, de désirer les résultats, comme je sais que vous le faites, que vous souhaitez tant avoir dans ces efforts.
 
@@ -24,6 +24,3 @@ Que votre foi vous porte à franchir la ligne, car c'est un acte de foi, une vra
 Que Dieu vous bénisse, mes bien-aimés. Nous marchons ensemble dans l'attente et la joie. Que ces derniers pas viennent facilement. Que ces grands cadeaux restent avec vous mes bien-aimés, pour le reste de vos jours, pour augmenter, pour gagner plus de puissance, de clarté et de beauté, alors que vos âmes continuent à grandir dans Son Amour, alors que votre Lumière continue à briller et que votre foi est plus forte et que votre conscience est plus élevée et plus profonde dans le déploiement de vos âmes mes bien-aimés. C'est le plus grand cadeau de tous, le déploiement et l'éveil de vos âmes. Que cela continue à être la Vérité de votre vie, la réalité de votre vie. Avancez, mes bien-aimés, et prenez votre place dans cette pure Lumière, dans la joie et la reconnaissance des grandes bénédictions de Dieu sur vous. Oui, nous allons anticiper et prier et aimer sincèrement ensemble dans de joyeux liens d'amour dans des efforts qui sont ceux de l'âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je suis avec vous. Les anges, en ce moment même, organisent une veillée de prière pour vos efforts. Cela sera fait jusqu'à ce que vous ayez du succès. Que Dieu vous bénisse mes bien-aimés et que votre veille apporte le succès dans ce monde. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

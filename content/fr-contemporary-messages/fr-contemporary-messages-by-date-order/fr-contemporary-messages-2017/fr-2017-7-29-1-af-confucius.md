@@ -9,9 +9,10 @@ weight:
 ---
 ### La vérité passe par l'âme
 
-Confucius - reçu par Al Fike le 29 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 29 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius. J'espère que vous pouvez m'entendre.
+
 Chacun d'entre vous a une âme ardente, mes bien-aimés. Chacun de vous est précieux aux yeux de Dieu. Chacun de vous est aimé de Dieu. Lorsque vous parvenez à connaître cet Amour que Dieu a pour vous, âmes bien-aimées, cela apporte une grande joie à votre être. Cela vous apporte une perspective différente de la vie. Car tant de personnes traversent leur vie sans savoir pourquoi elles sont en vie, quel est le sens et le but de leur vie.
 
 Chacun d'entre vous ici a un profond désir de connaître les réponses à ces questions, âmes bien-aimées. Je vous le dis, mes bien-aimés, les réponses ne viennent pas du mental. Ce qui vient au mental est une simple spéculation. Il essaie d'assembler de nombreuses pensées matérielles pour en faire une explication qui satisfasse votre raison. Mais par la raison vous ne pouvez pas vous approcher de la Vérité. C'est votre âme, mes chers amis. C'est la perception et la connaissance de vos âmes qui vous apporteront la Vérité qui est aussi solide que le sol sur lequel vous avez vos pieds.

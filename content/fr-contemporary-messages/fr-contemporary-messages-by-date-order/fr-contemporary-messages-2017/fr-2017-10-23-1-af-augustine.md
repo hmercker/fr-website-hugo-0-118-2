@@ -9,9 +9,9 @@ weight:
 ---
 ### Libérer le contrôle de l'esprit
 
-Augustin - reçu par Al Fike le 23 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 23 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
-Que Dieu vous bénisse, mes bien-aimés. Je vois que notre amie Seretta Kem a été plutôt ferme avec vous, mes amis. C'est généralement ma responsabilité, de vous prendre à partie. (Un message de Seretta Kem en date du 23 Octobre qui n'a pas été enregistré).
+Que Dieu vous bénisse, mes bien-aimés. Je vois que notre amie Seretta Kem a été plutôt ferme avec vous, mes amis. C'est généralement ma responsabilité, de vous prendre à partie. *[Un message de Seretta Kem en date du 23 Octobre qui n'a pas été enregistré.]*
 
 Je souhaite vous expliquer pourquoi ce message à votre intention est quelque peu ferme. Certains d'entre vous ont fait remarquer qu'en effet, vous prenez votre responsabilité au sérieux et que vous avez fait tous les efforts possibles pour vous conformer à cette demande de participer à ce cercle de développement. 
 
@@ -36,6 +36,3 @@ Vous êtes tous à un endroit différent en ce qui concerne ce défi. Vos perspe
 Lorsque cela sera fait, nous pourrons vraiment concentrer nos efforts et nos énergies sur le développement de la Voix Directe. Rien ne s'y opposera. Rien ne détournera les énergies. Il y aura une telle joie, une telle puissance, un tel désir et une telle ferveur en vous que ce don jaillira naturellement de vous, mes bien-aimés. C'est notre fervent désir. C'est la volonté de Dieu et cela doit certainement être votre désir et votre volonté, de dépasser les vieilles façades et d'être libres au sein de votre véritable moi, expression de vos âmes. Cela doit venir, si ce n'est pas aujourd'hui, demain. Cela doit venir car c'est le pouvoir de l'Amour de Dieu en vous. C'est le but de chaque âme qui aspire à ne faire qu'un avec Dieu, à libérer toutes les conditions qui ne sont pas en harmonie avec l'Amour. Ainsi vous le ferez, âmes bien-aimées. Ainsi vous ferez vos pas en avant, libérez le poids qui vous entoure afin d'être libres, libres pour toujours.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin continue à vous montrer le chemin. Je le fais dans l'Amour comme le font tous les anges qui vous apportent leur Amour et apportent la Vérité. Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je continue à vous accompagner sur votre chemin. Que Dieu vous bénisse.
-
-
-

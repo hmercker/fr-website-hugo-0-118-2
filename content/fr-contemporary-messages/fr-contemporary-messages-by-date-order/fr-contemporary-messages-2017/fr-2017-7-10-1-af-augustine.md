@@ -9,8 +9,7 @@ weight:
 ---
 ### Voyage vers l'expiation
 
-Augustin - reçu par Al Fike le 10 Juillet 2017, Gibsons, Colombie-Britannique, Canada
-
+Augustin - reçu par Al Fike le 10 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que le Père bénisse effectivement vos âmes. Puissiez-vous en venir à connaître ce désir ardent qui réside au fond de vous comme la force directrice de votre vie, afin que vous puissiez continuer à fouler ce chemin vers la Fontaine d'Amour. Que vous puissiez marcher dans cette lumière et entendre les murmures de la volonté de Dieu dans vos âmes. Que vous puissiez continuer à servir Dieu et l'Amour et à ouvrir votre conscience à la grande réalité de la Création, de la Présence et du Monde de Dieu. Ce Monde merveilleux de Dieu, ce Monde qui vous emporte hors de cette condition humaine dans un lieu de profonde harmonie et de paix, où vous oubliez tant de choses qui ne sont pas de Dieu et où vous êtes conscients du grand Amour qui est pour chacun de vous, âmes précieuses, rassemblées dans l'Étreinte de Dieu.
 
@@ -25,5 +24,3 @@ Il en sera ainsi, âmes bien-aimées, alors que vous marchez dans la Lumière, l
 Père, bénis ces âmes qui continuent à cheminer vers Toi. Balaie tout ce qui se trouve sur leur chemin et les éloigne de Toi. Embrasse-les pleinement alors qu'elles continuent à chercher l'expiation.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. J'ai parcouru de nombreux kilomètres avec beaucoup d'entre vous, mes bien-aimés, et je continuerai à voyager avec vous tous alors que vous recherchez la Vérité et l'union avec Dieu. Que Dieu vous bénisse. Dieu vous bénisse, mes bien-aimés et je vous aime. Que Dieu vous bénisse.
-
-

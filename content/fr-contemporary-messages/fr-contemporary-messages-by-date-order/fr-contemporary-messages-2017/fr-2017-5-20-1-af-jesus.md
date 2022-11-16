@@ -9,7 +9,7 @@ weight:
 ---
 ### S'abreuver aux eaux de l'amour de Dieu
 
-Jésus - reçu par Al Fike le 20 Mai 2017, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 20 Mai 2017, Bend, Oregon, USA.
 
 Mes chers frères et sœurs, venez boire les eaux vives de l'Amour de Dieu. Leurs cœurs sont desséchés dans ces lieux désertiques de la vie, et ils sont venus pour être rafraîchis. Père, bénis-les, bénis-les dans leur désir et leur empressement à se laisser embrasser par Toi. Car ils connaissent l'Amour et ils désirent connaître l'Amour plus abondamment. Puisses-tu les rafraîchir, Père, dans le flot de ton Amour, ces eaux merveilleuses qui guérissent et pansent les blessures, qui donnent l'espoir et la foi, qui apportent la connaissance et la force, qui guident et guérissent et apportent la Paix qui dépasse toute compréhension.
 
@@ -26,6 +26,3 @@ Dieu vous enveloppe en ce moment et il enveloppera chaque âme qui cherche la Gr
 L'invitation de Dieu est pour tous. Une simple prière, un simple désir, la volonté d'être ouvert, d'être béni, c'est tout ce qu'il faut, car l'Amour de Dieu est pour chaque âme sur ce monde, peu importe la religion, la culture ou la couleur de la peau. Non, ces choses n'ont pas d'importance. C'est le désir ardent de l'âme, le désir ardent de l'âme, où chaque enfant sur cette planète a une âme et dans cette âme se trouve une graine qui aspire à s'éveiller et à vivre. Et Dieu touchera cette âme, l'éveillera et lui apportera une nouvelle vie si elle s'ouvre et reçoit ce don d'amour.
 
 Bienheureux et bien-aimés, je viens. Je suis Jésus et je vous aime. Que Dieu vous bénisse.
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### La bénédiction de Dieu par Jésus
 
-Jésus - reçu par Al Fike le 4 Juin 2017, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 4 Juin 2017, Gibsons, Colombie-Britannique, Canada.
 
-(Jésus debout)
+*[Jésus debout]*
 
 Dieu vous bénit, âmes bien-aimées. La main de Dieu est sur vous, âmes bien-aimées. Son Amour se déverse sur vous. Sa Lumière vous enveloppe. Sa Guérison vous apaise. Le grand Consolateur est avec vous, mes bien-aimés (les carillons commencent à sonner puis s'arrêtent).
 
@@ -24,6 +24,3 @@ Que chacun de vous soit béni, âmes bien-aimées, chacun de vous reçoit un cad
 Soyez un canal d'Amour mes bien-aimés. Marchez dans la grâce. Permettez aux Vérités d'imprégner vos êtres. Permettez à Son Amour de toucher votre cœur.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse. Je suis Jésus et je suis venu vous bénir, car chacun de vous m'est précieux. Chacun de vous est aimé de Dieu. Chacun de vous a un cœur tendre. Que ce cœur soit rempli de joie et de gratitude. Que Dieu vous bénisse et vous garde. Je marche avec vous. Que Dieu vous bénisse.
-
-
-

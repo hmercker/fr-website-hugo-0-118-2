@@ -9,9 +9,9 @@ weight:
 ---
 ### Les lumières de diamant de votre être
 
-Fleur de Lotus - reçu par Al Fike le 29 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Fleur de Lotus - reçu par Al Fike le 29 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
-Que Dieu vous bénisse, je suis Fleur de Lotus. Je souhaite parler de vos corps physique et spirituel et comment il y a une telle interaction entre les deux causée par de nombreux facteurs différents internes et externes. Le corps réagit à vos pensées de nombreuses manières différentes. Lorsque vous avez des pensées positives, de la lumière1 émane de votre esprit et de votre cerveau physique et parcourt les méridiens de votre corps, du sommet de votre tête jusqu'à vos orteils. Cela stimule les cellules de votre corps. Cette lumière a un effet sur chaque cellule. Lorsque votre corps n'est pas en harmonie, que votre système respiratoire ne fonctionne pas harmonieusement ou que votre système digestif est paresseux, le flux de cette énergie dans votre corps est inhibé.
+Que Dieu vous bénisse, je suis Fleur de Lotus. Je souhaite parler de vos corps physique et spirituel et comment il y a une telle interaction entre les deux causée par de nombreux facteurs différents internes et externes. Le corps réagit à vos pensées de nombreuses manières différentes. Lorsque vous avez des pensées positives, de la lumière <sup id="a1">[1](#f1)</sup> émane de votre esprit et de votre cerveau physique et parcourt les méridiens de votre corps, du sommet de votre tête jusqu'à vos orteils. Cela stimule les cellules de votre corps. Cette lumière a un effet sur chaque cellule. Lorsque votre corps n'est pas en harmonie, que votre système respiratoire ne fonctionne pas harmonieusement ou que votre système digestif est paresseux, le flux de cette énergie dans votre corps est inhibé.
 
 Et puis, bien entendu, il y a l'effet de votre âme. Une âme qui est vivante et activée par l'Amour du Père a un effet très profond sur tous les organes du corps et sur votre esprit, encore un autre système et une autre couche qui diffuse la lumière dans vos corps et encourage l'harmonie. Vos mouvements physiques créent également des vagues de lumière à travers votre corps, des réactions énergétiques car chaque aspect de votre corps est stimulé par les mouvements que vous faites. Puis il y a ceux avec qui vous vous engagez, leurs énergies affectent les vôtres, leur condition spirituelle et physique et leur condition mentale affecteront les trois aspects de vous-même. Il y a une interaction d'énergie dans l'univers - beaucoup, beaucoup de niveaux différents.
 
@@ -28,8 +28,6 @@ Vous avez beaucoup voyagé. Vous avez grandi à bien des égards. Vous avez appr
 Comme vous êtes aimées, mes précieuses, précieuses âmes. Comme je vous aime. Comme vous êtes belles, exquises à tous points de vue. Votre lumière brille. Votre beauté émane de façon merveilleuse et toujours changeante, car les énergies de votre être interagissent avec la lumière et la lumière interagit en vous, créant de si beaux aspects de vous-mêmes. La belle Lumière de l'Amour de Dieu touche chaque partie. Ses jolies teintes de lumière forment un kaléidoscope intriguant d'expressions à tous les niveaux de votre être. Ainsi, cette beauté devient toujours plus exquise, complexe et fascinante. Chacun d'entre vous est unique de cette façon, apportant une création unique de Dieu dans ce monde, une belle âme exprimant ses merveilleuses facettes et sa beauté.
 
 En comparaison, un diamant est terne car vous brillez avec une telle intensité qu'aucun bijou ne peut rivaliser avec les joyaux de votre âme, mes bien-aimés. Que Dieu vous bénisse. Je suis Fleur de Lotus et je vous aime. Je reçois une telle joie en vous observant et en vous assistant, âmes bien-aimées. Une telle bénédiction, une telle bénédiction de Dieu. Que Dieu vous bénisse, mes joyaux bien-aimés. Je vous aime.
-1 Ne prenez pas le mot "lumière" trop littéralement, il exprime un concept d'énergie qui n'est probablement visible que pour l'esprit.
+<small>
 
-
-
-
+1. <large id="f1"> Ne prenez pas le mot "lumière" trop littéralement, il exprime un concept d'énergie qui n'est probablement visible que pour l'esprit.[↩](#a1)

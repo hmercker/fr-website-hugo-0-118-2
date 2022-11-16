@@ -9,7 +9,7 @@ weight:
 ---
 ### Lâcher prise sur les attentes
 
-Augustin - reçu par Al Fike le 28 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 28 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite parler de ce que signifie être un canal d'Amour dans le monde. Vous avez entendu cette âme bien-aimée venue de loin parler de ses pensées et de ses sentiments sincères, comment son âme s'est ouverte à l'Amour du Père, comment elle désire partager cet Amour avec ceux qu'elle aime, avec tous ceux qui écouteront.
 
@@ -28,6 +28,3 @@ Considérez vos actions ou vos pensées, vos attentes et vos ambitions, car ces 
 Puissiez-vous continuer à être dans la Volonté de Dieu et à permettre à la Lumière dans vos âmes de vraiment briller et de prendre le dessus dans votre vie. Toutes les préoccupations et les inquiétudes, les idées et les attentes vont fondre dans ce beau flux, cette belle Lumière, la puissance de Son Amour embrassant chaque partie de votre être. Vous apprenez à mettre en harmonie les aspects de votre pensée matérielle et les choses de votre âme. Vous avancez sur ce chemin de changement et d'ajustement avec les anges à vos côtés et la main de Dieu sur vous. Vous continuerez à le faire et, en effet, beaucoup de choses changeront en vous et se modifieront en réponse à la puissance de Son Amour.
 
 Vous trouverez votre chemin. Vous comprendrez, mes bien-aimés, les magnifiques trésors qui se trouvent dans vos âmes et l'expression de ces dons en harmonie et de concert avec la Volonté de Dieu. Vous vous rapprochez de plus en plus chaque jour, mes âmes bien-aimées. Vos prières sont exaucées. Vous êtes élevés et entourés de Lumière. Tant, tant de choses sont à votre portée en ce moment. Puissiez-vous continuer à grandir dans l'Amour et à trouver votre chemin vers ce lieu de véritable harmonie intérieure et d'expressions merveilleuses de vos véritables et belles âmes. Que Dieu vous bénisse. Je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez forts dans l'amour, car les autres ont besoin de vous dans ce monde
 
-Mahatma Gandhi - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Mahatma Gandhi - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis le Mahatma Gandhi, je vous ai déjà parlé auparavant mes amis et je souhaite réitérer mon enthousiasme, mon désir de travailler avec vous dans cette ambitieuse entreprise pour apporter la Vérité à l'humanité par la voix des anges et des esprits élevés du Ciel. Puissions-nous en effet travailler tous ensemble à ces fins. Puissions-nous en effet réussir dans cette entreprise, car il n'y a pas de meilleur moment pour apporter la Vérité à partir de stations de vie plus élevées dans le monde spirituel et le monde angélique. Et de le faire maintenant ! Le monde a désespérément besoin de ces vérités, n'est-ce pas ?
 
@@ -30,4 +30,3 @@ Vous êtes sur la bonne voie et beaucoup d'entre nous de mon côté de la vie so
 Continuez à faire progresser vos conditions vers la Lumière, à travailler diligemment pour apporter l'harmonie à vous-mêmes et la perspicacité dans les bénédictions de Dieu toujours, toujours. Allez vers Dieu, la source de tout, et Dieu répondra de façon merveilleuse. Ceci est une vérité. Car en cherchant, vous trouverez, en aimant, il y aura de l'amour dans vos vies, et vous serez assez forts pour retenir l'obscurité, la repousser et apporter la Vérité. C'est mon souhait pour vous mes amis. Apportez la Vérité et la Lumière dans l'obscurité et aidez tous ceux que vous pouvez à réaliser qu'ils sont aimés et que Dieu est Amour. Que Son Amour puisse effectivement venir dans leurs âmes et apporter beaucoup, beaucoup de bénéfices et de grands changements à l'intérieur.
 
 Dieu vous bénisse mes amis, je suis Mahatma Gandhi. J'apporte mon amour. Je vous embrasse tous comme mes vrais amis, mes vrais amis. Que Dieu vous bénisse.
-

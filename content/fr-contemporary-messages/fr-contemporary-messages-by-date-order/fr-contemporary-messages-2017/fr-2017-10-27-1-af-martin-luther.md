@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer les ténèbres intérieures en recevant l'Amour du Père
 
-Martin Luther - reçu par Al Fike le 27 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 27 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je vois que certains d'entre vous ont des réactions dramatiques aux conditions qui s'infusent dans vos corps et vos âmes et vos esprits alors que vous vous ajustez à ces nouvelles conditions provoquant diverses réactions dans vos pensées et vos âmes.
 
@@ -38,6 +38,3 @@ Plutôt que de ressentir de la honte, un jugement ou une condamnation à votre �
 Mes amis, votre voyage spirituel n'est pas facile. Vous le savez, nous le savons, Dieu le sait. Mais c'est le voyage le plus gratifiant que vous ayez jamais entrepris. Je dis cela parce que votre vie se poursuit pendant très, très longtemps. Avec la transformation de l'Amour de Dieu, ce sera pour toute l'éternité. Pourtant, ce moment précis de votre existence dans le monde est crucial et revêt une telle importance, c'est un moment déterminant et puissant de votre vie qui vous oriente vers Dieu, vers la Vérité et qui vous permet de servir Dieu dans le processus et de servir Dieu dans l'Amour. Aucun de ces moments n'est gaspillé, mes amis. Chaque moment où vous êtes ensemble, chaque moment où vous êtes en prière, chaque moment où vous êtes en contemplation et cherchez à vraiment comprendre et à connaître les réveils de votre âme est vraiment un moment qui est un cadeau de Dieu.
 
 Âmes bien-aimées, que Dieu continue à vous bénir. Que les anges continuent à marcher avec vous. Que vos âmes continuent à s'éveiller au contact de l'amour du Père. Il n'y a pas de plus grande Vérité que celle-ci. Pas de plus grande bénédiction que celle-ci. Il n'y a pas d'opportunité plus merveilleuse dans votre vie, ce temps précieux où vos âmes viennent à connaître Dieu et à se connaître elles-mêmes dans la présence de Dieu. Cherchez le royaume, mes bien-aimés, et tout viendra à vous. Que Dieu vous bénisse. Je suis Martin Luther. Moi aussi, je vous aime beaucoup, beaucoup. Que Dieu vous bénisse.
-
-
-

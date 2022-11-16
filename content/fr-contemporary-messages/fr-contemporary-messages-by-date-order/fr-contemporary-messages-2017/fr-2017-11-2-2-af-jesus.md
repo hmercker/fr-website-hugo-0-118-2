@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus est avec nous
 
-Jésus - reçu par Al Fike le 2 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 2 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Jésus. Que la Main du Père vous touche profondément mes bien-aimés, Son Amour se déversant dans chaque recoin de votre âme. Son contact vous apporte une grande joie et la paix, la paix qui dépasse toute compréhension, mes bien-aimés. Vous êtes vraiment bénis mes bien-aimés, vraiment bénis dans ce voyage et vos désirs ainsi que vos prières ont touché Dieu. Dans Sa réponse, Il apporte Sa Lumière et Son Amour, Sa Paix et Sa Guérison sur vous. Il en sera ainsi, âmes bien-aimées, alors que vous poursuivez ce voyage et que vos désirs sont pour le bien de l'humanité, pour apporter la vérité, la paix et l'amour à ce monde. Vous serez richement bénis, en vous et tout autour de vous. De nombreuses bénédictions viendront.
 
@@ -28,4 +28,3 @@ Vous verrez d'un endroit différent en vous ce que Dieu a créé, ce qui est cen
 Vous deviendrez un instrument de la volonté de Dieu, un pourvoyeur de son plan pour le salut de l'humanité. C'est ce que vous désirez vraiment, âmes bien-aimées, dans vos âmes. C'est ce que vous désirez vraiment et lorsque vous vous en approchez, vous sentez la joie monter en vous, sachant que vous vous rapprochez, que vous êtes entre les mains de Dieu, que vous avez en effet mis de côté vos peurs et vos préjugés mentaux et que vous êtes arrivés à ce lieu de véritable compréhension de l'âme. Permettez à ceci de continuer à se déployer, d'être une partie claire et belle de votre conscience, que tout en vous fusionnera ensemble dans une unité aimante, dans un beau réveil. Ceci est en train de se produire. Cela vient à vous en ce moment. 
 
 Soyez ouverts, priez, soyez aimants les uns envers les autres et permettez à cette lumière d'infuser chaque partie de votre être et chaque partie de votre vie afin que vous marchiez vraiment dans cette lumière partout où vous allez. Âmes bien-aimées, je suis avec vous. Je serai toujours avec vous, mes bien-aimés, et nous marcherons ensemble dans ce grand voyage de vie et de service à Dieu. Nous serons ensemble dans cette expression glorieuse et joyeuse de nos âmes. Je suis votre frère. Je suis votre frère et je vous aime tendrement, mes beaux, beaux frères et sœurs. Je suis toujours avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-

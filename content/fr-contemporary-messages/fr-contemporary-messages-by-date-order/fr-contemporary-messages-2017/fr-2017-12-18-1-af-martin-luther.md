@@ -9,7 +9,7 @@ weight:
 ---
 ### La responsabilité d'agir par amour vous incombe
 
-Martin Luther - reçu par Al Fike le 18 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 18 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Mes bien-aimés, ayez foi en vous-mêmes. Je suis Martin Luther. Vous êtes arrivés à un moment des plus difficiles, mes âmes bien-aimées. Un moment où vous emmenez vos nouvelles sensibilités et sensibilités dans le monde pour les amener plus complètement dans votre conscience et votre expression dans le monde. Ce sont ces premiers pas provisoires qui sont importants, car ils vous permettent de choisir consciemment de vous exprimer plus pleinement dans votre âme plutôt que dans vos pensées.
 
@@ -28,6 +28,3 @@ Oui, vous avez beaucoup à contempler, à intégrer et à exprimer. Nous serons 
 Ainsi, la croissance de votre âme se poursuit chaque jour. Vient maintenant la phase d'application de ce que vous avez appris. Vous ne réussirez pas à chaque instant, mais je crois que vous réussirez plus souvent que vous échouerez. Dans cet effort et dans ces réussites, un élan va se construire et la transition va venir. Des changements, mes bien-aimés, des changements arrivent en vous et dans ce monde. Soyez préparés. Soyez forts. Comptez sur l'Amour au sein de votre âme, sur la beauté de votre âme et sur votre connexion avec le Père Céleste pour vous guider vers la Lumière. En cela, tout sera bien, tout sera béni.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Martin Luther et je vous aime. Je suis avec vous. Je suis là pour vous aider, comme beaucoup d'autres. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

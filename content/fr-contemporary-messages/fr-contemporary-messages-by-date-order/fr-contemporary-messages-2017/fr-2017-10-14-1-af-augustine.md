@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos âmes ont certainement été accordées et bénies
 
-Augustin - reçu par Al Fike le 14 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 14 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant Augustin. Oui vous avez été réunies âmes bien-aimées. Souvent vous étiez dans l'étonnement de savoir comment cela serait possible. Et cela nous amuse, car nous travaillons avec diligence pour réunir les âmes qui peuvent travailler ensemble en harmonie, qui peuvent trouver un bénéfice mutuel de ces associations et créer un canal, un puissant canal de Lumière dans ce monde.
 
@@ -22,6 +22,3 @@ Et vous, mes bien-aimés, ainsi que beaucoup d'autres que Dieu prépare dans ce 
 Alors que vos cœurs chantent de joie dans cette révélation continue et dans l'éveil de l'âme, puissiez-vous continuer à chercher, à vous interroger, à prier et à aspirer à la Vérité. Tout sera révélé en son temps, lorsque vous serez prêts et lorsque vous vous éveillerez. Tant de choses vous seront données et de nombreuses opportunités vous seront révélées, âmes bien-aimées, pour travailler ensemble, pour travailler pour l'humanité, pour apporter une plus grande Lumière afin que vous puissiez vraiment en bénéficier, vraiment grandir, vraiment approfondir votre conscience, à travers des perceptions avec de nombreuses facultés et dons de vos âmes, alors que l'Amour de Dieu éveille tout et vous montre le chemin. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et j'ai travaillé avec chacun d'entre vous. Bien que vous n'en ayez peut-être pas été conscients, vos âmes ont certainement été accordées et bénies de nombreuses façons.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Que Dieu vous bénisse.
-
-
-

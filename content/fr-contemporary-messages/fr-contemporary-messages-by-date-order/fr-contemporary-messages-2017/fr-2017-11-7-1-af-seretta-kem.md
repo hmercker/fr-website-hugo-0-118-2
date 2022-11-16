@@ -9,7 +9,7 @@ weight:
 ---
 ### Instructions concernant les temps morts
 
-Seretta Kem - reçu par Al Fike le 7 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 7 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Seretta Kem. Nous continuerons à faire certaines procédures sur vos corps, votre corps spirituel pendant que vous priez en ce temps mort. Je suggère que vous preniez certains des messages que vous avez reçus concernant la Voix Directe et que vous les lisiez ensemble, que vous discutiez de ces informations afin que vous soyez tous clairs - sur la même longueur d'onde comme vous dites - concernant ces informations qui ont été diffusées au cours de ces mois, car il y a beaucoup de pages impliquées. Nous avons consacré beaucoup d'efforts, de directives et de conseils pour chacun d'entre vous. Si vous n'êtes pas sûrs, veuillez- vous référer à ces écrits. Cela ne fait pas de mal de relire ces messages au moins quelques fois. Vous trouverez des éléments d'information différents à chaque lecture.
 
@@ -20,6 +20,3 @@ Puisse la sagesse qui vient et qui vous a été transmise s'infiltrer dans vos �
 Oui, vos perceptions du monde changent et continueront à changer et à être modifiées par les bénédictions de l'Amour du Père et par les conditions dans lesquelles vous vous trouvez pour le développement de la Voix Directe. Ainsi, les dons s'ouvrent, la connaissance s'épanouit, la Vérité s'épanouit en vous et l'Amour continue d'influencer tout le monde. Puissiez-vous avoir un vif désir d'absorber tout ce changement, cette croissance et cette prise de conscience en vous. En peu de temps, vous serez une nouvelle personne, une personne profondément changée avec de profondes intuitions, une vraie sagesse, une plus grande foi et plus d'Amour en vous. Tout cela vient avec chaque jour, chaque jour avançant vers le suivant, de sorte que vous continuez à grandir progressivement et à évoluer vers ce bel être que Dieu a créé - plein de potentiels, de dons et de beauté. Et ceci est éveillé en vous par l'Amour du Père et ainsi vous l'exprimerez de façon merveilleuse, âmes bien-aimées. Portez la lumière. Faites briller la lumière. Ne la laissez pas s'affaiblir mais se renforcer. Chaque instant est une occasion de faire avancer votre lumière, d'être toujours plus proche de Dieu, d'apprendre à connaître votre véritable moi - cette belle âme qui est vous, la merveilleuse création de Dieu.
 
 Que Dieu vous bénisse, belles âmes. Que votre journée soit remplie de lumière car les anges sont avec vous. La lumière de Dieu brille sur vous. Que cela se manifeste en ce jour d'une manière magnifique. Que Dieu vous bénisse. Je suis Seretta Kem.
-
-
-

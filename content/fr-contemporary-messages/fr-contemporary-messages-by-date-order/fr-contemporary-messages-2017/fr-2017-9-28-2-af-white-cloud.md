@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour réveillera votre âme
 
-Nuage Blanc - reçu par Al Fike le 28 Septembre 2017, Gibsons, Colombie-Britannique, Canada
+Nuage Blanc - reçu par Al Fike le 28 Septembre 2017, FUSC, Burnaby, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse. Je suis Nuage Blanc.
 
@@ -24,6 +24,3 @@ Alors buvez profondément, buvez profondément et cherchez le Toucher du Créate
 Tous les habitants de ce monde ont besoin d'arriver à ce lieu de reconnaissance, une reconnaissance du Créateur, afin qu'ils puissent vraiment comprendre pourquoi ils sont ici, qui ils sont et ce qui est important. Être capable de sentir la douceur de l'air, de connaître la beauté des eaux de Dieu dans ce monde, la verdure des arbres, les belles créatures, l'émerveillement que vous représentez. Vous devez reconnaître ces choses afin de pouvoir faire un pas de plus vers la Source de tout et être dans cette Lumière, cette beauté, être dans le flux de l'Amour de Dieu. Choisissez cela, mes amis, choisissez cela de votre cœur. Cherchez ceci, cherchez à être vrai avec vous-même, car vous le désirez en vous et pourtant vous vous en détournez souvent. Cherchez cette vérité, cherchez Dieu, cherchez à vous connaître et tout se déroulera. Tout se déroulera.
 
 Que le grand Esprit Blanc vous touche, âmes bien-aimées, vous touche de près d'une manière que vous n'oublierez jamais et que vous chercherez toujours plus de cette bénédiction. Elle sera donnée comme vous la recherchez. Soyez bénis. Que le souffle de Dieu vous touche profondément et vous garde près de lui. Que Dieu vous bénisse. Je suis Nuage Blanc. Que Dieu vous bénisse.
-
-
-

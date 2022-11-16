@@ -9,7 +9,7 @@ weight:
 ---
 ### Alec partage ses frustrations concernant le premier projet Voix Directe
 
-Alec Gaunt - reçu par Al Fike le 12 Juin 2017, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 12 Juin 2017, Gibsons, Colombie-Britannique, Canada.
 
 Vous avez donc voulu avoir des nouvelles de votre vieil ami, Alec ? Je vais garder mes commentaires courts car vous devez maintenant réaliser que c’est Seretta Kem, qui est en effet une âme puissante et très avancée, qui est en charge de votre développement en ce moment et de ce projet. Je suis avec vous.
 
@@ -22,6 +22,3 @@ Le plus grand défaut de cet effort était que je l’ai mené presque seul, bie
 Réfléchissez bien à ce qu’il dit. Continuez à prier pour l’Amour Divin. C’est la clé de tout, comme vous le savez bien. Ne vous inquiétez pas des détails. Vous connaissez le chemin que vous devez prendre, et vous le prendrez de bon gré. Soyez forts, soyez aimants les uns envers les autres, soyez confiants que vous réussirez, soyez en paix. Sachez que vous êtes informés et que vous continuerez à être guidés. Rien ne sera laissé au hasard, mes bien-aimés. Vous êtes bien pris en charge, en de très bonnes mains en effet. L’Amour coulera dans tout.
 
 Que Dieu vous bénisse. Je suis Alec. Je suis toujours avec vous. Que Dieu vous bénisse.
-
-
-

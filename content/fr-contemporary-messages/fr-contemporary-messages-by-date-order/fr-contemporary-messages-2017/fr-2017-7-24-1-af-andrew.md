@@ -9,7 +9,7 @@ weight:
 ---
 ### Les désirs de votre âme sont nombreux
 
-André - reçu par Al Fike le 24 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 24 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions de paix et d'Amour pour vous, mes bien-aimés. Je suis Andrew. Je suis venu pour être avec vous dans vos prières.
 
@@ -20,6 +20,3 @@ De nombreux anges vous entourent en ce moment, âmes bien-aimées, car lorsque v
 Continuez à prier pour ce grand cadeau ; continuez à désirer cette bénédiction. Dieu vous guidera en avant et vous utilisera comme Ses instruments pour apporter cette Lumière et cette Vérité, pour apporter une plus grande paix à ce monde. Tout cela fait partie d'un plan et chacun de vous doit être renforcé dans l'Amour, doit être clair dans son cœur, doit être sûr dans son esprit de ce qu'est la Vérité et de ce qui lui est destiné. Marchez sur le Chemin Divin, âmes bien-aimées, marchez dans la Lumière et libérez tous ces fardeaux, tous vos soucis et préoccupations, et marchez dans la liberté et la joie qui viennent avec ce grand Amour et cette Lumière. Tant de choses que Dieu a à donner à chacun de vous, tant de choses qui attendent, tant de choses qui attendent votre désir, votre désir, votre ouverture, ce qui peut être donné, nourrissant vos âmes, vous nourrissant de Vérité et d'Amour, de force et de sagesse.
 
 Soyez avec Dieu, mes bien-aimés, soyez avec Dieu. Que Dieu vous bénisse. Je suis André et je vous aime.
-
-
-

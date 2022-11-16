@@ -29,5 +29,4 @@ La plupart du temps, je voyage sur Urantia pour ce genre de « repos et récupé
 
 « Je m’appelle Isaac, l’ingénieur céleste. Jusqu’à ce que nous nous rencontrions à nouveau. »
 
-© The 11:11 Progress Group.
-
+*© The 11:11 Progress Group.*

@@ -9,7 +9,7 @@ weight:
 ---
 ### Saluer Percy en Esprit
 
-Jésus, Augustin & Phyllis - reçu par Al Fike le 11 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Jésus, Augustin & Phyllis - reçu par Al Fike le 11 Octobre 2017, Abbotsford, Colombie-Britannique, Canada.
 
 **Je suis Jésus.** Je suis venu saluer un de mes disciples bien-aimés aujourd'hui alors qu'il entrait dans les royaumes de l'esprit, joyeux et bien-aimé. Je l'ai salué alors qu'il quittait la chair. Je l'ai embrassé, car j'ai et tous les anges ont, une profonde gratitude pour ses efforts dans ce monde. C'est une âme bien-aimée, une âme avec un profond désir d'apporter la Vérité de l'Amour du Père à ce monde.
 
@@ -22,4 +22,3 @@ Ainsi, votre père et ami bien-aimé, le serviteur bien-aimé de Dieu est revenu
 **Je suis Augustin** et je viens pour être avec vous, avec le Maître, pour vous bénir. Dieu vous bénit. Je suis avec vous et j'ai été avec votre père bien-aimé toute sa vie. Moi aussi, je l'ai salué lorsqu'il est passé dans nos royaumes de Lumière.
 
 **Je suis Phyllis** et je suis tellement heureuse que mon bien-aimé Percy m'ait rejoint dans les royaumes de la Lumière. Il s'est senti submergé par la joie, l'excitation et l'amour. Son passage a été magnifique et beau. De nombreux anges l'ont salué et l'ont remercié pour son service. Il va continuer à progresser, car son âme est en bonne voie pour s'unir à Dieu. Quelle joie il me donne, quelle joie d'être avec mon bien-aimé Percy, de s'embrasser une fois de plus, de se regarder avec des yeux d'Amour. Je suis si heureuse et il est si heureux. Si vous versez une larme, que ce soit une larme de joie car c'est vraiment un événement joyeux, une bénédiction joyeuse. Que Dieu vous bénisse tous. Je suis Phyllis et je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-

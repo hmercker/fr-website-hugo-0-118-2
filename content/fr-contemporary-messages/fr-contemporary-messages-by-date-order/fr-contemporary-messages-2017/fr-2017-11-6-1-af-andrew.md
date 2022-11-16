@@ -22,6 +22,3 @@ Mes âmes bien-aimées, belles âmes, montrez le chemin, soyez l'exemple, exprim
 Que vos âmes soient remplies en ces moments de prière. Puissiez-vous vraiment comprendre ce que vos âmes désirent et chercher sincèrement à satisfaire ces désirs sincères à l'intérieur de vous afin que vous puissiez vraiment savoir que vous êtes aimés de Dieu. Laissez le pouvoir de l'Amour de Dieu apporter son harmonie et sa paix, sa sagesse et sa lumière en vous. Cela ne nécessite pas de grands rituels, de nombreux livres, de paroles, de conférences données par d'autres. Non, tout ce que cela exige, c'est que vous cherchiez Dieu avec sincérité et sérieux. Tout découle de cela, de si grandes bénédictions. Tout est à votre portée, âmes bien-aimées. Cherchez et cela viendra. Demandez et vous recevrez. Ayez la foi et l'Amour se développera en vous comme un puissant torrent de Lumière et d'Amour.
 
 Bénédictions à vous, mes bien-aimés. Je suis André. Je vous aime. Soyez des Lumières dans le monde, âmes bien-aimées, et beaucoup de choses en découleront. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-
