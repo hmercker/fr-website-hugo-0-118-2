@@ -13,7 +13,6 @@ Jésus - reçu par Jane Gartshore le 19 Juillet 2020
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/blur-1845861_1920.jpg)
 
-
 La force motrice derrière une grande partie des décisions prises dans ce monde est la cupidité. La force de la cupidité, qui est une soif de pouvoir et de domination sur d’autres personnes de moindre envergure, est une force qui sera étouffée et vaincue par la main de Dieu.
 
 Je viens à vous ce soir pour clarifier certaines réalités qui ont été confuses dans le passé, des réalités que l’humanité est maintenant prête à entendre.
