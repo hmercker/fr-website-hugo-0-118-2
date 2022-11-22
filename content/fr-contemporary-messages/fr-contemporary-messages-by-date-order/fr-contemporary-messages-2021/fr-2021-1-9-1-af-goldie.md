@@ -9,7 +9,11 @@ weight:
 ---
 ### La beauté de la fleur 
 
-Goldie - reçu par Al Fike le 9 Janvier 2021, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Al Fike le 9 Janvier 2021, Gibsons, Colombie-Britannique, Canada
+
+La beauté d’une fleur dit plus de mots de vérité et de Dieu qu’un livre entier sur le sujet. Considérez ceci, mes amis, c’est cette beauté simple et glorieuse, ce miracle de la création de Dieu qui élève et inspire l’âme. Permettez-vous d’être les fleurs de Dieu, de belles expressions de sa création. Et en cela, ceux qui ont la vision pour voir, l’inspiration intérieure pour se rapprocher, viendront et reconnaîtront la glorieuse création de Dieu.
+
+Je suis votre ami Goldie et je vous aime, belles fleurs toutes. Je t’aime. Que Dieu vous bénisse.
 
 
 
