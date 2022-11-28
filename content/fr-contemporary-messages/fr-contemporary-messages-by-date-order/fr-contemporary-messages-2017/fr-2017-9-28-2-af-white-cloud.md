@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour réveillera votre âme
 
-Nuage Blanc - reçu par Al Fike le 28 Septembre 2017, FUSC, Burnaby, Colombie-Britannique, Canada.
+Nuage Blanc - reçu par Al Fike le 28 Septembre 2017, FUSC, Burnaby, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse. Je suis Nuage Blanc.
 

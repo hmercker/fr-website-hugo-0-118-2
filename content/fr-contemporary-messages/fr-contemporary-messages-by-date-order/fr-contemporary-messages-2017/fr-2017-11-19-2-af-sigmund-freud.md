@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour peut guérir la douleur de l'humanité
 
-Sigmund Freud - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Sigmund Freud - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Bonjour, je suis Sigmund Freud. Oh combien je me suis trompé dans mes estimations de l'humanité. 
 

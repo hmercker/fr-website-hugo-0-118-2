@@ -11,7 +11,7 @@ weight:
 
 André - reçu par Al Fike le 6 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
-Que Dieu vous bénisse, âmes bien-aimées, je suis André.
+Que Dieu vous bénisse, âmes bien-aimées, je suis André
 
 Si peu se tournent vraiment vers Dieu de manière à ce que celui-ci puisse les entendre et répondre en conséquence. Beaucoup ont une pensée fugace, une idée déformée, ou une image qui n'est pas tout à fait vraie de qui et de ce que Dieu est. Dieu est Amour. Dieu est Amour.
 

@@ -26,7 +26,7 @@ Puisse Dieu vous bénir de cette manière, âmes bien-aimées. Que Son Amour con
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je suis avec vous dans vos efforts et vos entreprises. Nous travaillons ensemble, n'est-ce pas ? Vous de la Terre et nous du Royaume Céleste fusionnons ensemble dans l'Amour, nous éveillant dans l'Amour toujours alors que ce don continue à couler et à changer notre monde. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Augustin vous aime.
 <small>
 
-1 <large id=”f1”> Le treillis de lumière est créé par les divers participants aux cercles de prière simultanés "par-delà les fils" dans le monde entier.[↩](#a1)
+1 <large id=”f1”> Le treillis de lumière est créé par les divers participants aux cercles de prière simultanés « par-delà les fils (Internet) » dans le monde entier.[↩](#a1)
 
 
 

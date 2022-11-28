@@ -9,7 +9,7 @@ weight:
 ---
 ### Les facultés de l’âme comparées à un objectif d’appareil photo
 
-Jacques - reçu par Al Fike le 10 Avril 2017, Gibsons, Colombie-Britannique, Canada.
+Jacques - reçu par Al Fike le 10 Avril 2017, Gibsons, Colombie-Britannique, Canada
 
 C’est moi, Jacques. J’ai suivi vos conversations concernant la Volonté de Dieu par rapport à votre propre volonté et votre désir de servir dans la Lumière dans le monde et je suis venu donner quelques éclaircissements sur ce sujet.
 

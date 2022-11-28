@@ -9,7 +9,7 @@ weight:
 ---
 ### Les dons de la connaissance de la vérité de l'amour de Dieu
 
-Augustin - reçu par Al Fike le 25 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 25 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Le cadeau de l'Amour du Père est en grande abondance au milieu de vous par vos prières et vos désirs apportant cet Amour entre vous, et partageant ce désir de recevoir ce cadeau dans vos âmes. Vous devez voir, âmes bien-aimées, comme ce temps d'être ensemble dans l'Amour est précieux, pour prier ensemble, pour partager vos désirs sincères dans une communion d'amour avec Dieu. Car c'est dans ce désir sincère et sérieux que viennent de nombreuses bénédictions, la bénédiction de l'Essence du Père, la bénédiction de Sa guérison, la bénédiction de la paix qui dépasse toute compréhension et la bénédiction de la Lumière. Vous attirez parmi vous les anges du Royaume Céleste.
 

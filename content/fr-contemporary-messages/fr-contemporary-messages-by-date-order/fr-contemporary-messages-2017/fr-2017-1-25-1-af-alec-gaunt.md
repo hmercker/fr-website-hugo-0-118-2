@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment être avec Dieu ?
 
-Alec Gaunt - reçu par Al Fike le 25 Janvier 2017, FUSC <sup id=”a1”>[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada.
+Alec Gaunt - reçu par Al Fike le 25 Janvier 2017, FUSC<sup id=”a1”>[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada
 
 Je suis Alec et je suis venu à cette église de nombreuses fois au cours des nombreuses années où j’ai eu une association ici. Je suis venu en chair et en os. Je suis venu en esprit. J’ai travaillé avec beaucoup d’entre vous qui êtes ici. Je viens pour servir Dieu dans l’amour, dans mon désir de vous soutenir dans votre développement spirituel.
 

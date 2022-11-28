@@ -9,7 +9,7 @@ weight:
 ---
 ### Acceptez chaque âme unique, leurs différences ne vous feront pas de mal spirituellement
 
-Keea Atta Kem - reçu par Al Fike le 16 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 16 Janvier 2017, Gibsons, Colombie-Britannique, Canada
 
 Merci d’être venus, car vous avez été appelés. Et votre discussion de la matinée fut, en effet, très bonne, par le partage de vos préoccupations , de vos perceptions, de vos idées et de vos aspirations. C’est bien. Il est bon de révéler vos pensées et vos idées intérieures, de faire ressortir ce qui couve en vous et dans votre âme.
 

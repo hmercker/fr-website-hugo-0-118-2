@@ -9,7 +9,7 @@ weight:
 ---
 ### Le voyage de l'éveil
 
-Augustin - reçu par Al Fike le 11 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 11 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis votre enseignant Augustin. Que l'Amour du Père continue d'inonder vos âmes et de vous amener à l'expiation. Oui, j'ai participé à l'introduction de l'erreur dans ce monde. Je l'ai fait en croyant sincèrement que j'apporterais l'ordre, le bon sens et la vérité à l'humanité. C'était une période d'ouverture d'une nouvelle religion dans le monde. Beaucoup d'âmes recherchaient avidement nos avis et nos conseils. Et c'est ainsi que j'ai été emporté par ce grand fleuve de désir et d'empressement à établir  « la parole du Seigneur Jésus » dans ce monde. Vous avez entendu l'expression : *« la route de l'enfer est pavée de bonnes intentions. »*
 

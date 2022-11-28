@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédiction
 
-Confucius - reçu par Al Fike le 9 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 9 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Soyez bénis, mes enfants, je suis Confucius. Oui la Lumière devient brillante parmi vous, âmes bien-aimées, très brillante en effet. Comme vous faites connaître vos prières et vos efforts à Dieu, Sa réponse se déverse sur vous, vous élevant et apportant de grandes bénédictions à vos âmes.
 

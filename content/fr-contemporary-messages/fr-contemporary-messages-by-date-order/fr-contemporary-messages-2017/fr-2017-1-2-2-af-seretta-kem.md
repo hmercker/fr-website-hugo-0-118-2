@@ -9,7 +9,7 @@ weight:
 ---
 ### Une bénédiction pour le Nouvel An
 
-Seretta Kem - reçu par Al Fike le 2 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 2 Janvier 2017, Gibsons, Colombie-Britannique, Canada
 
 Vous avez chacun reçu une profonde guérison cette nuit, une bénédiction qui est venue avec les anges et les prières que vous avez faites, et ce profond et puissant portail de lumière qui a été construit à partir de vos efforts. Cela a apporté une puissante vague de guérison et de nombreux anges qui sont des guérisseurs parmi vous, ont permis de renforcer vos corps et allège vos âmes.
 

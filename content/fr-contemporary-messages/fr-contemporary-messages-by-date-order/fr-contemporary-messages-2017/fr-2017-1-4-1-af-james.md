@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment l’âme perçoit la vérité et la fonction de l’Esprit de Vérité
 
-Jacques - reçu par Al Fike le 4 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
+Jacques - reçu par Al Fike le 4 Janvier 2017, Gibsons, Colombie-Britannique, Canada
 
 Vous venez avec de nombreuses questions. Vous venez d’un endroit dans lequel vous avez des croyances et des compréhensions fermes sur le plan spirituel, et cela fait surgir en vous quelques questions et quelques conflits en termes de ce qui est la vérité du Chemin Divin et de ce qui est la vérité du chemin naturel. Il s’agit en effet de deux chemins distincts menant à deux endroits distincts, des points d’arrivée.
 

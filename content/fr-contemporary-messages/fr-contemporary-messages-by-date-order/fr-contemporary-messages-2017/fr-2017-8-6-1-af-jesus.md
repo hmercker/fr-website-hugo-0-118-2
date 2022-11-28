@@ -9,7 +9,7 @@ weight:
 ---
 ### Prier pour recevoir la Sainte Essence de Dieu
 
-Jésus - reçu par Al Fike le 6 Août 2017, FUSC, Burnaby, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 6 Août 2017, FUSC, Burnaby, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, vous les âmes précieuses. Que Sa Lumière, Sa Paix et Son Amour descendent sur vous, vous enveloppent et vous portent alors que vous vous aventurez dans ce monde. Je veux que vous sachiez que chacun de vous est aimé par Dieu. Chacun de vous est pris en charge par votre Père Céleste. Chacun de vous peut recevoir de Dieu toutes les bénédictions qu’il désire, car la générosité de l’âme de Dieu est infinie et les bénédictions qu’il accorde à chacun de ses enfants ne connaissent pas de limites.
 

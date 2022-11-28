@@ -9,7 +9,7 @@ weight:
 ---
 ### Les différents ajustements effectués dans votre corps
 
-Seretta Kem - reçu par Al Fike le 1 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 1 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Nous continuons à faire divers ajustements à l'intérieur de vos corps en apportant différents produits chimiques dans vos corps physiques et votre corps spirituel en préparation de la voix directe. Certains d'entre vous ont ressenti des changements physiques en eux. C'est notre travail, nos efforts pour apporter une harmonie dans vos corps qui peut être utilisée pour créer les conditions nécessaires à la voix directe. Vous avez également ressenti les conditions édifiantes qui sont mises en place dans ce beau sanctuaire et cela continuera. Nous continuerons à vous soutenir et à vous épauler. Nous travaillons chaque minute de chaque heure de chaque jour en votre nom. Lorsque vous êtes dans votre état de sommeil, nous continuons à travailler. En fait, il y a encore une session dans la chambre noire, dans votre état de sommeil, et cela contribue à faciliter l'avancement des conditions de la voix directe.
 

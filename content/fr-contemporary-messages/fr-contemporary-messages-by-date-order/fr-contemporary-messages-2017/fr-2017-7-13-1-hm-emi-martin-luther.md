@@ -9,11 +9,11 @@ weight:
 ---
 ### Courage
 
-Emi et Martin Luther - reçu par Helge Mercker le 13 Juillet 2017, Elim, Namibie.
+Emi et Martin Luther - reçu par Helge Mercker le 13 Juillet 2017, Elim, Namibie
 
 C'est l'Amour du Père qui t'apporte la joie, qui t'apporte les compréhensions, qui te guidera. C'est l'Amour de notre Père Céleste, l'Amour Divin dans ton âme, qui rayonne sur tout et tous ceux qui t'entourent. Continue à prier pour cet Amour - c'est l'essence vivante. Cet Amour rayonne brillamment en toi, ma chère fille et âme-sœur bien-aimée. Tu es profondément aimée et continue tes efforts. Continue, ma chère, continue.
 
-Oui, c'est ta grand-mère, c'est Emi qui est toujours autour de toi, qui te soutient, te guide et t'aide à t'ouvrir aux nombreuses choses sur ce plan. Je suis avec tes parents et je suis très proche d'eux. Donc, chaque fois que tu as besoin d'aide ou de compagnie, pense simplement à moi et je suis là. Oui, Luther est très désireux de t'enseigner davantage, de te rendre plus conscient de nombreuses autres choses que tu es capable de comprendre, d'expérimenter et de connaître. En fait, il est très désireux, car il y a tant de choses qui t'attendent. Il désire tellement partager cela avec toi et avoir un lien étroit avec toi, et il sera heureux quand la version révisée de ton livre sera enfin publiée.
+**Oui, c'est ta grand-mère,** c'est Emi qui est toujours autour de toi, qui te soutient, te guide et t'aide à t'ouvrir aux nombreuses choses sur ce plan. Je suis avec tes parents et je suis très proche d'eux. Donc, chaque fois que tu as besoin d'aide ou de compagnie, pense simplement à moi et je suis là. Oui, Luther est très désireux de t'enseigner davantage, de te rendre plus conscient de nombreuses autres choses que tu es capable de comprendre, d'expérimenter et de connaître. En fait, il est très désireux, car il y a tant de choses qui t'attendent. Il désire tellement partager cela avec toi et avoir un lien étroit avec toi, et il sera heureux quand la version révisée de ton livre sera enfin publiée.
 
 Oui, tes frères et sœurs dans cette entreprise et ce projet prient aussi très souvent. Vous êtes tous liés les uns aux autres. Continuez vos prières, car elles sont très bénéfiques. Pas seulement pour toi, mais pour tous ceux qui prient avec toi et avec qui tu pries, et cela nous rapproche beaucoup. Continue donc dans tes efforts de prier et la routine que tu as mise en place se révélera bénéfique. Tu verras, tu verras !
 

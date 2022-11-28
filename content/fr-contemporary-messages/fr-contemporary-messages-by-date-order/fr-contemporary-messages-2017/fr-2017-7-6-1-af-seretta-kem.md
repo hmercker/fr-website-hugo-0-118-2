@@ -9,7 +9,7 @@ weight:
 ---
 ### Avec le développement de ce don, un nouveau niveau de communication sera atteint
 
-Seretta Kem - reçu par Al Fike le 6 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 6 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Je vois que vous continuez à faire vos enquêtes, à dire vos prières et à tenter de changer vos habitudes physiques et mentales. Vous travaillez en effet avec diligence pour atteindre vos objectifs et nous sommes heureux de voir ces efforts accomplis. Cela nous rend optimistes quant à la réalisation de nos objectifs pour la Voix Directe, car vous avez fait preuve d'un engagement et d'un désir profonds envers ce projet.
 

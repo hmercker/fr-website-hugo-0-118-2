@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour dissout toutes les barrières
 
-Confucius - reçu par Al Fike le 17 Août 2017, FUSC, Burnaby, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 17 Août 2017, FUSC, Burnaby, Colombie-Britannique, Canada
 
 Enfants bénis, enfants de Dieu, je suis Confucius. Cette pièce est inondée de Lumière et d'Amour. Les eaux vives de Dieu s'y déversent. Étanchez votre soif, mes bien-aimés. Aspirez ceci dans vos âmes. Buvez profondément, buvez longtemps. Buvez comme un homme dans le désert car vous ne pourrez jamais étancher cette soif, mes bien-aimés. C'est une soif qui persiste alors que vos âmes continuent à désirer ces eaux vivantes si abondantes, si profondes, qui jaillissent de Dieu, Son Essence apportant la puissance de Son Toucher, la bénédiction de Sa Sagesse et de Sa Vérité, la gloire de Sa Lumière et de Son Amour pour vous, mes bien-aimés. Car Dieu aime chacun de vous d'une manière et à une profondeur que vous ne pourrez jamais connaître entièrement. Car il faut une âme complètement guérie et immergée dans cet Amour pour comprendre l'ampleur, la beauté de cette glorieuse Essence de Dieu.
 

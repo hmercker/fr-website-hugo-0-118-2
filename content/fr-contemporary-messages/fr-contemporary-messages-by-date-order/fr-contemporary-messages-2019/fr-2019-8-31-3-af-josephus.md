@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Qu'est-ce que la lumière spirituelle ?
 
-Flavius Joseph - reçu par Al Fike le 31 Août 2019, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 31 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
 Chers enfants bien-aimés de Dieu, je reviens, je suis Flavius Josèphe et je souhaite parler de la lumière. Nous vous demandons d’apporter la lumière dans le monde, de rechercher la lumière, d’exprimer la lumière. Je souhaite parler de cette qualité, de cette composante et de cette énergie du monde et de l’Univers de Dieu. Comme je l’ai dit, l’amour infuse tout. Là où l’amour est présent, il y a la lumière. La lumière est un indicateur de l’élément d’amour dans l’univers. L’amour et la lumière vont de pair. La lumière est le reflet de l’amour. La lumière est l’expression de l’amour. La lumière est l’opposé de l’obscurité. La lumière est ce qui est en harmonie avec les lois de la création Divine. L’harmonie et la lumière vont donc de pair. L’harmonie apporte la lumière. La lumière affecte l’harmonie et apporte à toute circonstance, situation, élément de l’univers, la composante d’harmonie et de lumière.
 

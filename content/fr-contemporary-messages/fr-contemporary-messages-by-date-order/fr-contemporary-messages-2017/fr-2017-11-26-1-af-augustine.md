@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer les imaginations de l'esprit
 
-Augustin - reçu par Al Fike le 26 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 26 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Vous entendez la cloche sonner, n'est-ce pas ? Je vous appelle au service. Je vous appelle à réveiller vos âmes afin que vous puissiez servir Dieu efficacement et être Ses canaux clairs dans ce monde. Pourtant, vous voyez l'énormité de ce qui vous attend avec un sentiment de trépidation et d'excitation. Votre esprit se pose de nombreuses questions : que va-t-il advenir de nous ? Que vais-je devenir dans ce grand tumulte des conditions changeantes de ce monde ? Qu'adviendra-t-il de ma famille, de ceux que j'aime et de ma vie ?
 

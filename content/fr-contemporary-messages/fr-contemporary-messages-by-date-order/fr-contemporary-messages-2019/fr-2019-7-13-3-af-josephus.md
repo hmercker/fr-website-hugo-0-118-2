@@ -9,13 +9,13 @@ weight:
 ---
 ### Q&R : La loi de l'attraction et les attachements d'esprits sombres
 
-Flavius Joseph - reçu par Al Fike le 13 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 13 Juillet 2019, Gibsons, Colombie-Britannique, Canada
 
-e suis de retour, c’est moi Flavius Josèphe. Comme c’est beau que Luc ait parlé à vos âmes, parlé en mots et en amour. Je vais maintenant tenter de m’adresser à vos esprits, car c’est de là que viennent vos questions, n’est-ce pas ? Je suis ici pour recevoir votre question.
+Je suis de retour, c’est moi Flavius Josèphe. Comme c’est beau que Luc ait parlé à vos âmes, parlé en mots et en amour. Je vais maintenant tenter de m’adresser à vos esprits, car c’est de là que viennent vos questions, n’est-ce pas ? Je suis ici pour recevoir votre question.
 
-QG. Merci, cher Josèphe. Voici la question que nous avons choisie : « Au fur et à mesure que nous progressons sur notre chemin et dans le cadre de nos efforts de guérison, nous rencontrons des personnes qui ont ou peuvent avoir des esprits sombres attachés. Quelle est la meilleure façon d’aider à la fois l’humain et cet esprit ou ces esprits ? » Merci.
+QG. Merci, cher Flavius Josèphe. Voici la question que nous avons choisie : *« Au fur et à mesure que nous progressons sur notre chemin et dans le cadre de nos efforts de guérison, nous rencontrons des personnes qui ont ou peuvent avoir des esprits sombres attachés. Quelle est la meilleure façon d’aider à la fois l’humain et cet esprit ou ces esprits ? »* Merci.
 
-J. Eh bien, je crois que ma réponse sera très simple : le pouvoir de la prière, mes âmes bien-aimées. Ce que vous appelez l’attachement d’un esprit est simplement une relation qui a été construite entre une âme individuelle et cet esprit qui, par les lois du rapport et de la communication, a créé un lien très fort. L’un renforce l’autre, n’est-ce pas ? Les pensées du mortel et les pensées de l’esprit vont et viennent, se mélangent et créent un tel sentiment qu’ils ne font qu’un, un peu comme vous le ressentez lorsque vous êtes proche d’un ami, que vous vous comprenez et que cette compréhension vous réconforte.
+FJ. Eh bien, je crois que ma réponse sera très simple : le pouvoir de la prière, mes âmes bien-aimées. Ce que vous appelez l’attachement d’un esprit est simplement une relation qui a été construite entre une âme individuelle et cet esprit qui, par les lois du rapport et de la communication, a créé un lien très fort. L’un renforce l’autre, n’est-ce pas ? Les pensées du mortel et les pensées de l’esprit vont et viennent, se mélangent et créent un tel sentiment qu’ils ne font qu’un, un peu comme vous le ressentez lorsque vous êtes proche d’un ami, que vous vous comprenez et que cette compréhension vous réconforte.
 
 Un esprit qui vit dans un coin sombre de la réalité de Dieu se sent seul, a besoin d’amis pour se réconforter et cherche un mortel pour le faire. Car souvent, dans le plan où ils existent, bien qu’il y ait beaucoup d’autres esprits avec eux, il y a un profond sentiment d’isolement et de solitude. Il est possible, en raison des lois de l’attraction, que cet esprit sombre soit attiré par un mortel qui a en lui des pensées et des émotions sombres. Cette relation se forme alors entre les deux. L’esprit est perdu dans la réalité de ce mortel dans votre monde. C’est une situation plutôt triste, de voir ce que vous appelez des attachements maintenus dans votre monde matériel, mais en effet ils existent et sont assez communs.
 
@@ -38,7 +38,7 @@ Nous ne vous suggérons pas d’assumer cette tâche et de développer ces dons 
 
 Considérez la sagesse de Dieu et le désir de Dieu que vous travailliez avec Dieu, que vous soyez avec Dieu, que vous permettiez à Dieu de travailler à travers vous. C’est la plus haute des aspirations. Cela vient avec la puissance de Son Amour dans vos âmes. Cherchez à servir dans le flux d’harmonie de la volonté et de l’Amour de Dieu dans ce monde et tout viendra comme il se doit, se déploiera et s’éveillera dans ce plan. Oui, beaucoup seront élevés. Beaucoup trouveront la guérison et la libération de l’obscurité et trouveront la joie plutôt que la douleur dans leur vie. Ayez la foi que vous jouerez votre rôle, que vous exprimerez vos dons, que votre service aura un sens, mes bien-aimés, et aura son impact dans le monde. Ayez confiance en Dieu. Ayez confiance en la volonté de Dieu.
 
-Je vous remercie, mes âmes bien-aimées. Je suis Flavius Joseèhe et je vais faire mes adieux pour l’instant, mais je reviendrai. Que Dieu vous bénisse, mes âmes bien-aimées. Que Dieu vous bénisse.
+Je vous remercie, mes âmes bien-aimées. Je suis Flavius Josèphe et je vais faire mes adieux pour l’instant, mais je reviendrai. Que Dieu vous bénisse, mes âmes bien-aimées. Que Dieu vous bénisse.
 
 
 

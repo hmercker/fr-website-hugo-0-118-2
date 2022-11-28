@@ -9,7 +9,7 @@ weight:
 ---
 ### Instructions concernant les temps morts
 
-Seretta Kem - reçu par Al Fike le 7 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 7 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis Seretta Kem. Nous continuerons à faire certaines procédures sur vos corps, votre corps spirituel pendant que vous priez en ce temps mort. Je suggère que vous preniez certains des messages que vous avez reçus concernant la Voix Directe et que vous les lisiez ensemble, que vous discutiez de ces informations afin que vous soyez tous clairs - sur la même longueur d'onde comme vous dites - concernant ces informations qui ont été diffusées au cours de ces mois, car il y a beaucoup de pages impliquées. Nous avons consacré beaucoup d'efforts, de directives et de conseils pour chacun d'entre vous. Si vous n'êtes pas sûrs, veuillez- vous référer à ces écrits. Cela ne fait pas de mal de relire ces messages au moins quelques fois. Vous trouverez des éléments d'information différents à chaque lecture.
 

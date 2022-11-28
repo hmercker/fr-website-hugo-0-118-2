@@ -9,7 +9,7 @@ weight:
 ---
 ### Les bénédictions de son amour vous envahiront comme un puissant torrent
 
-Seretta Kem - reçu par Al Fike le 2 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 2 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, je suis Seretta Kem. Le Maître Jésus vous aime tendrement, mes bien-aimés. Et il vous connaît bien, et vous le connaissez plus que vous ne le pensez. Il y a beaucoup de personnes dans le monde de l'esprit que vous avez rencontrées dans vos états de sommeil, et vous avez eu de nombreuses conversations et expériences ensemble. Plus vous vous rapprocherez de la réalisation de la voix directe, plus vous entrerez en contact avec de nombreux autres esprits qui souhaitent utiliser cette ouverture, ce portail de communication avec l'humanité. Il est donc important que vous établissiez ces liens avec ces beaux esprits et anges qui souhaitent parler. Car dans cette connexion d'Amour, de réponse et de confiance qui se construit, viendront de puissantes manifestations et ce cadeau.
 

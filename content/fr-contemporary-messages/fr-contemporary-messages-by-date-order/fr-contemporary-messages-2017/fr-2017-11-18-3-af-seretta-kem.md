@@ -9,7 +9,7 @@ weight:
 ---
 ### Un rapport sur nos progrès
 
-Seretta Kem - reçu par Al Fike le 18 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 18 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, c'est moi, Seretta Kem. Oui, vous avez effectivement fait des progrès. Vous avez constamment progressé vers le haut de l'échelle de la Lumière. En effet, vous êtes maintenant à ce qui serait l'équivalent de la cinquième sphère dans vos prières et les conditions dans la chambre noire. Je dois vous féliciter pour ces efforts, car c'est un niveau difficile à atteindre. Pourtant, vous avez, avec nos efforts et notre collaboration, atteint un objectif important. Cela nous apporte une grande joie de savoir que vous avez effectivement répondu à une demande de notre part de faire les efforts nécessaires pour être à ce niveau de Lumière, d'Amour et d'harmonie lorsque vous priez ensemble dans la chambre noire.
 

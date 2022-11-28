@@ -9,7 +9,7 @@ weight:
 ---
 ### Progression vers le sommet de la colline
 
-Thomas d'Aquin - reçu par Al Fike le 25 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Thomas d'Aquin - reçu par Al Fike le 25 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Pensez à nous comme à l'ascension d'un monticule, d'une petite colline. Alors que vous approchez de la crête de cette colline, vous ne pouvez pas voir ce qui se trouve de l'autre côté. Vous êtes impatient de voir, vous êtes curieux de marcher sur cette colline et de regarder la vue qui s'offre à vous. Il en est ainsi de vos efforts et de votre désir de développer le don de la voix directe et d'aller de l'avant avec ce don. Vous ressentez l'impulsion d'aller de l'avant, vous avez eu des expériences sur le chemin que vous prenez et pourtant vous ne savez pas vraiment où ce chemin va. Pourtant, vous sentez que vous allez de l'avant, que quelque chose d'important est sur le point de se produire. Vous avez fait de grands efforts jusqu'à présent pour arriver à ce point, près de la crête de la colline, près de ce lieu de clarté et de vision. 
 

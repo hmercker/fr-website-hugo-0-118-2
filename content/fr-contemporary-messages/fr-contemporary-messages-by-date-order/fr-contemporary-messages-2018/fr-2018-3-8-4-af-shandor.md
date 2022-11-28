@@ -9,7 +9,7 @@ weight:
 ---
 ### Commentaires de Shandor sur la Voix Directe
 
-Shandor - reçu par Al Fike le 8 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Shandor<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 8 Mars 2018, Gibsons, Colombie-Britannique, Canada
 
 Al : Je pense qu’ils ont été très surpris et un peu impressionnés que sans le développement que sa civilisation a traversé et les conditions dans lesquelles ils vivent, que nous tentons un objectif aussi ambitieux avec la voix directe. Il a dit qu’il comprenait pourquoi, il dit que le besoin est très grand et il voit pourquoi l’effort est fait, mais il est un peu surpris que nous n’attendions pas une plus grande conscience de l’âme sur la terre… nous sautons en quelque sorte le pas, nous prenons de l’avance en apportant ce don.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La guérison et la loi de l'harmonie Partie 1
 
-Seretta Kem - reçu par Al Fike le 18 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 18 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je suis revenue pour vous parler, car il y a des questions sur la guérison et le pouvoir de la prière pour guérir le corps physique non seulement pour cet instrument, mais aussi pour ceux qui sont dans vos vies et dont vous vous souciez et que vous aimez. C'est un sujet complexe, car il y a des moments où les âmes sont guéries de leurs maladies physiques et pourtant il semble qu'il y ait très peu d'effort dans la prière, simplement une demande et en cela une bénédiction jaillit et la guérison a lieu. D'autres fois, de nombreuses âmes prient intensément pour un individu, mais il n'y a pas de réponse.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vivre le chemin de l’amour.
 
-Jésus - reçu par Jane Gartshore le 11 Juin 2017.
+Jésus - reçu par Jane Gartshore le 11 Juin 2017
 
 C’est moi, Yeshua. Je viens enseigner le but de marcher avec Dieu, c’est-à-dire de vivre sa vie en accord avec Sa volonté. Il y a deux raisons à cela. Premièrement, cela renforce l’harmonie de l’ensemble. L’harmonie se compose de plusieurs parties – chaque être a sa note à apporter. Lorsque tous les êtres émettent leur note de manière intentionnelle, on obtient une harmonie sonore qui permet de créer un monde meilleur pour tous.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Comprendre les lois de l'amour et la régénération de nos âmes
 
-Martin Luther - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Martin Luther - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Martin Luther. J'ai écouté votre conversation de ce soir. Je vois que vous êtes arrivé à un endroit où vous voyez qu'il y a des limitations et que Dieu a placé certaines règles en ce qui concerne l'existence de chaque âme.
 

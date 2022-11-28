@@ -9,7 +9,7 @@ weight:
 ---
 ### Les désirs de votre âme sont nombreux
 
-André - reçu par Al Fike le 24 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 24 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Bénédictions de paix et d'Amour pour vous, mes bien-aimés. Je suis Andrew. Je suis venu pour être avec vous dans vos prières.
 

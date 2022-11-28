@@ -9,7 +9,7 @@ weight:
 ---
 ### Un esprit qui suit la grâce de l'âme
 
-Keea Atta Kem - reçu par Al Fike le 4 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 4 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Keea-atta Kem. Oui vous êtes en effet entré dans une nouvelle phase dans le développement de vos dons. Au cours de la période précédente où vous étiez ensemble, nous avons travaillé diligemment pour mélanger les produits chimiques afin d'aider à encourager l'harmonie parmi vous et vous aider à prier plus sérieusement. Nous vous avons également aidé à vous élever dans ces belles conditions de Lumière qui vous aideront, vous et nous, à développer ce don spécial de la voix directe. Mes bien-aimés, vous avez été élevés dans cette Lumière, vous avez prié pour cela et vous l'avez désiré dans vos âmes et Dieu vous a donné une grande Lumière, chacun et tous ensemble. Maintenant, c'est à vous de vous ouvrir complètement dans ce lieu de Lumière. Et tous ces petits éléments en vous qui ne sont pas en harmonie avec l'Amour de Dieu doivent maintenant être mis de côté, être nettoyés et expulsés de vous.
 

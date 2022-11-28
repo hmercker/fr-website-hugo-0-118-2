@@ -9,7 +9,7 @@ weight:
 ---
 ### La route est claire devant vous
 
-Jésus - reçu par Al Fike le 2 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 2 Janvier 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Jésus.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne pas retomber dans les vieux schémas
 
-Seretta Kem - reçu par Al Fike le 4 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 4 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis Seretta Kem. Je vous recommande de penser à la couleur verte qui vous entoure avant d'entrer dans la chambre. Cela vous aidera à vous adapter à ces différentes conditions, tout comme la couleur violette, que certains d'entre vous perçoivent déjà.
 

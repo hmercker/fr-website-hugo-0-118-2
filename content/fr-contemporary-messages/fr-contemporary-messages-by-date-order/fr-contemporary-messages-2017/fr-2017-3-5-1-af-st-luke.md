@@ -9,7 +9,7 @@ weight:
 ---
 ### Se lier d’amitié avec son âme
 
-St Luc - reçu par Al Fike le 5 Mars 2017, Gibsons, Colombie-Britannique, Canada.
+St Luc - reçu par Al Fike le 5 Mars 2017, Gibsons, Colombie-Britannique, Canada
 
 Bienvenue dans ce Cercle de Lumière, cette oasis de Paix, votre sanctuaire d’Amour.
 

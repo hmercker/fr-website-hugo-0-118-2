@@ -9,7 +9,7 @@ weight:
 ---
 ### Instructions détaillées concernant les sessions de voix directe
 
-Seretta Kem - reçu par Al Fike le 15 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 15 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Seretta Kem et je viens vous parler de vos projets de Voix Directe. Je vais donc énoncer quelques requêtes fondamentales pour commencer ces prières et préparations dans le développement de la Voix Directe.
 

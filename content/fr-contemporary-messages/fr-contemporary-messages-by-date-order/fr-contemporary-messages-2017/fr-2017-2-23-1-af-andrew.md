@@ -9,7 +9,7 @@ weight:
 ---
 ### En quête d’amour et de lumière
 
-André - reçu par Al Fike le 23 Février 2017, FUSC <sup id=”a1”>[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 23 Février 2017, FUSC<sup id=”a1”>[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada
 
 Je suis André. Bénédictions à vous qui venez pour être ensemble en cherchant l’Amour et la Lumière. Par vos prières, vous avez ouvert un grand portail de Lumière qui a apporté de nombreuses bénédictions, à vous et à travers vous, dans ce monde et, ce faisant, vous avez rendu un grand service, dans ce monde comme dans le monde des l’esprit, à de nombreuses âmes qui recherchent les bénédictions de Dieu.
 

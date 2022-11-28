@@ -9,7 +9,7 @@ weight:
 ---
 ### Étancher la soif de votre âme
 
-Augustin - reçu par Al Fike le 18 Septembre 2017, West Vancouver, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 18 Septembre 2017, West Vancouver, Colombie-Britannique, Canada
 
 Je suis votre enseignant Augustin. Que Son Amour trouve un gîte dans vos âmes, chacun ici, car Son Amour se déverse dans cette salle en ce moment. Je vous suggère profondément de vous ouvrir pour recevoir ce cadeau d'Amour. Car l'Amour de Dieu est partout. Lorsque vous vous réunissez dans un cercle tel que celui-ci, vous attirez intensément ce beau cadeau et cette lumière et vous pouvez boire profondément de ces eaux, étancher la soif de votre âme, mes bien-aimés.
 

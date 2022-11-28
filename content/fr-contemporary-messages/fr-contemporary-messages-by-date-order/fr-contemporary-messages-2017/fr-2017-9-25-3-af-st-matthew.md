@@ -9,7 +9,7 @@ weight:
 ---
 ### L’éveil de l’âme donne lieu à l’harmonisation de l’esprit matériel et de l’âme
 
-St Matthieu - reçu par Al Fike le 25 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 25 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, mes bien-aimés. Je m’appelle Matthieu. Je souhaite aborder le sujet de ce que vous appelez la réalité, car l’humanité a un grand désir d’affirmer ses perceptions de la réalité pour la rendre ferme et substantielle, de sorte que tout ce qui contredit ces idées est considéré comme une erreur.
 

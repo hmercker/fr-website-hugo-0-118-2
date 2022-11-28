@@ -9,7 +9,7 @@ weight:
 ---
 ### Les graines de votre âme
 
-Augustin - reçu par Al Fike le 23 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 23 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Pouvez-vous voir comment vos désirs affectent les résultats de vos vies, comment ces désirs dans la prière vous apportent des bénédictions et comment, alors que vous souhaitez servir Dieu, Dieu répond en vous aidant à vous préparer à servir, en faisant apparaître ces dons qui vous mettront sur la voie du service et vous apporteront une compréhension plus profonde de la voie que vous devez suivre dans le service. Vous vous êtes donc réunis pour servir Dieu, n'est-ce pas ? Vous avez répondu à l'invitation que Dieu a lancée à chacun d'entre vous et vous avez dit : *« Oui, je suis prêt. Je suis prêt à te servir, à suivre tes conseils, à me réunir dans l'amour, à marcher ensemble sur ce chemin pour un temps. »* En avançant de cette manière, vous ouvrez une porte, une possibilité et une opportunité. Il en sera ainsi, mes amis, il en sera ainsi. Chaque pas ouvre une porte. Chaque décision apporte quelque chose de nouveau, une possibilité dans vos vies.
 

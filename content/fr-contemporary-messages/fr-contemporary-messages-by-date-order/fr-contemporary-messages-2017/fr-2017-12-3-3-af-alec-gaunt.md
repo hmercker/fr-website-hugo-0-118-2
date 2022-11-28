@@ -9,7 +9,7 @@ weight:
 ---
 ### Sans amour, on ne peut pas progresser
 
-Alec Gaunt - reçu par Al Fike le 3 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Alec Gaunt - reçu par Al Fike le 3 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Salutations de l'esprit, mes amis. Je suis Alec Gaunt et j'ai déjà assisté à ces réunions lorsque j'étais sur terre, il y a des années. Ma belle-fille est assise ici. Je te salue, chère et bien-aimée fille.
 

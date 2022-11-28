@@ -9,7 +9,7 @@ weight:
 ---
 ### Réduire les différences avec amour
 
-Josué - reçu par Al Fike le 30 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Josué - reçu par Al Fike le 30 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse. Je m'appelle Josué. Je suis venu vous parler des différences dans le monde.
 
@@ -27,7 +27,7 @@ Dieu vous envoie dans le monde afin que vous puissiez être utilisé pour touche
 
 Ainsi, l'invitation à venir au Père Céleste pour recevoir Son Don d'Amour est donnée de cette manière sans paroles, remplie d'Amour et de Lumière. Ainsi mes amis bien-aimés, ne vous retenez pas parce qu'un individu ne vous est pas familier avec ses pensées, sa langue, son apparence et sa culture qui est si différente. Toutes ces choses en comparaison avec l'âme sont superficielles et vous apprenez le langage de l'âme, mes amis. Vous apprenez à communiquer de cette autre manière. Au fur et à mesure que vous vous familiarisez avec cette communication, avec le langage de l'âme pour ainsi dire, vous devenez des ambassadeurs très efficaces de l'amour du Père dans ce monde. Au fur et à mesure que l'Amour du Père grandit en vous, vous émanez une force, une Vérité, l'Amour d'une manière telle que les autres sont conscients, certainement dans leurs âmes, de ce que vous apportez par votre présence. C'est un cadeau, un cadeau qui vient avec le pouvoir de l'Amour Divin et l'éveil de votre âme pour dire les mots de l'Amour, des mots qui sont sans mots, des expressions qui sont pures, des émanations qui circulent dans l'air et touchent les autres parce que vous avez permis à un canal de s'ouvrir en vous. Permettre à l'expression de l'Amour de Dieu de s'écouler par ce canal, de toucher d'autres âmes, d'allumer en elles le désir de recevoir ce cadeau.
 
-Lorsque vous accueillez tous ceux que vous rencontrez avec un sourire, une lueur dans vos yeux qui dit "Je vous aime", vous faites le travail du Père. Vous portez la Vérité et l'exprimez magnifiquement dans ces gestes simples, lorsque vous en touchez un autre et lui dites « tu es mon frère, tu es ma sœur », et vous marchez dans le monde en sachant que Dieu vous guide, vous protège et que vous êtes escortés par des anges.
+Lorsque vous accueillez tous ceux que vous rencontrez avec un sourire, une lueur dans vos yeux qui dit « Je vous aime », vous faites le travail du Père. Vous portez la Vérité et l'exprimez magnifiquement dans ces gestes simples, lorsque vous en touchez un autre et lui dites *« tu es mon frère, tu es ma sœur »*, et vous marchez dans le monde en sachant que Dieu vous guide, vous protège et que vous êtes escortés par des anges.
 
 Quel magnifique voyage vous faites, mes enfants, quelle merveilleuse aventure, alors que vous continuez à vous connaître si véritablement à l'intérieur et à exprimer les dons que Dieu vous a donnés, la Lumière qui est dans votre âme. Vous toucherez beaucoup d'autres personnes, souvent sans même le savoir. Mais parce que vous portez la Lumière et l'exprimez à chaque respiration, vous ne pouvez pas vous empêcher de toucher les autres.
 

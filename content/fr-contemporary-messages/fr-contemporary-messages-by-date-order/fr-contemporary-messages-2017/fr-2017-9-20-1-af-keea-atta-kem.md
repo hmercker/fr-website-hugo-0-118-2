@@ -9,9 +9,9 @@ weight:
 ---
 ### Les couleurs de la guérison de Dieu
 
-Keea Atta Kem - reçu par Al Fike le 20 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 20 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
-Dieu vous bénisse, âmes bien-aimées. Je suis Keea Atta Kem. J'ai vécu à l'époque de Ramsès II <sup id=”a1”>[1](#f1)</sup> en Égypte, il y a de très nombreuses années. Je suis maintenant une habitante du Royaume Céleste.
+Dieu vous bénisse, âmes bien-aimées. Je suis Keea Atta Kem. J'ai vécu à l'époque de Ramsès II<sup id=”a1”>[1](#f1)</sup> en Égypte, il y a de très nombreuses années. Je suis maintenant une habitante du Royaume Céleste.
 
 Je souhaite venir vous parler des énergies de guérison de Dieu. On reconnaît ces énergies à leurs couleurs, à leurs belles couleurs. Si vous avez la vision de l'esprit, vous pouvez voir ces couleurs. Lorsque Dieu déverse la couleur bleue sur vous, âmes bien-aimées, cela profite à votre état mental et apporte la paix, le calme. Les choses qui peuvent perturber votre esprit seront chassées par la lumière, une belle lumière bleue de plusieurs intensités, d'un bleu clair à un bleu saphir très foncé. Ensuite, il y a la couleur rouge, un rouge très intense, qui apporte la vitalité physique. Vous pouvez envisager que ce rouge vienne dans vos corps pour aider à apporter la vitalité, la force. Le vert, un beau vert, avec de nombreuses nuances différentes, apporte également la guérison au corps et à l'esprit et apporte l'alignement dont vous avez parlé. Cette couleur verte est très importante et je vous suggère de méditer sur cette couleur chaque jour.
 

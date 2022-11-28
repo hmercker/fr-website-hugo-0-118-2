@@ -9,7 +9,7 @@ weight:
 ---
 ### Le début
 
-Seretta Kem - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 C'est moi Seretta Kem qui est avec vous. Et c'est ainsi que nous commençons ce travail. Au cours de ces mois passés, lorsque le début de cet effort est né et que vous vous êtes tous avancés et engagés à travailler à ces fins, je vous dis : *« Que Dieu vous bénisse abondamment d'avoir bien voulu et de vouloir faire partie de ce projet, de mettre de côté toutes les activités et tous les fardeaux qui pèsent sur votre temps afin de vous réunir pour vous consacrer à une seule chose, servir Dieu de cette manière et offrir un cadeau à l'humanité afin que Jésus et les anges puissent parler au monde de leur propre voix. »*
 

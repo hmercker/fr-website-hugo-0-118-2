@@ -9,7 +9,7 @@ weight:
 ---
 ### Poudre de Lutin et Fleurs
 
-Goldie - reçu par Al Fike le 3 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Al Fike le 3 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 C’est moi Goldie ! J’ai répandu de la poussière de lutin sur vous avec des fleurs à vos pieds. J’ai embrassé chacun d’entre vous. Tous les anges sont venus vous toucher avec leurs bénédictions. Chacun vous a touché et vous a donné sa bénédiction et les cadeaux qu’il a à offrir à ses protégés.
 

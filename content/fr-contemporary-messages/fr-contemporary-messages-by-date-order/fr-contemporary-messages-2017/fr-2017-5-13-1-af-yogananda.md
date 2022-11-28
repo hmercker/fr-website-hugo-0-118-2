@@ -9,7 +9,7 @@ weight:
 ---
 ### Accepter la diversité que Dieu a créée
 
-Yogananda - reçu par Al Fike le 13 Mai 2017, Centre de réalisation de soi, Encinitas, Californie, USA.
+Yogananda - reçu par Al Fike le 13 Mai 2017, Centre de réalisation de soi, Encinitas, Californie, USA
 
 Amis, je suis en effet Yogananda et je vous remercie d’être venus dans mon sanctuaire, d’être en ce lieu et d’ajouter vos prières à ce magnifique jardin. Vous voyez, la Lumière est partout mes bien-aimés, la Lumière est partout.
 

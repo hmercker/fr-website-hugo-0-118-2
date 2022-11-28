@@ -9,7 +9,7 @@ weight:
 ---
 ### Relation entre le mental matériel et le mental de l'âme
 
-Leytergus - reçu par Al Fike le 11 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Leytergus - reçu par Al Fike le 11 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je m'appelle Leytergus. Je fus, autrefois, dans les temps anciens, bien avant que Jésus ne vienne en ce monde, un philosophe. Je suis maintenant un habitant du Royaume Céleste. Je suis venu vous parler de la relation entre l'âme et le mental, c'est-à-dire le mental matériel et le mental de l'âme. Ce sont deux entités distinctes au sein d'un même individu.
 

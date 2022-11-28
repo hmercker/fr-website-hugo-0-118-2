@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettez à Dieu de vous utiliser comme Son canal d’amour
 
-André - reçu par Al Fike le 22 Mai 2017, Bend, Oregon, USA.
+André - reçu par Al Fike le 22 Mai 2017, Bend, Oregon, USA
 
 Nous sommes très satisfaits de ces deux instruments qui ont voyagé loin et ont été un instrument et un canal pour toucher de nombreuses âmes. Ils ont suivi leur guidance. Chaque jour a été une bénédiction et chaque jour n'a pas été gaspillé, car Dieu utilise Ses instruments de nombreuses façons, à de nombreux niveaux. Je sais que vous pouvez ne pas reconnaître d'un jour à l'autre que Dieu vous utilise comme un canal de Son Amour. C'est pourtant la vérité et vous avez vu comment Dieu vous a porté sur une vague d'Amour, a amené des gens à vous. Vous êtes venus toucher les autres avec un sourire, un commentaire, une intention d'être un canal d'Amour pour cette journée. Il en est ainsi, mes bien-aimés, votre intention et votre désir d'être un canal d'Amour à chaque jour apportera une multitude d'expériences et de connexions dans cette journée. Car Dieu utilise vos dons et votre présence pour toucher de nombreuses âmes. Et parce que vous avez marché dans la foi, vous avez dit *« oui, je vais aller de l'avant et chercher à être Ton instrument »*, que ces nombreux événements se sont produits, certains de reconnaissance et d'amour flagrants et d'autres plus subtils. C'est parce que vous avez choisi de vous déplacer dans le monde, de marcher parmi l'humanité, de garder la tête haute dans l'amour et la volonté de vous connecter avec beaucoup d'autres âmes, que Dieu vous a utilisé de cette façon et qu'il utilisera chaque belle âme qui dit *« je suis prêt, je suis prêt à marcher parmi mes frères et sœurs comme une lumière »*.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Guides individuels pour la voix directe
 
-St Matthieu - reçu par Al Fike le 9 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 9 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Matthieu et je suis heureux que vous soyez réunis ici ce soir avec ces autres personnes venues d'au-delà des mers pour prier et se préparer à la voix directe. Je ferai partie de ceux qui travaillent étroitement avec vous dans la préparation et l'exécution de ce don. Je donnerai des conseils au fur et à mesure que nous progresserons, avec notre bien-aimé Serreta Kem. Maintenant, un groupe d'anges, un conseil en quelque sorte, a été nommé à ce groupe. Je vais vous donner les noms de chaque âme bien-aimée qui participe afin que vous puissiez faire appel à ces magnifiques êtres Célestes pour vous soutenir et vous guider alors que vous continuez à prier séparément et ensemble.
 

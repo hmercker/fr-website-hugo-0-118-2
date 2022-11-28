@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de l'amour
 
-Lotus Blossom - reçu par Al Fike le 7 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
+Lotus Blossom - reçu par Al Fike le 7 Janvier 2018, Gibsons, Colombie-Britannique, Canada
 
 Je vous souhaite la bienvenue, mes bien-aimés. Oui, je suis Fleur de Lotus.
 

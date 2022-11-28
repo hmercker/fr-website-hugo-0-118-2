@@ -9,7 +9,7 @@ weight:
 ---
 ### La consécration de vos âmes
 
-Seretta Kem - reçu par Al Fike le 3 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 3 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis Seretta Kem. En ce moment, vous vous baignez dans les eaux vives de Dieu. Ces eaux inondent cette pièce, votre cercle, vous nourrissant, âmes bien-aimées, et vous élevant et apportant la grande bénédiction à votre âme de Son Amour afin que vous puissiez vous étendre dans cette Lumière et que chacun d'entre vous s'étende avec cet Amour, vos âmes se touchant les unes les autres en faisant un beau cercle de lumière.
 

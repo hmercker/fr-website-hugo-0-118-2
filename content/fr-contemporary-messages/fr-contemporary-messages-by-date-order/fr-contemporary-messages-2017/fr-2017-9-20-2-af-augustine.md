@@ -9,9 +9,9 @@ weight:
 ---
 ### La loi du désir (populairement confondue avec la loi de l'attraction)
 
-Augustin - reçu par Al Fike le 20 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 20 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
-Dieu vous bénisse, mes bien-aimés, je suis Augustin. Je souhaite parler de la loi du désir <sup id=”a1”>[1](#f1)</sup>, de son importance dans le déroulement de la vie de chaque âme dans ce monde et dans l'autre. Ce que l'individu désire ardemment, ce qu'il cherche, ce qu'il tend vers le monde pour se rapprocher de lui, inspire et informe de nombreuses choses qui se produiront dans sa vie.
+Dieu vous bénisse, mes bien-aimés, je suis Augustin. Je souhaite parler de la loi du désir<sup id=”a1”>[1](#f1)</sup>, de son importance dans le déroulement de la vie de chaque âme dans ce monde et dans l'autre. Ce que l'individu désire ardemment, ce qu'il cherche, ce qu'il tend vers le monde pour se rapprocher de lui, inspire et informe de nombreuses choses qui se produiront dans sa vie.
 
 Le désir vient de deux endroits différents de votre être. Il y a le désir de l'âme et celui du mental matériel. Souvent, ces deux aspects d'un individu peuvent être en conflit, car une âme peut aspirer à une connexion spirituelle, à être proche de Dieu, et le mental, dans sa domination, peut subvertir le désir de l'âme et le désir du mental devient la force motrice de la vie. Lorsque l'on est entièrement aligné avec le mental de l'âme, le mental de la matière suivra et sera incorporé dans le mental de l'âme, avec la bénédiction de l'Amour Divin pour amener cet alignement ensemble.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes des joyaux hors de prix
 
-Seretta Kem - reçu par Al Fike le 16 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 16 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Seretta Kem. Oui, vous continuez à ajuster vos métabolismes à travers vos régimes alimentaires. C’est bien, âmes bien-aimées, c’est bien. Nous voyons déjà une différence en chacun de vous. Il y a plus de changements à venir dans votre physique et il y aura un battement de la lumière dans votre âme, comme un battement de cœur, apportant de la vibration, de la force et de la lumière en chacun de vous. Chacun le ressentira un peu différemment, mais c’est un cadeau que nous implanterons dans chacune de vos âmes à mesure que vous vous ouvrirez et vous épanouirez. Vous continuez à progresser et votre lumière grandit et des cadeaux vont s’ouvrir, mes bien-aimés, des cadeaux de perception. Ils commencent déjà, vous ressentez des vagues de perspicacité et d’émotion, de compréhension et de connaissance. Cela ne peut que croître si vous continuez à progresser. Cherchez l’Amour, cherchez à être dans une plus grande harmonie.
 

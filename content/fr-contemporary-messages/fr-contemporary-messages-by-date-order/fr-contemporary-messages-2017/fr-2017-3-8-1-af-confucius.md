@@ -9,7 +9,7 @@ weight:
 ---
 ### S’abreuver de l’amour de Dieu
 
-Confucius - reçu par Al Fike le 8 Mars 2017, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 8 Mars 2017, Gibsons, Colombie-Britannique, Canada
 
 Mes bien-aimés, c’est Confucius. Le Souffle de Dieu est sur vous, mes bien-aimés. Le Souffle de Dieu vous soutient et vous transporte dans la Lumière. Ouvrez-vous au Toucher de Dieu, pour recevoir Son Amour guérisseur, pour apporter la paix, l’émerveillement et la joie qui viennent avec ce toucher profond dans vos âmes, mes bien-aimés. Où toute peur et toute douleur, toute erreur, se dissipe avec ce Toucher d’Amour.
 

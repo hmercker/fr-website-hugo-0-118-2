@@ -27,7 +27,7 @@ Vous avez tous reçu beaucoup, beaucoup de bénédictions et de cadeaux. Vous av
 
 Puissiez-vous toujours marcher dans la lumière du Toucher de Dieu, chers amis. Puissiez-vous continuer à servir dans l’amour, à vous rassembler et à prier, à être sérieux dans vos désirs de servir dans l’amour, à être un canal d’amour, à utiliser les opportunités et les capacités que vous pouvez avoir et exprimer dans ce grand flux sur lequel Dieu vous a guidés, le grand fleuve d’amour. Vous pouvez recevoir beaucoup et vous pouvez donner beaucoup. Ainsi, cette circulation sans fin de l’amour continue de s’épanouir, de se renforcer et de croître.
 
-Que Dieu vous bénisse, mes amis bien-aimés. Je suis Martin Luther et j’ai été très souvent avec vous alors que vous continuez à servir Dieu, alors que vous continuez à grandir dans l’Amour de Dieu et la Vérité de Dieu. Nous sommes si nombreux à vous accompagner et à porter un grand intérêt à la croissance de votre âme et de votre esprit, à vos efforts pour servir et aimer. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse.7
+Que Dieu vous bénisse, mes amis bien-aimés. Je suis Martin Luther et j’ai été très souvent avec vous alors que vous continuez à servir Dieu, alors que vous continuez à grandir dans l’Amour de Dieu et la Vérité de Dieu. Nous sommes si nombreux à vous accompagner et à porter un grand intérêt à la croissance de votre âme et de votre esprit, à vos efforts pour servir et aimer. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse.
 <small>
 
 1. <large id=”f1”> La visite à l’orphelinat de Drimiopsis, Namibie.[↩](#a1)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez conscient des conditions qui vous entourent
 
-Augustin - reçu par Al Fike le 31 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 31 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis votre enseignant Augustin.
 

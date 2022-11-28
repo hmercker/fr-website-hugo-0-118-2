@@ -9,7 +9,7 @@ weight:
 ---
 ### Que votre cœur chante
 
-Gene Kelly <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 23 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Gene Kelly<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 23 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je m'appelle Gene Kelly. Et je suis avec beaucoup de mes amis en esprit - Danny Kay, Barbara Stanwick, Lawrence Welk et beaucoup d'autres. Ils sont impatients et ils observent vos progrès car nous voulons tous apporter la joie et l'Amour à l'humanité. Il n'y a jamais eu de moment où cela est aussi nécessaire que maintenant. Les gens ont perdu l'esprit de la vie et vaquent à leurs occupations avec tant de morosité et de stress. Il y a tant de malheur dans le monde. Et lorsque mes compatriotes et moi-même avons cherché à divertir l'humanité, c'était pour apporter un peu de joie, un peu de lumière et de légèreté à ceux qui vivent dans ce monde. Maintenant, il y a un besoin plus profond et un message plus profond qui doit être dit et démontré de nombreuses manières créatives et nous désirons apporter cette Lumière et cette Vérité au monde.
 

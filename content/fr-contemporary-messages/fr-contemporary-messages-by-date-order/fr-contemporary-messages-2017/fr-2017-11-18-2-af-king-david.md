@@ -9,7 +9,7 @@ weight:
 ---
 ### David, roi des Juifs
 
-Roi David - reçu par Al Fike le 18 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Roi David - reçu par Al Fike le 18 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis le roi David des Juifs. Je souhaite apparaître devant mon peuple afin qu'il puisse entendre ce que j'ai à dire en tant que leur grand roi qui est maintenant entré dans le Royaume Céleste. Bien que je ne sois plus roi, je me préoccupe toujours beaucoup de mon peuple, les Juifs de ce monde, et je souhaite leur dire la vérité afin qu'ils trouvent du réconfort dans mes paroles et qu'ils soient élevés vers Dieu.
 

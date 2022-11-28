@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière simultanée crée un treillis de lumière
 
-Augustin - reçu par Al Fike le 12 Février 2017, Abbotsford, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 12 Février 2017, Abbotsford, Colombie-Britannique, Canada
 
 Belles âmes, votre enseignant Augustin est ici. Combien il est important pour vous de prier et de vous connecter avec ces groupes du monde entier qui prient eux-mêmes pour l’Amour du Père, en priant ensemble dans des cercles de lumière. Car dans cet effort qui est coordonné entre vous, il y a un bénéfice mutuel et un bénéfice pour nous qui servons dans le désir de Dieu de vous bénir tous.
 

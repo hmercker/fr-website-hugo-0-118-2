@@ -53,7 +53,7 @@ J2 : Avez-vous eu une idée de ce qu’est son monde, est-ce que les conditions 
 
 Al : Oui, oui, de très bonnes conditions.
 
-J1 : Il a dit, en 69-70, il a dit que nous aimons les étrangers plus que vous n’aimez vos propres enfants. <sup id=”a1”>[1](#f1)</sup>
+J1 : Il a dit, en 69-70, il a dit que nous aimons les étrangers plus que vous n’aimez vos propres enfants.<sup id=”a1”>[1](#f1)</sup>
 
 J2 : Oui, je me souviens de ce message…
 

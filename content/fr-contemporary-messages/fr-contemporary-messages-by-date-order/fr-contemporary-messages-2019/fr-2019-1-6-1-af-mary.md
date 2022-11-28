@@ -15,9 +15,9 @@ Je viens vous saluer. Je suis Marie. Je souhaite vous apporter mes bénédiction
 
 Bénis sont ceux qui portent la Vérité de l’Amour du Père dans le monde et qui mettent en œuvre cette Vérité à chaque instant et à chaque respiration. Ce sont les enfants qui réconforteront les perdus et apporteront une plus grande lumière et compréhension au monde. Puissiez-vous être ces enfants, mes bien-aimés. Puissiez-vous savoir, au plus profond de vos cœurs, que c’est votre destin d’apporter la lumière de cette Vérité d’Amour à ceux que vous rencontrez. Cela peut être juste un geste, un mot de bienveillance, un regard d’amour. C’est en cela que réside la vérité qui remue l’âme et qui déclenche ces questions de « qui suis-je ? » et « suis-je aimé ? »
 
-Dieu répondra à ces questions, âmes bien-aimées, en déversant sa grâce sur chaque enfant, alors que le monde continue à avoir faim, alors que le monde continue à avoir faim et soif de vérité et d’amour. Vos efforts et vos prières aideront à soulager ce grand besoin de l’humanité. Marchez avec Dieu, âmes bien-aimées, et soyez dans sa lumière et sa grâce et beaucoup de lumière et de bénédictions se déverseront sur vos frères et sœurs alors que vous cherchez à être les canaux d’amour de Dieu.
+Dieu répondra à ces questions, âmes bien-aimées, en déversant Sa grâce sur chaque enfant, alors que le monde continue à avoir faim, alors que le monde continue à avoir faim et soif de vérité et d’amour. Vos efforts et vos prières aideront à soulager ce grand besoin de l’humanité. Marchez avec Dieu, âmes bien-aimées, et soyez dans Sa lumière et Ssa grâce et beaucoup de lumière et de bénédictions se déverseront sur vos frères et sœurs alors que vous cherchez à être les canaux d’amour de Dieu.
 
-Que Dieu vous bénisse, mes bien-aimés. Je suis Marie et je suis aussi avec vous dans vos grands voyages vers Dieu. Que Dieu vous bénisse. Je vous aime. Que Dieu vous bénisse.
+Que Dieu vous bénisse, mes bien-aimés. Je suis Marie et je suis aussi avec vous dans vos grands cheminements vers Dieu. Que Dieu vous bénisse. Je vous aime. Que Dieu vous bénisse.
 
 
 

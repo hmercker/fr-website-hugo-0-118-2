@@ -9,7 +9,7 @@ weight:
 ---
 ### On a besoin de vous
 
-Winston Churchill - reçu par Al Fike le 14 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Winston Churchill - reçu par Al Fike le 14 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 C'est moi Churchill, Winston ChurchilI. Moi aussi, je me tiens aux côtés de mon frère (le roi George VI) dans un effort pour ramener la raison dans ce monde. On a besoin de vous, mes amis, on a besoin de vous. N'ayez pas peur de vous avancer, de vous lever et de parler. La vérité doit être dite et vous devez encourager tous les habitants de ce monde à changer leurs habitudes, à apporter quelque chose de plus équitable et de plus proche de l'harmonie. Le monde est devenu un endroit chaotique et je me rends compte maintenant que j'ai contribué à cette situation par mes erreurs et mes idées. Je souhaite faire un effort pour les corriger. Bien que je ne sois pas du ciel Céleste, je prie pour l'Amour de Dieu. Je le comprends maintenant et je travaille et progresse vers ce lieu de rédemption et d'union avec Dieu.
 

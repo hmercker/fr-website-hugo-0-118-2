@@ -11,10 +11,6 @@ weight:
 
 Al Fike - reçu par Al Fike le 8 Mars 2018, Gibsons, Colombie-Britannique, Canada
 
-Date : 8 Mars 2018
-Lieu : Punaluua, Oahu, HI, U.S.A.
-Médium : Al Fike
-
 Au début de la prière, j’ai vu chacun de nous dans une robe blanche et autour de la taille il y avait une ceinture de différentes couleurs et cette ceinture était indicative de notre fonction.
 
 Ainsi, la tienne était jaune (M) et indiquait qu’il s’agissait d’apporter la guérison et d’être en quelque sorte les gardiens de notre santé et de notre bien-être physique. C’est logique avec Fleur de Lotus comme guide.

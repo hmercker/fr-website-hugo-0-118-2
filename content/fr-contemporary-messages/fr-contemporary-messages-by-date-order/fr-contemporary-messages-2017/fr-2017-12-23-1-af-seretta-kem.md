@@ -9,7 +9,7 @@ weight:
 ---
 ### Lutter contre le mal
 
-Seretta Kem - reçu par Al Fike le 23 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 23 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Il est bon que vous vous réunissiez à l'occasion pour renforcer votre connexion, vos efforts ensemble, en attirant ceux qui ne sont pas ici dans la chair, en recréant ce cercle afin que nous puissions continuer dans cet effort pour faire avancer les dons que Dieu vous a accordés, âmes bien-aimées. Oui, certains d'entre vous luttent contre les conditions de ce monde et vous êtes bien protégés de ces conditions maintenant et pendant que vous étiez ensemble. Vous continuez à avoir vos anges amis à vos côtés. Gardez cela à l'esprit, mes bien-aimés, lorsque vous vous aventurez dans le monde, que vous avez effectivement des anges à vos côtés.
 

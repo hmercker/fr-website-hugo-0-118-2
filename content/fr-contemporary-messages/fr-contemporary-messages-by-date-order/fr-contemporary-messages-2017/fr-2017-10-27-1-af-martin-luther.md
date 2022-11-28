@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer les ténèbres intérieures en recevant l'Amour du Père
 
-Martin Luther - reçu par Al Fike le 27 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Martin Luther - reçu par Al Fike le 27 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je vois que certains d'entre vous ont des réactions dramatiques aux conditions qui s'infusent dans vos corps et vos âmes et vos esprits alors que vous vous ajustez à ces nouvelles conditions provoquant diverses réactions dans vos pensées et vos âmes.
 

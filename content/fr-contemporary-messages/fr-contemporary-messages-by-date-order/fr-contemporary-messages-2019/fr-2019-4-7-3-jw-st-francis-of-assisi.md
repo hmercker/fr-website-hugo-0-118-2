@@ -23,7 +23,7 @@ Et lorsqu'il y a un conflit dans ce lieu, un désaccord ou une dispute, je vous 
 
 Saint François rencontrait Jésus, dans les bois, presque chaque nuit. Alors que je visitais son tombeau vivant et que je posais ma tête sur la marche du sanctuaire, Saint François m'est apparu. Puis j'ai vu un tunnel d’Éternité dans lequel il a disparu. Toute la cave sous l'église était imprégnée de ses vibrations. Vous auriez eu beaucoup de plaisir à méditer ici. Saint François est l'un de mes saints préférés avec qui je communie et ai communié. Je vous écris ces choses sacrées car Dieu vous a rendu sacré par la méditation.
 
-Paramahansa Yogananda dans une lettre écrite à Rajarsi Janakananda, de Rajarsi Janakananda : Un grand yogi occidental
+**Source des notes de Yogananda :** Paramahansa Yogananda dans une lettre écrite à Rajarsi Janakananda, de Rajarsi Janakananda : Un grand yogi occidental
 
 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La naissance de la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, âmes bien-aimées, je suis Seretta Kem. En effet, nous sommes proches d'atteindre le don de la voix directe parmi vous. Un cadeau que vous désirez ardemment, un cadeau que nous avons le désir de vous aider à obtenir et un cadeau que Dieu souhaite vous donner, âmes bien-aimées.
 

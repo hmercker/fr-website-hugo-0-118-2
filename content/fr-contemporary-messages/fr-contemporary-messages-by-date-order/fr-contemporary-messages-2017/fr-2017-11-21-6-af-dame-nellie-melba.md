@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde a besoin de vous maintenant
 
-Dame Nellie Melba <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Dame Nellie Melba<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 e suis (Dame Nellie) Melba. Je fus une chanteuse de renom sur la scène il y a de nombreuses années. Je souhaite chanter pour l'humanité, chanter les louanges de Dieu, chanter avec une clarté et une beauté qui pourront élever les âmes de l'humanité. Mes dons n'ont fait que croître depuis mon arrivée de ce côté de la vie. Mon âme a également grandi dans l'amour de Dieu. Ceux qui m'entendront, entendront et ressentiront la sincérité de mon âme, la beauté qui vient de ma belle âme afin que Dieu puisse révéler la Lumière à travers moi. Je souhaite que Dieu utilise mes dons pour apporter des révélations à l'humanité, à votre monde. Je chanterai de mon cœur qui est rempli de la Lumière de Dieu et de l'Amour de Dieu.
 

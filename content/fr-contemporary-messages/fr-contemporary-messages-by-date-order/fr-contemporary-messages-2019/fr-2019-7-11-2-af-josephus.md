@@ -9,17 +9,17 @@ weight:
 ---
 ### Q&R : Méditation guidée et prière
 
-Flavius Joseph - reçu par Al Fike le 11 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 11 Juillet 2019, Gibsons, Colombie-Britannique, Canada
 
 Oui, je suis prêt à répondre aux questions. Je sais que notre frère Confucius souhaite que vous entriez dans votre âme pour trouver les réponses et c’est une vérité profonde. Mais en effet, vous êtes des mortels et il vous est difficile d’obéir à cette demande. Nous venons donc vous aider dans ce voyage afin que vous puissiez mieux comprendre l’importance de celui-ci et la façon de procéder. Donc s’il y a des questions à poser en ce moment, je suis prêt à y répondre.
 
-[(Silence)]
+[Silence]
 
 Il semble donc que notre cher Confucius vous ait rendu muets. C’est un ange de Dieu puissant et beau, l’un des plus élevés du Royaume Céleste. Il porte en lui la Vérité profonde et une puissante bénédiction de guérison car tous ceux qu’il rencontre sont profondément touchés par sa présence. Comme vous êtes bénis de l’avoir parmi ceux qui travaillent avec vous dans ce Cercle de Lumière. Comme il est beau que Dieu vous touche en recevant ces êtres Célestes élevés et magnifiques qui continuent à déployer leurs efforts en votre nom, pour aider à vous éduquer, vous élever et vous porter sur le chemin.
 
 C’est toujours notre défi, âmes bien-aimées, d’encourager, mais pas de créer des dépendances à cette expérience et à cette bénédiction qui viennent avec les anges. Car souvent, la tendance des mortels est, comme Confucius l’indique, d’être élevés, d’être embrassés et réconfortés, mais cela ne va pas plus loin pour les âmes qui sont simplement intéressées par la bénédiction et les sentiments de bonne volonté et d’amour qui viennent.
 
-[*Question : Nous sommes encouragés à organiser davantage de cercles de prière et certaines personnes réagissent mieux à une méditation guidée qu’à une prière comme celle que nous avons faite aujourd’hui. Quelle serait la meilleure façon d’évaluer et de fixer l’intention et de laisser les mots venir d’eux-mêmes, quelle que soit la forme qu’ils sont censés prendre, ou y a-t-il un mérite à avoir une courte prière et ensuite le silence*].
+*[Question : Nous sommes encouragés à organiser davantage de cercles de prière et certaines personnes réagissent mieux à une méditation guidée qu’à une prière comme celle que nous avons faite aujourd’hui. Quelle serait la meilleure façon d’évaluer et de fixer l’intention et de laisser les mots venir d’eux-mêmes, quelle que soit la forme qu’ils sont censés prendre, ou y a-t-il un mérite à avoir une courte prière et ensuite le silence.]*
 
 La composition d’un Cercle de Lumière est variable. Elle dépend des individus qui en font partie et de la perspective de chacun d’entre eux. Pour certains, il est en effet bénéfique de guider leur pensée et leur esprit sur une certaine trajectoire, afin qu’ils ne soient pas distraits par leurs pensées et leurs attentes qui sont entièrement basées sur le mental. Lorsque vous les emmenez dans un voyage guidé, comme vous le suggérez, il peut y avoir un certain bénéfice pour eux, une ouverture en quelque sorte qui permettra l’influence et les bénédictions des anges et de Dieu.
 
@@ -41,7 +41,7 @@ Donc, mon fils, tu as beaucoup de questions. Tu souhaites perfectionner ton appr
 
 Que Dieu vous bénisse sur ce chemin, âmes bien-aimées, sur le chemin du service, le chemin vers la Vérité, le chemin de l’expression de cette Vérité en tant qu’enseignant, guérisseur et consolateur pour Dieu. Que Dieu vous bénisse, mes bien-aimés. Je vais répondre à une dernière petite question, s’il y en a une.
 
-[*Question : J’ai fait un rêve répété dans lequel j’ai reçu le message suivant : « Cassez le code universel. » Pouvez-vous m’indiquer comment casser le Code Universel ?*]
+*[Question : J’ai fait un rêve répété dans lequel j’ai reçu le message suivant : « Cassez le code universel. » Pouvez-vous m’indiquer comment casser le Code Universel ?]*
 
 Il y a beaucoup de vérités dans l’univers, chère fille. Il n’y a pas un seul code universel, mais il y a de nombreuses vérités qui peuvent être obtenues et comprises. Je crois que tu es guidée par un esprit qui désire t’enseigner quelque chose. Lorsqu’ils disent « brise ce code », je perçois qu’ils souhaitent que tu sois consciente de ce qu’il souhaite te donner. C’est ton choix, chère fille, et c’est une forme de Vérité qu’il souhaite donner. Ce n’est pas LA Vérité.
 

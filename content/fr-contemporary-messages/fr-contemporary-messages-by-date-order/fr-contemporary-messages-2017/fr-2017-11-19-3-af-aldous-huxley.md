@@ -9,7 +9,7 @@ weight:
 ---
 ### Briser les chaînes de l'erreur
 
-Aldous Huxley <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Aldous Huxley<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Aldous Huxley. Vous me connaissez grâce aux livres que j'ai écrits et à ma vision du futur que j'expose dans ces morceaux de fiction. Malheureusement, ma vision n'est que trop exacte, peut-être pas aussi dramatique dans son expression, mais il est certain que beaucoup sont aveugles et ont été endoctrinés dans des idées qui sont contre-productives pour la vie. Donc, moi aussi je vous apporte mon soutien, mon amour et mes efforts pour vous aider à apporter une plus grande Vérité à ce monde, pour briser les chaînes, les chaînes qui lient tant de gens, pour libérer l'humanité afin qu'elle puisse connaître son vrai moi, ce dont elle est capable et qui est si beau et magnifique. Chaque âme a un grand potentiel. Chaque être est plein de créativité et de possibilités. C'est le message que je souhaite transmettre si j'ai l'opportunité de parler avec la Voix Directe.
 

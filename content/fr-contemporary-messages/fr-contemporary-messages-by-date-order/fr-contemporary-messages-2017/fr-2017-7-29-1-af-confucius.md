@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité passe par l'âme
 
-Confucius - reçu par Al Fike le 29 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 29 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius. J'espère que vous pouvez m'entendre.
 

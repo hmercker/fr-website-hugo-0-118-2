@@ -9,7 +9,7 @@ weight:
 ---
 ### Dites la vérité
 
-Nuage Blanc - reçu par Al Fike le 11 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Nuage Blanc - reçu par Al Fike le 11 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Salutations mes amis, je suis Nuage blanc.
 

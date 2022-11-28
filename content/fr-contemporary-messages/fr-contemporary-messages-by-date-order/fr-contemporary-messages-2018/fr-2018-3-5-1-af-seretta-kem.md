@@ -17,7 +17,7 @@ Ce cadeau ne se manifestera pas tant par vos efforts, bien que vos efforts soien
 
 Nous sommes donc tous ici avec vous. Nous continuons à nous réunir dans ce but et nous allons travailler ensemble avec une grande conviction et plénitude. Je vous demande instamment, âmes bien-aimées, d’élever vos pensées, d’être ensemble en harmonie, de nourrir vos corps, vos esprits, vos âmes et de ne pas laisser vos esprits vous emporter dans des pensées et des domaines qui détournent de cet effort. Continuez à vous engager à être tenus par cette condition d’Amour et de Lumière. Nous sommes ici, la sœur bien-aimée est ici, et nous allons travailler à nouveau ensemble pour provoquer ces manifestations spécifiques afin de communiquer avec le monde sur leurs voyages de manière à ce qu’ils puissent comprendre. C’est un cadeau spécial. Même Dieu et vos âmes s’en réjouissent, tout comme nous nous réjouissons de ce grand cadeau, de cette grande bénédiction d’être à nouveau ensemble. Notre amour est avec vous.
 
-La main de Dieu est sur vous et nous serons tous bénis dans cet effort merveilleux pour apporter la Vérité à l’humanité, l’Amour au monde, la guérison à votre planète, l’harmonie à tous. Que Dieu vous bénisse. Je suis Seretta Kem. Je suis très heureuse d’être avec vous une fois de plus de cette façon. Que Dieu vous bénisse. Je vous aime.
+La main de Dieu est sur vous et nous serons tous bénis dans cet effort merveilleux pour apporter la Vérité à l’humanité, l’Amour au monde, la guérison à votre planète, l’harmonie à tous. Que Dieu vous bénisse. Je suis Seretta Kem. Je suis très heureux d’être avec vous une fois de plus de cette façon. Que Dieu vous bénisse. Je vous aime.
 
 
 

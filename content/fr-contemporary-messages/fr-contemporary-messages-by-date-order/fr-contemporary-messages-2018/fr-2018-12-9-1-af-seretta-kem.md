@@ -26,6 +26,7 @@ Continuez vos cheminements, mes amis bien-aimés. Continuez à aspirer à l’é
 Votre âme est une création si impressionnante de Dieu et vous êtes en train de connaître et de voir seulement des lueurs de ce qui est en vous. Cela va en effet se transformer en un magnifique réveil. Avec le temps, toutes les facettes de votre âme seront connues de vous, mes bien-aimés, et de nombreux dons, de nombreuses parties, de nombreuses chambres magnifiques et complexes de votre âme viendront à la lumière et seront réveillées par l’Amour de Dieu.
 
 C’est votre destin, mes bien-aimés. C’est votre destin et Dieu vous guide. Dieu continue à vous protéger et à vous apporter la vérité et à éveiller votre âme dans l’Amour. C’est votre destin et tout se déroule comme le Créateur nourrit Son jardin, Ses belles fleurs, Sa création parfaite dans l’Amour.
+
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Seretta Kem. Mon amour est avec vous et je suis avec vous, âmes bien-aimées. Que Dieu vous bénisse.
 
 

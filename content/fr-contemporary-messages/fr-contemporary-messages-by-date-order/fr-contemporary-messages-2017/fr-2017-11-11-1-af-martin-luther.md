@@ -9,7 +9,7 @@ weight:
 ---
 ### Harmonie de l'esprit et de l'âme
 
-Martin Luther - reçu par Al Fike le 11 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Martin Luther - reçu par Al Fike le 11 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, âmes bien-aimées, je suis Martin Luther. Je viens une fois de plus m'adresser à vous. Que l'Amour du Père continue à se déverser dans vos âmes, mes amis, afin que Son Amour puisse ouvrir les perceptions de vos âmes et pour que vous puissiez voir le monde clairement, pour que vous puissiez comprendre le but de la vie, les bénédictions de la vie, la création de la vie, ce qui est l'œuvre de Dieu et son don pour vous. Que toutes ces choses puissent venir clairement dans votre conscience, dans la connaissance, la perception et l'être de vos âmes dans ce monde.
 

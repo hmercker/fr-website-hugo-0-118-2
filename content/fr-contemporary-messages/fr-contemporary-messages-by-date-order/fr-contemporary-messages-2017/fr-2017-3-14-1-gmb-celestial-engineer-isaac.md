@@ -9,7 +9,7 @@ weight:
 ---
 ### L’ingénierie et le passé
 
-Ingénieur céleste Isaac - reçu par George Barnard le 14 Mars 2017, Illawarra District, Australia.
+Ingénieur céleste Isaac - reçu par George Barnard le 14 Mars 2017, Illawarra District, Australia
 
 « Cela fait un certain temps que nous n’avons pas partagé nos délibérations avec les personnes que vous appelez les membres du 11:11. Nous, vous et moi, avons conversé en passant, oui, de nombreuses fois au cours des dernières années, mais maintenant je veux dire quelques mots sur les Ingénieurs Célestes. Il y a beaucoup de choses à propos du temps et de l’espace, de l’énergie et de la matière, et des travailleurs de Dieu qui ont leurs bureaux et leurs salles de travail dans ces endroits « touchables ».
 

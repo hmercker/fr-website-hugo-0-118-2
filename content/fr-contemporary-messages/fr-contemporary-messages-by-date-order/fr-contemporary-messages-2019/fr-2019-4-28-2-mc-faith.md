@@ -11,7 +11,7 @@ weight:
 
 Faith - reçu par Maureen Cardoso le 28 Avril 2019, Abbotsford, Colombie-Britannique, Canada
 
-e m'appelle Faith. Je réside dans le Royaume Céleste et mon âme a été transformée en un Ange Divin par le don de l'Amour Divin de Dieu. J'aimerais vous parler de la foi, de la façon dont on l'obtient et de la façon dont le fait de vivre avec la foi change la vie d'une personne.
+Je m'appelle Faith. Je réside dans le Royaume Céleste et mon âme a été transformée en un Ange Divin par le don de l'Amour Divin de Dieu. J'aimerais vous parler de la foi, de la façon dont on l'obtient et de la façon dont le fait de vivre avec la foi change la vie d'une personne.
 
 Toutes les âmes aspirent à connaître leur Créateur. Toutes les âmes aspirent à être aimées. Durant le temps de votre présence dans un corps physique, il vous arrive souvent de rechercher l'amour d'un autre humain dans un corps physique. C'est bien sûr une forme d'amour, le don de l'amour naturel et une forme de cet amour naturel qui est de l'ordre le plus élevé est le lien d'amour entre une mère et son enfant. L'amour suivant à considérer est le lien d'amour de votre âme avec l'âme de Dieu. Mes bien-aimés, lorsque vous apprendrez à écouter la voix de votre âme et que vous réaliserez qu'elle aspire à l'amour et à l'Amour de Dieu, vous comprendrez que s'ouvrir pour recevoir l'Essence Divine de Dieu qui se déverse dans votre âme est une chose réelle et que c'est l'Essence à laquelle vous aspirez.
 

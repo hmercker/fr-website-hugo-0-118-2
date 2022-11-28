@@ -9,7 +9,7 @@ weight:
 ---
 ### Message pour H
 
-Martin Luther - reçu par Al Fike le 10 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Martin Luther - reçu par Al Fike le 10 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Martin Luther et je t'aime ma fille bien-aimée et tu sais que nous sommes proches. Tu as un profond désir d'aider tes frères et sœurs dans le pays d'origine (Allemagne) comme je l'ai fait quand j'y ai marché. J'ai apporté la réforme et les peuples l'ont acceptée et cela a changé la culture de notre pays. Es-tu prête aussi, ma fille, à apporter la réforme ? Es-tu assez forte ? Es-tu prête à parcourir les routes et les chemins de ce pays et à apporter la vérité de l'Amour de Dieu ? Tu ressens le destin qui est sur le point de se dérouler. Tu es impatiente et tu sais que la Vérité que tu portes est un grand trésor et un cadeau pour tes frères et sœurs.
 

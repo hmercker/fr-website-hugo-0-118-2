@@ -9,7 +9,7 @@ weight:
 ---
 ### Pour quoi priez-vous ?
 
-Augustin - reçu par Al Fike le 30 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 30 Janvier 2017, Gibsons, Colombie-Britannique, Canada
 
 Qu'est-ce que vous cherchez, mes bien-aimés ? Quel est le désir ardent dans vos âmes ? Quel est le centre d'intérêt de votre prière ? Que cherchez-vous ? Car dans votre concentration et vos efforts de prière, en faisant ressortir vos désirs, en vous ouvrant au Créateur, en permettant à ces bénédictions d'amour de se déverser en vous et autour de vous, vous êtes dans la Lumière. Lorsque vous apportez ces désirs, ces envies, ces pensées, en avant dans la prière, et dans votre discrète méditation, il est important de se concentrer, mes bien-aimés. Il est important d'atteindre Dieu, la Source, et de susciter cette réponse, de susciter l'Esprit Saint qui apporte cet amour dans votre âme. C'est simple. Vous ne pouvez pas vous asseoir passivement et attendre que Dieu touche votre âme sans ces prières, ces efforts et ce désir. Oui, vous recevrez la bénédiction de la guérison ; un sentiment de confort. Vous apprendrez à connaître le sentiment de cet Amour autour de vous. Mais pour recevoir cet Amour ; pour que cet Amour coule dans vos âmes, et qu'il ait son impact sur votre âme, le changement qui vient, vous devez le désirer. Vous devez être ouvert à lui. Vous devez être alignés avec lui.
 

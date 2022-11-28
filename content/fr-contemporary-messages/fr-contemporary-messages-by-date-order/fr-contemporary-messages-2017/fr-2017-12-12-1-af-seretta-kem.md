@@ -9,7 +9,7 @@ weight:
 ---
 ### L'harmonie et l'amour entre vous sont la clé
 
-Seretta Kem - reçu par Al Fike le 12 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 12 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Seretta Kem. Je souhaite utiliser l'exemple de cet instrument pour vous instruire sur les voies de la médiumnité physique qui est ce pour quoi vous priez, n'est-ce pas, dans la chambre noire. La Voix Directe est une forme de médiumnité. Cet instrument s'est préparé et développé à la manière de son don particulier de médiumnité pendant de nombreuses années, souvent à son insu, mais il était ouvert et priant et désirait servir Dieu. Lorsque le moment est venu pour lui d'accepter consciemment et de permettre au don de se manifester, il l'a fait de bon gré. Au début, ce qui lui parvenait était une information plutôt simple. Aussi vrai qu'elles étaient, elles n'impliquaient pas beaucoup de concepts, d'idées, de vérités et d'explications compliquées, comme c'est le cas aujourd'hui et à cette époque. Il a fallu un certain temps pour que ses dons se manifestent et s'épanouissent. Il a fallu de la patience et de la persévérance. Il lui a fallu de l'enthousiasme et du désir. Il a prié : *« Père, utilise-moi comme ton canal de vérité, seulement de vérité et utilise-moi pour donner un message qui soit digne des anges, quelque chose qui soit élevé et en harmonie, quelque chose qui complète la vérité de l'Amour de Dieu et qui soit en harmonie avec cette vérité. »*
 

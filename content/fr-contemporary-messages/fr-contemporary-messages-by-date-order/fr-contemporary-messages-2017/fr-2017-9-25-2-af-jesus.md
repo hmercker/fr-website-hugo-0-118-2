@@ -9,7 +9,7 @@ weight:
 ---
 ### Tout est fait dans l'amour
 
-Jésus - reçu par Al Fike le 25 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 25 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Vous forgez un chemin où les mystères ne sont plus des mystères et où la Vérité est évidente pour ceux qui ont des yeux pour voir. Vous allez mettre en avant ces vérités. Vous aiderez à ouvrir les yeux de ceux qui souhaitent voir. Ainsi, vous forgez le chemin pour les autres.
 

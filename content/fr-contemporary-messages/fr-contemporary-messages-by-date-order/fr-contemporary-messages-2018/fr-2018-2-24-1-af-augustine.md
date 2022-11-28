@@ -27,7 +27,7 @@ Il y a tant de choses à votre disposition, mes âmes bien-aimées. Dieu a un do
 
 Êtes-vous disposées, âmes bien-aimées, à marcher dans le monde d’une manière qui n’est pas celle que la majorité de l’humanité souhaite vivre ? Si vous l’êtes, alors Dieu est là pour vous montrer le chemin. Mais si vous désirez la vie mondaine que l’humanité a à offrir, alors vous ne connaîtrez jamais les possibilités qui viennent de l’âme éveillée. Le choix vous appartient, mes bien-aimés. Sachez que Dieu vous aime, quel que soit le choix que vous faites, et qu’il attend le moment où vous serez prêts à reconnaître Sa Présence et à désirer le don de Son Amour.
 
-Chaque instant est un choix, chaque instant est rempli de possibilités. Chaque pas peut vous rapprocher de Dieu ou vous en éloigner. Mais le monde a besoin de ceux qui choisissent la lumière, qui prennent position et disent : « Je ne suis pas prêt à continuer ma vie dans cette voie de grisaille et d’obscurité. Je souhaite avoir une vie remplie d’amour et de lumière. »
+Chaque instant est un choix, chaque instant est rempli de possibilités. Chaque pas peut vous rapprocher de Dieu ou vous en éloigner. Mais le monde a besoin de ceux qui choisissent la lumière, qui prennent position et disent : *« Je ne suis pas prêt à continuer ma vie dans cette voie de grisaille et d’obscurité. Je souhaite avoir une vie remplie d’amour et de lumière. »*
 
 Alors, nous venons vous parler. Ces chères âmes viennent vous parler pour, espérons-le, enflammer votre imagination, votre conscience, afin que vous puissiez réaliser qu’il y a un choix, que vous puissiez comprendre l’importance de votre vie et de vos choix.
 

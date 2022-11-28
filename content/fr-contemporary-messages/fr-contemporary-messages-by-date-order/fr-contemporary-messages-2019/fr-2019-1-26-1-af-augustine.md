@@ -11,7 +11,7 @@ weight:
 
 Augustin - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada
 
-Que Dieu vous bénisse. Je suis Augustin, votre professeur. Cette âme chère et bien-aimée est un membre du Royaume Céleste et un merveilleux enseignant et guérisseur et nous sommes heureux qu’il soit venu pour aider à clarifier vos questions. (Sri Yarisupta)
+Que Dieu vous bénisse. Je suis Augustin, votre enseignant. Cette âme chère et bien-aimée est un membre du Royaume Céleste et un merveilleux enseignant et guérisseur et nous sommes heureux qu’il soit venu pour aider à clarifier vos questions. (Sri Yarisupta)
 
 Maintenant, notre fille a une question concernant la façon dont les différents points de vue et individus dans notre monde, votre monde, vont se réunir en harmonie. Est-ce que c’est ce que vous avez demandé ma fille ?
 

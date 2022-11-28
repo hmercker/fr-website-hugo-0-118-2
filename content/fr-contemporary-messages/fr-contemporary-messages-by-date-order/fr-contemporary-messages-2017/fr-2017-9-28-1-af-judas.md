@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce ne sont pas les mots qui comptent
 
-Judas - reçu par Al Fike le 28 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Judas - reçu par Al Fike le 28 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Judas et j'ai observé vos progrès et vos efforts pour apporter la Vérité de l'Amour Divin au monde. Je suis souvent avec vous lorsque vous lisez les messages que j'ai transmis par ce médium et j'essaie de vous faire comprendre la profondeur de la Vérité transmise. Je souhaite parler aujourd'hui du sujet de la communauté.
 

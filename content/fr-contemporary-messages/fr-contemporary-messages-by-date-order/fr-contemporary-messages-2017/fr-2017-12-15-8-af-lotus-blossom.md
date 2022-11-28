@@ -9,7 +9,7 @@ weight:
 ---
 ### La voix directe se manifestera pour chacun d'entre vous
 
-Fleur de Lotus - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Fleur de Lotus - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Fleur de Lotus. J'ai un tel Amour pour vous mes amis bien-aimés, bien-aimés. Si beaux, si beaux, vous êtes devenus alors que vous avez prié ensemble en ce temps que Dieu vous a donné d'être dans ce lieu, ce sanctuaire de Lumière. Et de venir et de vraiment vous connaître les uns les autres dans la prière et l'Amour qui sort de vos cœurs, embrassant tout dans l'Amour. J'ai vu de grands progrès de la part de chacun et une grande amélioration dans vos corps physiques. Vous avez fait des efforts constants accompagnés de prières constantes qui vous ont apporté de nombreuses bénédictions et ont ouvert la porte pour que le don de la voix directe puisse se manifester pour chacun d'entre vous, mes amis, et il le fera.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Accepter l'appel de Dieu
 
-Augustin - reçu par Al Fike le 1 Août 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 1 Août 2017, Gibsons, Colombie-Britannique, Canada
 
 Chacun d'entre vous a ressenti un changement au sein de son âme, une accélération, une ouverture et une compréhension accrue des véritables désirs de son âme. J'encourage chacun d'entre vous à poursuivre ce début d'éveil, à s'ouvrir davantage à Dieu, à s'ouvrir davantage à votre âme et à comprendre que ce processus, cet éveil, se poursuivra pour toute l'éternité. La capacité de l'âme à s'éveiller et à rassembler l'Amour et la Lumière, à comprendre l'univers, à connaître Dieu est infinie si elle reçoit une quantité adéquate de la bénédiction de l'Amour Divin, l'Essence de Dieu. Au fur et à mesure que cela s'accumule dans vos âmes bien-aimées, vos perceptions s'approfondissent, vos compréhensions changent, votre capacité d'aimer s'élève, s'élargit, et ces changements seront importants et profonds. Vous en viendrez à connaître votre véritable moi dans toute sa gloire, sa beauté et son charme.
 

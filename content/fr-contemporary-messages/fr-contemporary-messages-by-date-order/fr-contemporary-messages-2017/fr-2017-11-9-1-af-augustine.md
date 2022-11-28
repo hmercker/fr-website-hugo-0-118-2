@@ -9,7 +9,7 @@ weight:
 ---
 ### Croissance de l'âme et médiumnité
 
-Augustin - reçu par Al Fike le 9 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 9 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je tiens à vous remercier âmes bien-aimées pour votre compliment au sujet de ce dont je parle à travers cet instrument. Mais je souhaite également dire que le message passe par un médium de concert et de collaboration entre moi et ce médium particulier ou tout autre médium. Et si le médium n'a pas un côté poétique dans sa pensée, dans son esprit, il est difficile de produire des mots qui sont poétiques par nature. Il en va de même avec la médiumnité : chaque message est le reflet des conditions et de la composition de l'esprit du médium, ainsi que de l'esprit et de l'âme de ceux qui parlent à travers ce médium. Un message particulier peut être transmis tout à fait différemment par un autre médium, bien que l'intention soit la même, l'information soit la même, mais les mots utilisés sont différents et c'est la nature de parler de cette façon, de transmettre un message. 
 

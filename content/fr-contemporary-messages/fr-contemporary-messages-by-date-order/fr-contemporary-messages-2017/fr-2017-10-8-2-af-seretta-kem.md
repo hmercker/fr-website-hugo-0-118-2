@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils sur le régime alimentaire pour la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 8 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 8 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Quelle belle bénédiction Jésus vous apporte mes bien-aimés pour vous encourager dans vos efforts et votre cheminement. Maintenant je suis venu pour vous donner des instructions plus pratiques. Je vous suggère qu'à partir de maintenant et jusqu'à ce que vous vous rencontriez, vous fassiez un effort pour garder vos régimes légers, pas des aliments lourds, plus légers, certainement nutritifs. Ne vous surchargez pas. Continuez à ingérer les éléments qui ont été recommandés : phosphore, calcium et chlorophylle. 
 

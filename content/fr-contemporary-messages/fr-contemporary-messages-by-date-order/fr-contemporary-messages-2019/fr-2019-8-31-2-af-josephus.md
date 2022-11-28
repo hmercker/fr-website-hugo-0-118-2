@@ -9,9 +9,9 @@ weight:
 ---
 ### Qui et qu’est-ce que Dieu ?
 
-Flavius Joseph - reçu par Al Fike le 31 Août 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 31 Août 2019, Gibsons, Colombie-Britannique, Canada
 
-Je suis Flavius Josèphe. Je suis venu vous parler de Dieu. Qui et qu’est-ce que Dieu ? Puisque notre cher instrument vous a encouragé à tendre la main à Dieu, la source de tout, vers qui et vers quoi tendez-vous la main, mes amis ? Qu’imaginez-vous, quelle est votre compréhension de Dieu ? Au cours des âges, Dieu a été représenté de nombreuses façons, un grand homme imposant avec une barbe qui flotte, des cheveux bouclés tout de blanc vêtu, commandant et officiant dans la conduite, déterminant votre destin, déterminant tout ce qui fonctionne dans l’Univers. Mais ce n’est pas du tout Dieu, mais la simple imagination des hommes qui souhaitent créer Dieu à leur propre image, qui souhaitent voir Dieu comme l’autorité ultime, commandant tout.
+Je suis Flavius Josèphe. Je suis venu vous parler de Dieu. Qui et qu’est-ce que Dieu ? Puisque notre cher instrument vous a encouragé à tendre la main à Dieu, la source de tout, vers qui et vers quoi tendez-vous la main, mes amis ? Qu’imaginez-vous, quelle est votre compréhension de Dieu ? À travers les âges, Dieu a été dépeint de nombreuses façons, un grand homme imposant avec une barbe abondante, des cheveux bouclés tout en blanc, un comportement autoritaire et officiel, déterminant votre destin, déterminant tout ce qui fonctionne dans l'Univers. Mais ce n’est pas du tout Dieu, mais la simple imagination des hommes qui souhaitent créer Dieu à leur propre image, qui souhaitent voir Dieu comme l’autorité ultime, commandant tout.
 
 Pourtant, dans nombre de vos expériences de prière, de méditation et de contemplation, vous êtes arrivés à la conclusion que Dieu est Amour. C’est en effet l’idée et la compréhension correctes. Car l’Amour est l’énergie opératoire, la plus haute énergie de l’Univers. L’Amour est en tout parce qu’en effet, le Créateur a tout créé et dans Sa Création, Il a imprégné d’Amour tout ce qui existe. L’Amour est la force opérante qui continue à alimenter tout ce qui bouge et évolue et qui se trouve dans votre monde.
 

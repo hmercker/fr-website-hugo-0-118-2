@@ -9,7 +9,7 @@ weight:
 ---
 ### Je souhaite apporter ma musique à l'humanité
 
-Frédéric Chopin - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Frédéric Chopin - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Frédéric Chopin. Je souhaite moi aussi apporter ma musique à l'humanité. J'ai beaucoup plus de compositions que je pourrais exprimer à l'humanité puisque j'ai poursuivi mon don toujours plus loin en explorant les mondes de l'esprit et en explorant le potentiel de ma propre âme pour apporter la beauté de la musique et du son à l'humanité, au monde et à mon monde.
 

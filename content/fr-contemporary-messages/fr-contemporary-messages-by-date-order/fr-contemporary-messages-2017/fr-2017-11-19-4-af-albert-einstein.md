@@ -9,7 +9,7 @@ weight:
 ---
 ### L'humanité est au bord du précipice
 
-Albert Einstein - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Albert Einstein - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 C'est moi, Albert Einstein. Ce que vous faites est extrêmement intéressant, mes amis. Je trouve cela fascinant. La façon dont les lois de la physique sont utilisées pour y parvenir est une véritable révélation. Maintenant que je suis dans le monde de l'esprit et que j'ai étudié beaucoup plus de lois de la Création, j'ai les qualifications requises pour vous aider dans ces travaux et ces efforts et j'ai été invité à me joindre à cet effort. Je suis très heureux d'avoir une place parmi ces beaux esprits, vénérés et remplis de Lumière.
 

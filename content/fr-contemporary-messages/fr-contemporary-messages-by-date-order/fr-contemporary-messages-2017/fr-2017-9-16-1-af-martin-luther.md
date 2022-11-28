@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce qui apporte l'harmonie dans ce monde continue
 
-Martin Luther - reçu par Al Fike le 16 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Martin Luther - reçu par Al Fike le 16 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Martin Luther et je suis revenu pour poursuivre [ma conversation sur ce qui apporte l'harmonie dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-1-af-martin-luther/).
 

@@ -11,7 +11,7 @@ weight:
 
 Moïse - reçu par Jimbeau Walsh le 10 Avril 2019, Punalu’u, Oahu, Hawaii, USA
 
-Je suis Moïse et je viens parler de l’attention soin que Dieu apporte à tous ses enfants. En mon temps, je suis passé des richesses du palais aux errances dans le désert. Je me suis demandé : « Comment allons-nous nourrir ces gens ? Comment allons-nous prendre soin d’eux ? Où allons-nous dormir ? Que nous arrivera-t-il ? » Alors j’ai prié et chaque besoin a été pris en charge.
+Je suis Moïse et je viens parler de l’attention soin que Dieu apporte à tous ses enfants. En mon temps, je suis passé des richesses du palais aux errances dans le désert. Je me suis demandé : *« Comment allons-nous nourrir ces gens ? Comment allons-nous prendre soin d’eux ? Où allons-nous dormir ? Que nous arrivera-t-il ? »* Alors j’ai prié et chaque besoin a été pris en charge.
 
 Je regarde votre beau sanctuaire. Vous avez des choses dont nous n’aurions même pas pu rêver dans notre monde. Vous avez des moyens de communication, de transport, d’accès à la nourriture, à la chaleur et à un abri. Vous avez été si bien pourvus et vous continuerez à l’être. Oui, si vous demandez, vous recevrez, mais vous devez demander dans la foi, comme je l’ai fait. J’ai cru que Dieu pourvoirait aux besoins. Bien que j’aie parfois eu des doutes, j’ai simplement prié plus fort et tout m’a été fourni.
 

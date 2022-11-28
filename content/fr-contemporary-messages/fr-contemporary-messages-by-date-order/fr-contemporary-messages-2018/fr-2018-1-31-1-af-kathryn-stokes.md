@@ -11,7 +11,7 @@ weight:
 
 Kathryn Stokes - reçu par Al Fike le 31 Janvier 2018, Gibsons, Colombie-Britannique, Canada
 
-Jeanne remercie Kathryn <sup id=”a1”>[1](#f1)</sup> d’être venue.
+Jeanne remercie Kathryn<sup id=”a1”>[1](#f1)</sup> d’être venue.
 
 Oui je suis ici avec vous depuis un certain temps maintenant et j’étais avec Albert quand il défendait mon honneur et je veux vous dire combien je vous aime et combien j’ai apprécié vos efforts pour venir me voir. Et je veux dire que je suis maintenant très proche des Cieux célestes, malgré ce que les autres ont dit, je suis vraiment heureuse et dans la Lumière. Et je ne porte pas et n’ai pas porté beaucoup de bagages avec moi lorsque j’ai atterri dans le monde des esprits.
 

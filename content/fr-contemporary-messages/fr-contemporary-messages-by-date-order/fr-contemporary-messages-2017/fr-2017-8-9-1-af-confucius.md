@@ -9,7 +9,7 @@ weight:
 ---
 ### Dans l'amour de Dieu se trouvent toutes les réponses
 
-Confucius - reçu par Al Fike le 9 Août 2017, Abbotsford, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 9 Août 2017, Abbotsford, Colombie-Britannique, Canada
 
 C'est moi, Confucius. Oui en effet, parfois vous occupez vos anges, vous protégeant et vous assistant dans vos vies, mais ma fille je vous assure qu'il n'y avait aucun péril dans vos efforts. Ne vous sentez pas accablées par cela.
 

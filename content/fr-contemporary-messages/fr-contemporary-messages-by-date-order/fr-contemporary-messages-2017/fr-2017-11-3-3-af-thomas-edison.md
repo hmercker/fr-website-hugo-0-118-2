@@ -9,7 +9,7 @@ weight:
 ---
 ### Les scientifiques du monde de l'Esprit souhaitent contribuer aux efforts de la Voix Directe
 
-Thomas Edison - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Thomas Edison - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse mes amis, je suis Thomas Edison et je suis moi aussi un membre du Royaume Céleste. Même les scientifiques sont autorisés dans ces royaumes. J'ai beaucoup appris dans le monde de l'esprit et je continue à faire des recherches sur de nombreuses choses et je contribue au développement de ce don de la voix directe. En fait, j'ai fait quelques contributions, des inventions qui vous aideront, mes amis. Je souhaite moi aussi parler à travers ces dons qui seront développés par nos collaborations. Il y a beaucoup d'informations qui peuvent être partagées avec l'humanité et qui l'aideront de bien des façons, alors que ce monde traverse ses changements et son évolution vers plus de lumière et de paix.
 

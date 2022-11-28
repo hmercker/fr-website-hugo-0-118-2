@@ -9,7 +9,7 @@ weight:
 ---
 ### Une grande soif dans mon pays
 
-Abraham Lincoln - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Abraham Lincoln - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, je suis Abraham Lincoln et j'ai un profond intérêt pour votre travail car je souhaite moi aussi parler avec la Voix directe. Je suis maintenant un habitant du Royaume Céleste. Je me sens qualifié pour parler à mon peuple d'Amérique pour lequel j'ai une profonde préoccupation et je souhaite apporter les vérités de l'Amour du Père à beaucoup de personnes de mon peuple car il y a une grande soif dans mon pays. Une soif qui a besoin d'être étanchée, une soif que beaucoup ne savent pas comment étancher. Cela fera partie de votre rôle et de votre travail dans ce monde, d'enseigner à beaucoup comment prier, comment prier Dieu, comment être ouvert aux nombreuses bénédictions de notre Père Céleste à travers Son Amour. Ces simples enseignements peuvent changer le monde. L'amour merveilleux de Dieu peut tout changer.
 

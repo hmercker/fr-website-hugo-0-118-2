@@ -9,7 +9,7 @@ weight:
 ---
 ### Faire progresser l'âme et détecter les changements
 
-Augustin - reçu par Helge Mercker le 2 Août 2017, Swakopmund, Namibie.
+Augustin - reçu par Helge Mercker le 2 Août 2017, Swakopmund, Namibie
 
 Bonjour ma chère, c'est Augustin, votre enseignant. Oui, je vous salue en cette heure matinale et je suis heureux de me joindre à vous dans votre prière, mon élève bien-aimé, mon élève avide. Oui, vous êtes entouré de vos guides et de vos anges qui vous accompagnent sur vos chemins quotidiens, vos tâches et vos prières et je suis heureux de vous parler en ce matin. Je suis heureux d'être avec vous car vous m'apportez de la joie et je vous aime.
 

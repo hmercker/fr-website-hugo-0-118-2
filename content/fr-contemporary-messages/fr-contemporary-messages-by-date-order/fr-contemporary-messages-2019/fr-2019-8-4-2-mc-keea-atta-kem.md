@@ -23,6 +23,7 @@ Cependant, en ce moment, ce pour quoi vous êtes assis, cette Essence d’Amour,
 Nous allons reconnaître la chère âme qui a ouvert sa maison, pour offrir son espace, pour attirer ceux de la communauté, pour donner un lieu de sanctuaire et de refuge de ce qui vous distrait, et pour offrir un rassemblement, un rassemblement d’âmes avec un seul but de nourrir leur vrai moi et de réveiller leurs âmes.
 
 Vous êtes puissamment béni, cher fils, pour l’ouverture que vous partagez avec beaucoup. Alors que vous êtes assis en silence maintenant, il y a un Ange Céleste avec chacun d’entre vous qui est là pour vous apporter son amour et sa lumière. Je vais donc conclure maintenant et en le faisant, je laisse mon amour et ma lumière briller sur vous tous, vous aidant ainsi à vous assister.
+
 Je suis Keea-Atta Kem et mon amour est avec vous. Que Dieu vous bénisse.
 
 

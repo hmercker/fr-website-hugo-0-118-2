@@ -9,7 +9,7 @@ weight:
 ---
 ### La trans médiumnité comparée à la médiumnité physique ou matérielle
 
-Seretta Kem - reçu par Al Fike le 29 Mars 2018, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 29 Mars 2018, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis votre enseignant Augustin. Oh, comme chacun de vous est mis au défi dans ce monde, ce monde rempli de douleur, ce monde qui manque d’amour, ce monde qui a soif d’amour. Chacun de vous devient plus sensible aux conditions de ce monde, à mesure que vos dons se développent et que vous prenez conscience de la réalité de la condition humaine. Car à mesure que vous devenez plus conscients de la présence de Dieu dans vos vies, de la condition de votre propre âme, ces sensibilités se développent et cette ouverture enveloppe tout ce qui est dans votre monde et dans le monde de Dieu. De bien des façons, ces expériences contribuent à affiner vos perceptions et à vous rappeler pourquoi Dieu et ses anges continuent à vous soutenir, à vous enseigner et à vous aider à développer vos dons, car Dieu souhaite vous utiliser comme ses canaux d’amour.
 

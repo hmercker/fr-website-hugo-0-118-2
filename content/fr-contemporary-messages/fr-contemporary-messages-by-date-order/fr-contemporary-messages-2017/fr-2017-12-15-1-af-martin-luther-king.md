@@ -9,7 +9,7 @@ weight:
 ---
 ### L'avenir s'annonce radieux
 
-Martin Luther King - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Martin Luther King - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Mon amour est pour vous tous. Mon cœur se gonfle en vous voyant tous vous avancer comme vous l'avez fait dans la Lumière, en exprimant vos âmes si magnifiquement, en marchant dans la Vérité si courageusement, en vous engageant dans cette grande aventure sans hésitation. Vous êtes vraiment beaux et forts, et oui, il y a un brillant avenir devant vous. Vous trouverez votre chemin, mes chers amis, et nous vous aiderons à le faire. Vous marchez sur cette route mais nous voyons d'en haut les destinations qui sont à venir et nous vous aiderons à y arriver.
 

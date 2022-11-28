@@ -9,7 +9,7 @@ weight:
 ---
 ### Le soleil est en vous
 
-Goldie - reçu par Al Fike le 13 Mars 2018, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Al Fike le 13 Mars 2018, Gibsons, Colombie-Britannique, Canada
 
 Je m’appelle Goldie. (chantant) Y a-t-il du soleil dans votre âme aujourd’hui ? Est-ce important qu’il y ait des nuages quand vous portez le soleil dans votre âme ?
 
