@@ -11,9 +11,9 @@ weight:
 
 Mahatma Gandhi - reçu par Jimbeau Walsh le 30 Juin 2020, Punalu’u, Oahu, Hawaii, USA
 
- [](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/gandhi.jpg) 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/gandhi.jpg) 
 
- Namaste!
+Namaste!
 
 J’ai été très impliqué dans le désir de justice sociale dans mon pays mais pas par la violence. Chacun de vous peut voir en regardant dans sa vie que la violence, la guerre et la vengeance n’ont rien résolu. Comme je l’ai dit «un œil pour un œil rendra le monde entier aveugle», je tirais bien sûr cela de la grande sagesse du maître Jésus et de son beau sermon sur l’amour pour vos ennemis. Et pourtant, j’ai vu même ses partisans échouer à garder cela dans leur âme.
 

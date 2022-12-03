@@ -11,7 +11,7 @@ weight:
 
 Care Derby Walsh - reçu par Jimbeau Walsh le 19 Avril 2021, Punalu’u, Oahu, Hawaii, USA
 
-Je suis votre sœur dans l’amour de Dieu, votre amie. Je suis Care. Je viens souvent à ce cercle de prière pour être avec mon bien-aimé, mais aussi parce que je suis attirée par ce groupe d’âmes qui ne sont pas tellement dans leur esprit, mais qui sont attirées ici par le désir de leur âme. Je pouvais m’identifier à cela sur terre.
+Je suis votre sœur dans l’Amour de Dieu, votre amie. Je suis Care. Je viens souvent à ce cercle de prière pour être avec mon bien-aimé, mais aussi parce que je suis attirée par ce groupe d’âmes qui ne sont pas tellement dans leur esprit, mais qui sont attirées ici par le désir de leur âme. Je pouvais m’identifier à cela sur terre.
 
 Je sais que certains d’entre vous sont entourés de ceux qui ne peuvent pas comprendre l’idée d’une âme transformée dans l’amour de Dieu, la simplicité de la prière sans tout le bagage du dogme, et pourtant, mes chers amis, cette lumière qui brille de vos âmes, fait une impression indélébile sur toute votre famille et vos amis et même sur ceux que vous ne connaissez peut-être pas.
 

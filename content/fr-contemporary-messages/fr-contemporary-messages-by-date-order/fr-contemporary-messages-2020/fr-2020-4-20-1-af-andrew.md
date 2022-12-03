@@ -9,7 +9,7 @@ weight:
 ---
 ### Le renouvellement et l'éveil de vous et du monde sont comme le renouveau du printemps
 
-André - reçu par Al Fike le 20 Avril 2020, Gibsons, Colombie-Britannique, Canada.7
+André - reçu par Al Fike le 20 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis André. Pour beaucoup d’entre vous, la douce promesse du printemps est sur vous. Comment le sol se soulève et vous accueille avec des fleurs et des feuilles sur les arbres, les oiseaux qui chantent leurs chants bien-aimés pour vous et les uns pour les autres. Toutes les choses de la Création de Dieu célèbrent le début d’une nouvelle saison et d’une vie renouvelée sur votre Terre. C’est ainsi que Dieu vous salue, vous encourage, avec le message que la nouvelle vie émergera et que de nouveaux commencements viendront.
 

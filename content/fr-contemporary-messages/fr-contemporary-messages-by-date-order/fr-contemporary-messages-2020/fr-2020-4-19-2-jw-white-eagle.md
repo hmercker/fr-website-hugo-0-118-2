@@ -11,7 +11,7 @@ weight:
 
 White Eagle - reçu par Jimbeau Walsh le 19 Avril 2020, Punalu’u, Oahu, Hawaii, USA
 
-e suis, Aigle Blanc. Je viens à vousi dans la grâce de Dieu comme votre frère et votre ami. Mon travail de guérisseur répond à l’appel de ceux qui le demandent sincèrement. Mon groupe s’efforce de guérir ceux qui, dans ce cercle, ont prié et dont les amis et la famille ont prié et (bien sûr) nous ne refusons jamais une demande sincère.
+Je suis, Aigle Blanc. Je viens à vousi dans la grâce de Dieu comme votre frère et votre ami. Mon travail de guérisseur répond à l’appel de ceux qui le demandent sincèrement. Mon groupe s’efforce de guérir ceux qui, dans ce cercle, ont prié et dont les amis et la famille ont prié et (bien sûr) nous ne refusons jamais une demande sincère.
 
 Je viens vous parler du rassemblement des tribus. Ce rassemblement n’est-il pas celui de nombreux peuples, de nombreux endroits, de nombreuses cultures ? Considérez des cercles concentriques s’étendant vers la fontaine de l’Amour de Dieu, chacun recevant une Grâce à la mesure, comme l’a dit le cher frère Augustin, de l’intensité et des désirs de son âme. Ces cercles sont reliés en une spirale ascendante depuis les sphères les plus basses jusqu’aux Cieux Célestes. Bien qu’il puisse y avoir stagnation, c’est toujours une atteinte vers la Lumière.
 

@@ -11,7 +11,7 @@ weight:
 
 Augustin - reçu par Helge Mercker le 20 Mai 2020, Elim, Namibie
 
-Ma fille, c’est un bon moment pour écrire car tu es dans un état réceptif et ouvert à recevoir mes paroles
+Ma fille, c’est un bon moment pour écrire car tu es dans un état réceptif et ouvert à recevoir mes paroles.
 
 La prière fidèle et continue, dans l’amour, de l’amour et pour l’Amour de Dieu, ouvre l’âme à recevoir les bénédictions les plus pures et les plus élevées. Prie, mon cher enfant, car c’est le chemin vers une vie accomplie dans les verts pâturages éternels et les ruisseaux d’eau pure, qui te nourriront et te fortifieront.
 

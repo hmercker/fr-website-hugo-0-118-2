@@ -9,7 +9,7 @@ weight:
 ---
 ### Rappel affectueux de l'importance de nos préparatifs 
 
-Seretta Kem - reçu par Al Fike le 3 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 3 Septembre 2021, Gibsons, Colombie-Britannique, Canada
 
 Je suis Seretta Kem. Comme nous vous l’avons assuré et informé, il y a divers obstacles et défis qui seront évidents avant que vous ne vous réunissiez en tant que groupe. Pour la plupart, vous avez surmonté ces choses dans une large mesure. Je vous invite maintenant à continuer à concentrer vos pensées et vos prières sur Dieu, à vous préparer du mieux que vous pouvez à ce qui est nécessaire et à ce qui sera requis pour vos efforts communs.
 
@@ -29,7 +29,8 @@ Vous avez tous été bien bénis, enfants bien-aimés de Dieu. Vous êtes tous d
 
 Vous êtes bien conscients de la dualité en vous et des défis qui en découlent. Ce sont des moments où l’âme aura la priorité et la prière est votre but. Lorsque vous êtes ensemble en communauté, l’amour est la fondation, le fondement de tout ce que vous faites. Cela n’est pas difficile compte tenu des anges qui vous entourent et des efforts qui sont faits. Nous vous demandons de ne pas détourner nos énergies et nos efforts afin de vous élever des conditions que vous avez choisi d’endosser, des conditions qui rendent l’atmosphère difficile et inharmonieuse.
 
-Je sais que vous êtes tous humains, que ces conditions existent en chacun de vous de manière unique. Mais je vous le dis, avancez dans la lumière. Permettez à Dieu de vous guider. Permettez à vos anges amis de vous assister. Marchez dans la lumière, respirez la lumière, et soyez la lumière car vous êtes les exemples, mes amis. Vous êtes les exemples pour donner le rythme, pour mettre les roues en mouvement, pour informer les débuts de ces prières afin que vos amis ne soient pas confus mais se joignent à vous dans ce désir délibéré d’être utilisés de cette manière comme des instruments de Dieu.
+Je sais que vous êtes tous humains, que ces conditions existent en chacun de vous de manière unique. Mais je vous le dis, avancez dans la lumière. Permettez à Dieu de vous guider. Permettez à vos anges amis de vous assister. Marchez dans la lumière, respirez la lumière, et soyez la lumière car vous êtes les exemples, mes amis. Vous êtes les exemples pour donner le rythme, pour mettre les roues en mouvement, pour informer les débuts de ces prières afin que vos amis ne soient pas confus mais se joignent à vous dans ce désir délibéré d’être utilisés de cette manière comme des instruments de Dieu. 
+
 Cela ne vous encouragera pas beaucoup, mais votre présence robuste dans l’amour, dans la sagesse, dans la lumière, dans l’expérience aidera à dégager le chemin. Nous sommes tous des amis bien-aimés. Que Dieu nous bénisse tous dans ce voyage. Que Dieu apporte Ses dons et Ses bénédictions sur nous. Puissiez-vous vous éveiller à vos dons et à tout ce que Dieu a béni en vous. Puissiez-vous être en paix, âmes bien-aimées, et marcher dans la lumière et la joie. C’est ce qui est censé être, ce que nous vous encourageons à accepter et à absorber. Ne laissez pas ces petits problèmes du monde matériel éclipser ce que vous appelez la grande image de ce que vous faites.
 
 Soyez bénis, mes bien-aimés, soyez bénis dans Son Amour. Bénissez vous dans la paix. Bénissez vous dans la lumière. Bénissez vous dans la vérité. Je suis Seretta Kem. Je vous aime tous. Que Dieu vous bénisse, mes bien-aimés.

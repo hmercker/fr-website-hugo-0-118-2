@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement et engagement pour l’Université de l’âme
 
-St Matthieu & Salyard - reçu par Al Fike le 4 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
+St Matthieu & Salyard - reçu par Al Fike le 4 Octobre 2020, Gibsons, Colombie-Britannique, Canada
 
 **Dieu vous bénisse, mes chères âmes, je suis Matthieu.** Nous, dans le royaume Céleste, sommes heureux que vous vous soyez réunis pour chercher à faire avancer la vérité de l’amour de Dieu dans le monde. Comme c’est votre motivation et votre désir, sachez que vous recevrez l’aide de vos guides Célestes et de vos anges pour vous amener à ce lieu de réalisation, pour ouvrir la porte aux possibilités de cette entreprise afin qu’elle soit couronnée de succès et pleine de grandes opportunités pour atteindre le plus grand nombre.
 

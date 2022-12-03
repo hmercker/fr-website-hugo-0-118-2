@@ -11,7 +11,7 @@ weight:
 
 Leytergus - reçu par Al Fike le 23 Juillet 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/spiritualite4-1.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/spiritualite4-1.jpg)
 
 Les vents du changement sont tout autour de vous et le Souffle de Dieu, Son Amour, est sur vous, chacun de vous. Je suis Leytergus. Je ne parle pas souvent à travers cet instrument, mais je suis proche de ces chères âmes qui continuent à voir la Vérité et à l’exprimer par divers moyens et manières afin d’apporter une plus grande lumière au monde et à ceux qui cherchent à être guidés et aidés dans leur vie quotidienne.
 

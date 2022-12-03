@@ -11,7 +11,7 @@ weight:
 
 James Padgett - reçu par Jimbeau Walsh le 10 Juin 2021, Punalu’u, Oahu, Hawaii, USA
 
-C’est moi, votre frère et humble serviteur, James Padgett. J’ai écouté aujourd’hui les lectures et les discussions intenses sur le sujet « Qui et qu’est-ce que Dieu ? », avec des extraits tirés des messages que j’ai reçus de Jésus et des esprits Célestes.
+C’est moi, votre frère et humble serviteur, James Padgett. J’ai écouté aujourd’hui les lectures et les discussions intenses sur le sujet *« Qui et qu’est-ce que Dieu ? »*, avec des extraits tirés des messages que j’ai reçus de Jésus et des esprits Célestes.
 
 Je dirais que d’après ce que j’ai reçu, il n’est pas possible de comprendre le Créateur intellectuellement et le Maître lui-même a souligné le manque de mots pour pouvoir décrire Dieu et Ses attributs. Et pourtant, en lisant entre les lignes, il est possible de percevoir que lorsque l’âme, dans son désir de s’unir à son Créateur, reçoit l’Essence du Créateur, elle peut effectivement comprendre le Grand Être de Dieu.
 

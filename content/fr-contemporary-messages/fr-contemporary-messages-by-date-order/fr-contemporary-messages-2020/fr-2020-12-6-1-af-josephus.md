@@ -9,7 +9,7 @@ weight:
 ---
 ### Les couches de conscience dans l’âme, le mental et le matériel
 
-Flavius Joseph - reçu par Al Fike le 6 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 6 Décembre 2020, Gibsons, Colombie-Britannique, Canada
 
 Soyez bénis, mes amis bien-aimés. Oui, je suis Flavius Josèphe et je fus en effet un philosophe à l’époque de la vieille tradition juive. Je suis maintenant un habitant du Royaume Céleste. Je remercie cet instrument de m’avoir permis de parler et je vous remercie tous de m’avoir permis de vous parler aujourd’hui.
 
@@ -51,7 +51,7 @@ Le bien-aimé Jésus qui a parcouru la Terre a démontré ce don. Il était une 
 
 Je crois que je vais m’arrêter maintenant car je sais que votre temps est limité, mais j’espère que mon exposé vous a éclairé sur la poursuite du mental et de l’âme car ces réalités ont en elles de nombreux aspects et couches de conscience qui peuvent être éveillés et connus par vous au cours de votre vie. Je vous invite tous à vous asseoir et à prier sincèrement. Quelle que soit cette prière, quels que soient les mots que vous utilisez ou non, mais faites part de vos désirs à Dieu et demandez la bénédiction de l’Amour divin pour ce que vous demandez, mes amis, ce cadeau est l’éveil des nombreuses couches de votre conscience. Tout cet éveil, toutes ces couches, lorsqu’elles sont imprégnées d’Amour, la grande Essence de Dieu, se rassemblent dans l’harmonie et la paix, l’accomplissement et la joie car n’est-ce pas ce que vous désirez vraiment mes amis ?
 
-Ne considérez pas la conscience de la condition humaine comme votre référence pour la vie. Pensez aux possibilités de la conscience de votre âme et à la façon dont elle peut être réalisée et éveillée. Si vous le faites, je vous assurerai que les anges des Cieux célestes viendront vous aider dans ce voyage d’éveil. Beaucoup sera donné à une âme qui est désireuse et sérieuse de poursuivre le voyage de l’éveil conscient, de la connaissance de la vérité, de la vérité intérieure et extérieure. Tout viendra avec cette bénédiction de l’Amour.
+Ne considérez pas la conscience de la condition humaine comme votre référence pour la vie. Pensez aux possibilités de la conscience de votre âme et à la façon dont elle peut être réalisée et éveillée. Si vous le faites, je vous assurerai que les anges des Cieux Célestes viendront vous aider dans ce voyage d’éveil. Beaucoup sera donné à une âme qui est désireuse et sérieuse de poursuivre le voyage de l’éveil conscient, de la connaissance de la vérité, de la vérité intérieure et extérieure. Tout viendra avec cette bénédiction de l’Amour.
 
 Je vous remercie, mes amis. Que Dieu vous bénisse dans vos voyages. Je reviendrai peut-être pour parler d’autres réalités de l’âme. Bénédictions à vous tous, bénédictions et lumière. Que Dieu vous bénisse. Je suis Flavius Josèphe. Mon amour est avec vous.
 

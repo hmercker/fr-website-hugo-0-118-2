@@ -11,7 +11,7 @@ weight:
 
 Claire d'Assise - reçu par Jimbeau Walsh le 14 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
 
-e suis votre sœur et amie, je suis Claire d’Assise. Les pauvres dames et moi qui sommes devenues connues sous le nom de Clarisses, nous voulions suivre les désirs de nos âmes, ressentir cette joie, cette extase, en présence de Dieu. Nous avons laissé le monde derrière nous et la simplicité est devenue notre Ordre.
+Je suis votre sœur et amie, je suis Claire d’Assise. Les pauvres dames et moi qui sommes devenues connues sous le nom de Clarisses, nous voulions suivre les désirs de nos âmes, ressentir cette joie, cette extase, en présence de Dieu. Nous avons laissé le monde derrière nous et la simplicité est devenue notre Ordre.
 
 Vous savez qu’il est possible de se sentir seul même dans une foule, même en famille, avec des amis, quand le cœur est fermé ou non engagé. Il est également possible de prier le chapelet, de dire un mantra, d’avoir des perles de prière et pourtant de ne pas se connecter au Créateur. Toutes ces disciplines ont été instituées pour amener les âmes à se connecter avec leur Créateur, mais je vous le dis, si le cœur n’est pas activé et l’âme engagée, soulevée par l’Amour de Dieu au-delà des blessures, au-delà des maux, au-delà de la peur et au-delà des doutes, la connexion ne se fait pas, peu importe le nombre d’années.
 

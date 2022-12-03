@@ -13,7 +13,7 @@ St François d'Assise - reçu par Jimbeau Walsh le 4 Octobre 2020, Punalu’u, O
 
 Je suis ici, votre ami votre frère dans le Christ dans l’amour de Dieu, je suis François.
 
-Je vous remercie de vous être réunis pour recevoir l’amour de notre Créateur et pour m’honorer, moi et le travail que je continue à faire. Je souhaite m’adresser au cher frère de l’île de Guernesey pour son engagement à maintenir la flamme de l’amour et de la lumière dans la petite chapelle et je lui promets que chaque fois qu’il m’appellera, je viendrai. Car il y en aura beaucoup qui demanderont une guérison et nous serons là pour faciliter les choses.
+Je vous remercie de vous être réunis pour recevoir l’Amour de notre Créateur et pour m’honorer, moi et le travail que je continue à faire. Je souhaite m’adresser au cher frère de l’île de Guernesey pour son engagement à maintenir la flamme de l’amour et de la lumière dans la petite chapelle et je lui promets que chaque fois qu’il m’appellera, je viendrai. Car il y en aura beaucoup qui demanderont une guérison et nous serons là pour faciliter les choses.
 
 À ce beau groupe humble qui se rassemble avec vos aspirations profondes, je vous dis que c’est le secret et que vous avez découvert que lorsque vous allez vers Dieu dans l’humilité, lorsque vous vous ouvrez à son grand amour et à sa miséricorde infinie, vous le recevez.
 

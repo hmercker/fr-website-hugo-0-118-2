@@ -11,7 +11,7 @@ weight:
 
 Hafiz - reçu par Jimbeau Walsh le 9 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/haffiz.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/haffiz.jpg)
 
 Dieu dans son infinie patience attend votre arrivée
 Dans Sa grande salle de bal
@@ -30,7 +30,7 @@ Vous pensiez ne pas pouvoir vous en passer
 Et pourtant, quand vous arriverez au bal des Créateurs
 vous vous demanderez
 et vous serez étonné
-Et vous direz « pourquoi ai-je mis autant de temps pour arriver ici » ?
+Et vous direz *« pourquoi ai-je mis autant de temps pour arriver ici ? »*
 Alors que vous vous apprêtez à danser avec la Bien-aimée
 Vous allez vous fondre dans la masse de toutes les planètes dansantes
 Tournez dans la joie

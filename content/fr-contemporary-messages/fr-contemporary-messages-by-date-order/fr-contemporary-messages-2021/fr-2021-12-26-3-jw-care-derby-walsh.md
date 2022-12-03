@@ -11,7 +11,7 @@ weight:
 
 Care Derby Walsh - reçu par Jimbeau Walsh le 26 Décembre 2021, Punalu’u, Oahu, Hawaii, USA
 
-C’est moi, Care. Chaque personne dans le monde veut la liberté, mais peut-être que le sens du mot liberté est différents selon les lieux. Sur le plan matériel, il peut s’agir de la liberté de ne pas se soucier de l’argent, de la qualité de vie, de la propreté de l’eau et de l’air, de la liberté d’éducation, etc. Au niveau spirituel, qu’est-ce que la liberté ? Moi qui ai passé la première partie de ma vie à être soumise, je me suis trouvée élevée dans la prière avec un sentiment de liberté qui m’a donné le courage de sortir, sachant qu’il vaut mieux être libre que sous la coupe d’un autre.
+C’est moi, Care. Chaque personne dans le monde veut la liberté, mais peut-être que le sens du mot liberté est différent selon les lieux. Sur le plan matériel, il peut s’agir de la liberté de ne pas se soucier de l’argent, de la qualité de vie, de la propreté de l’eau et de l’air, de la liberté d’éducation, etc. Au niveau spirituel, qu’est-ce que la liberté ? Moi qui ai passé la première partie de ma vie à être soumise, je me suis trouvée élevée dans la prière avec un sentiment de liberté qui m’a donné le courage de sortir, sachant qu’il vaut mieux être libre que sous la coupe d’un autre.
 
 Mon bien-aimé et moi avons fait l’expérience de la liberté dans nos voyages, dans notre vie quotidienne et avec nos enfants. Le plus important pour moi était la liberté de prier, de faire de la musique, de créer, d’être dans la nature.
 

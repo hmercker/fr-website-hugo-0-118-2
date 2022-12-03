@@ -9,7 +9,7 @@ weight:
 ---
 ### Dans la gratitude et l'Amour de Dieu
 
-Pasteur George Vale Owen - reçu par Jimbeau Walsh le 12 Août 2020, Punalu’u, Oahu, Hawaii, USA
+Révérend George Vale Owen - reçu par Jimbeau Walsh le 12 Août 2020, Punalu’u, Oahu, Hawaii, USA
 
 C’est moi, votre frère et ami dans le Christ, George Vale Owen – Révérend Owen. Je suis si reconnaissant pour mon voyage et les bénédictions que j’ai reçues, car je réside dans ce que vous appelez la 7ème Sphère<sup id=”a1”>[1](#f1)</sup>, la porte d’entrée des royaumes Célestes où il y a de l’amour, de la beauté et de la musique au-delà même de ce que j’ai reçu et que j’ai décrit dans mes écrits. Et pourtant, même à ce moment-là, je pouvais voir la gloire, je pouvais ressentir l’Amour. Mon désir le plus profond a toujours été que mon âme ne fasse qu’un en Christ dans l’amour de Dieu.
 
@@ -23,7 +23,7 @@ Mes chers amis, mes frères et sœurs en Christ. Que tous soient bénis. Je suis
 <small>
 
 1. <large id=”f1”> Dans le système de numérotation utilisé dans les livres du Révérend George Vale Owen, il s’agirait de la 14e sphère.[↩](#a1)
-2. <large id=”f2”>Geoff Cutler, webmaster du site New-Birth.net, considère qu’il s’agit du meilleur matériel canalisé, à l’exception des messages de James Padgett et des messages contemporains tels que ceux reçus de Judas et, plus récemment, ceux sur l’âme, qui se trouvent sur ce site Web : la NouvelleVérité.fr. Mais si votre intérêt se porte sur ce qui se passe dans les Cieux, ces cinq volumes sont certainement l’étalon-or.[↩](#a2)
+2. <large id=”f2”> Geoff Cutler, webmaster du site New-Birth.net, considère qu’il s’agit du meilleur matériel canalisé, à l’exception des messages de James Padgett et des messages contemporains tels que ceux reçus de Judas et, plus récemment, ceux sur l’âme, qui se trouvent sur ce site Web : « la NouvelleVérité.fr.» Mais si votre intérêt se porte sur ce qui se passe dans les Cieux, ces cinq volumes sont certainement l’étalon-or.[↩](#a2)
 
 
 

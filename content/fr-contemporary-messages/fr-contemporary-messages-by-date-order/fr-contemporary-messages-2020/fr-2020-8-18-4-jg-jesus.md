@@ -13,7 +13,6 @@ Jésus - reçu par Jane Gartshore le 18 Août 2020
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/energiejoie.jpg)
 
-
 Je suis ici. Je souhaite parler de la joie. Pour beaucoup, la joie est insaisissable en ces temps. L’insécurité face à l’avenir provoque un affaiblissement de l’esprit, et le sentiment que tout va bien fait largement défaut.
 
 Je vous demande de regarder au-delà de votre situation actuelle. Votre monde est en mutation, et cela entraîne des défis qui semblent insurmontables. Et ils le sont, jusqu’à ce que vous remettiez votre vie entre les mains de votre Père Céleste.

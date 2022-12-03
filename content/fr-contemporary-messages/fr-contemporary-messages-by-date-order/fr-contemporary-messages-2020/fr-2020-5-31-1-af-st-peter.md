@@ -11,9 +11,9 @@ weight:
 
 St Pierre - reçu par Al Fike le 31 Mai 2020, Gibsons, Colombie-Britannique, Canada
 
- [](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/spiritualite-12-1.jpg) 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/spiritualite-12-1.jpg) 
 
- Âmes bien-aimées, c’est moi, Pierre. J’ai bénéficié du don de la Pentecôte, cette grande pluie d’Amour de Dieu dans mon âme et dans les âmes de mes frères, alors que nous nous réunissions dans cette pièce, nous rassemblant secrètement, nous interrogeant sur notre sort et notre avenir, sous le choc de ce qui s’était passé et de la façon dont les pouvoirs en place avaient en effet cherché à nous disperser et à nous abattre, comme ils l’avaient fait pour notre Maître bien-aimé.
+Âmes bien-aimées, c’est moi, Pierre. J’ai bénéficié du don de la Pentecôte, cette grande pluie d’Amour de Dieu dans mon âme et dans les âmes de mes frères, alors que nous nous réunissions dans cette pièce, nous rassemblant secrètement, nous interrogeant sur notre sort et notre avenir, sous le choc de ce qui s’était passé et de la façon dont les pouvoirs en place avaient en effet cherché à nous disperser et à nous abattre, comme ils l’avaient fait pour notre Maître bien-aimé.
 
 Pouvez-vous imaginer notre situation, nos pensées, nos craintes et notre confusion dans cette circonstance particulière ? Comme le Maître nous l’avait appris, nous avons prié. Nous avons cherché à être guidés par Dieu, nous avons cherché à être réconfortés par Dieu, nous avons cherché à être rassurés sur le fait que nous ne disparaîtrions pas de notre monde mais que nous continuerions dans cette grande poursuite de l’Amour de Dieu dans nos âmes. Mais jusqu’à ce que nous recevions cette grande bénédiction de la Pentecôte, notre compréhension de la profondeur et de l’étendue de cette Vérité nous faisait défaut. À ce moment-là, à ce moment précis, à ce moment de révélation, nous avons pu voir notre chemin à travers le brouillard de la confusion et de la peur jusqu’à un lieu d’amour et de joie, de force et de perception de la puissance de ce Grand Don et de la beauté du Toucher de Dieu sur nous tous.
 

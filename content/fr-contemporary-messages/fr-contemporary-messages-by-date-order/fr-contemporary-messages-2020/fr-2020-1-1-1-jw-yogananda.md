@@ -11,7 +11,7 @@ weight:
 
 Yogananda - reçu par Jimbeau Walsh le 1 Janvier 2020, Punalu’u, Oahu, Hawaii, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/landscape-3628992_1280.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/landscape-3628992_1280.png)
 
 Je suis Yogananda.
 

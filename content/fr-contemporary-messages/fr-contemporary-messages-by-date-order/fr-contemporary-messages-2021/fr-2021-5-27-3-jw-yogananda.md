@@ -11,7 +11,7 @@ weight:
 
 Yogananda - reçu par Jimbeau Walsh le 27 Mai 2021, Punalu’u, Oahu, Hawaii, USA
 
-Je suis ici votre frère et ami et humble serviteur dans l’amour de Dieu. Je suis Yogananda. Notre cher frère James Padgett m’a permis de m’avancer aujourd’hui.
+Je suis votre frère et ami et humble serviteur dans l’amour de Dieu. Je suis Yogananda. Notre cher frère James Padgett m’a permis de m’avancer aujourd’hui.
 
 Je voudrais commencer par dire que je n’étais pas au courant de ce que James Padgett a reçu pendant mon séjour sur terre, mais je le suis maintenant. J’ai lu beaucoup des messages qu’il a reçus, et je visite également ces groupes dans la communauté de l’Amour Divin. Même si l’Amour Divin est disponible dans toutes les traditions, James Padgett a été le premier à clarifier la différence entre l’amour naturel et l’amour du Créateur.
 

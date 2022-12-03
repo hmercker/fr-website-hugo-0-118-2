@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 13 Avril 2021, Gibsons, Colombie-Britannique, Canada
 
-e viens. Je suis Jésus. Je viens ajouter à mon message concernant les corps Célestes, le firmament de la Création de Dieu, et les signatures et composantes énergétiques de ces aspects de la Création de Dieu.
+Je viens. Je suis Jésus. Je viens ajouter à mon message concernant les corps Célestes, le firmament de la Création de Dieu, et les signatures et composantes énergétiques de ces aspects de la Création de Dieu.
 
 Pour certains, pour ceux qui sont impliqués dans l’astrologie et d’autres sujets connexes, il existe une croyance selon laquelle les corps Célestes que vous voyez et les aspects connectés du firmament dont vous faites partie ont une grande influence sur chaque individu en fonction de sa date de naissance et d’autres aspects de sa vie matérielle. Malheureusement, beaucoup de ces idées ne sont pas tout à fait exactes. Cependant, parce que chaque corps planétaire et tout ce qui compose l’univers, sont, comme je l’ai expliqué, interconnectés et ont leur propre signature énergétique individuelle, il y a une légère influence sur le plan terrestre compte tenu de cette connexion et de cette interaction, mais il n’y a pas de corrélation directe. Ces corps ne déterminent pas la condition de l’individu, ni ses pensées ou ses actions comme certains le croient.
 

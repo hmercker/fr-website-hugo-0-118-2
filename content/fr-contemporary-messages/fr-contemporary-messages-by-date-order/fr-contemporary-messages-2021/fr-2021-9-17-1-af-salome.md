@@ -9,7 +9,7 @@ weight:
 ---
 ### Les désirs de notre âme en alignement avec la volonté de Dieu (2021 Voix directe II)
 
-Salome - reçu par Al Fike le 17 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Saloée - reçu par Al Fike le 17 Septembre 2021, Gibsons, Colombie-Britannique, Canada
 
 Je suis Salomé. Comme c’est merveilleux de venir prier ensemble dans ce Cercle de Lumière, que par vos prières vous nous rapprochiez, que par vos efforts vous suscitiez les bénédictions de Dieu au sein de votre Cercle et apportiez une plus grande lumière à ce monde. Il faut vos efforts dans la prière, votre profond désir d’apporter les bénédictions de Dieu, de vous accorder à la grande bénédiction de l’Amour de Dieu qui entre dans vos âmes pour que cette Lumière soit possible et que nous soyons unifiés dans ces efforts.
 

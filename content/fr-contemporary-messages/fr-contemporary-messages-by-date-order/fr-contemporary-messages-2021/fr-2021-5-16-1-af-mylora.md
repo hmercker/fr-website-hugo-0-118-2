@@ -17,7 +17,7 @@ Ainsi, avec ces choses dans mon cœur et mes désirs de l’âme d’apporter le
 
 Vous voyez, lorsque vous orientez vos pensées vers les bénédictions et l’amour qui s’écoulent vers vos proches dans ce monde, vous ajoutez une belle lumière et vous ouvrez des canaux de possibilités pour les bénédictions de beaucoup. Nous vous appelons un Cercle de Lumière. En effet, dans le cercle, lorsqu’il est unifié de cette manière dans la prière, le désir et l’intention, il crée un beau portail de bénédictions, de lumière et d’amour qui s’étend effectivement à de nombreux endroits dans le monde.
 
-Sachez que vos prières sont exaucées, mes amis bien-aimés. Sachez que tout ce que vous demandez est entendu et connu de Dieu. Lorsque cela est fait de la manière la plus élevée, avec les intentions les plus élevées, avec amour et compassion pour tous, alors vous avez ajouté votre pouvoir à ces prières et permis à ce portail de bénédictions de s’ouvrir.
+Sachez que vos prières sont exaucées, mes amis bien-aimés. Sachez que tout ce que vous demandez est entendu et connu de Dieu. Lorsque cela est fait de la manière la plus élevée, avec les intentions les plus élevées, avec amour et compassion pour tous, alors vous avez ajouté votre pouvoir à ces prières et permettez à ce portail de bénédictions de s’ouvrir.
 
 Ces lois doivent être respectées. Il est important de connaître ces lois. C’est le pouvoir de votre sentiment, de votre intention et de votre pensée qui s’ajoute à ce déversement de bénédictions de Dieu dans le monde. Vous m’avez donc attiré parmi vous, ainsi que de nombreux anges. Ce faisant, vous avez attiré sur vous de nombreuses bénédictions et élévations.
 

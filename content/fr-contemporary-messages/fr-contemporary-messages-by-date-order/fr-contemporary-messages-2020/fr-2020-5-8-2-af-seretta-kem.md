@@ -11,7 +11,7 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 8 Mai 2020, Gibsons, Colombie-Britannique, Canada
 
-Âmes bien-aimées, enfants de la Grâce et de l’Amour de Dieu qui viennent prier ensemble, je suis Seretta Kem et je suis venue vous parler d’un sujet important : « Comment discerner entre la compréhension mentale d’une expérience spirituelle et celle de l’âme ».
+Âmes bien-aimées, enfants de la Grâce et de l’Amour de Dieu qui viennent prier ensemble, je suis Seretta Kem et je suis venue vous parler d’un sujet important : *« Comment discerner entre la compréhension mentale d’une expérience spirituelle et celle de l’âme. »*
 
 Dans votre monde matériel, beaucoup de ce qui est expérimenté, disséqué, compris, analysé et observé dans votre vie repose sur l’engagement de votre esprit. Votre esprit traite toutes les sensations, les entrées visuelles, les idées et les perceptions de toutes sortes, tant tactiles que visuelles. L’esprit est donc très occupé à faire la distinction entre une expérience et une autre, à la porter à la conscience et à la mémoriser. Il en va de même pour la vie spirituelle : l’esprit interprète toute expérience de prière qui se présente à vous. Vous vous retrouvez à essayer d’engager l’esprit à comprendre, à analyser et à rendre claires vos expériences. Pourtant, lorsque l’on prie pour l’Amour de Dieu, lorsque l’on prie pour être proche de Dieu et pour être dans la Grâce de Dieu, comme une demande active, une prière qui part de votre âme et dans la réponse de Dieu, l’âme expérimente Ses bénédictions.
 

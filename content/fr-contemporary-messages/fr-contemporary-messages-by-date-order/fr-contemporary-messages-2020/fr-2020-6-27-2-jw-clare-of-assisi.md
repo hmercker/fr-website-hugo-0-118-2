@@ -13,7 +13,7 @@ Claire d'Assise - reçu par Jimbeau Walsh le 27 Juin 2020, Punalu’u, Oahu, Haw
 
 C’est moi, votre sœur, Claire d’Assise.
 
-Parfois dans la vie, vous avez une épiphanie où ce qui n’était pas clair auparavant devient parfaitement clair, et cette clarté vous amène à faire un changement dans votre vie. Bien sûr, vous savez que c’est ce qui est arrivé à François. Quant à moi, j’ai juste su. J’ai été tellement inspiré par ce que François avait choisi et par ses frères. Et avec vous, vous avez eu le privilège de la clarté dans la grâce de Dieu où tout se cristallise, où l’erreur tombe, et il est assez facile de savoir où marcher et quelles décisions prendre.
+Parfois dans la vie, vous avez une épiphanie où ce qui n’était pas clair auparavant devient parfaitement clair, et cette clarté vous amène à faire un changement dans votre vie. Bien sûr, vous savez que c’est ce qui est arrivé à François. Quant à moi, j’ai juste su. J’ai été tellement inspirée par ce que François avait choisi et par ses frères. Et avec vous, vous avez eu le privilège de la clarté dans la grâce de Dieu où tout se cristallise, où l’erreur tombe, et il est assez facile de savoir où marcher et quelles décisions prendre.
 
 À un moment donné, lorsque vous êtes stabilisés, dans la grâce de Dieu, et que votre prière est profonde et continue, vous êtes dans le flux de l’Amour de Dieu, et les circonstances se présentent qui vous permettent d’utiliser vos dons, quels qu’ils soient. Vous n’avez donc pas à vous préoccuper de savoir quand, où et comment.
 

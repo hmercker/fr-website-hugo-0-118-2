@@ -26,11 +26,10 @@ Tout ce que je demande, c’est que tu gardes dans ton cœur la plus grande rech
 J’observais avec Claire<sup id=”a2”>[2](#f2)</sup> et nous avons décidé qui prendrait la parole, et il a été estimé qu’un message plus personnel était de mise. Mais nous vous avons entourés d’Amour. Nous sommes remplies de joie. Nous continuerons, nous sommes nombreux, à vous influencer, à vous inspirer et à vous soutenir dans l’Amour de Dieu. Je vous aime. Je suis Care, que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Your text for the reference.[↩](#a1)
-2. <large id=”f2”> Your text for the reference.[↩](#a2)
+1. <large id=”f1”> Le petit-fils de Care était présent.[↩](#a1)
+2. <large id=”f2”> Claire d’Assise.[↩](#a2)
 
-Note 1 : Le petit-fils de Care était présent
-Note 2 : Claire d’Assise
+
 
 
 

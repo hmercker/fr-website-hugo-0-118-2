@@ -16,6 +16,7 @@ C’est moi Luc. Je suis votre frère et ami en Christ. Je n’ai pas l’habitu
 Si vous devez être sérieux, et beaucoup d’entre vous le sont, soyez sérieux au sujet de votre bonheur qui vient de votre âme recevant l’Amour du Père. Car comme je l’ai dit, c’est dans votre cœur que se trouve votre trésor. Si votre cœur est dans la tristesse, vous l’attirerez, si votre cœur est dans la joie, le bonheur et l’amour, vous deviendrez un aimant pour cette grâce et cette bonté.
 
 Nous vous demandons à chacun d’entre vous d’être conscient de ce qui se trouve dans votre cœur et des pensées que vous entretenez et de permettre à vos âmes de prendre le pas sur les désirs de l’Amour de Dieu afin que vos cœurs soient dans la joie et que vous puissiez marcher sur cette terre non pas sans compassion et empathie pour la souffrance des affamés, des sans-abri, des marginaux, mais en fait avec une grande compassion et l’amour de Dieu dans vos âmes afin d’apporter la joie même là.
+
 Que Dieu bénisse chacun d’entre vous avec un grand afflux de son amour. Je suis votre frère en Christ, Luc. Dieu vous bénisse.
 
 

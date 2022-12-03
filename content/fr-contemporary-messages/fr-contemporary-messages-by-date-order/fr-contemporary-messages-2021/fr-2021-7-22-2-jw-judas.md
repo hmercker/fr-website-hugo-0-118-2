@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par Jimbeau Walsh le 22 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
-C’est moi, Judas de Kerioth., votre frère et ami dans l’Amour de Dieu. Mon nom est souvent synonyme de trahison, d’être un traître, un vil pécheur. Car vous avez tous entendu les termes : « La malédiction de Judas » ou « Prêtre de Judas ». Mais je suis maintenant un habitant des Cieux Célestes et je viens vous dire que quelle que soit votre condition, quel que soit le sentiment que vous avez avoir d’être séparé de l’Amour de Dieu, à tout moment, quels que soient vos péchés, tous peuvent être rachetés dans l’Amour de Dieu comme je le suis.
+C’est moi, Judas de Kerioth, votre frère et ami dans l’Amour de Dieu. Mon nom est souvent synonyme de trahison, d’être un traître, un vil pécheur. Car vous avez tous entendu les termes : « La malédiction de Judas » ou « Prêtre de Judas ». Mais je suis maintenant un habitant des Cieux Célestes et je viens vous dire que quelle que soit votre condition, quel que soit le sentiment que vous avez avoir d’être séparé de l’Amour de Dieu, à tout moment, quels que soient vos péchés, tous peuvent être rachetés dans l’Amour de Dieu comme je le suis.
 
 Souvent, les gens ont tendance à se concentrer sur l’erreur, sur la douleur de la séparation, sur la perte de l’innocence ou sur une trahison, et sur cette douleur et souvent sur le désespoir qui accompagne le remords et parfois même sur l’indignité qu’ils ressentent. Et pourtant, si l’on reconnaît et voit clairement ce à quoi il faut remédier, il est alors possible de se concentrer sur la solution.
 

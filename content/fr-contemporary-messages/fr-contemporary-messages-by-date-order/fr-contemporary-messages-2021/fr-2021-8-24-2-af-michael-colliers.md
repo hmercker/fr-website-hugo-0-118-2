@@ -12,9 +12,9 @@ weight:
 ### 
 Vous ferez la connaissance de nombreux frères et sœurs d'autres mondes
 
-Michael Colliers - reçu par Al Fike le 24 Août 2021, Gibsons, Colombie-Britannique, Canada
+Michaël Colliers - reçu par Al Fike le 24 Août 2021, Gibsons, Colombie-Britannique, Canada
 
-Que le précieux Amour Divin de Dieu entre dans vos âmes, mes amis. Je ne vous ai pas parlé depuis un certain temps. Je suis Michael Collier et je suis heureux d’être ici aujourd’hui. Bien que je travaille beaucoup avec la chère sœur qui est ici (S), ce n’est rien pour nous de voyager de son pays lointain au vôtre pour venir parler. C’est en un battement de cœur, en un instant de pensée, que nous sommes capables de voyager et d’être avec vous tout autour du globe. Comme vous traversez le monde, mes amis, nous venons pour être avec vous dans la prière.
+Que le précieux Amour Divin de Dieu entre dans vos âmes, mes amis. Je ne vous ai pas parlé depuis un certain temps. Je suis Michaël Collier et je suis heureux d’être ici aujourd’hui. Bien que je travaille beaucoup avec la chère sœur qui est ici (S), ce n’est rien pour nous de voyager de son pays lointain au vôtre pour venir parler. C’est en un battement de cœur, en un instant de pensée, que nous sommes capables de voyager et d’être avec vous tout autour du globe. Comme vous traversez le monde, mes amis, nous venons pour être avec vous dans la prière.
 
 Nous vous aidons à vous rassembler dans l’unité, l’unité de désir, l’unité d’intention, l’unité pour recevoir le grand cadeau de l’Amour du Père, car c’est la puissance de cet Amour qui est la force unificatrice parmi vous et qui nous permet, dans le Royaume Céleste, de marcher avec vous et d’être avec vous sur le plan terrestre, un plan si différent du nôtre. Pourtant, la lumière que vous portez dans vos âmes nous attire et nous permet de nous concentrer sur ce plan et d’y venir par les portails de lumière qui ont été établis et par le pouvoir de la prière que vous exprimez, ainsi que par vos désirs les plus élevés.
 

@@ -16,7 +16,7 @@ Imaginez un instant que vous regardez la terre depuis un point d’observation o
 Ce que vous lisez dans les livres de Robert J. Lees<sup id=”a1”>[1](#f1)</sup> vient d’un endroit si beau, si rempli de lumière, qu’il inspire ceux qui peuvent le percevoir avec leur âme, à être dans un état d’être, proportionnel au voyage de transformation de ces âmes qui y sont mentionnées. C’est le voyage à travers les sphères, les nombreuses demeures du Royaume du Père, plus particulièrement celles de la lumière et de l’amour, l’Amour de Dieu. C’est une histoire sans fin, et c’est pourquoi, en un sens, vous souhaitez qu’il en soit ainsi. Dans l’amour perpétuel, éternel, infini, votre âme immortelle s’élargit toujours dans l’Amour de Dieu. Ainsi soit-il. Je suis Jean, une âme rachetée et votre frère dans le Christ. Que Dieu soit avec vous, toujours.
 <small>
 
-1. <large id=”f1”> Une référence aux livres de Robert J. Lees : Through the Mists, The Life Elysian et The Gate of Heaven.[↩](#a1)
+1. <large id=”f1”> Une référence aux livres de Robert J. Lees : Through the Mists (A travers les Brumes), The Life Elysian (la vie Elyséenne) et The Gate of Heaven (la porte du Ciel).[↩](#a1)
 
 
 

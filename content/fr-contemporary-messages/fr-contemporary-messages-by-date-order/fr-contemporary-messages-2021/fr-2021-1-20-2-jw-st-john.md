@@ -24,6 +24,6 @@ Lorsque vous touchez le cœur d’un être humain, quelque chose s’ouvre et le
 Que la lumière et l’amour du Créateur soient avec vous, restent avec vous. En ce jour de joie, que chacun de vous s’adonne au bonheur qui est le sien. Faites briller votre lumière, mes chers amis. Que Dieu vous bénisse. Je suis votre frère dans le Christ. Je m’appelle Jean.
 <small>
 
-1. <large id=”f1”> Changement d’administration dans le gouvernement des États-Unis..[↩](#a1)
+1. <large id=”f1”> Changement d’administration dans le gouvernement des États-Unis.[↩](#a1)
 
 

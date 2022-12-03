@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 5 Novembre 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/aargentine.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/argentine.jpg)
 
 Je suis votre frère et votre ami, Jésus. Je viens une fois de plus pour parler comme je l’ai promis. Avant de commencer, je tiens à assurer mon cher frère et ma chère sœur que leur amie bien-aimée (B) a bien été transportée dans le monde des esprits par ma main et qu’elle a été bénie par de nombreuses présences d’esprits et d’anges qui l’ont saluée et reconnue lors de son décès, car c’était une âme chère et aimée qui continue à trouver sa voie dans le monde des esprits et à servir Dieu par des moyens plus adaptés à la vie des esprits. Oui, elle est passée dans la cinquième sphère, ce qui est remarquable, car très, très peu d’âmes de votre plan terrestre sont passées directement dans cette sphère. Sa joie est grande. Son amour pour vous tous est grand. Elle continuera à servir Dieu et à profiter à tous ceux d’entre vous qui sont connectés et qui aiment cette chère âme, cette chère et belle âme qui est aimée par Dieu et qui aime Dieu.
 

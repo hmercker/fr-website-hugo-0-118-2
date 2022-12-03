@@ -11,7 +11,7 @@ weight:
 
 St Luc - reçu par Jimbeau Walsh le 27 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
 
-C’est moi, Luke. Vous pouvez voir dans vos études aujourd’hui comment une âme, même avec une goutte d’amour, peut aider une autre âme en difficulté, à condition qu’elle permette de son plein gré d’être aidée – à condition que son âme en émette le désir.
+C’est moi, Luc. Vous pouvez voir dans vos études aujourd’hui comment une âme, même avec une goutte d’amour, peut aider une autre âme en difficulté, à condition qu’elle permette de son plein gré d’être aidée – à condition que son âme en émette le désir.
 
 Et c’est ainsi sur terre, ceux d’entre vous qui ont cet Amour de Dieu dans leur âme, peuvent élever ceux qui, peut-être sans le savoir, demandent cet Amour. Et avec vos conseils et votre patience, ils se tourneront vers la prière. Je dirais qu’il est important de se rappeler que le mental est capable de croire à beaucoup de choses, certaines en vérité, d’autres en erreur. Le mental semble en fait infatigable dans sa soif de connaissance, et ceux qui habitent les sphères naturelles supérieures sont toujours à la recherche de plus de connaissances sur l’univers, sur le fonctionnement des choses, et au plus haut niveau, ils ont un sentiment de conscience et d’unité universelles, et cela doit être distingué de la substance même de l’âme qui ne fait qu’un avec son Créateur.
 

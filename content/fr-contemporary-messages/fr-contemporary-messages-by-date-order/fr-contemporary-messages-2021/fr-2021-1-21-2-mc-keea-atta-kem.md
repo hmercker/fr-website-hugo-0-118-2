@@ -11,7 +11,7 @@ weight:
 
 Keea Atta Kem - reçu par Maureen Cardoso le 21 Janvier 2021, Abbotsford, Colombie-Britannique, Canada
 
-Dieu vous bénisse mes chers amis, c’est Keea et je me joins à vous dans votre cercle pour le développement de votre don de guérison. C’est un don précieux que Dieu a placé dans vos âmes et que vous désirez développer pour servir votre Père céleste en apportant lumière et amour à beaucoup.
+Dieu vous bénisse mes chers amis, c’est Keea et je me joins à vous dans votre cercle pour le développement de votre don de guérison. C’est un don précieux que Dieu a placé dans vos âmes et que vous désirez développer pour servir votre Père Céleste en apportant lumière et amour à beaucoup.
 
 Je suis venu pour soutenir la vision de la chère fille qu’elle a partagée au sujet des portails de lumière et pour voir la formation – une ramification puis une croissance continue et d’autres ramifications – qu’elle décrit comme une canopée s’étendant loin dans les royaumes Célestes. Sa description est exacte, car la structure qu’elle a vue est comme un vieil arbre dans une forêt, avec des racines profondes et diverses branches sur le tronc qui permet aux énergies de lumière et aux énergies de guérison d’avancer. Comme elle le décrit, c’est pour atteindre plus facilement le plan terrestre et aider les anges Célestes à voyager plus facilement vers la Terre.
 

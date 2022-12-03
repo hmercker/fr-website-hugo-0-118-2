@@ -13,7 +13,7 @@ Flavius Joseph - reçu par Al Fike le 15 Mars 2020, Gibsons, Colombie-Britanniqu
 
 Oui. Je suis Flavius Joseph et je vais répondre à vos questions, chers amis. Notre professeur bien-aimé, Keea, vous a donné l’essence du message que nous avons l’intention de vous transmettre, à vous et à d’autres, car il est important de reconnaître les raisons et les moyens par lesquels Dieu apportera le changement dans votre monde et la guérison. Elle vous a donc parlé avec amour des conditions qui sont difficiles à reconnaître et à accepter.  Alors, mes amis, qu’est-ce que vous souhaitez demander ?
 
-Question :  Que devons-nous savoir et comprendre de l’obscurité afin d’acquérir plus de lumière et d’apprécier la lumière ?
+*Question :  Que devons-nous savoir et comprendre de l’obscurité afin d’acquérir plus de lumière et d’apprécier la lumière ?*
 
 Tout ce que vous devez savoir sur l’obscurité est ce que vous avez expérimenté dans votre propre vie, chacun d’entre vous ayant expérimenté l’obscurité à sa manière et à certains moments de sa vie. Chacun d’entre vous a été soumis à de sombres influences.  Chacun d’entre vous a lutté contre ces conditions sombres du plan terrestre.  Il est certain qu’à travers vos expériences, vous avez beaucoup appris sur ce qui est une condition prédominante dans votre monde et sur les conditions qui ont fait partie de votre propre vie intérieure et qui vous ont causé de la douleur, de la souffrance et de grands défis.
 
@@ -21,7 +21,7 @@ Pourtant, vous avez réalisé que l’antidote à ces conditions est d’apporte
 
 Y a-t-il d’autres questions, âmes bien-aimées ?
 
-Question : Oui, Flavius Joseph. J’ai une question. Il y a beaucoup de discussions sur les chakras et les énergies et je comprends qu’il y a un total de 12 chakras. Pouvez-vous élaborer sur les énergies des chakras et sur la façon dont elles peuvent être utilisées avec une âme éveillée ?
+*Question : Oui, Flavius Joseph. J’ai une question. Il y a beaucoup de discussions sur les chakras et les énergies et je comprends qu’il y a un total de 12 chakras. Pouvez-vous élaborer sur les énergies des chakras et sur la façon dont elles peuvent être utilisées avec une âme éveillée ?*
 
 Ces choses dont vous parlez sont du corps spirituel et en fait il y a plus de chakras que le nombre que vous avez décrit ou prescrit au corps spirituel. Au fur et à mesure que l’âme grandit et est énergisée, d’autres aspects du corps spirituel vont réagir et s’éveiller dans le cadre de ce processus d’éveil. Bien sûr, comme vous le comprenez, ces aspects du corps spirituel ont leurs fonctions et sont utilisés de différentes manières. Ils aident également à maintenir le corps spirituel en alignement et renforcé dans la lumière, et les capacités et les dons seront amplifiés par ces zones du corps spirituel. Comme l’âme exprime ses dons, les dons sont en alignement et en accord avec ces divers centres d’énergie du corps et s’expriment ainsi à travers le corps, le corps spirituel que je décris et aussi à travers le corps physique. 
 

@@ -21,7 +21,7 @@ Ainsi, nous écrivons nos propres histoires, remplies de nombreuses pages d’ex
 
 Puissiez-vous tous venir lire les livres de votre âme. Puissiez-vous tous vous consacrer à la lecture de la prochaine page de votre âme, de la prochaine prise de conscience et reconnaissance du don de l’âme, affichant dans la sagesse et la clarté ses facultés d’âme, atteignant le cœur des autres qui cherchent à découvrir leur âme. Apportez l’amour acquis, la vérité expérimentée, les nombreuses bénédictions offertes et vivez la vie avec un but accompli.
 
-Je suis ton enseignant et ceci est la leçon d’aujourd’hui. Tourne la page et lis le prochain chapitre, mon enfant, et tu seras surpris de ce que Dieu souhaite que tu voies. Je reviendrai à nouveau pour t’apporter une autre leçon et t’apporter mon amour et mon soutien. Je suis avec toi dans tes prières et je t’aide à apprendre la Vérité de l’Amour de Dieu et de Son Univers. Je te souhaite une bonne nuit et que Dieu te bénisse ma fille. Augustin t’aime. Bonne nuit.
+Je suis ton enseignant et ceci est la leçon d’aujourd’hui. Tourne la page et lis le prochain chapitre, mon enfant, et tu seras surprise de ce que Dieu souhaite que tu voies. Je reviendrai à nouveau pour t’apporter une autre leçon et t’apporter mon amour et mon soutien. Je suis avec toi dans tes prières et je t’aide à apprendre la Vérité de l’Amour de Dieu et de Son Univers. Je te souhaite une bonne nuit et que Dieu te bénisse ma fille. Augustin t’aime. Bonne nuit.
 
 
 

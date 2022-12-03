@@ -11,7 +11,7 @@ weight:
 
 Care Derby Walsh - reçu par Jimbeau Walsh le 12 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
 
-C’est moi, votre sœur Care. Je suis ici, comme vous, pour l’amour de Dieu. Souvenez-vous que tout ce que vous faites peut être pour l’Amour de Dieu et si cela est votre guide, vous ne pouvez pas vaciller. Ici, dans le Royaume Céleste, tout ce que nous faisons est pour l’Amour de Dieu, dans l’Amour de Dieu et avec l’Amour de Dieu. Cela nous permet d’ouvrir de nombreuses portes et nous ne jugeons pas ceux qui nous ferment leurs portes mais nous invitons tout le monde : « Ouvrez la porte de votre cœur pour que le Père vous bénisse de Son Amour« .
+C’est moi, votre sœur Care. Je suis ici, comme vous, pour l’amour de Dieu. Souvenez-vous que tout ce que vous faites peut être pour l’Amour de Dieu et si cela est votre guide, vous ne pouvez pas vaciller. Ici, dans le Royaume Céleste, tout ce que nous faisons est pour l’Amour de Dieu, dans l’Amour de Dieu et avec l’Amour de Dieu. Cela nous permet d’ouvrir de nombreuses portes et nous ne jugeons pas ceux qui nous ferment leurs portes mais nous invitons tout le monde : *« Ouvrez la porte de votre cœur pour que le Père vous bénisse de Son Amour. »*
 
 Nous n’avons pas ces débats pour savoir si l’Amour est disponible parce qu’il l’est et que nous le savons et que nous le ressentons et que nous l’apportons avec nous. Et nous venons à vous comme vous le recevez et notre seul souhait est que vous apportiez cet Amour à tous sans jugement.
 

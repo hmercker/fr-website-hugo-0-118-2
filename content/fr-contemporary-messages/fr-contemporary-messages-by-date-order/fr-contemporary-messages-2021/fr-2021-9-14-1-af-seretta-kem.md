@@ -11,7 +11,7 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 14 Septembre 2021, Gibsons, Colombie-Britannique, Canada
 
-e suis Seretta Kem. Vous commencez à comprendre vos sensibilités et ce qui peut résulter du temps que vous passez ensemble dans ce cercle de développement et d’éveil. Parfois, cela peut être une surprise, un défi alors que vous trouvez votre chemin dans le labyrinthe des diverses perceptions et du développement de diverses facultés en vous. Il y a toujours un besoin d’ajustement lorsqu’il s’agit du développement des dons psychiques et des facultés spirituelles. Cela ne peut être évité. Car comme toute chose dans le plan matériel, il est nécessaire de s’adapter à de nouvelles conditions et à de nouvelles situations.
+Je suis Seretta Kem. Vous commencez à comprendre vos sensibilités et ce qui peut résulter du temps que vous passez ensemble dans ce cercle de développement et d’éveil. Parfois, cela peut être une surprise, un défi alors que vous trouvez votre chemin dans le labyrinthe des diverses perceptions et du développement de diverses facultés en vous. Il y a toujours un besoin d’ajustement lorsqu’il s’agit du développement des dons psychiques et des facultés spirituelles. Cela ne peut être évité. Car comme toute chose dans le plan matériel, il est nécessaire de s’adapter à de nouvelles conditions et à de nouvelles situations.
 
 Nous sommes ici pour vous aider dans cet ajustement. Sachez que nous vous protégerons toujours, qu’il n’y aura pas une telle condition ou une telle situation qui vous causera un préjudice physique ou émotionnel. Le corps spirituel est très résilient et ne supportera pas ces conditions ou ces réponses surprenantes qui peuvent survenir dans les conditions dans lesquelles vous faites partie en ce moment.
 

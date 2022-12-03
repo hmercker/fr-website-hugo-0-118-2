@@ -22,7 +22,7 @@ Mais je vous dirai ceci : dans les royaumes Célestes et les sphères supérieur
 J’espère avoir réussi à clarifier les choses, et je tiens à vous dire que vous m’êtes cher. Je suis honoré que vous poursuiviez vos études, mais surtout vos prières. Je vous souhaite toute bénédiction et un don parfait dans l’amour de Dieu. Sachez que je suis vraiment votre frère et ami, Robert J. Lees. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Dans son livre « Through the Mists », Lees fait référence à un terme racial dérogatoire utilisé par un esprit pour transmettre un point positif sur l’égalité. Ce terme était en usage à l’époque (1898) mais est totalement inacceptable aujourd’hui. La copie pdf de ce livre disponible sur le site web new-birth.net a été modifiée en conséquence.[↩](#a1)
+1. <large id=”f1”> Dans son livre « Through the Mists (A travers les brumes)», Lees fait référence à un terme racial dérogatoire utilisé par un esprit pour transmettre un point positif sur l’égalité. Ce terme était en usage à l’époque (1898) mais est totalement inacceptable aujourd’hui. La copie pdf de ce livre disponible sur le site web new-birth.net a été modifiée en conséquence.[↩](#a1)
 
 
 

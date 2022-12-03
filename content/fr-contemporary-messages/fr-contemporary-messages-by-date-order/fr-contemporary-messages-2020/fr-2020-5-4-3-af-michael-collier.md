@@ -44,7 +44,7 @@ Beaucoup de choses vous attendent, mes amis. Dieu attend chaque moment où vous 
 Que Dieu vous bénisse, mes amis. Je suis Michaël Collier et je vous remercie de m'écouter aujourd'hui, de parler de ces sujets qui sont si importants, d'aider à vous inspirer vers de plus grandes hauteurs, profondeurs et expressions et l'émerveillement qu'est ce Chemin Divin qui mène à l'union avec Dieu. Que Dieu vous bénisse, mes amis, et merci.
 <small>
 
-1. <large id=”f1”> La Loi d'Activation a été décrite pour la première fois par Jésus il y a de nombreuses années. Ce message est accessible par [ce lien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-20-1-dl-jesus).[↩](#a1)
+1. <large id=”f1”> La Loi d'Activation a été décrite pour la première fois par Jésus il y a de nombreuses années. Ce message est accessible par [ce lien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-20-1-dl-jesus/).[↩](#a1)
 
 
 

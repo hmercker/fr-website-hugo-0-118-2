@@ -42,7 +42,7 @@ Que Dieu vous bénisse sur ce voyage. Je suis désolé d’être si sérieux auj
 Que Dieu vous bénisse, mes bien-aimés. Je suis James. Mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Il convient de rappeler que James (Jacques) était un des frères de Jésus.[↩](#a1)
+1. <large id=”f1”> Il convient de rappeler que Jacques était un des frères de Jésus.[↩](#a1)
 
 
 

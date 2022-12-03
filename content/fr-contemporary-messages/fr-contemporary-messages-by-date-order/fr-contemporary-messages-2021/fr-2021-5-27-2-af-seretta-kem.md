@@ -26,7 +26,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis votre Seretta Kem qui sera �
 Que Dieu vous bénisse, âmes bien-aimées. Je suis proche comme beaucoup d’entre nous qui travaillent en alignement avec la volonté de Dieu pour l’établissement de la lumière et de la vérité sur ce monde. Que Dieu vous bénisse et vous garde près de lui, près de la lumière, près de l’amour, près de Dieu qui vous embrasse toujours. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> 1e peuple nubien vit aujourd’hui dans ce qui est le nord du Soudan et le sud de l’Égypte. Il s’agissait d’une ancienne civilisation africaine issue des premiers habitants de la vallée du Nil. Les rois nubiens ont régné sur l’Égypte en tant que pharaons pendant près de 100 anLs. .[↩](#a1)
+1. <large id=”f1”> 1e peuple nubien vit aujourd’hui dans ce qui est le nord du Soudan et le sud de l’Égypte. Il s’agissait d’une ancienne civilisation africaine issue des premiers habitants de la vallée du Nil. Les rois nubiens ont régné sur l’Égypte en tant que pharaons pendant près de 100 anLs.[↩](#a1)
 
 
 

@@ -11,7 +11,7 @@ weight:
 
 Yogananda - reçu par Jimbeau Walsh le 28 Juin 2020, Punalu’u, Oahu, Hawaii, USA
 
-C’est moi, votre frère et ami dans l’amour de Dieu, je suis Yogananda. Je souhaite parler du discernement de la vérité. Il y a eu beaucoup de discussions tant en public qu’en privé et il y a eu de nombreux messages concernant ce sujet que ce soit dans votre esprit ou dans vos âes. Je souhaite vous donner un moyen très simple de discerner la différence.
+C’est moi, votre frère et ami dans l’Amour de Dieu, je suis Yogananda. Je souhaite parler du discernement de la vérité. Il y a eu beaucoup de discussions tant en public qu’en privé et il y a eu de nombreux messages concernant ce sujet que ce soit dans votre esprit ou dans vos âes. Je souhaite vous donner un moyen très simple de discerner la différence.
 
 Lorsque vous entendez un message, ou que vous lisez un message ou un livre, ou que vous entendez de la musique, lorsqu’elle porte la vibration de l’Amour de Dieu, elle touche votre âme. Lorsque les mots ou les vibrations touchent votre esprit curieux et vous amènent à considérer toutes les options, toutes les possibilités, je dis qu’en fin de compte, cela peut aussi affecter votre âme dans le sens où vous êtes poussé à entreprendre quelque chose qui bénéficiera à votre âme.
 

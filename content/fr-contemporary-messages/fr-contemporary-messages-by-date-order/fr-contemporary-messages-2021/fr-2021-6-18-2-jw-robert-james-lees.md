@@ -21,7 +21,7 @@ Laissez-moi vous dire une fois de plus combien je suis heureux de vos aimables p
 <small>
 
 1. <large id=”f1”> Se référant aux lectures de son livre La Vie Elyséenne.[↩](#a1)
-2. <large id=”f1”> l’Amour Divin dans l’âme.[↩](#a2)
+2. <large id=”f1”> L’Amour Divin dans l’âme.[↩](#a2)
 
 
 

@@ -11,9 +11,9 @@ weight:
 
 St Matthieu - reçu par Al Fike le 10 Avril 2021, Gibsons, Colombie-Britannique, Canada
 
-Que Dieu vous bénisse, âmes bien-aimées, je suis Matthew. Que Dieu continue à soutenir Ses enfants comme Il le fait depuis des millénaires. Il a soutenu ses enfants de la Lumière, les a soutenus et élevés, et s’est assuré qu’ils puissent effectivement parcourir ce chemin de vie sous la protection et les bénédictions de Dieu. Et il en sera de même pour vous, mes amis bien-aimés. Vous serez guidés, élevés et soutenus.
+Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Que Dieu continue à soutenir Ses enfants comme Il le fait depuis des millénaires. Il a soutenu ses enfants de la Lumière, les a soutenus et élevés, et s’est assuré qu’ils puissent effectivement parcourir ce chemin de vie sous la protection et les bénédictions de Dieu. Et il en sera de même pour vous, mes amis bien-aimés. Vous serez guidés, élevés et soutenus.
 
-Les portes s’ouvriront avec chaque effort qui est en effet en alignement avec la volonté de Dieu, que vous traverserez avec facilité, mes bien-aimés. Vous trouverez votre chemin au-delà des dilemmes de votre mental vers les connaissances de votre âme qui vous porteront et vous renforceront sur ce chemin de service, d’amour, d’éveil à la Volonté de Dieu toujours plus pleinement dans vos âmes.>
+Les portes s’ouvriront avec chaque effort qui est en effet en alignement avec la volonté de Dieu, que vous traverserez avec facilité, mes bien-aimés. Vous trouverez votre chemin au-delà des dilemmes de votre mental vers les connaissances de votre âme qui vous porteront et vous renforceront sur ce chemin de service, d’amour, d’éveil à la Volonté de Dieu toujours plus pleinement dans vos âmes.
 
 En fait, peu de choses sont laissées au hasard, âmes bien-aimées. C’est à vous d’être patientes, de persévérer, d’être cohérentes dans vos prières, d’avoir une base solide de foi, la foi en la Volonté de Dieu agissant à travers vos vies. De cette façon, tout ce qui est censé être se manifestera effectivement, se déroulera au moment opportun et avec la grâce de la bénédiction de Dieu et de son désir de le voir se manifester dans le monde.
 

@@ -25,7 +25,7 @@ Marchez avec nous dans la joie. Marchez dans un profond désir de servir et d’
 
 Chaque jour apporte sa promesse, chaque jour apporte l’opportunité de servir. Qui peut dire qu’un simple acte et une simple pensée sont plus puissants que votre présence dans une partie du monde où d’autres sont dans le besoin et désirent que vous soyez avec eux ? Ce n’est pas à vous de juger ou d’évaluer ce qui constitue un véritable service à Dieu. Il s’agit simplement de mettre en œuvre vos prières et votre désir d’accomplir ce service de la manière et dans la capacité que Dieu juge être en harmonie avec Son plan et Sa volonté.
 
-La porte est ouverte pour vous, âmes bien-aimées. Certaines sont surprenantes dans leur portée. D’autres sont très subtiles. Mais chaque jour vous apportera des opportunités, pour autant que vous le désirez et que vous soyez prêts à vous aligner avec, pour synchroniser votre journée, vos pensées, vos expressions avec la volonté de Dieu.
+La porte est ouverte pour vous, âmes bien-aimées. Certaines sont surprenantes dans leur portée. D’autres sont très subtiles. Mais chaque jour vous apportera des opportunités, pour autant que vous le désirez et que vous soyez prêts à vous aligner avec, pour synchroniser votre journée, vos pensées, vos expressions avec la Volonté de Dieu.
 
 Puissiez-vous continuer à vous soutenir mutuellement, à soutenir ces efforts et à être de véritables canaux de la volonté, de la lumière et de l’Amour de votre Père Céleste. Nous sommes tous ensemble dans ce puissant désir de servir Dieu et nous continuerons à chercher le déploiement de la Volonté de Dieu dans toutes les myriades de façons dont elle est exprimée, instant après instant, jour après jour.
 
