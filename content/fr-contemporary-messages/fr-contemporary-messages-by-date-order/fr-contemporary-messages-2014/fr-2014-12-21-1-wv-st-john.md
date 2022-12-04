@@ -1,4 +1,4 @@
-(---
+---
 title: "Volonté et Libre Arbitre et le sens de 666"
 menu_title: ""
 description: "Volonté et Libre Arbitre et le sens de 666"
