@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pardon
 
-André - reçu par Al Fike le 16 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 16 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis André et je souhaite parler du sujet du pardon. C’est un aspect important de votre croissance de l’âme. Car il existe de nombreuses conditions dans votre monde, de nombreuses actions et pensées, attitudes et efforts qui ne sont pas empreints d’amour. Il est difficile de croire, en un jour comme celui-ci, que ce monde est sombre. Pourtant, lorsque nous regardons le monde, même le jour le plus lumineux est enveloppé d’obscurité, ce qui nous attriste, tout comme Dieu, que cette belle création, ce monde, ait été souillé par la condition humaine, tous ces choix qui ne sont pas en harmonie avec la création de Dieu et qui ont créé cette obscurité. Nous faisons de grands efforts, comme le font beaucoup d’esprits et d’individus sur Terre, pour neutraliser cette obscurité et apporter la lumière.
 
@@ -38,6 +38,3 @@ Comme toujours, le choix est devant vous. L’amour de Dieu attend de remplir, d
 Puissiez-vous continuer à recevoir cette bénédiction de l’Amour du Père afin que cela vous donne l’élan et le pouvoir de prendre les décisions, les choix pour la lumière, pour la libération et la liberté. L’Amour de Dieu vous soutient à jamais, âmes bien-aimées. Il brûle brillamment en vous. C’est la sagesse, c’est le pouvoir et la beauté qui changent votre vision du monde, votre capacité à aimer, à pardonner, et il vous portera toujours en avant, vous contraindra à une plus grande lumière.
 
 Puissiez-vous écouter de tout votre être ce que vos âmes souhaitent vous guider, car votre âme est connectée à Dieu et Dieu continue à vous inspirer et à vous aimer et cela s’exprime dans vos âmes. Dieu vous bénit, mes bien-aimés. Je suis André et je vous aime profondément. Que Dieu vous bénisse.
-
-
-

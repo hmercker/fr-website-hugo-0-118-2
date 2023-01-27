@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus apporte une bénédiction à F.U.S.C.<sup id=”a1”>[1](#f1)</sup> i
+### Jésus apporte une bénédiction à F.U.S.C. <sup id=”a1”>[1](#f1)</sup> i
 
-Jésus - reçu par Al Fike le 1 Avril 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Avril 2018, FUSC, Burnaby, Colombie-Britannique, Canada.
 
 JJe viens parce que vous avez pensé à moi, à mes épreuves, à mes tribulations et à ma Crucifixion. Je tiens à vous assurer que je n’ai pas souffert aussi grandement que vous pourriez l’imaginer, que mon Père céleste a fait en sorte que mon corps ne soit pas en grande souffrance alors que ceux qui souhaitaient me voir mourir continuaient à violer et violer ma chair. Ma conscience était avec Dieu à ce moment-là.
 
@@ -21,6 +21,3 @@ Que la Paix du Père soit sur vous, âmes bien-aimées, vous enveloppant ce jour
 <small>
 
 1. <large id=”f1”> F.U.S.C : First Spiritual United Churc (Première Eglise Spirituelle Unie.[↩](#a1)
-
-
-

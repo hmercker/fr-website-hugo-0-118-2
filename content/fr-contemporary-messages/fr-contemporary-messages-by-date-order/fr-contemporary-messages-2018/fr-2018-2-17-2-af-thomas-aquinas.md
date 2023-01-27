@@ -9,9 +9,9 @@ weight:
 ---
 ### Choisirez-vous de commencer le voyage de l’éveil de l’âme ?
 
-Thomas d'Aquin - reçu par Al Fike le 17 Février 2018, Gibsons, Colombie-Britannique, Canada
+Thomas d'Aquin - reçu par Al Fike le 17 Février 2018, Hollis Woods Community Church, Queens, New York, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/eveil-spirituel3.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-eveil-spirituel3.jpg)
 
 Je m’appelle Thomas d’Aquin et je suis membre du Royaume Céleste. Mon âme a été transformée par l’Amour du Père. Je réside maintenant dans ce bel endroit rempli d’amour et de joie. Je suis venu vous dire, âmes bien-aimées, comment Dieu désire toucher chaque âme jamais créée avec Son Amour, avec le toucher de Son Amour pour amener la guérison profonde de l’âme, pour amener les potentiels de l’âme à sortir et à s’exprimer dans ce monde qui a tellement besoin, tellement besoin d’Amour.
 
@@ -28,8 +28,3 @@ Soyez forts, âmes bien-aimées. Cherchez la Lumière, cherchez à être une fla
 Voulez-vous vivre une vie de médiocrité, mes bien-aimés, ou souhaitez-vous une vie qui soit remplie de l’expérience de la connaissance de Dieu, de la connaissance de vous-mêmes et de l’expérience de la Lumière dans toute sa magnificence ? Dieu vous donne le choix, âmes bien-aimées. Il n’insiste pas sur quoi que ce soit. Il offre simplement, mais vous vous ouvrez aux cadeaux qu’Il a à offrir, que vous désirez et que vous êtes alignés avec cette Lumière. C’est à vous de décider, comme c’est le cas pour chaque âme. Puissiez-vous continuer à rechercher le Plus Haut, à aimer de tout votre cœur et de toute votre âme, à continuer à grandir dans l’Amour de Dieu et à entendre la guidance que Dieu a à donner chaque jour alors qu’Il continue à vous bénir pour que vous continuiez à vous éveiller, pour que vos âmes puissent s’épanouir dans l’Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Thomas d’Aquin et je suis heureux de vous parler en ce jour. Je souhaite que vous sachiez que même si un cercle très modeste se tient dans cette pièce, plusieurs centaines d’esprits sont avec vous, que de nombreuses bénédictions découlent de vos échanges et de vos prières et que de nombreuses bénédictions se répandent dans le monde. En effet, lorsqu’un groupe d’âmes sincères se réunit pour créer un cercle de Lumière, Dieu utilise ces âmes pour apporter des bénédictions aux autres, en touchant leurs âmes. Puissiez-vous continuer à prier ensemble, mes bien-aimés, à travailler ensemble et à chercher à apporter les changements nécessaires à ce monde en écoutant la volonté de Dieu dans votre vie. Que Dieu vous bénisse. Que Son Amour continue à toucher vos âmes toujours plus profondément, infusant chaque chambre de votre âme, libérant toutes les conditions qui ne sont pas de l’Amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-
-
-

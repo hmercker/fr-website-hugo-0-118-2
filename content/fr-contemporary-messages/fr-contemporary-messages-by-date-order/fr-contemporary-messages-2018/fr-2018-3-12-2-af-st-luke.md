@@ -9,7 +9,7 @@ weight:
 ---
 ### Introduction à la création d'un cercle de lumière
 
-St Luc - reçu par Al Fike le 12 Mars 2018, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 12 Mars 2018, Punaluu, Oahu, HI, USA.
 
 Âmes bien-aimées, je suis Luc et je souhaite parler de la question de la création d’un cercle de Lumière. Vous êtes dans un cercle, vous êtes ensemble avec plus ou moins les mêmes désirs et vous suppliez Dieu pour les bénédictions d’en haut. Ainsi, vous créez un cercle de lumière.
 
@@ -30,6 +30,3 @@ Vous vous aventurez donc dans un voyage que peu de gens dans votre monde osent e
 Vous vous réunissez donc, mes bien-aimés, pour chercher l’affirmation, pour chercher à connaître votre propre âme. Cela arrive en ce moment même, alors que l’Amour du Père continue à se déverser en vous, alors que l’Esprit Saint continue à toucher votre âme en remplissant les chambres intérieures, des chambres qui demandent à être éclairées, guéries et transformées. Comme vous continuez dans ce processus d’éveil, ce que j’ai à dire aujourd’hui sera clair et évident. Certains d’entre vous ici sont bien conscients de cela et pour d’autres c’est une nouvelle information. Mais vous êtes réunis aujourd’hui pour faire confiance à ce voyage d’éveil. Partagez vos histoires, mes frères et sœurs, de votre relation avec votre propre âme. Révélez vos connaissances profondes. Vous êtes réunis en tant que frères et sœurs touchés par Dieu.
 
 Nous, le Royaume Céleste, sommes avec vous et nous vous soutenons. Nous nous tenons en cercle derrière vous, chacun créant un lieu de Lumière et de beauté où vous pouvez plus facilement vous prélasser dans cette condition. Sachez que vous êtes tenus dans la Lumière et que Dieu vous donne toutes les occasions de recevoir ces bénédictions et de renforcer la Lumière en vous. Que Dieu vous bénisse, âmes bien-aimées. Je suis Luc. Mon amour est avec vous. Je suis avec vous comme beaucoup d’autres. Que Dieu vous bénisse.
-
-
-

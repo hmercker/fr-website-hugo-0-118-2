@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos efforts sont décuplés par la bénédiction
 
-Augustin - reçu par Al Fike le 15 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant Augustin. Tous ceux qui s’engagent à faire ce travail recevront les bénédictions et le soutien des anges. Combien peu nombreux sont ceux qui, dans ce monde, sont prêts à s’engager dans cette voie. Combien peu sont préparés à s’engager dans cette grande tâche d’apporter la vérité de l’Amour de Dieu au monde par des moyens et des méthodes qui sont clairs, aimants et cohérents. Comme vous êtes précieux, vous toutes, âmes bien-aimées, qui avez engagé votre âme à rechercher l’union avec Dieu par Son Amour.
 
@@ -28,6 +28,3 @@ Soyez inspirés les uns par les autres, mes bien-aimés. Priez les uns pour les 
 Que Dieu vous bénisse puissamment, mes bien-aimées, mes âmes bien-aimées. Puissiez-vous continuer à marcher sur ce chemin d’amour et à partager vos voyages ensemble. Tant de choses vous attendent sur ce chemin, alors que vous vous aidez mutuellement à lever les barrières. Car ne comprenez-vous pas, qu’à partir de vos propres expériences et des luttes, que chacun doit traverser pour dégager ce chemin ? Dans cette compassion et cette conscience profondes réside une grande force sur laquelle vous pouvez compter les uns avec les autres. N’hésitez pas à être ouverts et vulnérables, clairs et sincères les uns envers les autres. Car cela engendre plus d’amour, plus de lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je vous aime, je vois votre lumière, je marque vos progrès et je continuerai à marcher avec vous pour toute l’éternité. Tel est mon engagement envers vous. Je serai votre ami, votre guide et votre enseignant pour toute l’éternité. Vous pouvez compter sur mes efforts et ma sagesse pour vous aider dans votre cheminement. Nous marchons tous vers l’unification avec Dieu. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
-
-
-

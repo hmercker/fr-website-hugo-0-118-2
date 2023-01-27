@@ -9,7 +9,7 @@ weight:
 ---
 ### Bienvenue de Jésus à la retraite de médiumnité de l'Amour Divin
 
-Jésus - reçu par Al Fike le 25 Août 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 25 Août 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus et je viens vous bénir, âmes bien-aimées, enfants de Dieu. Quelle joie cela nous donne à nous, en esprit, de vous voir vous réunir de cette façon, d’explorer les possibilités de votre service pour Dieu dans l’amour, d’arriver à connaître vos vraies natures et de partager votre amour. Que les bénédictions du don de l’amour du Père vous remplissent en si grande abondance qu’une grande joie s’échappe de votre cœur et que la sagesse grandisse en vous, et que vous puissiez servir le Père Céleste dans tout ce que vous faites, dans tout ce que vous êtes, pour aider à la transition de l’humanité des ténèbres à la lumière.
 
@@ -20,6 +20,3 @@ Portez la vérité partout où vous allez. Tenez-vous debout. Soyez un phare de 
 Partagez l’abondance des bénédictions de Dieu avec les autres. Prenez soin de vos frères et sœurs qui sont perdus et ont une grande soif d’amour. Permettez-vous de suivre le chemin que Dieu vous a tracé et qui vous mènera dans le monde, tout comme je l’ai fait et comme l’ont fait mes disciples, en portant le message d’amour au monde. Vous serez guidés et le chemin vous sera montré. Chaque jour sera un cadeau et une opportunité de servir Dieu de différentes manières, de différentes opportunités de marcher en tant que canal d’amour et de lumière de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous et j’ai un grand amour pour vous bien-aimés, un grand amour pour mes frères et sœurs qui marchent sur le chemin Divin de Dieu. Que Dieu vous bénisse, qu’il vous garde dans son étreinte. Paix profonde pour vous, mes bien-aimés, que Dieu vous bénisse.
-
-
-

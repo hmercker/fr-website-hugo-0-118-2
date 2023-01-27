@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître Dieu dans son grand fleuve d'amour
 
-Tahlia - reçu par Al Fike le 17 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Tahlia - reçu par Al Fike le 17 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 
 Je suis Tahlia et j’ai vécu autrefois dans l’empire Inca il y a de nombreuses années. J’ai une connexion particulière avec toi, ma fille et je travaille avec toi. Tu sentiras mon pouvoir. Tu sentiras les énergies qui viennent à travers moi et à travers toi alors que tu continues ton travail dans ce monde pour aider les gens à guérir et à venir à la Vérité et pour les guider dans le monde. Vous me connaîtrez. Vous me connaîtrez.
 
@@ -26,6 +26,3 @@ Toutes ces pensées et idées, toutes ces ambitions et perspectives de l’espri
 Alors que votre âme s’éveille, lavée par ces eaux, nettoyée et renforcée, remplie de Lumière, vous n’aurez plus besoin de cette ancienne vie qui s’accroche aux rochers. Vous vous laisserez simplement aller dans un abandon joyeux et dans la reconnaissance aimante que vous serez comme un poisson dans la rivière, vous portant le long. C’est votre maison maintenant. C’est ici qu’est votre place. Que cet Amour qui pleut sur vous, touchant votre âme, étant absorbé par votre âme assoiffée, vous oblige à plonger, à ne faire qu’un avec l’Amour, à faire confiance au pouvoir de l’Amour, au courant de l’Amour, à la beauté de l’Amour. Laissez-vous aller maintenant, mes amis, laissez-vous dériver et boire et connaître Dieu dans Son grand fleuve d’Amour.
 
 Que Dieu vous bénisse, mes amis bien-aimés, mes amis bien-aimés. Rejoignez-moi dans l’Amour. Je suis Tahlia et je nage avec vous, vous tous. Suivez vous jusqu’à la Lumière de l’Amour de Dieu. Que Dieu vous bénisse.
-
-
-

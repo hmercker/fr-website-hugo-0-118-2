@@ -9,7 +9,7 @@ weight:
 ---
 ### Servir avec humilité
 
-Augustin - reçu par Al Fike le 25 Février 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 25 Février 2018, Adria Hotel, Queens, New York, USA.
 
 Vous souvenez-vous de l’histoire de votre frère Jésus qui parcourait la terre en parlant de la Vérité de l’Amour Divin ? Il était souvent accueilli avec scepticisme jusqu’à ce qu’il montre et exprime de différentes manières le pouvoir de l’Amour dans le monde.
 
@@ -26,5 +26,3 @@ Tant de choses vous attendent, mes bien-aimés. Tant de choses vous attendent et
 Vous réalisez votre appel, mes bien-aimés. Dieu vous a appelé au service et vous verrez comment Dieu crée la Lumière. Ayez vos yeux et vos oreilles ouverts, vos âmes prêtes à donner dans l’Amour et tout sera bien, mes âmes bien-aimées. Tout ira bien. Marchez dans la foi et la certitude que vous êtes entre les mains de Dieu, que vous serez le canal de Son Amour. Il n’y a rien à craindre mes bien-aimés. Tout ira bien.
 
 Dieu vous bénit. Je suis votre enseignant Augustin et je vous aime, chères charges. Je vous aime tendrement. Je suis très heureux de vos efforts, de votre désir de servir. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-

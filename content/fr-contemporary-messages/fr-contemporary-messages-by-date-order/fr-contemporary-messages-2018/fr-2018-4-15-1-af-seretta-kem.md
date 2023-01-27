@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils pour obtenir le don de la voix directe
 
-Seretta Kem - reçu par Al Fike le 15 Avril 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 15 Avril 2018, Gibsons, Colombie-Britannique, Canada.
 
 Encore une fois, nous nous réunissons dans la prière pour le développement du don de la voix directe afin de nous accorder de toutes les manières aux conditions nécessaires pour faire avancer le développement de ce don. Nous continuons à utiliser toutes les opportunités que nous avons pour vous aider dans ce développement. Nous vous demandons à nouveau de garder dans votre esprit et dans vos prières le désir d’être utilisé comme un instrument de cette manière, dans ce monde. Car sans votre désir, vos efforts et votre concentration, nous ne pouvons pas avancer dans ce projet. Bien que vous soyez dispersés sur cette terre, cela ne signifie pas que nous ne pouvons pas vous connecter et vous rassembler dans la Lumière et dans les conditions requises pour développer davantage ces dons. Où que vous soyez, âmes bien-aimées, sur ce monde, vous avez été connectés et liés d’une manière spéciale. Les expériences que vous avez vécues ensemble dans la chambre noire, dans vos prières continues, dans vos interactions continues, ont créé les conditions qui sont nécessaires et bénéfiques au développement de ce don.
 
@@ -30,6 +30,3 @@ Ce n’est pas une tâche facile. Rien de ce dont nous parlons n’est un chemin
 Puissiez-vous être dignes du voyage, âmes bien-aimées, dignes des perspectives qui s’offrent à vous, assez fortes pour porter l’étendard de la Vérité, assez sages pour marcher dans ce monde avec une grande compassion et humilité en apportant l’Amour partout où vous allez. Car c’est avec ces qualités et avec les dons que le Père Céleste dépose devant vous, que tout ce que vous envisagez et désirez se réalisera dans vos vies. Renforcez-vous, mes bien-aimés. Marchez dans la Vérité avec chaque jour. Vivez dans l’Amour à chaque respiration. Soyez avec Dieu dans vos pensées et vos aspirations. Ayez une grande foi dans ce qui peut venir avec le Toucher de Dieu dans votre âme. Soyez forts, mes bien-aimés. Ces faiblesses intérieures tomberont sûrement avec la puissance de l’Amour de Dieu. Vous devez avancer, avancer continuellement dans une plus grande Lumière et dans un plus grand Amour. Le chemin est clairement tracé devant vous, mes bien-aimés. Puissiez-vous ressentir la joie et la paix qui accompagnent le véritable éveil et la compréhension et puissiez-vous être dans ce monde mais pas de ce monde, véritablement un enfant de Dieu, un instrument de Sa Volonté, un canal de Son Amour.
 
 Nous sommes avec vous, mes bien-aimés, alors que vous poursuivez ce voyage, ce service et cet éveil. Je suis avec vous. Mon amour est avec vous. Je suis Seretta Kem. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

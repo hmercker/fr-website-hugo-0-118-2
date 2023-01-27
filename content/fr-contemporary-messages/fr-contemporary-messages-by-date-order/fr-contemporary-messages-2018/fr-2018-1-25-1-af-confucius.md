@@ -9,7 +9,7 @@ weight:
 ---
 ### L'âme sage s'approche de Dieu
 
-Confucius - reçu par Al Fike le 25 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 25 Janvier 2018, FUSC, Burnaby, Colombie-Britannique, Canada.
 
 Mes âmes bien-aimées, je suis Confucius. Vous êtes des âmes précieuses, chacune précieuse, une perle hors de prix, une belle Lumière dans ce monde. L’âme perdue cherche et jette de l’eau pour la Lumière mais ne sait pas où aller. Mais l’âme sage vient à Dieu, vient à la Lumière de cette voix intérieure qui l’attire vers ces lieux où elle peut communier avec Dieu et connaître son âme dans l’Amour.
 
@@ -18,6 +18,3 @@ Vous êtes tous sages, mes bien-aimés. Vous êtes venus ensemble avec un seul b
 Âmes bien-aimées, continuez à grandir et à vous développer en Amour, en Vérité, en sagesse, en force, en pureté et en beauté. Vos vies refléteront cela et vos vies seront remplies d’expressions d’Amour. Vous êtes bénies, âmes bien-aimées, bénies par Dieu. Sentez ce contact dans vos cœurs. Ouvrez-vous à la puissance de Son Essence, qui élève et guérit et apporte une paix profonde et la vraie connaissance, alors que vos âmes ont faim et soif des eaux vives de Dieu. Puissiez-vous boire profondément, âmes bien-aimées, et savoir que vous marchez en effet sur un chemin de Lumière et que vous trouverez tout ce que vous cherchez. Il sera à vous, car Dieu bénit avec abondance et apporte tout ce qui est nécessaire pour vous remplir de connaissance et d’Amour, de paix et de joie. C’est à vous de le demander, âmes bien-aimées, à vous de le demander.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Confucius vous aime. Confucius est avec vous. Que Dieu vous bénisse, âmes bien-aimées de ce monde.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### S'ouvrir à la lumière de l'amour de Dieu
 
-André - reçu par Al Fike le 16 Mars 2018, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 16 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 
 Que Dieu vous bénisse, je suis André. Oui, il y a beaucoup de raisons d’être reconnaissant, n’est-ce pas, dans une vie qui est bénie par Dieu. On peut même être reconnaissant d’être reconnaissant, de ressentir ce sentiment de gratitude et de joie face aux fortunes qui se présentent à nous et à une vie soumise à la volonté et aux bénédictions de Dieu, à Son contact avec nous.
 
@@ -20,6 +20,3 @@ Vous êtes en ce moment immergés dans l’Amour. Respirez-le, mes bien-aimés. 
 Soyons ensemble dans ce cercle de Lumière, bien au-delà des soucis et des préoccupations de ce monde, dans ce lieu de connaissance profonde et d’être avec Dieu. Ouvrez maintenant, mes bien-aimés, ouvrez maintenant. Ses bénédictions se déversent sur vous. Il vous lave dans l’Amour. Il vous nourrit et vous donne ce que vos cœurs désirent. Il est avec nous maintenant, Son Amour se déverse à travers ce portail de Lumière. Vous vous ouvrez comme la fleur qui bourgeonne, vous vous épanouissez dans la Lumière, votre parfum plaît à Dieu, votre beauté coule dans la communion avec Dieu.
 
 Dieu vous bénit, mes bien-aimés. Dieu vous bénit.
-
-
-

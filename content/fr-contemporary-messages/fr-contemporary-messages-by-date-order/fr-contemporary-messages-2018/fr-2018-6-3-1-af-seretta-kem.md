@@ -9,7 +9,7 @@ weight:
 ---
 ### Tous les dons proviennent de l'amour de Dieu
 
-Seretta Kem - reçu par Al Fike le 3 Juin 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 3 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que vos âmes continuent à recevoir le grand afflux de l’Amour du Père, afin que vous puissiez progresser dans cet Amour, que vos âmes puissent s’étendre et se développer et fleurir et porter du fruit dans ce grand don que Dieu vous a donné et continue à vous donner chaque jour, chaque instant dans la prière. Il est sans fin, il n’est jamais retenu, mais il est donné librement comme vous demandez à recevoir.
 
@@ -26,8 +26,3 @@ Persévérez dans vos prières, mes bien-aimés. Continuez à prier ensemble dan
 Vous trouverez le déroulement d’un grand Plan et vous faites partie de ce Plan. Vous marchez sur un chemin désigné par Dieu. Vous vous joignez ensemble dans cet effort merveilleux, cette expression, ces nombreuses expressions d’Amour. Permettez à l’Amour de vous purifier, mes bien-aimés. Laissez partir toutes ces vieilles manières et pensées qui n’apportent pas l’harmonie. Permettez à l’Amour de transformer ces endroits en vous et ces aspects de votre esprit qui sont coincés dans de vieilles habitudes et manières d’être. Permettez au pouvoir de l’Amour de faire son travail et de vous apporter sa guérison et sa paix, mes bien-aimés. Vous êtes tous des enfants de Dieu, bien-aimés de Dieu, une création unique de Dieu. Ensemble, vous apportez une puissante Lumière, un trésor de dons et de capacités que Dieu utilisera dans les jours et les années à venir pour changer les conditions de ce monde et apporter Lumière et harmonie à l’humanité.
 
 Continuez dans vos efforts, âmes bien-aimées. Cherchez Dieu par-dessus tout. Soyez avec Dieu par-dessus tout. Ayez la foi que Dieu est avec vous et que tout se déroulera comme il se doit, au moment opportun et dans la grâce de Dieu. Vous verrez comment votre vie continuera à être enrichie et remplie de nombreuses opportunités et de nombreuses bénédictions. De nombreuses avenues sur votre chemin de service et beaucoup de Vérité vous seront données, mes bien-aimés, alors que vos âmes s’éveillent et sont capables de recevoir, ainsi il vous sera donné et vous comprendrez et absorberez ces Vérités que Dieu souhaite vous donner afin que vous puissiez les donner aux autres. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Mon amour est avec vous. Je continue à vous accompagner dans ce voyage. Pour vous aider, pour vous guider à être l’instrument de l’Amour de Dieu. Dieu vous bénisse et je vous aime tendrement, chacun, précieux, beau. Je vous aime. Que Dieu vous bénisse.
-
-
-
-
-

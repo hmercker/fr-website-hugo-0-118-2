@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### L'âme aspire au contact de Dieu - Retraite F.U.S.C.<sup id=”a1”>[1](#f1)</sup>
+### L'âme aspire au contact de Dieu - Retraite F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
 
-St Matthieu - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Matthieu. Vous pouvez venir de loin, mes bien-aimés, mais vos âmes se connaissent les unes les autres. Vos âmes se sont rassemblées ici pour recevoir les bénédictions de l’Amour de Dieu. Il y a une compréhension là, au plus profond de vous, peu importe ce que vous pensez dans vos esprits – vos esprits matériels – vos âmes savent la grande bénédiction de Dieu de Son Amour. Vos âmes aspirent à recevoir ce cadeau et c’est ce qui vous a motivé à vous réunir dans ce cercle de lumière. Rappelez-vous ceci, âmes bien-aimées, qu’il y a quelque chose de profond en vous qui vous oblige à venir dans une lumière comme celle-ci, dans des prières comme celles-ci et dans des rassemblements d’âmes de même sensibilité. Vous voyez, Dieu touche beaucoup d’âmes et bien que ces âmes ne puissent pas vraiment comprendre en mots et en pensées les actions du toucher de Dieu sur elles, l’âme le sait vraiment. L’âme reçoit et l’âme aspire à cette connexion avec Dieu.
 
@@ -29,6 +29,3 @@ Frappez, et la porte s’ouvrira. Soyez avec Dieu et vous trouverez votre chemin
 <small>
 
 1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
-
-
-

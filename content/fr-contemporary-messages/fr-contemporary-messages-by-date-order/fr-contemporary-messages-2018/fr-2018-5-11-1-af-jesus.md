@@ -9,7 +9,7 @@ weight:
 ---
 ### Rien ne peut briser ce lien
 
-Jésus - reçu par Al Fike le 11 Mai 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 11 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que le toucher de notre Père Céleste, de son amour transmis par l’Esprit Saint, coule dans vos âmes en grande abondance mes bien-aimés. Je viens, je suis Jésus.
 
@@ -24,6 +24,3 @@ Vos opportunités de servir vont augmenter. Les âmes qui sont destinées à se 
 Tels sont les nombreux cadeaux de votre Père Céleste qui vous connaît mieux que vous ne vous connaissez vous-mêmes. Son amour est plus grand que vous ne pouvez l’imaginer. Son soin pour vous est complexe et beau dans son expression. Vous êtes soutenus par Dieu, mes âmes bien-aimées, et vous continuerez à marcher dans sa lumière, guidés par sa volonté, portés par son amour.
 
 Que Dieu vous bénisse mes bien-aimés. Mon amour est avec vous dans tout ce que vous faites, et à chaque instant sachez que mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, mes chers et beaux amis.
-
-
-

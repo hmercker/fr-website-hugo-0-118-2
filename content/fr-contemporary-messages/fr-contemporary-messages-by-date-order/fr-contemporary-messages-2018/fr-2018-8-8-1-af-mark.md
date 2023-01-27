@@ -9,7 +9,7 @@ weight:
 ---
 ### Le choix de connaître Dieu vous appartient
 
-Marc - reçu par Al Fike le 8 Août 2018, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 8 Août 2018, FUSC, Burnaby, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Marc. Je suis le gardien de votre église. Dieu m’a donné cette bénédiction et je viens volontiers et avec enthousiasme pour être avec vous, âmes bien-aimées, alors que vous atteignez la lumière et cherchez la vérité.
 
@@ -24,6 +24,3 @@ Vos âmes connaissent déjà ce message. Vos âmes désirent ardemment être ave
 Par la prière, vous pouvez être béni de cette conscience. Par la prière, vous pouvez connaître le grand amour que Dieu a pour vous. Par la prière, vous n’êtes jamais seuls. Puissiez-vous être bénies, âmes bien-aimées, et en venir à utiliser vos belles expressions de prière et les connaissances de votre âme pour apporter la vérité à vous et la vérité à travers vous, afin que d’autres puissent bénéficier de vos bénédictions et de vos dons.
 
 Que Dieu vous bénisse. Je suis Marc et je suis avec vous dans vos efforts et vos désirs, vos luttes et vos prières. Que Dieu vous bénisse puissamment et remplisse vos âmes de son amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Guidance et bénédictions - Retraite F.U.S.C.<sup id=”a1”>[1](#f1)</sup>
+### Guidance et bénédictions - Retraite F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
 
-Marc - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Marc et je sais qu’il y a des personnes ici qui souhaitent être conseillées au sujet de votre église. Je vous le dis, les mains de Dieu reposent sur votre église. Elle est en sécurité et elle est protégée par les soins et la garde de Dieu. Vous qui êtes chargés de vous occuper de cette église, vous serez guidés et continuerez à l’être. Cette église, ce petit endroit, ce sanctuaire de Lumière a un but profond à remplir et la Volonté de Dieu sera sûrement promulguée. Ceux qui sont censés venir seront guidés. Ceux qui franchissent le seuil seront bénis. La Lumière au sein de votre église, notre église, continue à être brillante et sera maintenue. Ne vous inquiétez pas et ne vous tourmentez pas. Bien que les conditions du monde extérieur puissent parfois empiéter sur votre beau sanctuaire, ne permettez pas à ces conditions de gouverner la direction de votre église. Allez à une source plus élevée, mes bien-aimés. Allez à la Source pour vous guider, pour connaître le but et la direction que Dieu veut donner à ce lieu.
 
@@ -23,5 +23,3 @@ Dieu vous bénisse, je suis Marc. Je continue à veiller sur ce lieu béni, que 
 <small>
 
 1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
-
-

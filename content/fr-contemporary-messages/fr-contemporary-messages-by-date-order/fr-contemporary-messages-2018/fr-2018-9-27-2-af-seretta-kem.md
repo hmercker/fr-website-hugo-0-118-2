@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouvrez-vous au plus haut niveau
 
-Seretta Kem - reçu par Al Fike le 27 Septembre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 27 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je vous souhaite la bienvenue, chère fille (H), de retour dans le giron de tes frères et sœurs aimants. Ce sera une période très productive pour vous tous. Il y a des défis à relever, mais de grandes récompenses sont à venir, nécessitant votre concentration, votre attention et vos prières. Chaque jour, chaque moment de chaque jour, il est demandé à chacun d’entre vous de tendre vers le plus haut, que vos prières viennent de votre cœur et recherchent de grands apports de l’Amour du Père.
 
@@ -30,5 +30,3 @@ Le pouvoir de l’Amour de Dieu, le pouvoir d’une âme rachetée dans l’Amou
 Puissiez-vous continuer à être bénis, mes amis bien-aimés. Je continuerai à m’avancer aux côtés de mes chers collègues pour travailler ensemble à l’éveil de vos âmes et à l’éveil de vos dons et de vos potentiels au service de l’humanité. Tout est donné dans l’amour. Tout est béni par Dieu. Comme vous êtes vraiment bénis, mes bien-aimés, comme vous êtes vraiment bénis.
 
 Dieu vous bénit. Je suis Seretta Kem. Mon amour est avec vous pour toujours. Que Dieu vous bénisse.
-
-

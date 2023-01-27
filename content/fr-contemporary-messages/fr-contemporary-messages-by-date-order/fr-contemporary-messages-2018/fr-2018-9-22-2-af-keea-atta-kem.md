@@ -9,7 +9,7 @@ weight:
 ---
 ### Demandez l'aide des anges
 
-Keea Atta Kem - reçu par Al Fike le 22 Septembre 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 22 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Keea Atta Kem. Parallèlement à vos prières à Dieu, vous pouvez faire appel à nous pour vous aider dans vos efforts pour être plus en accord spirituel et dans un état de lumière et de conscience supérieur. Alors que vous recevez l’Amour Divin de Dieu, ces conditions du monde qui vous entourent entravent souvent vos efforts dans les prières, obscurcissant vos désirs, vous distrayant de Dieu. Bien-aimés, nous sommes ici et nous souhaitons vous aider dans vos efforts pour être dans la lumière, pour ajuster votre pensée, pour ajuster vos désirs et vos motivations afin que vous puissiez être dans le flux de l’Amour de Dieu, que vous puissiez être immergés dans cette rivière d’Amour et sentir et connaître ces bénédictions comme réelles, substantielles et bénéfiques. Aucun d’entre vous ne peut faire cela seul.
 
@@ -32,6 +32,3 @@ Bien-aimés, soyez forts. Ayez une grande foi et soyez alignés avec Dieu et vou
 Puissiez-vous entendre l’appel de Dieu et répondre à cet appel par vos prières, l’éveil du désir de votre âme et trouver votre chemin vers ce lieu de communion, de réception, d’éveil, de connaissance et d’être dans le flux de l’Amour de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem. Je vous aime. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous et je désire vous soutenir dans l’amour. Que Dieu vous bénisse. Je vous aime.
-
-
-

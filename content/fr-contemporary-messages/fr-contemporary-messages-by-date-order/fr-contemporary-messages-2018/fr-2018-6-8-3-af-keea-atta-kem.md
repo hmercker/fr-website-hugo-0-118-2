@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Lumière pour le monde - Retraite F.U.S.C.<sup id=”a1”>[1](#f1)</sup>
+### Lumière pour le monde - Retraite F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
 
-Keea Atta Kem - reçu par Al Fike le 8 Juin 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 8 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Lumière mes bien-aimés, Lumière pour le monde, Lumière pour vos âmes. Lorsque vous vous réunissez en prière, vous attirez la lumière dans votre monde. Lorsque vous aspirez à apporter la Lumière dans vos âmes, vous devenez une Lumière dans le monde et le monde a besoin de plus de Lumière, n’est-ce pas ? Toutes les conditions de votre monde, toute la douleur, l’obscurité, les luttes que l’humanité doit endurer parce que tant de gens ont perdu leur chemin, tant de gens ne comprennent pas que l’Amour est la devise de l’humanité. Sans Amour, il n’y a pas de vraie vie. Car le monde que Dieu a créé est imprégné d’Amour et si peu dans votre monde sont parvenus à le reconnaître, à voir le pouvoir de l’Amour, la beauté de l’Amour. L’amour transforme. L’amour apporte l’harmonie. L’amour apporte la lumière. Lorsque vous cherchez le plus grand Amour de tous, l’Amour que Dieu a pour chacun de vous et qui peut être transmis dans vos âmes, vous cherchez la Lumière la plus brillante. La source la plus puissante de bien dans l’univers est ce cadeau béni de l’amour de Dieu.
 
@@ -27,8 +27,3 @@ Je suis Keea Atta Kem. Que Dieu vous bénisse abondamment, belles âmes. Puissie
 <small>
 
 1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
-
-
-
-
-

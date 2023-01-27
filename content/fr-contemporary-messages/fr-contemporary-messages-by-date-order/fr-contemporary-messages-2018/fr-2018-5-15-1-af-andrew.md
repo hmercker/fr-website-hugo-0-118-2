@@ -9,7 +9,7 @@ weight:
 ---
 ### Que les vents du changement prennent les voiles de votre âme
 
-André - reçu par Al Fike le 15 Mai 2018, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 15 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
 Les vents du changement soufflent sur chacun de vous, mes bien-aimés. Vous êtes confrontés à divers événements et situations qui surviennent de façon inattendue, imprévue, mais ils surviennent néanmoins alors que les conditions de ce monde ont des effets sur vos vies et que le désir de Dieu de vous pousser à aller de l’avant dans le service et l’Amour apporte des changements, des opportunités et des bénédictions sur vous.
 
@@ -28,6 +28,3 @@ Alors, comme nous vous l’avons demandé à maintes reprises, prenez chaque jou
 Tant de choses vous attendent. Vous commencez à voir des lueurs et des fissures dans la Lumière et les connaissances. Celles-ci vont grandir et, avec le temps, votre réalité de vie changera complètement. En effet, les vents souffleront, les vents du changement souffleront dans vos vies alors que vos perceptions, les éveils de votre âme continueront à évoluer. Ainsi, vous attraperez ces vents et vous les chevaucherez vers de nombreuses opportunités de service et d’éveil, d’expérience et d’Amour. Vous commencez à mettre les voiles, mes bien-aimés, et les vents s’accrocheront à ces belles voiles de votre âme, vous propulsant en avant, vous ouvrant les possibilités de voyager loin dans votre vie. Que l’Amour du Père continue à vous ouvrir et à faire avancer les possibilités, les potentiels de votre âme, que vous y connaissiez une grande joie, que vous vous éveilliez toujours plus dans le flux et les effets de Son Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous garde dans Ses soins et vous soutienne dans Son Amour, qu’Il vous guérisse et vous réveille. Que Dieu vous bénisse, mes bien-aimés. Je suis André et mon amour est profond pour chacun d’entre vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

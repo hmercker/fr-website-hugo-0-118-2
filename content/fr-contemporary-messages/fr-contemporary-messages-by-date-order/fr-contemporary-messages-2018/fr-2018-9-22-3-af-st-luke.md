@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité passe par l'âme éveillée par l'amour de Dieu
 
-St Luc - reçu par Al Fike le 22 Septembre 2018, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 22 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes, je suis Luc. Mes chers fils, vous avez beaucoup de questions. Vous cherchez beaucoup de réponses. Vous êtes comme tant d’autres dans le monde. Leur recherche de la vérité se fait souvent par le biais du mental et le mental est extrêmement limité dans la connaissance de la vérité spirituelle. Les voies par lesquelles vous cherchez la vérité, âmes bien-aimées, ne sont pas tout à fait satisfaisantes.
 
@@ -30,11 +30,7 @@ Tant de choses attendent l’enfant qui va vers Dieu dans l’humilité, la simp
 Chaque âme peut implorer Dieu de cette manière et recevoir son toucher d’amour. Dieu ne vous juge pas, mes bien-aimés. Dieu vous aime, chaque âme. Dieu aime chacun de Ses enfants et désire ardemment que cette relation d’amour s’épanouisse et grandisse dans chaque âme. Ne vous limitez pas à cet égard.
 
 Marchez dans la foi. Cherchez Dieu, en ayant confiance qu’en tendant la main, en sentant en vous cet endroit vulnérable qui cherche l’amour, vous serez accueillis. Vous serez embrassés par l’amour. Vous serez portés par la lumière. Un si petit effort de votre part apporte de si grandes récompenses. L’éveil de vos âmes est la plus haute vocation que l’on puisse atteindre dans ce monde matériel, car c’est seulement cela que vous pouvez emmener avec vous dans le monde de l’esprit et c’est un grand trésor, un grand cadeau. Aucune autre chose n’est plus grande que le don de l’Amour de Dieu. Car avec ce don, tous les autres dons sont possibles, toute vérité rendue réelle, tout amour pur, guérissant l’âme et éveillant l’âme.
+
 Bien-aimés, vous êtes assis dans la lumière de l’Amour de Dieu en ce moment. Respirez-la comme un homme assoiffé dans le désert. Buvez ces eaux pour vous ramener à la vie, la vie éternelle, les bénédictions au-delà de la compréhension, la joie qui construit pour toujours. Puissiez-vous être bénis, mes bien-aimés.
 
 Je suis Luc et je vous aime. Que Dieu vous bénisse.
-
-
-
-
-

@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Le point de vue de nombreux participants à la conférence de l’A.R.E.I.<sup id=”a1”>[1](#f1)</sup>
+### Le point de vue de nombreux participants à la conférence de l’A.R.E.I.
 
-Augustin - reçu par Al Fike le 15 Septembre 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Septembre 2018, A.R.E.I. Conference <sup id=”a1”>[1](#f1)</sup>, Phoenix, AZ, USA.
 
 Vous avez observé ces nombreuses âmes, douées comme elles le sont, avec leurs perspectives et leurs compréhensions du monde des esprits. Il est intéressant de noter qu'une grande partie de leur perspective vient du mental et qu'elles voient les choses, leur réalité, leur perception de la vérité, à partir du mental et du mental des esprits qui sont avec elles. De cette façon, ils présentent un filtre puissant de la vérité. Ces perspectives mentales leur permettent une certaine mesure de vérité et de compréhension, mais elles ne peuvent pas sonder les vérités plus profondes de Dieu. Ils n'en sont pas capables. Car l'esprit est limité, bien que leurs paroles indiquent qu'il est illimité. De votre point de vue terrestre, cela peut sembler être le cas. Mais en vérité, la capacité du mental à comprendre la vérité ne peut aller plus loin. Même celle du mental spirituel ne peut aller plus loin. C'est l'âme qui doit être engagée, éveillée, imprégnée de l'Amour du Père. De cette façon, il n'y a pas de limite à la compréhension et à l'expérience de la vérité de la création de Dieu.
 
@@ -33,7 +33,3 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant, Augustin. Je 
 <small>
 
 1. <large id=”f1”> L' A.R.E.I est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
-
-
-
-

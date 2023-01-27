@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de l'amour
 
-Lotus Blossom - reçu par Al Fike le 7 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
+Lotus Blossom - reçu par Al Fike le 7 Janvier 2018, FUSC, Burnaby, Colombie-Britannique, Canada.
 
 Je vous souhaite la bienvenue, mes bien-aimés. Oui, je suis Fleur de Lotus.
 
@@ -20,4 +20,3 @@ Vous êtes invités chaque jour à vivre dans l’amour, à comprendre la beaut�
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse et que vous puissiez continuer à être élevés dans la Lumière et que nous, des Cieux Célestes, puissions-nous rapprocher de chacun d’entre vous. Vous pouvez demander notre aide. Vous pouvez demander à être élevés mais le plus grand effort doit venir de vous, pour être avec Dieu et pour recevoir Son Amour. Qu’il en soit ainsi dans vos vies et toutes les bénédictions en découleront.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Fleur de Lotus et je vous aime. Que Dieu vous bénisse, belles âmes, belles âmes. Que Dieu vous bénisse.
-

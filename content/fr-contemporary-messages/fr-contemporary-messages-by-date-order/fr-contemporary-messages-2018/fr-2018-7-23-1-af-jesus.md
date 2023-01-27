@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédiction d'anniversaire pour Al
 
-Jésus - reçu par Al Fike le 23 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 23 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus. Je viens marquer l’étape importante de ce frère bien-aimé qui a marché sur le Chemin Divin pendant de nombreuses années et qui a levé le flambeau de la vérité dans sa vie et l’a porté loin dans le monde. Je viens reconnaître mon frère, qui est un de mes disciples, car la Vérité de l’Amour du Père est son credo et sa vie. Je marche avec lui et je déclare qu’il est vraiment mon frère dans ce grand voyage d’éveil de l’âme par le Toucher de l’Amour du Père. En ce jour, je déclare qu’il est bien engagé dans son but, son voyage au service de Dieu, qu’il a fait avant même de s’incarner dans ce monde. Son âme s’est engagée à apporter cette Vérité et à vivre cette Vérité dans le monde. En effet, la lumière brille dans son âme. Son dévouement à la vérité, son expression d’amour envers les autres, son exemple, sa force et sa tolérance sont une bénédiction non seulement pour vous, mes frères et sœurs bien-aimés, mais pour beaucoup. Sa lumière continuera à grandir, tout comme la vôtre. Son âme va se développer dans l’amour et des dons vont naître qui profiteront à beaucoup.
 
@@ -26,6 +26,3 @@ Ces nombreuses bénédictions vous attendent, âmes bien-aimées, et sont dispon
 Puissiez-vous boire ces eaux, âmes bien-aimées, et marcher sur ce beau chemin vers l’union avec Dieu. Car c’est ce que vos âmes recherchent. C’est l’accomplissement de votre existence. C’est la plus grande bénédiction de toutes. Puissiez-vous arriver à le savoir, âmes bien-aimées, et vivre dans cette vérité et vous trouverez une grande joie, une profonde satisfaction, et une capacité d’amour qui est immense et qui atteindra et touchera beaucoup de gens. C’est mon message pour vous, mes bien-aimés. C’est mon message au monde. Cherchez le Royaume et tout viendra à vous, est aussi vrai aujourd’hui que jamais.
 
 Il y a beaucoup de gens dans votre monde qui sont profondément dans le besoin, dont la douleur est grande et qui sont perdus et dans l’obscurité. Vous devez tendre la main à l’humanité avec amour et compassion, avec vérité et avec paix. Puissiez-vous le faire chaque jour et marcher dans ce monde comme une lumière, un canal d’amour, un enfant de Dieu. Que Dieu vous bénisse, mes bien-aimés, et que Dieu bénisse cette chère âme qui a passé sa vie à chercher Dieu. Il a trouvé en effet la Source de Tout. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus, Maître des Cieux Célestes, et votre frère. Que Dieu vous bénisse.
-
-
-

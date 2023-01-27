@@ -9,7 +9,7 @@ weight:
 ---
 ### S'efforcer d'atteindre l'éveil de l'âme
 
-Seretta Kem - reçu par Al Fike le 11 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 11 Mars 2018, Punaluu, Oahu, HI, USA.
 
 Je souhaite vous encourager sur votre chemin et vos efforts pour recevoir le don de la voix directe. Vous avez été bénis de nombreuses façons pendant que vous étiez ensemble en ce lieu.
 
@@ -26,8 +26,3 @@ Je sais que vous avez peut-être besoin de la reconnaissance de vos frères et s
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et nous nous réunirons à nouveau pour continuer ces prières et un jour, bientôt je l’espère, vous irez de par le monde démontrer les vérités de l’Amour de Dieu, amenant de nombreuses âmes à l’éveil de ce potentiel, montrant le chemin avec votre sagesse, l’Amour en vous, la compassion que vous avez pour vos frères et sœurs, servant Dieu avec chaque respiration et chaque pas que vous faites. Ce n’est pas si loin. Il est proche. 
 
 Puissiez-vous continuer à faire les efforts dont vous êtes conscients et qui doivent être faits. Soyez toujours dans la Lumière, âmes bien-aimées. Nous vous remercions et nous vous bénissons pour ce temps que vous avez pris dans l’amour. Nous sommes avec vous. Je suis votre serviteur Seretta Kem et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Nous sommes avec vous.
-
-
-
-
-

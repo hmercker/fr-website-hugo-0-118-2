@@ -9,7 +9,7 @@ weight:
 ---
 ### Le don d'amour et de lumière de Dieu
 
-Augustin - reçu par Al Fike le 16 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 16 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 
 Enfant béni, ta mère est dans la Lumière. Elle continue à servir Dieu à sa manière et avec ses moyens. Elle est heureuse d’être dans le royaume de l’esprit cherchant sa place, sachant qu’elle a vécu une bonne vie, une vie qui a comblé son âme. Ne pleurez pas votre grand-mère, mais soyez heureux qu’elle ait trouvé son chemin vers les royaumes de la Lumière dans le monde de l’esprit.
 
@@ -32,6 +32,3 @@ Vous êtes Ses enfants, vous cherchez votre Père Céleste, vous cherchez à att
 Vos âmes le désirent. Vos âmes ont un profond désir d’être exprimées de cette manière, de se libérer des confins de vos mentalités dans la clarté de l’union avec Dieu. Puissiez-vous trouver cette liberté, âmes bien-aimées. Puissiez-vous connaître cette union et tout ce qui l’accompagne. C’est à vous de le demander et cela ne vous sera jamais refusé.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je suis avec vous alors que vous avancez et je continuerai à vous donner mes conseils, mon amour, alors que vous vous rapprochez toujours plus de Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

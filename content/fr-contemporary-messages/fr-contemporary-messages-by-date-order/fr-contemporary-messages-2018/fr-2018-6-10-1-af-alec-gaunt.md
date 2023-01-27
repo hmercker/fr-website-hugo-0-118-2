@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C.<sup id=”a1”>[1](#f1)</sup>
+### L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
 
-Alec Gaunt - reçu par Al Fike le 10 Juin 2018, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 10 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je m’appelle Alec Gaunt. Moi aussi, j’ai fait partie de votre église il y a de nombreuses années, à ses débuts. Moi aussi, j’ai eu mes défis et j’ai défié les autres sur la façon de procéder avec vos beaux efforts dans la congrégation. Il est toujours difficile de rassembler les gens et de les inciter à travailler ensemble pour le plus grand bien. Mais je vois que Dieu a guidé quelques belles âmes ensemble qui ont un profond désir de travailler ensemble en harmonie, d’apporter la Lumière et la bonté, la Vérité et l’amour à ceux qui font partie de cette congrégation. Vous rendez un grand service lorsque vous éduquez ceux qui ne connaissent pas la vérité sur la continuité de la vie. Ce fait rudimentaire est une pièce importante du puzzle que beaucoup ne comprennent pas. A partir de là, il est très important d’encourager chaque âme à aspirer à la Lumière, à l’harmonie, à se conduire dans le monde d’une manière qui soit en harmonie avec les Lois de Dieu, et de ne pas compliquer vos enseignements à l’excès, mes amis, car les gens n’ont pas besoin de tous ces enseignements et idées ésotériques qui, dans de nombreux cas, ne font que troubler et brouiller les pistes. Ils ont plutôt besoin de manières simples, utilisables, pratiques et inspirantes d’être dans le monde.
 
@@ -25,6 +25,3 @@ Que Dieu vous bénisse toujours et vous garde toujours dans cette Lumière. Son 
 <small>
 
 1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
-
-
-

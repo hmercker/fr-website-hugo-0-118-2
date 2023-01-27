@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître la volonté de Dieu pour vous
 
-Alec Gaunt - reçu par Al Fike le 9 Mai 2018, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 9 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
 Il est agréable de vous voir tous réunis en prière, vos âmes sincères allant vers Dieu en quête de sagesse et de conseils, d’Amour et de Lumière. Chacun de vous a ses questions, ses luttes, son désir de comprendre et de voir l’image complète du plan de Dieu pour vous. Je comprends cela, mes amis. Moi aussi, j’ai lutté et essayé d’exercer la Volonté de Dieu dans ma vie. Mais j’ai fini par comprendre que connaître la Volonté de Dieu n’est pas une lutte. Cela ne demande pas beaucoup d’efforts. Elle exige simplement la foi, la paix, la patience et la confiance. De cette façon, chaque jour devient un jour guidé. Chaque jour apporte ses propres opportunités et bénédictions.
 
@@ -34,6 +34,3 @@ Ainsi, marcher sur cette ligne d’équilibre et d’harmonie est votre objectif
 Ayez la foi, mes amis, ayez la foi, vous êtes sur la bonne voie que Dieu vous révélera avec chaque jour, et qu’avec chaque jour vient la conscience naissante du grand Plan de Dieu pour le salut de l’humanité. Vous êtes profondément bénis. L’Amour continue de couler dans vos âmes. Vous continuez à écouter. Vous continuez à désirer être un canal d’Amour, à être au service de Dieu de toutes les manières possibles. Ainsi il se déroulera dans vos vies, ce beau réveil, ce beau cadeau de la vie. C’est notre cadeau d’en être les témoins en chacun de vous, alors que Dieu éveille un autre ange dans Son Univers par la bénédiction de Son Amour.
 
 Que Dieu vous bénisse, mes amis. Je suis Alec. Mon amour, ma compassion et ma compréhension sont avec vous et le seront toujours. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

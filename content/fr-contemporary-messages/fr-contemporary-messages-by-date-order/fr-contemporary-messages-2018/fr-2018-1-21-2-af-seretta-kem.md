@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils sur la manière de freiner la dégénérescence de la condition spirituelle
 
-Seretta Kem - reçu par Al Fike le 21 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 21 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Une fois de plus, nous nous réunissons en prière, pour être ensemble dans la Lumière de l’Amour de Dieu, pour rechercher Ses Bénédictions pour nos âmes et pour faire émerger la sagesse de nos âmes afin que nous puissions mettre en œuvre cette sagesse dans nos vies.
 
@@ -32,6 +32,3 @@ Vous continuez donc à lutter entre ces deux conditions, à vous voir et à vous
 Nous souhaitons vous encourager à poursuivre votre progression et vous assurer que nous sommes avec vous, mes bien-aimés, nous sommes avec vous. Notre amour est avec vous, nous vous soutenons. Nous influençons où nous pouvons. Nous apportons la Lumière, nous encourageons votre âme et vos pensées. Sachez que nous sommes avec vous mes bien-aimés. Nous comprenons vos luttes. Nous ne vous jugeons pas et ne vous condamnons pas pour ces luttes, car c’est une lutte épique, une lutte que peu acceptent dans leur vie car elle est extrêmement difficile. Pourtant, nous voyons en vous une si grande force, un si profond désir d’aller de l’avant pour accomplir vos objectifs, non seulement en développant ce don de la voix directe, mais en vous amenant à un endroit de grande lumière et de service pour l’humanité.
 
 C’est pourquoi nous continuons à faire ces efforts, à lancer cette invitation à être avec vous dans les épanchements de votre âme et les expressions de vos dons. Vous êtes les enfants du Père. Vous êtes dans Sa Lumière. Il vous embrasse. Il vous nourrit. Il vous aime et il en sera toujours ainsi, mes bien-aimés – il en sera toujours ainsi. Vous trouverez votre chemin sur cette voie, et vous accomplirez vos objectifs. La rapidité avec laquelle cela sera accompli dépend de vos choix et de vos efforts individuels. Nous continuons ensemble, âmes bien-aimées. Nous sommes avec vous. Notre amour est avec vous. Notre présence est avec vous. Que Dieu vous bénisse, mes bien-aimés. Dieu vous garde dans sa lumière et son amour. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
-
-
-

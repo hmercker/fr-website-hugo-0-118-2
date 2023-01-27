@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière car l'Amour de Dieu apporte toutes les bénédictions
 
-André - reçu par Al Fike le 27 Août 2018, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 27 Août 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
 Il y a une grande Lumière qui vous englobe, mes bien-aimés, la Lumière de la Paix, la Lumière de la Présence de Dieu avec vous. Cette lumière est brillante et puissante. Elle rayonne vers de nombreuses autres âmes, vers toutes les âmes. Car lorsque vous priez de cette manière, et que vous priez pour le monde, cette Lumière atteint de nombreuses âmes. Pas seulement les âmes pour lesquelles vous priez, pas seulement les âmes que vous imaginez être dignes ou qui prient pour ce cadeau, mais toutes les âmes. Vous créez ainsi une bénédiction puissante qui s’étend à votre monde et au monde de l’esprit.
 D’innombrables personnes sont bénies par Dieu grâce à vos efforts pour être ensemble en harmonie et en unité, dans l’amour et la vérité. Le pouvoir de la prière, âmes bien-aimées, est ce qui apporte ce cadeau à vous et à beaucoup d’autres. Le pouvoir de la prière, qui est peu compris dans votre monde, est un véhicule efficace pour apporter la guérison et le changement dans votre monde. Tant que vos intentions et vos désirs sont pour le plus haut et le plus grand bien, vous serez un canal d’amour et de lumière dans des cercles tels que ceux-ci, qui atteindront votre monde et mon monde, et auront leurs effets et bénédictions sur beaucoup.
@@ -21,8 +21,3 @@ Vous êtes dotés de nombreux potentiels, âmes bien-aimées. Beaucoup vient ave
 Âmes bénies, vous êtes élevées dans l’amour, douées dans l’amour, guéries dans l’amour, et beaucoup bénéficient de vos efforts. Continuez avec vos prières. Continuez à vous élever. Continuez à être forts dans votre foi et sincères dans vos désirs. Envoyez vos intentions à Dieu et Dieu répondra toujours pour le plus grand bien et les plus grandes bénédictions.
 
 Dieu vous bénit, âmes bien-aimées, et vous garde toujours dans cette Lumière. Dieu vous bénit et je vous aime. Je suis André. Que Dieu vous bénisse.
-
-
-
-
-

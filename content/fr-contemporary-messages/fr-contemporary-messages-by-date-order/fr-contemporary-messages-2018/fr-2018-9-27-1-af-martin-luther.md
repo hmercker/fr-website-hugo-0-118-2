@@ -9,7 +9,7 @@ weight:
 ---
 ### Bienvenue à H et encouragements pour le groupe
 
-Martin Luther - reçu par Al Fike le 27 Septembre 2018, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 27 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Ma fille bien-aimée, tu continues à marcher dans la foi et à servir dans l'amour dans ce monde. J'ai été avec toi très, très souvent au cours de tes voyages, de tes épreuves et tribulations, de ces efforts que tu as faits au nom de tes frères et sœurs, de tes prières et de ton travail pour l'amour. Je suis très heureux de tes progrès, ma chère fille, très heureux en effet, alors que tu continues à te débarrasser de toutes les barrières et de ce qui t'empêche d'être pleinement éveillée dans ton âme. Tes prières, comme toujours, sont profondes et vont directement à Dieu. C'est ainsi que tu continueras à servir et à soutenir la Volonté de Dieu, ton but dans la vie, le travail qui t'attend et qui se développe alors que tu continues à t'ouvrir et à t'épanouir dans l'amour. Il y a maintenant peu de choses qui te retiennent, ma fille bien-aimée. Tu es au seuil d'un grand tournant dans ta vie et je tiens à dire que toutes les personnes impliquées dans ce cercle vont en effet faire l'expérience de grands changements et d'éveils en eux pendant que vous êtes ensemble.
 
@@ -20,6 +20,3 @@ Faites toujours confiance aux connaissances de vos âmes bien-aimées, car c'est
 Nous continuons à voyager ensemble et à chercher les conseils et les bénédictions de Dieu. Puissiez-vous entendre les murmures de votre âme et les connaissances de votre cœur et les bénédictions de votre Père Céleste qui cherche à rassembler toutes les parties de vous, fusionnées dans l'amour afin que tout soit exprimé et éveillé et que vous puissiez être un puissant et beau canal d'amour dans le monde. Vous trouverez votre chemin, âmes bien-aimées, et vous exprimerez cette vérité de nombreuses manières merveilleuses.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Martin Luther et je me joins à vous dans votre cercle. Que Dieu vous bénisse.
-
-
-

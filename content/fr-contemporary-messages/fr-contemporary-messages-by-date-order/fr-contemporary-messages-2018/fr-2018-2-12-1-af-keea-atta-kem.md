@@ -9,7 +9,7 @@ weight:
 ---
 ### Que chaque moment de la vie apporte un choix pour se rapprocher de Dieu
 
-Keea Atta Kem - reçu par Al Fike le 12 Février 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 12 Février 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Keea Atta Kem. Précieuses, belles lumières, vous marchez chacune sur un chemin différent, un chemin unique, un chemin de découverte de votre véritable moi, un chemin dans lequel vous trouverez que votre relation avec Dieu s’approfondit avec chaque jour, avec chaque prière et avec chaque effort que vous faites pour être dans la Lumière et pour ouvrir votre âme à Dieu. Car c’est dans cette ouverture, cette bénédiction, que viennent l’éveil et les compréhensions qui vous aident dans vos vies. Cette vie précieuse dans laquelle chacun de vous marche, est remplie de choix et d’expériences, d’amour, de Lumière, de défis et de difficultés qui viennent avec les conditions de ce monde. Chacun d’entre vous a besoin d’être ancré dans l’Amour et la Lumière pour vraiment se connaître, connaître son âme et rechercher les bénédictions que Dieu souhaite si ardemment vous donner, mes bien-aimés, afin que vous puissiez être forts dans la Lumière et que vous puissiez connaître la paix et la joie dans vos vies.
 
@@ -24,6 +24,3 @@ Le but le plus élevé de tous est de donner l’Amour dans ce monde, d’exprim
 Dieu vous sourit, mes bien-aimés, et les anges vous entourent. Il vous est donné tout ce dont vous avez besoin pour vous connaître vraiment et exprimer vos aspirations et vos désirs les plus élevés. Faites de chaque moment de votre vie un moment précieux. Que chaque étape ait un sens et un but et que toutes les expériences qui viennent avec la vie créent une élévation constante, une ascension vers une plus grande Lumière, plus proche de Dieu, plus fidèle à vous-mêmes, plus pleinement éveillés et vivants.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Keea Atta Kem et je vous aime. Je vois vos lumières et je vous connais, chacun d’entre vous et je vous aime. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

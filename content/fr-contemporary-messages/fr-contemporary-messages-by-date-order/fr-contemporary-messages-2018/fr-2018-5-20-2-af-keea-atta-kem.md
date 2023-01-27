@@ -9,7 +9,7 @@ weight:
 ---
 ### Prenez des dispositions pour vous réunir
 
-Keea Atta Kem - reçu par Al Fike le 20 Mai 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 20 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite vous encourager à persévérer dans vos prières, vos routines, vos pensées qui soutiennent vos efforts en vue de poursuivre le développement de vos âmes et de votre moi spirituel. Il est important en ce moment de continuer à vous concentrer et à redoubler vos efforts. Vous avez parlé de vous réunir à nouveau dans la chair dans un avenir proche et je souhaite vous encourager à prendre ces dispositions et à consacrer autant de temps que possible, lorsque vous êtes ensemble, à la prière et au développement.
 
@@ -20,8 +20,3 @@ En effet, il y a des éléments qui peuvent être affinés et établis en assura
 Lorsque vous êtes ensemble dans l’amour et l’harmonie, que vous vous asseyez et priez ensemble et que vous travaillez ensemble, il y a en effet de grands avantages et de nombreuses bénédictions, et cela est nécessaire en ce moment. Je vous encourage donc, mes amis, à chercher à vous réunir, à prendre cet engagement l’un envers l’autre, non seulement lorsque vous êtes séparés, mais aussi lorsque vous vous réunissez dans la chair et que vous profitez des nombreuses bénédictions qui sont possibles. Dieu continuera à vous bénir, mes beaux amis bien-aimés. Il vous porte dans un magnifique voyage. Vous continuez à écouter et à faire partie de cet éveil unique des dons de vos âmes, de ce qui est possible dans ce monde.
 
 Continuez à vous aimer et à vous soutenir mutuellement, à maintenir les liens du cœur les uns envers les autres, vos pensées et vos prières. Vous avez besoin les uns des autres et nous avons besoin de vous pour renforcer ces liens et pour que l’amour circule parmi vous afin qu’il y ait une harmonie, afin qu’il y ait la possibilité de nombreux grands dons qui viendront à la place de l’amour et de la pureté et d’un profond désir de l’âme, pour apporter de telles bénédictions. Que Dieu vous bénisse. Je suis Keea et je vous aime tendrement. Mes bien-aimés, mes bien-aimés, je vous aime tendrement. Que Dieu vous bénisse.
-
-
-
-
-

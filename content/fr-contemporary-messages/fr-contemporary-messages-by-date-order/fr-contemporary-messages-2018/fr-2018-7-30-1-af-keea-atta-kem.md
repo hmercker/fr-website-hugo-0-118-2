@@ -9,7 +9,7 @@ weight:
 ---
 ### La prière et la loi d’activation
 
-Keea Atta Kem - reçu par Al Fike le 30 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 30 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite parler du sujet de la prière car la prière est le pilier de ceux qui suivent ce Chemin Divin. C’est le véhicule qui apporte les bénédictions et le contact de Dieu à vos âmes. C’est l’effusion de votre cœur et de votre âme vers Dieu dans un désir sincère d’être en harmonie avec votre Créateur.
 
@@ -37,7 +37,4 @@ Vous, mes bien-aimés, comprenez qu’une prière sincère est une vraie prière
 
 Ne laissez donc pas les autres diminuer vos efforts, mais dites simplement une prière pour eux car ce sont souvent eux qui en ont le plus besoin, eux qui se tiennent résolument seuls et n’implorent pas Dieu et ne se lient pas d’amitié avec Lui. Beaucoup sont dans l’obscurité et la confusion. Beaucoup souffrent de l’engourdissement du cœur et ne ressentent rien d’autre que la peur, la confusion, et sont seuls et effrayés dans leur vie. Pourtant, vous, mes bien-aimés, avez une richesse de compréhension, une abondance de bénédictions, une plénitude dans votre vie qui continue de croître et d’attirer de plus en plus de lumière et de bénédictions. Comme vous êtes sages de reconnaître le pouvoir de la prière avec toutes ses bénédictions et ses avantages.
 
-Puissiez-vous continuer sur cette voie. Que vos prières deviennent un désir constant d’être avec Dieu et en cela il y aura un afflux constant sur vous, âmes bien-aimées. Que Dieu vous bénisse et vous garde dans sa grâce et son amour, dans la paix et la joie. Je suis avec vous. Je suis votre ami et je vous aime. Je suis Kee-Atta Kem. Que Dieu vous bénisse, mes bien-aimés. Que votre vie soit une prière et que votre vie soit pleine et riche. Que Dieu vous bénisse.
-
-
-
+Puissiez-vous continuer sur cette voie. Que vos prières deviennent un désir constant d’être avec Dieu et en cela il y aura un afflux constant sur vous, âmes bien-aimées. Que Dieu vous bénisse et vous garde dans sa grâce et son amour, dans la paix et la joie. Je suis avec vous. Je suis votre ami et je vous aime. Je suis Kee Atta Kem. Que Dieu vous bénisse, mes bien-aimés. Que votre vie soit une prière et que votre vie soit pleine et riche. Que Dieu vous bénisse.

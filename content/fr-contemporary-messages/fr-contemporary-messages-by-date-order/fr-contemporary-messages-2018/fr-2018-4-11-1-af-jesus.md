@@ -9,11 +9,11 @@ weight:
 ---
 ### Jésus commente les expériences médiumniques.
 
-Jésus - reçu par Al Fike le 11 Avril 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 11 Avril 2018, Gibsons, Colombie-Britannique, Canada.
 
 e souhaite commenter la description que cette chère âme fait de moi dans ses méditations et à suggérer que beaucoup d’âmes douées de capacités psychiques sont facilement trompées et malavisées. En effet, dans leur désir d’établir une connexion avec moi, d’entendre mes paroles et d’être guidées par ma présence, cela conduit souvent à de nombreuses interactions malheureuses avec des esprits inférieurs qui sont trop heureux de se faire passer pour moi, mais qui ne le sont pas.
 
-Cette chère âme croit que mon apparence originelle était celle d’un homme court, au dos voûté, laid et sans grâce. Je vous dis, comme vous le savez bien, que ma stature était grande et droite, que mon apparence n’était pas désagréable à regarder et que j’étais plus grand que la plupart. C’est parce que mon père était un grand homme et que ma mère, quant à elle, avait un visage très agréable à regarder. J’ai donc hérité de beaucoup de leurs traits et j’ai parcouru la terre avec une certaine beauté et une certaine grâce. En effet, mes yeux étaient bleus, mes cheveux étaient châtains.<sup id=”a1”>[1](#f1)</sup> Beaucoup ont été attirés par moi en raison de mon apparence physique. J’avais la stature d’un chef. J’ai utilisé ces dons que m’avait donnés le Père Céleste pour impressionner ceux qui étaient curieux de connaître mes enseignements.
+Cette chère âme croit que mon apparence originelle était celle d’un homme court, au dos voûté, laid et sans grâce. Je vous dis, comme vous le savez bien, que ma stature était grande et droite, que mon apparence n’était pas désagréable à regarder et que j’étais plus grand que la plupart. C’est parce que mon père était un grand homme et que ma mère, quant à elle, avait un visage très agréable à regarder. J’ai donc hérité de beaucoup de leurs traits et j’ai parcouru la terre avec une certaine beauté et une certaine grâce. En effet, mes yeux étaient bleus, mes cheveux étaient châtains <sup id=”a1”>[1](#f1)</sup>. Beaucoup ont été attirés par moi en raison de mon apparence physique. J’avais la stature d’un chef. J’ai utilisé ces dons que m’avait donnés le Père Céleste pour impressionner ceux qui étaient curieux de connaître mes enseignements.
 
 Je dis donc à ceux qui sont si désireux d’avoir ma guidance et ma présence dans leur vie, que la seule façon d’établir cette connexion, si intime et puissante, entre moi et les âmes qui sont désireuses de ma présence est de prier pour l’Amour Divin du Père. C’est ce qui apporte ma présence et c’est ce qui apporte ma présence en ce moment. Ceux qui proclament que je les guide et que je suis avec eux, doivent se poser cette question : *« Suivez-vous les enseignements dont j’ai parlé lorsque j’étais sur terre et continuez-vous à le faire ? Avez-vous une foi profonde ? Proclamez-vous la Vérité de l’Amour Divin du Père et priez-vous pour que ce don entre dans votre âme ?»* Si cela est affirmé et fait avec intégrité et honnêteté, alors j’ose dire que ces âmes connaîtront ma présence, car chaque âme qui souhaite sincèrement recevoir ce don d’Amour Divin sera, à un moment donné, consciente de ma présence auprès d’elles dans la prière, dans leurs désirs de connaître la Vérité. C’est mon travail dans votre monde, et dans tous les mondes, d’apporter cette Vérité à l’humanité et à tous les esprits. Je continue à déclarer cette Vérité et à être avec ceux qui sont ouverts et prêts à accepter cette Vérité.
 
@@ -29,8 +29,3 @@ Vous êtes vraiment des enfants de Dieu. Vos âmes continuent le voyage de la r�
 <small>
 
 1. <large id=”f1”> Plusieurs autres messages ont confirmé que Jésus était grand, aux cheveux châtains et aux yeux bleus éclatants. Il y a des références à ces messages sur cette page qui contient également de nombreux portraits d’apôtres.[↩](#a1)
-
-
-
-
-

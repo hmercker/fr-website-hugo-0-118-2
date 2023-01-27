@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu désire que vous soyez une âme éveillée
 
-Jésus - reçu par Al Fike le 7 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 7 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis avec vous bien-aimés, toujours, et en effet cela peut être. Étant donné vos efforts, vos désirs, vos prières, vos actions, vos pensées, vos motivations à être en alignement avec Dieu, à être en harmonie avec Ses lois d’amour, et à continuer à permettre à vos âmes de s’éveiller et d’émerger comme une partie consciente de vous. Vous comprenez maintenant que la raison pour laquelle vous vous réunissez est un soutien mutuel pour l’éveil de vos âmes dans une mesure plus profonde et une plus grande expression et la merveilleuse, merveilleuse bénédiction de l’Amour Divin.
 
@@ -18,8 +18,3 @@ Chacun d’entre vous le saura à sa manière et en fera l’expérience en son 
 Tant de choses vous attendent, mes bien-aimés. Tant de choses sont destinées à être données, qui vous rempliront, déborderont et toucheront les autres. Dans cette vie merveilleuse et cet être en Dieu, vous êtes vraiment Ses enfants, mes bien-aimés, et vous êtes vraiment aimés.
 
 Que Dieu vous bénisse. Je suis Jésus et oui, je suis avec vous. Dans le soin que vous apportez à vos âmes et dans ces moments de sainte communion, dans votre aspiration et vos efforts pour atteindre la liberté de l’âme éveillée, je suis avec vous. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous.
-
-
-
-
-

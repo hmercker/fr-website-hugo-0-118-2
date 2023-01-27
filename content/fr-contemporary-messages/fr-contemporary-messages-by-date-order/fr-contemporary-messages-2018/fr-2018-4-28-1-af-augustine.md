@@ -9,7 +9,7 @@ weight:
 ---
 ### Préparez-vous aux changements à venir
 
-Augustin - reçu par Al Fike le 28 Avril 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 28 Avril 2018, Punaluu, Oahu, HI, USA.
 
 Je suis votre enseignant, Augustin, et je souhaite vous rappeler le plan de Dieu pour le salut de l’humanité et que vous avez chacun un rôle à jouer dans ce plan si vous souhaitez faire partie du déploiement de la Vérité de l’Amour Divin dans la conscience de l’humanité.
 
@@ -34,6 +34,3 @@ Approchez-vous, mes bien-aimés. Dieu continue à vous renforcer, à vous prépa
 Un grand travail est à venir pour tous ceux qui le veulent. Des révélations, des changements et des ajustements viendront et en vous se trouvera une profonde, profonde compassion et amour pour l’humanité et une profonde connexion avec votre Créateur. C’est ce à quoi vous aspirez tous, mes bien-aimés, et c’est ce qui vous sera donné alors que vous continuez à lutter et à mener en vous cette grande bataille entre les conditions en vous qui ne sont pas en harmonie avec l’Amour et celles qui le sont. Que la bataille soit gagnée avec l’Amour. Que les vérités de Dieu, son amour soient toujours votre lumière de guidage, mes bien-aimés, et que vous puissiez choisir la lumière toujours, exprimer la lumière toujours, être avec Dieu toujours.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je suis avec vous alors que vous continuez à grandir et à vous rapprocher de ce moment où tout se déroulera. Ce grand, grand message sera donné au monde entier. Puissiez-vous faire partie de cette révélation, de ce grand plan pour le salut de l’humanité. Je vous aime, âmes bien-aimées, et je suis avec vous. Votre enseignant Augustin continue d’être à vos côtés. Mon amour est avec vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

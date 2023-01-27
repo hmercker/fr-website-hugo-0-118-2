@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous vous réveillez ensemble pour faire partie du plan de Dieu
 
-Seretta Kem - reçu par Al Fike le 7 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 7 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, je suis Seretta Kem. Vous construisez une si belle lumière ici avec vos prières, avec vos conversations et vos actions ensemble. Vous créez une plus grande harmonie et une plus grande lumière au fur et à mesure que vous construisez, construisez, construisez une plus grande lumière avec vos prières, vos intentions et votre amour. Nous y ajoutons également nos efforts et Dieu nous bénit tous, n’est-ce pas, alors que nous continuons à nous élever toujours plus haut vers la Source de tout amour.
 
@@ -24,6 +24,3 @@ Vous mettez en œuvre le plan de Dieu de cette façon et vous suppliez l’human
 Vous connaîtrez dans vos vies votre propre âme éveillée et elle brûlera avec éclat. Elle vous portera loin. Elle vous montrera la voie à suivre, car la volonté de Dieu se reflète dans votre âme et vous en viendrez à la connaître clairement et à agir en conséquence. Vous en viendrez à reconnaître la puissance de l’Amour de Dieu pour vous et pour tous et cela vous motivera dans votre travail, votre service à Dieu, chacun jouant son rôle dans ce plan puissant qui balayera le monde.
 
 Nous sommes ensemble dans cela mes amis, faisant partie du grand continuum du service dans l’amour. Que Dieu vous bénisse, âmes bien-aimées. Serretta Kem est avec vous. Que Dieu vous bénisse.
-
-
-

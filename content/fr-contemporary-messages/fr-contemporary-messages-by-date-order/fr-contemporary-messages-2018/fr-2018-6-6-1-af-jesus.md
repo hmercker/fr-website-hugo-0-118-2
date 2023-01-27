@@ -9,7 +9,7 @@ weight:
 ---
 ### La bénédiction d’un bouclier de lumière
 
-Jésus - reçu par Al Fike le 6 Juin 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 6 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite vous dire, que vous avez chacun reçu une bénédiction unique, une bénédiction d’un bouclier de Lumière. Il vous enveloppe mes bien-aimés, un cadeau de Dieu. Il sera toujours avec vous, vous protégeant pour que vous puissiez porter la Lumière partout où vous allez. Et ce cadeau et cette bénédiction ne sont pas seulement accordés à vous, mais aussi à vos cercles et à ces chères âmes qui continuent à faire partie de vos efforts.
 
@@ -20,6 +20,3 @@ Vous avez ressenti sa puissance. Il est avec vous depuis un certain temps mainte
 Continuez à prier pour la bénédiction de Son Amour, à chercher à vivre selon les lois de Son Amour et à servir dans un désir d’être un canal de Son Amour et ce don sera soutenu et renforcé avec chaque prière que vous faites, chaque effort pour servir les autres et pour exprimer l’Amour dans ce monde. Cette Lumière grandira, se renforcera et s’étendra, un cadeau de Dieu, mes bien-aimés, un cadeau puissant, qui vous aidera dans vos efforts pour la Lumière dans ce monde et vous protégera des conditions d’obscurité toujours plus fortes dans ce monde.
 
 Soyez en paix, mes bien-aimés, sachez que vous êtes vraiment aimés et que tous les bons et merveilleux cadeaux continueront à vous être accordés. Comme votre foi se renforce et que votre amour grandit, il en sera ainsi. Vous serez bénis. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je viens vous apporter la bonne nouvelle des bénédictions continues de Dieu sur vous. Dieu vous bénit et mon amour est avec vous, âmes précieuses dans la Lumière, âmes précieuses qui connaissent Dieu et Son Amour. Vous êtes bénis, puissamment bénis, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

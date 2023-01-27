@@ -9,7 +9,7 @@ weight:
 ---
 ### Faire grandir la lumière dans vos âmes est le plus grand service rendu à Dieu
 
-Seretta Kem - reçu par Al Fike le 13 Août 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 13 Août 2018, Gibsons, Colombie-Britannique, Canada.
 
 Oui vous pouvez voir clairement les changements qui se produisent dans votre monde, comment la terre est déséquilibrée et doit revenir à l’équilibre, à l’harmonie avec les rythmes et les cycles que Dieu a créés dans votre monde. Ces conditions vont malheureusement s’intensifier, car tant de gens ignorent aveuglément les avertissements et les manifestations qui sont venus parce que l’humanité n’a pas vécu dans ce monde avec un sens de l’amour, de la bonté, du respect, de la sagesse. Âmes bien-aimées, Dieu vous presse, ainsi que chaque âme de ce monde, de chercher à élever votre pensée et à élever vos âmes dans l’amour. Pour que vous puissiez parcourir le monde dans la paix et l’harmonie, dans la sagesse et l’amour. Quelle plus grande chose pouvez-vous faire en ce moment que de faire ceci : prier et être proche de Dieu, chercher à être en harmonie en vous-même et en harmonie avec le monde.
 
@@ -31,9 +31,5 @@ Ceci vous devez l’enseigner, âmes bien-aimées. Ces vérités simples, le pou
 Souvenez-vous de cela, âmes bien-aimées : quelle que soit la situation dans laquelle vous vous trouvez dans votre vie, ce sont vos efforts dans la prière, votre désir de servir, votre éveil continu qui apportent le changement dans ce monde. Bien que vos actions manifestes de service soient importantes, rappelez-vous que c’est la lumière que vous portez et la lumière qui se construit en vous qui aura le plus grand effet et qui guidera votre voyage et votre service dans ce monde. Ainsi, la prière sincère vous amènera à cet endroit où vous pourrez vraiment être un instrument de changement et de lumière dans le monde.
 
 Le monde a besoin de vous, mes bien-aimés. Dieu a besoin de vous. Vos âmes souffrent et aspirent à accomplir leur but et leur destinée. Écoutez vos âmes. Écoutez Dieu. Cherchez son amour. Cherchez à être forts et clairs. Marchez avec intégrité et vérité. Soyez humbles et doux. Soyez un enfant de Dieu.
+
 Dieu vous bénisse mes bien-aimés, je suis Seretta Kem. J’ai un grand amour pour vous. J’ai un grand amour pour l’humanité et pour toutes les lumières de ce monde qui luttent pour maintenir leur lumière, pour faire grandir leur lumière, pour être une lumière dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis souvent avec vous. Que Dieu vous bénisse.
-
-
-
-
-

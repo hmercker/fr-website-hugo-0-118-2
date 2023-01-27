@@ -9,7 +9,7 @@ weight:
 ---
 ### Une révolution dans votre monde est à venir
 
-Shandor - reçu par Al Fike le 15 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Shandor - reçu par Al Fike le 15 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 
 Salutations, âmes bien-aimées. Je suis Shandor. Vous m’avez demandé de venir vous parler. J’ai été avec vous pendant vos cercles de Lumière. Comme vous le savez, je ne réside pas sur votre planète car je réside très loin dans une autre galaxie de l’Univers de Dieu.
 

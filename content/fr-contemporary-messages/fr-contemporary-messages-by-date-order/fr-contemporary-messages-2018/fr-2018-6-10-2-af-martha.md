@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Permettez à Dieu de travailler à travers cette église - F.U.S.C.<sup id=”a1”>[1](#f1)</sup>
+### Permettez à Dieu de travailler à travers cette église - F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
 
-Martha - reçu par Al Fike le 10 Juin 2018, Gibsons, Colombie-Britannique, Canada
+Martha - reçu par Al Fike le 10 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je m’appelle Martha. J’ai fait partie autrefois de votre congrégation, dans votre église. Il y a de nombreuses années, avant qu’aucun d’entre vous ne fasse partie de cet endroit, j’étais là, et beaucoup de mes amis étaient là. Je suis heureux de voir que vous commémorez toutes les années de toutes les personnes qui ont mis leur amour et leur cœur dans cet endroit, votre église. Je veux que vous sachiez combien je suis heureuse que vous incluiez maintenant la vérité de l’Amour Divin dans ce lieu, car cela a toujours été mon chemin vers Dieu. Je suis maintenant un membre des Cieux Célestes et nous nous sommes regroupés pour aider à apporter ces vérités à votre église. Beaucoup d’entre nous, qui ont eu une certaine association, non seulement avec votre église mais aussi avec beaucoup d’entre vous, travaillent pour apporter une plus grande Lumière et plus d’harmonie à ce beau sanctuaire. Je souhaite vous rappeler que notre bien-aimé Maître Jésus a béni cet endroit et a reconsacré cette église pour Dieu. Elle a maintenant une lumière spéciale, quelque chose qui, lorsque vous priez et continuez à être dans ce lieu avec les plus hautes intentions, augmentera cette lumière. L’harmonie, la puissance et la beauté de ce lieu apporteront en lui la Grâce de Dieu et toutes Ses Bénédictions, des bénédictions de guérison et de paix et des bénédictions qui ouvrent le cœur et l’âme à l’Amour.
 
@@ -25,6 +25,3 @@ Que Dieu vous bénisse à chaque pas que vous faites, qu’il vous inspire ses p
 <small>
 
 1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
-
-
-

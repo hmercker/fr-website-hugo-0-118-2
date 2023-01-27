@@ -9,7 +9,7 @@ weight:
 ---
 ### La naissance de l'âme
 
-Seretta Kem - reçu par Al Fike le 6 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 6 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Pensez-vous à la voix directe, mes amis ? Pas vraiment. C’est ainsi que nous souhaitons que vous restiez dans vos pensées, que vous vous concentriez plutôt sur le développement de votre âme, l’élévation de votre âme, le développement de votre âme. Parce que c’est la prochaine étape sur ce grand escalier vers la lumière et le succès. Lors des sessions précédentes, vous avez aspiré et recherché ce don de la voix directe, avec un désir intense, une grande concentration dans vos pensées. Maintenant, vous vous concentrez sur votre âme et votre relation avec votre Père Céleste. C’est important. C’est crucial en ce moment.
 
@@ -39,7 +39,3 @@ Nous attendons l’émergence de ce beau papillon qu’est votre âme. Continuez
 Nous continuons à être avec vous dans cette naissance de votre âme. Ce processus a une importance bien plus grande que le développement d’un seul don. Dans ce processus, vient le déploiement de nombreux dons. Les couleurs de l’arc-en-ciel sur les ailes sont indicatives de la multiplicité des dons que vous aurez et exprimerez dans ce monde. Puissiez-vous continuer, âmes bien-aimées, dans votre grand effort pour marcher dans la Lumière et la Vérité de l’Amour de Dieu, pour être Ses serviteurs, Ses enfants, afin que votre amour et Son Amour puissent apporter une plus grande lumière à ce monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et j’ai un grand amour pour vous tous. Je suis avec vous. Je suis témoin de la naissance de votre âme. Que Dieu vous bénisse.
-
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### Expiation de l'âme par la recherche de la vérité et la libération de l'erreur
 
-Seretta Kem - reçu par Al Fike le 14 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
-J’ai été très heureux de pouvoir vous parler à travers l’instrument qui siège dans ce cercle, la chère âme qui a un profond désir de servir Dieu et d’utiliser ses dons au profit des autres<sup id=”a1”>[1](#f1)</sup>.
+J’ai été très heureux de pouvoir vous parler à travers l’instrument qui siège dans ce cercle, la chère âme qui a un profond désir de servir Dieu et d’utiliser ses dons au profit des autres <sup id=”a1”>[1](#f1)</sup>.
 
 Ce n’est pas un chemin facile, âmes bien-aimées, de servir et de refléter au plus haut point sa capacité à apporter la vérité à l’humanité. Tant de barrières se dressent sur le chemin de tous ceux qui cherchent la lumière, car les conditions de ce monde sont imprégnées d’ignorance et d’obscurité, et pour trouver son chemin dans cette forêt sombre du monde matériel, il faut une force et une ténacité que peu ont en ce monde. Pourtant, ce sont ceux qui sont sensibles et qui ont des sentiments et des intuitions aigus, des compréhensions de l’âme, qui acceptent cette invitation de Dieu à être un canal pour la vérité de quelque manière que ce soit. Ils expriment leurs dons dans la beauté et la lumière, la clarté et la vérité, le tout éclairé par l’amour. Cela n’est pas facile. Cela exige, comme vous le savez bien mes bien-aimés, un engagement profond, une pratique quotidienne et une grande intégrité. Car on ne peut pas se cacher de cette obscurité qui réside en chacun de vous, qui se cache dans ces profondes crevasses de l’âme et qui a besoin d’être lavée avec l’Amour du Père.
 
@@ -36,8 +36,4 @@ Puissiez-vous vraiment marcher dans la lumière, âmes bien-aimées. Que toutes 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime tendrement, chacun d’entre vous. Et oui, ma fille, nous vous attirons lorsque nous prions pour le don de la voix directe et nous utilisons vos dons pour le bénéfice de ceux qui sont dans le cercle. Tu es bien consciente, je le sais. Continue dans tes prières et dans tes efforts pour synchroniser tes prières avec celles de tes frères et sœurs, afin que vous puissiez tous travailler ensemble à la réussite de ce don, si unique et si beau. Tous ceux qui sont prêts à soutenir ces efforts auront leur chance de faire partie de ce grand plan. Que Dieu vous bénisse tous et que mon amour soit avec vous. Que Dieu vous bénisse et vous garde dans sa lumière. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> [Ce message a été reçu par Maureen Cardoso le 13 Juin 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem).[↩](#a1)
-
-
-
-
+1. <large id=”f1”> [Ce message a été reçu par Maureen Cardoso le 13 Juin 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/).[↩](#a1)

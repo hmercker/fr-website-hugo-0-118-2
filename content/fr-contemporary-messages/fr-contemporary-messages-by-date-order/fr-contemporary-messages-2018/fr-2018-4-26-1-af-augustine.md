@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu a besoin de toutes les âmes éveillées à l'amour
 
-Augustin - reçu par Al Fike le 26 Avril 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 26 Avril 2018, Punaluu, Oahu, HI, USA.
 
 Le monde a besoin de vous, de vous tous, et de beaucoup plus d’entre vous car comment cette Vérité va-t-elle venir au monde s’il n’y a pas ceux qui portent cette Vérité avec force et foi, qui sont courageux et forts dans l’Amour de Dieu. Vous voyez autour de vous beaucoup d’âmes perdues, des âmes qui vaquent à leurs occupations mais qui sont complètement inconscientes de leur besoin profond d’Amour et de Dieu et de Vérité. Elles sont endormies, mes bien-aimés, elles sont endormies. Dieu va réveiller les âmes de manière à ce qu’elles aient un besoin et un désir profond de connaître la Vérité. C’est le plan de Dieu pour le salut de l’humanité et ce plan est activé maintenant et continuera à être activé dans le futur. Dieu a besoin de vous, mes amis bien-aimés. Dieu a besoin de toutes les âmes de ce monde qui sont elles-mêmes éveillées par l’Amour, qui sont fidèles aux vérités simples de Dieu et de Sa création.
 
@@ -22,6 +22,3 @@ C’est un voyage magnifique, n’est-ce pas ? C’est une opportunité merveill
 Puissiez-vous accomplir vos destins pour être ce phare et ce canal. Puissiez-vous être assez forts pour relever le défi et être ce moi supérieur, cet aspect de vous qui est votre âme resplendissante d’Amour, exprimée à travers chaque partie de votre être. Dieu veillera à ce que vous ayez toutes les opportunités, tous les avantages, toutes les bénédictions, tout ce qui est nécessaire pour que vous arriviez à ce lieu de pureté, de force et d’Amour. Ne sommes-nous pas tous bénis, âmes bien-aimées, par cette générosité si grande et si merveilleuse qui coule du sein de Dieu vers chacun d’entre nous ? Nous nous portons les uns les autres, mes bien-aimés, nous marchons ensemble, nous dans le Royaume Céleste, vous qui continuez à grandir et à lutter dans le monde. Nous marchons ensemble et ce sera un voyage merveilleux, un voyage merveilleux.
 
 Mon amour est avec vous, mes bien-aimés. Mes prières sont avec vous. Les prières de nombreux anges continuent d’être dirigées vers Dieu pour votre bien. Puissiez-vous le savoir, savoir vraiment que vous êtes aimés et que l’on prend soin de vous, que la main de Dieu repose fermement sur vous. Que la paix qui dépasse toute compréhension soit vôtre, mes beaux, beaux amis. Puissiez-vous connaître toutes les merveilles de ce voyage, toutes les bénédictions que Dieu a à offrir. Que Dieu vous bénisse et vous garde dans sa lumière. Je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse.
-
-
-

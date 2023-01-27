@@ -9,7 +9,7 @@ weight:
 ---
 ### Le rôle de la voix directe dans l'éveil de l'humanité
 
-John Wesley - reçu par Al Fike le 20 Mai 2018, Gibsons, Colombie-Britannique, Canada
+John Wesley - reçu par Al Fike le 20 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse de Son Amour. Je suis John Wesley et je suis venu vous parler de la progression de l’humanité en ce qui concerne la compréhension de leurs âmes et comment cela se rapporte effectivement à vos efforts pour la voix directe. Vous avez été témoin d’un événement le lendemain (le jour précédent) qui vous a donné une idée de la façon dont tant d’individus voient le monde de l’esprit et comprennent leur propre vie de ce point de vue. Elle est de nature assez rudimentaire.
 
@@ -34,8 +34,3 @@ Vous n’êtes jamais seuls. Nous vous voyons, mes chers amis, nous vous connais
 L’Amour est tout autour de vous mes bien-aimés, et l’Amour est ce que vous cherchez, alors continuez à le chercher de tous vos cœurs, à prier avec ferveur, à être ouvert à Dieu et à savoir que Dieu est avec vous et vous porte en avant.
 
 Que Dieu vous bénisse mes amis et merci de m’avoir écouté aujourd’hui. Je m’appelle John Wesley. Je suis un habitant du Royaume Céleste et je continue à travailler avec vous et avec d’autres pour apporter une plus grande Lumière à l’humanité. Que Dieu nous bénisse tous dans cette grande œuvre. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous bénisse.
-
-
-
-
-

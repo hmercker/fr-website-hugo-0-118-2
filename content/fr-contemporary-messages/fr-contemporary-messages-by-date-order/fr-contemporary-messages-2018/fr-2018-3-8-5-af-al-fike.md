@@ -9,11 +9,7 @@ weight:
 ---
 ### Impressions d'Al après la prière Voix Directe
 
-Al Fike - reçu par Al Fike le 8 Mars 2018, Gibsons, Colombie-Britannique, Canada
-
-Date : 8 Mars 2018
-Lieu : Punaluua, Oahu, HI, U.S.A.
-Médium : Al Fike
+Al Fike - reçu par Al Fike le 8 Mars 2018, Punaluua, Oahu, HI, USA.
 
 Au début de la prière, j’ai vu chacun de nous dans une robe blanche et autour de la taille il y avait une ceinture de différentes couleurs et cette ceinture était indicative de notre fonction.
 
@@ -37,6 +33,3 @@ J’aurais pu l’inventer. Mais à la fin, ils m’ont ramené à ça et ils m�
 J’avais juste l’impression d’être à l’intérieur de moi-même, d’être alerte et claire, claire, la clarté ne cessait de venir, la clarté. C’était comme si je regardais autour de moi et que cette belle lumière blanche était tout autour de moi et c’était juste clair, c’était juste fort et clair et beau.
 
 Je ne sais pas … il y avait d’autres choses que je ne suis pas très … je ne sais pas comment les décrire et donc je ne vais pas m’embêter … je vais tout gâcher donc … Quoi qu’il en soit, c’était une expérience très puissante pour moi … très instructive.
-
-
-

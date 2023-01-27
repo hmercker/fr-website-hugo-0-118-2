@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître les potentialités de l'amour de Dieu est un voyage infini
 
-Seretta Kem - reçu par Al Fike le 8 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 8 Mars 2018, Punaluua, Oahu, HI, USA.
 
 Âmes bien-aimées, je suis Seretta Kem. Je vois que votre cercle continue de s’agrandir et j’accueille ces deux belles âmes dans notre cercle d’Amour. Que l’Amour du Père continue à se déverser dans chacune de vos âmes, vous reliant à Dieu, vous reliant les uns aux autres, créant des liens qui dureront vraiment pour toujours.
 
@@ -24,6 +24,3 @@ Puisse Son Amour continuer à vous toucher à chaque respiration et vous amener 
 Je sais que vous avez beaucoup de questions et de dilemmes. Vous voyez tout autour de vous votre monde qui n’est pas en harmonie et vous vous demandez comment il peut être guéri et remis en ordre. Comme vous percevez ces merveilleux mystères dans l’Amour de Dieu, une grande sagesse viendra et vous connaîtrez les solutions que Dieu souhaite que vous mettiez en œuvre dans ce monde. Chacun a un but, âmes bien-aimées. Chacun est doué d’une manière que vous ne connaissez pas vraiment en ce moment, mais qui se révélera. Vous allez contribuer, âmes bien-aimées, à la guérison de ce monde. Vous mettrez en œuvre de belles expressions de Vérité et d’Amour, des connaissances et des prises de conscience, des choses qui profiteront à l’humanité, des vérités qui viendront.
 
 C’est à vous de trouver votre chemin dans la prière, de vous connaître et de connaître votre relation avec Dieu, de découvrir tous les merveilleux potentiels qui vivent en vous. Cela vient avec chaque jour, une certaine mesure d’éveil et d’alignement plus grand avec Dieu. Puissiez-vous trouver votre chemin, âmes bien-aimées. Vous avez tout ce dont vous avez besoin à votre disposition. Les anges vous entourent. Vous n’êtes jamais seuls. En vérité, c’est ainsi que vous découvrirez ces choses et que vous parviendrez à connaître et à être dans la Vérité de l’Amour de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

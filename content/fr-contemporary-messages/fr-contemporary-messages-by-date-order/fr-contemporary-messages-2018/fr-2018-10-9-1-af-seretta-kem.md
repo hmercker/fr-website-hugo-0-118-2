@@ -9,7 +9,7 @@ weight:
 ---
 ### L'intégration du mental matériel au mental de l'âme
 
-Seretta Kem - reçu par Al Fike le 9 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 9 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 La transformation de l’âme ne se limite pas à des changements dans la structure de l’âme. Cette transformation commence dans l’âme avec le pouvoir de l’Essence de Dieu ouvrant l’âme, éveillant l’âme de tant de façons, animant toutes les chambres et facettes de l’âme, amenant les facultés de l’âme en alignement avec votre conscience lorsqu’elle s’éveille et devient active. Votre capacité à voir le monde et à aimer le monde augmente de façon exponentielle avec ce don d’Amour. La puissance de cette lumière placée dans votre âme s’étend et vous touche à tous les niveaux, dans toutes les parties de votre être. Chaque aspect de votre existence est modifié par ce don. Au fur et à mesure qu’il grandit en puissance, l’influence augmente, touchant chaque cellule de votre corps, chaque système de votre corps spirituel, chaque partie de votre esprit physique et l’esprit de votre conscience est infusé avec la conscience de l’âme.
 
@@ -30,6 +30,3 @@ Il y a tant de choses à découvrir, mes amis, tant de choses. Mais durant ce te
 Vous continuerez à vous éveiller ainsi en recevant et en buvant profondément de toutes ces choses. Naturellement, l’évolution et l’éveil qui se produisent en vous vont se déployer et donner naissance à de nouvelles et merveilleuses choses en vous. C’est le cadeau de Dieu pour vous. Son Amour s’exprime de bien des manières merveilleuses. Son Amour pour vous, si profond et si glorieux. Vous commencez à voir, mes bien-aimés, à voir vraiment. Et nous continuons ce voyage ensemble.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je continue à marcher avec vous, à vous aider, à vous guider, à vous informer, à vous inspirer et à vous cajoler sur ce chemin. Vous êtes aimés. Vous êtes entourés d’anges. Vous êtes bénis et vous vous éveillez à l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

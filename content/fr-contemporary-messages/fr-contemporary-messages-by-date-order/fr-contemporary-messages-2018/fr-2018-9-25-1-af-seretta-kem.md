@@ -9,7 +9,7 @@ weight:
 ---
 ### Instructions pour la voix directe
 
-Seretta Kem - reçu par Al Fike le 25 Septembre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 25 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, c’est Seretta Kem. Je souhaite transmettre quelques conseils à votre groupe de sept concernant le temps que vous allez passer ensemble. Nous continuons à vous fournir des conseils concernant notre projet commun. Certains de ces conseils sont quelque peu techniques et nécessitent que cet instrument soit dans une condition optimale afin de transmettre ces informations. Je voudrais vous suggérer d’inverser vos routines, de sorte que vous puissiez vous asseoir dans cette pièce le matin et vous retirer dans la pièce sombre l’après-midi. De cette façon, cet instrument sera dans l’état requis. Nous l’aiderons et le soutiendrons pour qu’il soit ainsi.
 
@@ -34,6 +34,3 @@ Votre responsabilité est de porter la lumière, de vivre dans la Vérité de l�
 Nous nous engageons envers vous, mes bien-aimés. Nous sommes avec vous. Nous sommes avec vous plus étroitement que nous ne l’avons jamais été. Dieu nous accorde ce don. Dieu bénit nos efforts et Dieu bénira chaque effort que vous faites, mes bien-aimés, dix fois, cent fois, tant que vous êtes clairs, concentrés et profondément dans vos âmes en prière. Tout se mettra en place. Tout sera un beau flux et vous saurez, en vous-mêmes, que vous êtes sur le bon chemin. Votre foi sera forte et vos perceptions seront claires. Votre compréhension sera complète et vous serez en paix. La joie est votre bénédiction, la joie du service, la joie de l’accomplissement d’un but et d’un don, la joie de savoir que vous avez servi Dieu de manière profonde et profonde.
 
 Soyez dans Sa Grâce, mes bien-aimés. Recherchez Son Amour. Faites-en un désir constant en vous. Marchez dans la lumière. Sachez que vous êtes capables d’accomplir cette destinée. Dieu pourvoit à tout. Vous devez être dans ce lieu d’accueil, désirant ardemment ce Toucher de Dieu, et tout ira bien. Dieu vous bénisse, mes bien-aimés, je suis Seretta Kem. Je continuerai à vous parler lorsque vous serez présents et ferez partie de ce cercle. Que Dieu vous bénisse. Mon amour est avec vous.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### La mort peut être une transition joyeuse vers l’esprit
 
-St Matthieu - reçu par Al Fike le 19 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 19 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Matthieu. Il arrivera un moment dans l’existence de la Terre où la mort ne sera pas crainte mais acceptée comme une partie normale de la progression de la vie par tous les peuples de votre monde et il n’y aura pas de peur de la mort, de rejet de la mort et le sentiment que c’est la fin de tout. Au contraire, la transition vers le monde de l’esprit sera célébrée, un changement des conditions dans lesquelles une âme vit et opère, ce qui est la vérité. Ce n’est rien de plus que cela. Il n’y aura peut-être pas une grande distance entre ceux qui passent et ceux qui aiment cette âme sur ce plan terrestre. Il s’agira d’une progression douce et sans heurts dans la vie, vue avec joie et sagesse plutôt qu’avec peur et ignorance.
 
@@ -26,6 +26,7 @@ C’est le progrès éternel de l’âme qui est enflammée par l’Amour du Pè
 Alors mes bien-aimés, réalisez qui vous êtes aujourd’hui, où vous êtes aujourd’hui n’est qu’un pas de plus vers l’avenir le long de ce voyage d’éveil et d’Amour éternel, en harmonie avec Dieu. L’union avec Dieu, mes bien-aimés, c’est ce que votre âme recherche.
 
 Ne vous inquiétez pas et ne vous inquiétez pas de la transition de vos frères et sœurs et de vous-mêmes, car tout cela fait partie du cadeau de Dieu dans la vie. Chaque phase, chaque moment est un cadeau, un beau cadeau de la vie plein de choix, d’actions, de réponses, de réveils, de guérisons, de libérations, de joie et d’amour. Au fur et à mesure que ces choses sont expérimentées, vous libérez votre douleur et votre erreur, vos peurs, toutes ces conditions qui ne sont pas en harmonie avec l’Amour. Dans cette libération vient un grand sentiment de liberté et de joie et vous ne vous inquiétez pas de ces choses qui viennent. Au lieu de cela, il y a une grande appréciation et une grande joie pour ce qui est en ce moment.
+
 Marchez sur le chemin de votre vie de cette façon, âmes bien-aimées, en ayant une grande foi que ce qui vient est une bénédiction, ce que vous êtes est un miracle. Là où vous allez est plein de potentiel de grand réveil et de savoir qu’il n’y a rien à craindre. Au contraire, vous gagnez beaucoup à être proche de Dieu, à le connaître, à l’aimer et à connaître son amour pour vous. Cette simple façon d’être est la voie de l’illumination, de la véritable compréhension et de la véritable expression de votre âme.
 
 Gardez Dieu près de vous, mes bien-aimés. Recherchez Son Amour autant que possible. Ayez foi dans le pouvoir de ce grand cadeau pour vous propulser le long de ce voyage éternel, vous progresserez en temps voulu et avec cette connaissance viendra la paix, un apaisement de votre mental ainsi que de votre âme dans son ardeur à aller de l’avant. Aujourd’hui est le jour du grand potentiel et demain viendra avec ses propres cadeaux et bénédictions.
@@ -33,6 +34,3 @@ Gardez Dieu près de vous, mes bien-aimés. Recherchez Son Amour autant que poss
 Que Dieu vous bénisse à chaque instant et que vous soyez réceptifs à ces bénédictions qui viennent. Que Dieu vous bénisse, mes frères et sœurs bien-aimés. Puissiez-vous en venir à comprendre réellement mes mots, le pouvoir de l’amour, le pouvoir des bénédictions de Dieu sur vous et vous connaîtrez cette paix profonde et cette joie profonde qui accompagne l’âme éveillée.
 
 Que Dieu vous bénisse. Je suis Matthieu et je vous aime. Que Dieu vous bénisse.
-
-
-

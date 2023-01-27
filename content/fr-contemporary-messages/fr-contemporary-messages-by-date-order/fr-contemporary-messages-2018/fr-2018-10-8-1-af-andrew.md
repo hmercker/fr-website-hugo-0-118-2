@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher dans la lumière
 
-André - reçu par Al Fike le 8 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 8 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis André. Vous portez chacun une lumière, une lumière dans le monde, un monde qui a besoin de lumière. Vous continuez chacun à lutter pour construire en vous une belle lumière. Je vous invite à implorer votre Père Céleste de recevoir des bénédictions toujours plus grandes de Son Amour, afin que dans ce profond désir, cette véritable aspiration, vienne la lumière de Son Amour. Avec la lumière de Son Amour, vous trouvez votre chemin sur le sentier de votre vie, car Dieu éclaire votre chemin, dégage la voie pour que vous puissiez vivre votre vie dans l’harmonie, la paix et la joie alors que vos âmes sont transformées par cet Amour. Lorsque vous marchez dans la vie en portant cette lumière, vous promulguez la foi du désir de votre âme d’être en harmonie avec les lois de la création de Dieu, d’être vraiment un canal d’Amour.
 
@@ -30,6 +30,3 @@ Nous devons tous prier pour le monde et travailler ensemble comme des lumières,
 Vous pouvez être utilisés comme un canal pour que ces énergies soient dispersées dans le monde. De bien des façons, vous pouvez être des canaux d’amour, des instruments de la volonté de Dieu. Ce n’est ni difficile ni compliqué. Cela demande simplement que vous continuiez à être élevés et bénis et en alignement avec les forces de la lumière, que vos âmes puissent grandir dans l’amour, que vous puissiez marcher dans la paix et la joie, dans la vérité et dans la lumière. Puissiez-vous vivre une vie aussi simple, une vie centrée sur la lumière, une vie qui donne dans l’amour.
 
 Que Dieu vous bénisse. Je suis votre ami André et je vous aime. Mes prières sont avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
-
-
-

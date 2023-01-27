@@ -9,7 +9,7 @@ weight:
 ---
 ### L'éveil des dons de votre âme requiert l'amour, la foi et le timing de Dieu
 
-Keea Atta Kem - reçu par Al Fike le 13 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 13 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Comme c’est merveilleux de voir la lumière que vous partagez entre vous, l’amour que vous avez les uns pour les autres et comment, en construisant cette lumière ensemble, vous construisez une plus grande lumière dans ce monde. En rassemblant plus d’âmes dans ce cercle, vous construisez une plus grande lumière, une belle lumière que Dieu est capable d’utiliser pour apporter un flux de lumière aux autres dans ce monde. Alors oui, vous bénéficiez les uns des autres et des efforts que vous faites pour donner et aimer, pour prier ensemble, pour travailler ensemble. Cette lumière continue de se développer parmi ceux d’entre vous qui cherchent à servir Dieu, à attirer Ses bénédictions à travers vous vers ceux qui sont connectés à vous, vers ceux que vous voyez quotidiennement et vers ceux qui sont des étrangers, mais il y a toujours une certaine connexion, un certain contact qui vient de l’âme.
 
@@ -23,9 +23,4 @@ Ainsi, chaque don doit être aiguisé à un haut niveau d’activation influenc�
 
 Si le mental est prédominant, alors le mental fait souvent dérailler la progression de l’âme et l’expression de ces dons. Il faut donc être prudent et votre rythme doit être en harmonie avec la Volonté et l’Amour de Dieu. Vous surmener et vous surpasser dans ces éveils et expressions peut vous causer des complications et des confusions inutiles. Marchez dans la foi, mes bien-aimés, avec la confiance que Dieu vous guidera en effet chaque jour et que vos dons se déploieront en harmonie avec chaque jour. Vous savez en vous-mêmes qu’il y a un sentiment d’harmonie lorsque ces dons se déploient. Oui, il y a toujours des ajustements, mais vous sentez et savez en vous que c’est la bonne route, c’est dans le flux de la Volonté de Dieu. Faites confiance à ce sentiment, faites confiance au plan de Dieu pour vous et permettez que tout se déroule dans l’harmonie et l’amour.
 
-Dieu vous bénisse, mes bien-aimés, je suis Keea-Atta Kem, et je vous aime, âmes bien-aimées. Je suis souvent avec vous. Je vous aide à marquer vos progrès. Je vous aide à ouvrir vos âmes et à exprimer la beauté de vos âmes. J’aide au développement de nombreux dons et mon engagement est que je serai toujours avec vous pour vous aider sur votre chemin d’éveil et de service à Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je vous aime.
-
-
-
-
-
+Dieu vous bénisse, mes bien-aimés, je suis Keea Atta Kem, et je vous aime, âmes bien-aimées. Je suis souvent avec vous. Je vous aide à marquer vos progrès. Je vous aide à ouvrir vos âmes et à exprimer la beauté de vos âmes. J’aide au développement de nombreux dons et mon engagement est que je serai toujours avec vous pour vous aider sur votre chemin d’éveil et de service à Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je vous aime.

@@ -9,7 +9,7 @@ weight:
 ---
 ### C'est un lieu de refuge
 
-Augustin - reçu par Al Fike le 11 Mai 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 11 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
 C’est votre enseignant Augustin. Quelle chance nous avons d’avoir les bénédictions du maître, pour sa présence au milieu de vous. Ce sont les désirs de vos âmes, mes bien-aimés, qui amènent ce cadeau et cette bénédiction si près de vous. Puissiez-vous continuer à aspirer à ce qu’il y a de plus élevé et être dans ce grand flux d’Amour de Dieu qui amène beaucoup de ces cadeaux, pour lesquels vous êtes reconnaissants, dans vos vies et qui sont exprimés et manifestés si puissamment.
 
@@ -28,6 +28,3 @@ Continuez à avoir une grande foi. Marchez avec courage et force. Cherchez l’A
 Beaucoup de choses vous attendent, comme vous le savez bien. Dieu continue à vous bénir chaque jour, mes beaux et bien-aimés étudiants qui cherchent en effet le plus grand bien, le plus grand bien, à rechercher le bien-être de ce monde afin qu’il puisse être guéri. Dieu vous embrasse, mes bien-aimés. Dieu est avec vous. Soyez avec Dieu de toutes les manières. Ressentez l’Amour de Dieu dans chaque partie de votre corps. Permettez à sa grande influence et à ses pouvoirs de guérison de vous toucher tous.
 
 Que Dieu vous bénisse. Je suis votre enseignant Augustin et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

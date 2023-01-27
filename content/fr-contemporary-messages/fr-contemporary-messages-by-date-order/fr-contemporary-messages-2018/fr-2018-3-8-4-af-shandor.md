@@ -9,7 +9,7 @@ weight:
 ---
 ### Commentaires de Shandor sur la Voix Directe
 
-Shandor - reçu par Al Fike le 8 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Shandor - reçu par Al Fike le 8 Mars 2018, Punaluua, Oahu, HI, USA.
 
 Al : Je pense qu’ils ont été très surpris et un peu impressionnés que sans le développement que sa civilisation a traversé et les conditions dans lesquelles ils vivent, que nous tentons un objectif aussi ambitieux avec la voix directe. Il a dit qu’il comprenait pourquoi, il dit que le besoin est très grand et il voit pourquoi l’effort est fait, mais il est un peu surpris que nous n’attendions pas une plus grande conscience de l’âme sur la terre… nous sautons en quelque sorte le pas, nous prenons de l’avance en apportant ce don.
 
@@ -23,7 +23,7 @@ J1 : Avait-il des cheveux ?
 
 Al : Non, non.
 
-(commentaires généraux …) Cool, nous sommes en route.
+*[commentaires généraux …]* Cool, nous sommes en route.
 
 G : L’avant-garde…
 
@@ -53,7 +53,7 @@ J2 : Avez-vous eu une idée de ce qu’est son monde, est-ce que les conditions 
 
 Al : Oui, oui, de très bonnes conditions.
 
-J1 : Il a dit, en 69-70, il a dit que nous aimons les étrangers plus que vous n’aimez vos propres enfants. 1
+J1 : Il a dit, en 69-70, il a dit que nous aimons les étrangers plus que vous n’aimez vos propres enfants <sup id="a1">[1](#f1)</sup>.
 
 J2 : Oui, je me souviens de ce message…
 
@@ -63,8 +63,8 @@ J1 : Il a également dit que nous ne pouvons pas comprendre pourquoi il y a tout
 
 G : Il dit aussi que nous faisons des choses que nous savons être mauvaises. L’autre chose fascinante est qu’il ne sait pas comment vous vous en sortez parce que nous apprenons dès l’enfance à discerner la vérité et à ne jamais mentir, donc personne ne ment jamais.
 
-J1 : Il n’y a pas d’hôpitaux, pas de … qu’a-t-il dit à propos des écoles, vous en souvenez-vous
-?
+J1 : Il n’y a pas d’hôpitaux, pas de … qu’a-t-il dit à propos des écoles, vous en souvenez-vous ?
+
 G : Je ne me souviens pas des écoles. Pas d’hôpitaux ?
 
 J1 : Non, ils n’en ont pas. Il dit qu’ils vivent … Je vais devoir vous les envoyer …
@@ -81,7 +81,7 @@ G2 : Vous voulez dire 1969-1970.
 
 J1 : Oui, oui.
 
-Al : J’ai dit « Je ne te connais pas vraiment, je ne sais pas d’où tu viens, quel est ton problème, je vais attendre, tu sais. C’est un peu trop différent pour moi alors … » Bref, on a eu une petite conversation sympa.
+Al : J’ai dit *« Je ne te connais pas vraiment, je ne sais pas d’où tu viens, quel est ton problème, je vais attendre, tu sais. C’est un peu trop différent pour moi alors … »* Bref, on a eu une petite conversation sympa.
 
 M1 : Se faire des amis.
 
@@ -89,9 +89,9 @@ J1 : Donc, est-ce que tu l’envisagerais ou est-ce que tu as besoin de savoir d
 
 Al : Eh bien, le gardien l’a déjà approuvé, c’est le seul moyen qu’il a trouvé pour m’atteindre.
 
-M1 : Il a la porte Al Fike … (rires).
+M1 : Il a la porte Al Fike ... *[rires]*.
 
-Al : C’est une porte étroite … très étroite.
+Al : C’est une porte étroite ... très étroite.
 
 Al : Nous observons ce que vous faites et nous sommes fascinés, dit-il, et nous sommes surpris que vous essayiez de faire cela dans les conditions dans lesquelles vous vivez. Vous savez…
 
@@ -107,6 +107,3 @@ Al : J’ai toujours trouvé G fascinant, alors vous savez …
 <small>
 
  1. <large id=”f1”> Voir [le message de Kentor du 08 Décembre 1969](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-41-1969-12-8-anonymous-kentor-of-another-galaxy/) : les communications précédentes étaient avec un extraterrestre appelé « Kentor » et il n’est donc pas du tout certain que Shandor vienne de leur planète.[↩](#a1)
-
-
-

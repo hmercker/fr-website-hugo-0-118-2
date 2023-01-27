@@ -9,9 +9,9 @@ weight:
 ---
 ### Une intervention sur les péchés des parents
 
-St Luc - reçu par Al Fike le 4 Avril 2018, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 4 Avril 2018, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/spiritualite-11.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-spiritualite-11.jpg)
 
 Je tiens à vous assurer ma fille que les anges Célestes ne s’offusquent pas et ne se sentent pas jugés par les mortels. Les sentiments les plus extrêmes qui peuvent émaner d’un ange Céleste sont la compassion, la compréhension et l’amour. Alors ne vous inquiétez pas, ma fille bien-aimée. Ne vous souciez pas de ces jugements et sentiments qui causent des barrières avec nous dans le Royaume Céleste, car c’est votre défi à surmonter et l’Amour est toujours présent, fille bien-aimée. L’amour et l’acceptation sont toujours à vous alors que vous continuez à grandir et à vous étendre dans l’Amour du Père. Vous surmonterez facilement cette barrière, car en continuant à vous informer à partir de cet endroit de l’âme et de ces sentiments d’Amour, vous ne pouvez rien ressentir d’autre que l’Amour et un sentiment de gratitude pour tout ce qui vous est donné, fille bien-aimée, tout ce qui continue à se déverser sur vous et votre vie dans la Lumière. Il en sera toujours ainsi, bien-aimée, et nous comprenons qu’il y a des attentes du mental qui ne sont pas facilement satisfaites. Pourtant, dans la Sagesse de Dieu, tout ce qui vous est donné l’est dans son timing parfait, dans sa beauté et dans sa bénédiction. Tout est donné, bien-aimés, et tout est pardonné – instantanément pardonné.
 
@@ -34,6 +34,3 @@ L’atmosphère énergétique est affectée par la Lumière dans votre âme et p
 Que Dieu continue à vous éveiller, à vous montrer le chemin. Oui, parfois vous avez des aperçus de ces vieux schémas et modes de pensée et d’attentes qui ne sont pas en harmonie avec le flux de la volonté de Dieu, mais vous reconnaissez rapidement ces choses et demandez de l’aide pour neutraliser ces conditions en vous. Vous êtes sur la bonne voie, âmes bien-aimées. Vous êtes bien en route et le réveil se poursuit, si subtil chaque jour, mais si puissant, et l’élan se renforce. Vous deviendrez ces canaux et instruments d’Amour que vous désirez tant être. Vous surmonterez ces conditions qui ont été longtemps avec vous et avec de nombreuses générations. Vous briserez la chaîne, mes bien-aimés, et vous apporterez une nouvelle voie, un grand espoir à l’humanité. Nous ferons tout ce que nous pouvons, tout ce dont nous sommes capables, pour vous aider dans ce grand effort pour briser les chaînes de l’erreur et de l’obscurité dans votre monde. Vous faites cela non seulement pour vous-même, mais pour toute l’humanité et toute l’humanité à venir.
 
 Il est temps dans votre monde d’apporter les changements qui sont nécessaires pour neutraliser ces conditions dans le monde qui continuent à s’aggraver et à s’assombrir et à apporter une plus grande douleur non seulement à l’humanité mais à toute la création dans votre monde. Il est temps que cela cesse et qu’une nouvelle façon d’être dans le monde se déploie conformément au Plan de Dieu pour le salut de l’humanité, pour le salut de ce monde. Vous en faites partie, âmes bien-aimées, vous faites partie d’un Plan et d’un effort merveilleux pour apporter une plus grande joie à l’humanité, une sagesse et un Amour profonds. Puissiez-vous trouver votre chemin, mes bien-aimés. Puissiez-vous trouver votre chemin. Que Dieu vous bénisse. Je suis Luc. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

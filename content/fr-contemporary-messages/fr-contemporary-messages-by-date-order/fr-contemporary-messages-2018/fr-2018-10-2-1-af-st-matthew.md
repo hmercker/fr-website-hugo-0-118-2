@@ -9,7 +9,7 @@ weight:
 ---
 ### Tout repose sur l'âme
 
-St Matthieu - reçu par Al Fike le 2 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 2 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Matthieu. Nous nous avançons une fois de plus, plaçant notre foi en Dieu, recherchant notre moi le plus élevé et nos inclinaisons et motivations les plus élevées pour apporter la lumière à nous-mêmes, les uns aux autres et à ce travail que nous avons entrepris. Je tiens à répéter que les ressources du Ciel sont à votre disposition, mais vous devez comprendre que même si nous déployons de grands efforts dans ce travail, c’est sur vous et vos efforts que repose le succès.
 
@@ -36,6 +36,3 @@ Le plus grand travail est celui de votre âme, mes bien-aimés. C’est votre ob
 Le pouvoir de l’âme, mes bien-aimés, est tellement plus grand que toute autre faculté à votre disposition. Nous recherchons ensemble l’éveil continu non seulement de vous, mais de toute l’humanité. C’est crucial dans le monde en ce moment et vous avez choisi de marcher avec nous dans cette grande aventure. Vous avez choisi de permettre à Dieu de travailler à travers vous, comme nous l’avons fait. Ensemble, nous apporterons en effet beaucoup de belles manifestations, de cadeaux, de débordements d’amour, de lumière et de vérité. Car dans la Lumière de l’Amour de Dieu, tout est possible. Vous continuez à vous développer dans ce don. Que ce don continue à se développer en vous, apportant toutes les choses bonnes et merveilleuses dans la merveille de la création et de l’univers de Dieu.
 
 Dieu vous bénisse, mes beaux amis, mes âmes bien-aimées. Puissiez-vous connaître la joie profonde, l’élévation, le soulagement de tous les fardeaux et de toutes les douleurs, l’éveil de toute vérité, la connaissance de toutes choses, qui proviennent de ce grand don d’Amour éveillant les facultés de votre âme. Dieu vous bénisse, mes bien-aimés, je suis Matthieu et je vous remercie pour vos efforts. Je suis avec vous dans vos efforts comme le sont beaucoup, beaucoup d’anges. Que Dieu vous bénisse.
-
-
-

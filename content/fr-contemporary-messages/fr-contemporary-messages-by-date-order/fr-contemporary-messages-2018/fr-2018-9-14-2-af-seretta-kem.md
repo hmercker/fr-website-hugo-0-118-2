@@ -9,9 +9,9 @@ weight:
 ---
 ### Éveiller les autres au but de la vie
 
-Seretta Kem - reçu par Al Fike le 14 Septembre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Septembre 2018, A.R.E.I. Conference <sup id=”a1”>[1](#f1)</sup>, Phoenix, AZ. USA.
 
-Vous avez donc appris beaucoup de choses aujourd’hui.<sup id=”a1”>[1](#f1)</sup> Vous avez rencontré de nombreuses personnes. Vous avez parcouru les couloirs et assisté à ces séminaires comme vous les appelez. Vous avez beaucoup appris et pourtant vous n’avez pas vu de preuves de l’encouragement de l’âme, vous voyez plutôt comment le mental des hommes ont exploré et utilisé les phénomènes naturels qui sont à la disposition de l’humanité. C’est un travail important qu’ils font pour convaincre l’humanité d’un fait très simple : la vie continue. Pourtant, dans votre monde sombre, tant de gens ne peuvent même pas dépasser leur incrédulité face à cette vérité. Tant de gens sont embourbés dans la condition matérielle et ne peuvent pas envisager la pensée même de la mort. Ils ont une grande peur et une grande incompréhension. Alors ces belles âmes travaillent et font de grands efforts pour aider ceux qui sont coincés dans leur scepticisme.
+Vous avez donc appris beaucoup de choses aujourd’hui. Vous avez rencontré de nombreuses personnes. Vous avez parcouru les couloirs et assisté à ces séminaires comme vous les appelez. Vous avez beaucoup appris et pourtant vous n’avez pas vu de preuves de l’encouragement de l’âme, vous voyez plutôt comment le mental des hommes ont exploré et utilisé les phénomènes naturels qui sont à la disposition de l’humanité. C’est un travail important qu’ils font pour convaincre l’humanité d’un fait très simple : la vie continue. Pourtant, dans votre monde sombre, tant de gens ne peuvent même pas dépasser leur incrédulité face à cette vérité. Tant de gens sont embourbés dans la condition matérielle et ne peuvent pas envisager la pensée même de la mort. Ils ont une grande peur et une grande incompréhension. Alors ces belles âmes travaillent et font de grands efforts pour aider ceux qui sont coincés dans leur scepticisme.
 
 Il y a beaucoup d’esprits qui travaillent avec ces âmes. Si vous pouviez imaginer le grand réseau de belles âmes qui assistent ces mortels dans leurs efforts, il est vraiment grand. Il est grand en effet. Pourtant, vous ne voyez pas comment vos efforts se comparent aux leurs. Ce n’est pas aussi flagrant. Ce n’est pas aussi spectaculaire. Ils n’ont pas le cachet des manifestations excitantes qu’ils apportent. Pourtant, le pouvoir de l’amour, le pouvoir de l’amour au sein de vos âmes, mes bien-aimés, peut avoir un effet bien plus grand sur ceux que vous rencontrez, ceux qui cherchent et ceux dont les âmes se languissent. Vous devez garder à l’esprit que vous faites le travail de Dieu, pas le travail de l’homme, mais le travail de Dieu et cela a un impact plus profond sur les âmes de ceux avec qui vous êtes en contact, les âmes qui passent par vous et les âmes tout autour de vous.
 
@@ -29,6 +29,3 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je suis avec vou
 <small>
 
 1. <large id=”f1”> L' A.R.E.I est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
-
-
-

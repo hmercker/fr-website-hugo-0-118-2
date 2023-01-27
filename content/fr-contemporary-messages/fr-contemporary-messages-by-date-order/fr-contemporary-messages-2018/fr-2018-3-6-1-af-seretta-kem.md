@@ -9,7 +9,7 @@ weight:
 ---
 ### Les lois du rapport dans le développement de la voix directe
 
-Seretta Kem - reçu par Al Fike le 6 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 6 Mars 2018, Punaluua, Oahu, HI, USA.
 
 Je souhaite parler de la loi du rapport et de la communication en ce qui concerne le développement de la voix directe. Vous avez lu des articles sur les mécanismes de la médiumnité, sur l’établissement d’une connexion et d’un rapport avec l’instrument en question et sur la façon dont il doit y avoir une résonance vibratoire entre l’instrument et l’esprit qui souhaite communiquer. Ceci est également important pour la communication matérielle. Comme nous vous l’avons dit, âmes bien-aimées, chacun d’entre vous qui fait partie des sept individus qui travaillent ensemble pour ce don peut être utilisé de cette manière pour amener la médiumnité matérielle. Seul l’un d’entre vous, en ce moment, a une profonde familiarité avec les Lois du Rapport et pourtant chacun d’entre vous sera utilisé de cette manière et doit se familiariser avec cette expérience car vous serez utilisé comme un médium pour apporter ces communications.
 
@@ -36,6 +36,3 @@ Chacun d’entre vous est un enfant de Dieu. Chacun de vous le sait. Chacun d’
 Nous poursuivons donc nos efforts. Nous voyons vos progrès. Nous reconnaissons vos désirs sincères qui émanent de vos âmes. Nous continuons à vous entourer et à vous protéger, à vous élever et à vous soutenir. Mais votre responsabilité, mes bien-aimés, est de vous engager avec nous dans cet effort d’élévation et de soutien. Vous devez nous rencontrer à un endroit où nous pouvons travailler étroitement ensemble et être en harmonie, où ces deux instruments, l’instrument de votre âme et l’instrument de nos âmes, peuvent s’harmoniser ensemble, créant des sons si beaux, profonds et résonnants qui atteignent le Père Céleste et apportent une réponse puissante.
 
 Soyez avec Dieu, mes bien-aimés. Vous êtes avec Dieu. Recevez les bénédictions de Son Amour et sachez que vous êtes aimés et sachez que vous devenez l’Amour. Qu’il en soit ainsi, qu’il en soit ainsi. Que Dieu vous bénisse, mes bien-aimés. Je suis votre ami et serviteur, Seretta Kem, et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

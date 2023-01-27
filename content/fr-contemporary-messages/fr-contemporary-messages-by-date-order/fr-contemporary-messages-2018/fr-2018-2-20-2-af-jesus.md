@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour est la clé de l'épanouissement, de la joie et de la paix
 
-Jésus - reçu par Al Fike le 20 Février 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 20 Février 2018, Monroeville, PA, USA.
 
 Je viens, je suis Jésus. Prenez du répit dans cet Amour, cette Lumière que Dieu déverse sur vous mes bien-aimés. Reposez-vous dans cette grande paix de la présence du Créateur.
 
@@ -26,6 +26,3 @@ C’est l’Amour qui est la clé et qui a toujours été la clé d’un grand �
 Cette voie simple est celle qui changera le monde. La voie simple est ce qui vous changera, mes bien-aimés, et vous en viendrez à connaître le monde à travers des yeux différents et à entendre la volonté de Dieu qui peut être exprimée à travers vous, mes bien-aimés.
 
 Puissiez-vous trouver le chemin qui vous est prescrit. Le chemin qui vous est destiné. Le chemin qui vous mènera à l’accomplissement de votre but dans ce monde. Il est clairement exposé devant vous, mes bien-aimés. Ouvrez vos yeux pour voir. Que les écailles soient enlevées et que votre compréhension soit claire alors que vos âmes s’éveillent et que vos esprits acceptent le pouvoir de l’Amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je vous aime. Je vous embrasse. Je suis avec vous. Que Dieu vous bénisse.
-
-
-

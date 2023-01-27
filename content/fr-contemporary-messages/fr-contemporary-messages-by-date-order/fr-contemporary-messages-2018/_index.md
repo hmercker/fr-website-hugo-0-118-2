@@ -214,7 +214,7 @@ Seretta Kem | [La bénédiction transformatrice de l'amour de Dieu](/fr-contempo
 Jésus et les guides spirituels | [Jésus et les guides accueillent le Cercle des Sept](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-1-3-af-jesus-spiritual-leaders/) | 1 Octobre 2018
 St Matthieu | [Tout repose sur l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-2-1-af-st-matthew/) | 2 Octobre 2018
 Seretta Kem | [La naissance de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-2-2-af-seretta-kem/) | 2 Octobre 2018
-Martha | [La prière pour l’Amour Divin ouvre la porte à l’éveil de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-3-1-af-martha/) | 3 Octobre 2018
+Marthe | [La prière pour l’Amour Divin ouvre la porte à l’éveil de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-3-1-af-martha/) | 3 Octobre 2018
 St Matthieu | [Se mettre à nu devant Dieu dans la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-4-1-af-st-matthew/) | 4 Octobre 2018
 Goldie | [Les esprits Célestes dansent avec joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-4-2-mc-goldie/) | 4 Octobre 2018
 Augustin | [Ayez foi dans le timing et la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-4-3-af-augustine/) | 4 Octobre 2018

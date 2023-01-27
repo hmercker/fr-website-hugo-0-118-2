@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu communique de plusieurs façons
 
-Seretta Kem - reçu par Al Fike le 30 Août 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 30 Août 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
 Le souffle de Dieu est sur vous, mes bien-aimés. Il déverse sa lumière, sa paix et son amour dans votre cercle. Durant les moments que vous avez passés ensemble, Dieu vous a tous élevés, vous a bénis de nombreuses façons, vous a donné des idées, vous a encouragés et vous a apporté Son Amour en grande abondance. Vous avez reçu l’instruction de marcher dans le monde avec cette lumière, d’être des canaux d’amour, de vous élever dans cette lumière. Car Dieu répondra effectivement à votre appel et vous amènera dans un lieu de paix, de joie et d’harmonie. Vous n’avez qu’à le demander et il est toujours disponible pour vous. Dans vos âmes, mes bien-aimés, il y a un profond désir pour cette communion dans la lumière, cette paix profonde, cette reconnaissance et cet amour.
 
@@ -39,6 +39,3 @@ C’est votre cadeau, âmes bien-aimées, le cadeau de la vie. Ce que vous faite
 exprimé et accompli, car Dieu vous guidera et vous utilisera et vous nourrira et vous élèvera.
 
 Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous en venir à connaître votre vrai moi, et dans cette connaissance, exprimer vos vrais dons dans l’amour et l’harmonie. Pour être vraiment cet individu magnifique que Dieu a créé et mis en avant pour grandir et progresser dans le monde, dans votre monde et dans le nôtre, ce long et beau voyage vers Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
-
-
-

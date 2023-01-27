@@ -9,7 +9,7 @@ weight:
 ---
 ### Restez concentré
 
-Seretta Kem - reçu par Al Fike le 25 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 25 Mars 2018, Gibsons, Colombie-Britannique, Canada.
 
 Vous vous questionnez sur la différence entre la trans médiumnité et la médiumnité matérielle ou physique. Elles sont tout à fait différentes, âmes bien-aimées. Cet instrument est développé comme un trans médium, utilisant le cerveau, le mental et l’âme. Ainsi, à cet égard, l’utilisation du cerveau a un aspect physique, mais c’est le seul élément qui est impliqué dans la trans médiumnité. Il y a des parties du cerveau, des fonctions du cerveau qui sont reconfigurées et modifiées afin de développer ce don. Avec la médiumnité physique, le corps entier est engagé dans la production de manifestations. Ainsi, chaque cellule du corps, chaque partie du corps est engagée lorsque ce don est utilisé.
 
@@ -38,6 +38,3 @@ Vous êtes en effet les avant-gardes de cela. Vous avez choisi ce cours, cette r
 Pourtant, Dieu continue de vous utiliser comme un canal pour les autres. Permettez à ce flux d’être en équilibre, en harmonie, afin que tout ce qui est destiné à vous être donné et à travers vous le soit au moment et dans le flux de la Volonté de Dieu.
 
 Dieu vous donne beaucoup de choses, âmes bien-aimées. Son Amour continue à se déverser à l’intérieur et de nombreuses bénédictions viennent avec cet Amour. Continuez à vous ouvrir largement, à ressentir les désirs sincères de votre âme, à être cette belle expression de Lumière et de désir, de pureté, de Vérité, d’intégrité, d’harmonie. Soyez dans cette Lumière, mes bien-aimés. Nous sommes dans cette lumière ensemble. Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je suis avec vous dans cette Lumière et je continuerai à parcourir le chemin avec vous. Je ne partirai pas. Mon engagement envers vous est complet. Je ne partirai pas, car mon amour pour vous est profond. Ma connexion d’âme à âme fait de nous des frères et sœurs, des enfants de l’Amour du Père. Je suis avec vous, et je vous aime. Que Dieu vous bénisse.
-
-
-

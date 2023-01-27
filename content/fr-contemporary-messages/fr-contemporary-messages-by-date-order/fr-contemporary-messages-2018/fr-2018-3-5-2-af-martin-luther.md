@@ -9,7 +9,7 @@ weight:
 ---
 ### L’éveil de l’âme, moment après moment, par la prière
 
-Martin Luther - reçu par Al Fike le 5 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 5 Mars 2018, Punaluua, Oahu, HI, USA.
 
 Que les bénédictions et l’Amour de Dieu continuent à se déverser en vous, âmes bien-aimées, et que Sa Grâce vous guide à travers vos journées alors que vous continuez à souhaiter servir le Père Céleste chaque jour et à être un canal d’Amour pour Ses magnifiques interventions sur l’humanité.
 
@@ -34,6 +34,3 @@ Oui, ce réveil ne viendra pas en un éclair ou une révélation. Non, mes bien-
 Vos efforts ne sont pas inutiles. Vos prières ne sont pas sans réponse. Dieu continue à vous porter en avant alors que vous continuez à lutter pour trouver votre chemin, pour devenir plus forts. Le miracle de l’Amour de Dieu continue d’agir en vous. C’est en effet un miracle, un don merveilleux, merveilleux que vous avez reçu et qui vous transforme. Vous regarderez en arrière sur cette période et verrez plus clairement les phases et les étapes que vous étiez censés traverser au cours de votre voyage. Avec le temps, tout ce que vous désirez, âmes bien-aimées, tous ces cadeaux pour lesquels vous avez travaillé si diligemment seront accordés et se manifesteront de manière merveilleuse.
 
 Continuez, mes bien-aimés, continuez de la manière dont vous savez que vous êtes destinés à vous exprimer et à être dans ce monde. Utilisez les vérités que vous connaissez. Considérez ce que vous savez et exprimez-le de manière profonde. Soyez les canaux d’amour de Dieu. Apprenez à connaître Sa Volonté et vous serez vraiment une expression de Son Plan pour le salut de l’humanité d’une manière inimaginable à l’heure actuelle. Cela dépend de vous, comme vous le savez bien. C’est votre choix. Que Dieu vous bénisse, âmes bien-aimées. Je suis Martin Luther. Je continue à travailler avec ma protégée et à l’inclure dans les efforts que vous déployez en ce moment. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

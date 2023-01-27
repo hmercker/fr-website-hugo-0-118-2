@@ -9,7 +9,7 @@ weight:
 ---
 ### De nombreux cadeaux pour le cercle des sept
 
-Fleur de Lotus - reçu par Al Fike le 9 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+Fleur de Lotus - reçu par Al Fike le 9 Janvier 2018, Abbotsford, Colombie-Britannique, Canada
 
 Comme il est bon de vous voir ensemble dans l’Amour. De prier ensemble dans l’Amour, de partager vos intuitions et vos vies ensemble dans cette profonde amitié et ce lien d’Amour. Car n’est-ce pas un grand réconfort de trouver d’autres personnes qui partagent vos expériences et vos idées ? De savoir que vous avez une confiance profonde et une bénédiction ensemble, une harmonie et une résonance de l’être. Et c’est Dieu qui vous apporte ces bénédictions, mes bien-aimés, alors que vous parcourez le monde, vous vous retrouvez les uns les autres dans ce grand flux de la Volonté de Dieu.
 
@@ -26,11 +26,7 @@ Oui, de nombreux dons arrivent mes bien-aimés, qui commencent à émerger comme
 Vous n’avez pas à vous soucier des détails. Vous n’avez pas besoin d’essayer de concocter une image, un personnage, une manière qui n’est pas vraiment de vous, mais simplement la projection d’un autre. Peu importe la sincérité de ceux qui souhaitent vous aider dans ce flux de service à Dieu, l’éveil de l’humanité est prévu pour le salut de tous. Permettez que cela se produise chaque jour dans votre propre éveil personnel, dans votre propre salut personnel. Et en cela tout se mettra en place, dans le timing et le flux qui est requis et en harmonie avec Dieu. Car lorsque vous forcez quelque chose et essayez d’utiliser un don, une bénédiction de Dieu du point de vue de votre esprit, vous déformez ce don, vous retardez et inhibez la croissance de ce don parce que votre esprit essaie de formuler et de tordre les choses selon les désirs de l’esprit. Ce n’est pas ce qui est requis, et ce n’est pas un avantage. Mais marchez vraiment dans la paix, dans la foi, dans la joie et dans l’Amour, en sachant que ce que vous faites à ce moment précis est ce qui doit être et que chaque moment, tant que vous êtes en accord avec Dieu, sera une expression de la Volonté de Dieu, sera en harmonie avec la Volonté de Dieu.
 
 Lorsque le temps viendra pour vous d’aller de l’avant et d’utiliser ces dons de manière puissante et magnifique dans le monde, il n’y aura aucune ambivalence, aucune hésitation. Vous vous épanouirez dans une expression joyeuse et dans de belles et merveilleuses manières qui montrent les bénédictions de Dieu en vous. Soyez en paix mes bien-aimés, soyez sages alors que vous marchez chaque jour en cherchant à exprimer la volonté de Dieu. Soyez fidèles à la volonté de Dieu. Soyez fidèles à vous-mêmes. Faites tout dans l’Amour. Faites tout en harmonie et sachez qu’en vous se trouve un grand trésor de dons et de capacités de l’âme qui continuent à émerger et à montrer leur beauté, leur puissance et leur gloire.
+
 Que Dieu vous bénisse, mes bien-aimés. Je suis Fleur de Lotus et je continue à marcher avec vous. Je continue à vous assister physiquement, spirituellement, dans vos pensées et dans vos efforts pour être plus en harmonie avec votre propre création, votre propre être. Je vois l’émergence de nombreux dons, qui ne sont pas tout à fait en fleur mais qui bourgeonnent, arrivant à ce lieu de vraie beauté et de fruition. Cela vient, et cela vient rapidement, magnifiquement.
 
 Chacun d’entre vous partagera de nombreux dons, car c’est ce qui est prévu et vous devez donc vous soutenir mutuellement. Élevez-vous les uns les autres, âmes bien-aimées, priez les uns pour les autres, donnez de votre cœur, donnez de votre Amour. Que Dieu vous bénisse, mes bien-aimés. Fleur de Lotus vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.arbre
-
-
-
-
-

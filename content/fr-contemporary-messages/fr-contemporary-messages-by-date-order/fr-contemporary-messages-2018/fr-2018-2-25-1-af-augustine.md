@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettez-vous de recevoir l'Amour de Dieu
 
-Augustin - reçu par Al Fike le 25 Février 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 25 Février 2018, Manhattan, New York, USA.
 
 Chères âmes bien-aimées, je suis Augustin, autrefois évêque d’Hippone, il y a de très nombreuses années et je réside actuellement dans le Royaume Céleste. Mon âme a été rachetée par l’Amour, l’Amour de Dieu, et je réside très haut dans ces Cieux, très loin de ce monde, ce monde qui est si dense et difficile.
 
@@ -29,6 +29,3 @@ Dans cette invitation vient l’ouverture d’une porte, le déverrouillage de v
 Que Dieu vous bénisse, mes chers amis. Je suis Augustin et je suis heureux d’être avec vous en ce jour.
 
 Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

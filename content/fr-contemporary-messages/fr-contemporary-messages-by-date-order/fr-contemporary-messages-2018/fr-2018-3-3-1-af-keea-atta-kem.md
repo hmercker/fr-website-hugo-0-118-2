@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu nous tisse dans une tapisserie de lumière
 
-Keea Atta kem - reçu par Al Fike le 3 Mars 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta kem - reçu par Al Fike le 3 Mars 2018, Homosassa Springs, FL, USA.
 
 Je suis Keea. Nous sommes si heureux que vous vous soyez réunis pour aider à renforcer les liens d’amour que vous partagez, pour travailler ensemble à apporter la Vérité de l’Amour de Dieu à ceux qui sont intéressés à recevoir ce message. Vous avez bien travaillé ensemble, âmes bien-aimées, dans l’harmonie et l’amour, et nous sommes heureux de vos efforts. Nous continuons à vous encourager à répandre la Vérité de cet Amour partout où vous allez, avec qui vous êtes. S’ils ont un intérêt quelconque, s’il vous plaît, parlez de cette Vérité. Donnez de l’amour. Soyez une Lumière dans le monde.
 
@@ -24,6 +24,3 @@ Vous êtes bénis, mes bien-aimés. N’êtes-vous pas bénis de vous avoir les 
 Puissiez-vous continuer à grandir dans Son Amour, mes bien-aimés, mes frères et sœurs bien-aimés et chercher la Source qui ouvrira les portes pour ce service qui vient, ces efforts qui sont nécessaires, ce plan qui sera promulgué par les Instruments de Dieu dans ce monde et dans notre monde. Nous allons tous nous rassembler, âmes bien-aimées, dans une grande vague de Lumière et d’Amour, de Vérité et de guérison pour le monde. Ceci est en train de venir. Ne laissez pas vos esprits en douter, mais allez dans vos âmes qui savent que c’est vrai et ressentez le pouvoir de cette connaissance, la joie de cette reconnaissance que vous êtes destinés à travailler ensemble pour l’avancement du Royaume de Dieu par la bénédiction de Son Amour Divin.
 
 Que l’Esprit Saint continue à toucher vos âmes, mes bien-aimés, et vous façonne en cette belle personne que vous êtes censés être, que Dieu a créée avec de si merveilleuses possibilités potentielles. Vous êtes beaux, chacun de vous, de belles Lumières. Et votre lumière brillera. Vous verrez, mes âmes bien-aimées. Vous verrez. Que Dieu vous bénisse. Je suis Keea et je vous aime. Que Dieu vous bénisse.
-
-
-

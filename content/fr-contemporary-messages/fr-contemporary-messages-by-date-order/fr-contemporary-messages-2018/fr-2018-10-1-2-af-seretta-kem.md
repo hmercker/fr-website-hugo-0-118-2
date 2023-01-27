@@ -9,7 +9,7 @@ weight:
 ---
 ### La bénédiction transformatrice de l'amour de Dieu
 
-Seretta Kem - reçu par Al Fike le 1 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 1 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Ahh nous sommes proches de commencer, n’est-ce pas ? Je souhaite commenter la déclaration faite par cet instrument concernant les manifestations ectoplasmiques. Avec le niveau de manifestations dans lequel la chère âme qui a donné la conférence est engagée, ces aspects et éléments sont nécessaires comme il l’a suggéré. Ces individus, ce groupe qui a travaillé sur ce niveau de manifestation pendant de nombreuses années est tout à fait conscient de ce qui est requis. Pour vous, mes bien-aimés, vous vous lancez dans une aventure différente et ces aspects de l’information et les éléments requis pour cette forme de manifestation qui a été discutée ne sont pas pertinents pour cet effort.
 
@@ -24,6 +24,3 @@ Bien-aimés, vous continuez à travailler ensemble et vous continuez à découvr
 Vous êtes en effet des âmes bien-aimées bénies et vous continuerez à être dans la faveur et les bénédictions de Dieu. Son Amour pour vous est immense et vous découvrirez chaque jour une autre facette du diamant qu’est Dieu, une autre façon de voir le monde, une autre façon de vous connaître et de connaître Dieu. C’est un voyage sans fin vers la vérité et vers Dieu. Ce que vous avez vécu jusqu’à présent dans votre vie, c’est comme une goutte dans un vaste océan. Tant d’autres choses sont à venir.
 
 Si grand est l’Univers de Dieu, si merveilleuse est votre capacité à le percevoir et à le connaître. Vous vous êtes réveillés, mes bien-aimés, et vous continuerez à ouvrir vos yeux, vos cœurs, vos âmes, vos esprits à une grande perspicacité et à un amour profond. Que Dieu vous bénisse dans ce voyage, mes chers et bien-aimés amis. Je vous aime tellement. Je suis Seretta Kem. Nous serons proches dans ce temps ensemble, très proches en effet. Que Dieu vous bénisse, que Dieu vous bénisse.
-
-
-

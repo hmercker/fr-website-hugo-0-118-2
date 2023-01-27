@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est temps de dire la vérité
 
-Augustin - reçu par Al Fike le 30 Septembre 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 30 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Vous avez discuté des moyens de communiquer avec vos frères et sœurs, en particulier ceux qui ne comprennent pas ou n’ont pas fait l’expérience de la bénédiction de l’Amour Divin. Vous rencontrerez beaucoup de gens pendant votre séjour sur Terre qui ne connaissent pas votre expérience et ne comprennent pas votre façon de prier. Je vous le dis, âmes bien-aimées, demandez à être guidées lorsque vous tendez la main à un autre ou qu’un autre vous tend la main. Nous vous assisterons et inspirerons en vous les mots à prononcer. Pour que cela se produise, vous devez avoir une appréciation aimante de chaque âme, une compréhension de leur condition et de leur état d’esprit. Grâce à vos perceptions de l’âme, cela est possible, pour vraiment recevoir un aperçu de l’autre d’une manière qui augmente votre propre sens de l’amour et de la compassion pour l’autre.
 
@@ -43,6 +43,3 @@ Je suis avec vous, mes chers amis bien-aimés. Je continue à regarder chaque pe
 Que le Père céleste continue à toucher votre âme profondément, enflammant ces chambres sombres à l’intérieur. Que la chaleur de la lumière de Son Amour puisse créer un tel sentiment de joie, de connaissance et d’amour que ces changements dont je parle puissent être aussi réels et palpables que vous sentiez votre propre corps charnel, que tous puissent être unis dans l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre maître Augustin vous aime. Que Dieu vous bénisse.
-
-
-

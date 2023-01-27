@@ -9,7 +9,7 @@ weight:
 ---
 ### Les anges accompagnent tous ceux qui cherchent l'amour de Dieu
 
-Aron - reçu par Al Fike le 7 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+Aron - reçu par Al Fike le 7 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Aaron. Je viens reconnaître ma chère et bien-aimée sœur qui marque un autre pas sur le chemin de la vie et de l’amour. Qu’elle sache que les anges continuent de l’entourer, elle et sa chère sœur. Avec chaque jour qui vient, la main de Dieu repose sur vous deux et sur tous ceux qui sont ici et qui cherchent la lumière, qui cherchent à s’élever, qui cherchent l’amour de Dieu. La Main de Dieu repose en effet sur vous tous dans ce cercle et dans tous les cercles qui cherchent le plus haut.
 
@@ -22,6 +22,3 @@ Rappelez-vous ceci, âmes bien-aimées, ce sont vos désirs, vos intentions, vos
 Chaque jour est votre défi, chaque jour a le potentiel de grandes bénédictions. Et puissiez-vous continuer à trouver votre chemin vers le haut de cette échelle de lumière, que chaque jour de votre vie puisse approfondir les bénédictions, la compréhension, la conscience de votre âme, une connexion plus profonde avec Dieu. Et en cela, la joie doit être le résultat. La vraie joie, le vrai bonheur, viennent d’une âme qui chante dans la joie de l’amour. Puissiez-vous continuer à être bénis, mes bien-aimés, et je continuerai à vous accompagner, comme le feront de nombreux anges, alors que vous marchez sur cette route de la vie et que vous recherchez une plus grande lumière. Car vous n’êtes jamais seules, âmes bien-aimées, jamais. Dieu est toujours là. Pour ceux d’entre vous qui cherchent cette vérité de l’amour, vous serez toujours accompagnés d’un ange, qui vous protégera et vous guidera, vous enseignera et vous inspirera. C’est le cadeau de Dieu pour vous, mes bien-aimés. C’est le cadeau de Dieu à tous ceux qui cherchent.
 
 Que Dieu vous bénisse. Je suis Aaron et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

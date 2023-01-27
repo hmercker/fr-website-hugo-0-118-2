@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez l'amour qui vous portera à travers les changements
 
-St Jean - reçu par Al Fike le 24 Février 2018, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 24 Février 2018, Hollis Woods Community Church, Queens, New York, USA.
 
 Ce lieu sera un refuge pour vous, mes bien-aimés, dans les temps à venir. Car il y a de grands changements à venir dans ce monde et il y a des moments où vous aurez besoin les uns des autres, et vous aurez besoin du réconfort de Dieu dans vos vies. Je vous exhorte à vous regrouper en communauté, à travailler ensemble pour aider les nombreuses âmes qui seront dans le besoin, qui seront confuses et désemparées.
 
@@ -19,6 +19,3 @@ Vos âmes cherchent cela, mes bien-aimés. Vos âmes cherchent à être dans le 
 Chacun de vous suit un chemin différent. Chacun de vous voit le monde différemment, mais ensemble vous avez une grande vision et une profonde conscience, et cela s’approfondira et se renforcera à mesure que vous continuerez à grandir dans vos âmes et à vous éveiller à cette partie de vous qui continue à désirer grandir et à se former dans l’Amour. Écoutez vos cœurs, âmes bien-aimées et sachez que Dieu entend vos prières et vos désirs. Vous serez bénies et ceux que vous aimez seront bénis et ceux qui viennent seront bénis. Dieu touchera tous ceux qui désirent être dans la Lumière.
 
 Que Dieu vous bénisse. Je suis Jean le Bien-Aimé et je vous aime. Je vous aime. Que Dieu vous bénisse.
-
-
-

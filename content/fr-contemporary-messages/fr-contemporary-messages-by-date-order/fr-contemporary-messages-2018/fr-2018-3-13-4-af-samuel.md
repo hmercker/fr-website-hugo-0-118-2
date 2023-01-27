@@ -9,7 +9,7 @@ weight:
 ---
 ### Le changement est la constante de l’univers
 
-Samuel - reçu par Al Fike le 13 Mars 2018, Gibsons, Colombie-Britannique, Canada.
+Samuel - reçu par Al Fike le 13 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 
 Je m’appelle Samuel. Je suis venu vous parler aujourd’hui des changements dans votre vie et des changements qui arrivent dans ce monde. Il y a une constante dans l’univers de Dieu et c’est le changement.
 

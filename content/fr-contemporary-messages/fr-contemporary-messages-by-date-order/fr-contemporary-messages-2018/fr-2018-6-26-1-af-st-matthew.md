@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer le jugement et embrasser l'amour
 
-St Matthieu - reçu par Al Fike le 26 Juin 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 26 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Chaque jour présente ses défis, n’est-ce pas, mes bien-aimés ? Chaque jour, Dieu vous encourage à faire un pas de plus sur l’échelle de la Lumière, à être plus pur dans vos pensées, plus aimant dans vos actions, plus aligné avec Dieu de toutes les façons. Vous avez eu une discussion concernant vos comportements, vos jugements, vos désirs, vos perceptions des autres et de vous-même. Ces prises de conscience vous aident à réaliser les choix que vous devez faire afin de progresser effectivement dans la Lumière. Vous ne pouvez pas marcher sur ce chemin d’Amour sans comprendre les étapes que vous devez franchir afin d’aimer plus pleinement non seulement vous-mêmes, mais aussi les autres.
 
@@ -30,8 +30,3 @@ Demandez et vous recevrez, mes bien-aimés. Demandez la force et l’aide pour d
 Chaque jour, mes bien-aimés, est un cadeau, un test et une occasion d’accomplir cette demande de Dieu de porter la Lumière et d’être la Lumière. Vous êtes suffisamment forts, mes bien-aimés, au sein de vos âmes. Chacune de vos âmes porte cette Vérité et cet amour. Vous savez en vous-mêmes ce qui vous empêche d’exprimer véritablement l’amour dans vos vies et envers vous-mêmes. Cette dichotomie entre le mental et l’âme continuera à jouer son drame aussi longtemps que vous choisirez de permettre au mental de dominer à cet égard. C’est votre choix. Mais je répète que vous êtes suffisamment forts pour surmonter ces conditions, à condition que vous vous appuyiez sur la force de vos âmes, sur l’assistance qui vous est donnée gratuitement par nous qui vous aimons et sommes avec vous, et sur le pouvoir de la Bénédiction de Dieu sur vous.
 
 Vous avez accès à la plus grande puissance de l’univers pour la Lumière et le changement. Utilisez ce qui vous est donné et ce qui peut vous être donné librement afin de surmonter ces conditions, ces vestiges de la condition humaine qui résident encore en chacun de vous à un certain degré. Cherchez l’Amour de Dieu et tout viendra. En effet, avec le temps, vous serez complètement guéris. Mais c’est maintenant le meilleur moment, la plus grande opportunité de chercher cette guérison. Chaque jour est une occasion de gravir un échelon de plus sur cette échelle. Puissiez-vous le faire, mes bien-aimés, mes magnifiques amis. Cherchez à aimer, à pardonner, à avoir de la compassion. Tous les grands cadeaux, toutes les merveilleuses opportunités de servir dans l’amour, toutes les compréhensions et les connaissances de l’âme viendront. Plus important encore, de plus grands afflux de l’Amour de Dieu se déverseront en vous alors que vous éliminerez une barrière après l’autre avec la prière et la foi, la force et la discipline. Que Dieu vous bénisse, mes bien-aimés, je suis Matthieu, et je vous aime. Que Dieu vous bénisse.
-
-
-
-
-

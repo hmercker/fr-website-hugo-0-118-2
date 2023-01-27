@@ -42,6 +42,3 @@ Elle pénètre profondément dans l’univers, mes bien-aimés, cette lumière. 
 **Jésus**
 
 Les enfants connaîtront toujours la présence de Dieu. Vous êtes les enfants de Dieu, vous êtes mes frères et sœurs et vous êtes beaux dans vos lumières mes bien-aimés, beaux dans vos lumières. Les anges se pressent autour de vous, ils vous soutiennent dans ces entreprises, ils vous apportent tout ce dont vous avez besoin pour réussir dans votre entreprise. Que l’Amour du Père continue à se déverser dans vos âmes, renforçant, éveillant, élargissant vos âmes afin que vous puissiez vraiment être ce bel enfant de Dieu que vous êtes. Que Dieu vous bénisse, je suis avec vous. Je suis votre frère et votre ami. Je suis Jésus. Mon Amour aussi est avec vous tous, toujours et pour toujours. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

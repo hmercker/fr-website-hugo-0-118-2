@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour de Dieu vous ouvre les portes de l'entendement
 
-Isaïe - reçu par Al Fike le 21 Février 2018, Gibsons, Colombie-Britannique, Canada
+Isaïe - reçu par Al Fike le 21 Février 2018, Monroeville, PA, USA.
 
 Je suis Isaïe. Dieu vous a réunis, mes bien-aimés. Sa main est sur chacun d’entre vous. Rappelez-vous que les bénédictions que vous avez reçues pendant le temps que vous passez ensemble seront partagées avec ceux que vous aimez, que beaucoup de choses s’écoulent vers eux comme vers vous, mes bien-aimés. Vous êtes dans cette grande vague de Lumière et d’Amour.
 
@@ -26,6 +26,3 @@ Je vous prie d’utiliser ce cadeau, mes bien-aimés, d’utiliser la connaissan
 Je vous exhorte donc à boire profondément, mes bien-aimés. Allez à la source de l’Amour de Dieu et cherchez ce dont vous avez soif, ce désir profond en vous d’étancher cette soif d’Amour. Il est à vous, mes bien-aimés. Il est à vous.
 
 Que Dieu vous bénisse. Je suis Isaïe de la Bible et un habitant du Royaume Céleste. Et je vous aime, âmes bien-aimées. Tous les enfants qui cherchent la Vérité et reconnaissent la puissance et la gloire de l’Amour de Dieu sont mes frères, mes frères et sœurs. Que Dieu vous bénisse et vous garde dans cette Lumière. Que Dieu vous bénisse.
-
-
-

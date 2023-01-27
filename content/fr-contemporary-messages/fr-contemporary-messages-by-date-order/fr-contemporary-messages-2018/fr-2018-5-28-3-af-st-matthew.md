@@ -9,7 +9,7 @@ weight:
 ---
 ### La différence entre l'âme et l'esprit
 
-St Matthieu - reçu par Al Fike le 28 Mai 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 28 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je m’appelle Matthieu. Je souhaite parler de la différence entre vos esprits, l’esprit matériel (le mental) et l’âme, puisque ce sujet a été évoqué dans vos discussions et que c’est un défi difficile pour chacun d’entre vous de délimiter le mental et l’âme, de connaître la différence entre les connaissances de votre âme et les pensées de votre mental. Pourtant, pour être véritablement connecté au Créateur, qui est entièrement constitué d’âme, il faut apprendre à connaître les capacités, la profondeur et l’étendue de chaque âme, de votre propre âme.
 
@@ -28,6 +28,3 @@ Ressentez-le maintenant, mes bien-aimés. Sentez l’Amour de Dieu qui vous atte
 Que ce cadeau soit le vôtre, âmes bien-aimées. En effet, il y a ceux ici qui le savent bien et certains d’entre vous sont curieux et s’interrogent et ressentent ce sentiment de paix et d’Amour. Vous goûtez quelques gouttes de ces Eaux Vives mais Dieu vous exhorte à boire profondément, car vous avez soif, mes bien-aimés, vous avez soif de cela et c’est ici pour vous, le grand rush de Son Amour, apaisant vos âmes et vous apportant ce que vous cherchez et désirez.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et je vous aime tendrement, âmes précieuses qui cherchent la Vérité, la Guérison et l’Amour. Puissiez-vous trouver tout ce que vous cherchez au sein de l’étreinte de Dieu. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

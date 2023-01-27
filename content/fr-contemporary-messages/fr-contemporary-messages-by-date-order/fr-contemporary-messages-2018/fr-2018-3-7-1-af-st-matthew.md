@@ -9,7 +9,7 @@ weight:
 ---
 ### Prédire l'avenir n'est pas possible à 100 %
 
-St Matthieu - reçu par Al Fike le 7 Mars 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 7 Mars 2018, Punaluua, Oahu, HI, USA.
 
 Je suis Matthieu et je souhaite aborder le sujet des changements à venir dans le monde en relation avec votre compréhension et vos préparations concernant ces changements.
 
@@ -46,6 +46,3 @@ Jusqu’à ce que cela soit votre réalité, vous ne pouvez pas connaître le fu
 J’espère avoir apporté un peu de clarté à un sujet difficile. Il est plutôt ironique que je doive parler à votre mental pour comprendre ces questions très complexes et subtiles que vos âmes peuvent facilement comprendre. Nous poursuivons donc nos efforts pour apporter la Vérité au monde et la Vérité à vous-mêmes, pour apporter l’Amour au monde et l’Amour à vous-mêmes, pour être avec Dieu et être dans le monde avec Dieu, et pour permettre à l’influence de Dieu, à la puissance de la Volonté de Dieu d’être votre Lumière directrice alors qu’Il déverse en vous des prises de conscience plus profondes, une compréhension plus profonde, une plus grande sagesse. Que Son Amour continue à travailler sa bénédiction sur vos âmes et apporte les changements qui sont si vitalement nécessaires à votre conscience afin que vous puissiez vraiment être un canal clair d’Amour et de Vérité dans ce monde, qui continue à être, qui continue à évoluer.
 
 Que Dieu vous bénisse, mes amis. Je suis Matthieu et mon amour est avec vous. Que Dieu vous bénisse car Il vous gardera en sécurité et vous montrera le chemin vers une plus grande Lumière. Que Dieu vous bénisse.
-
-
-

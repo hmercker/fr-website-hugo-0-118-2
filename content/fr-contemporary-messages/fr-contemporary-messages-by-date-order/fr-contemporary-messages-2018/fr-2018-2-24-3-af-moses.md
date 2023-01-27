@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez la source de tout amour, vérité et lumière
 
-Moïse - reçu par Al Fike le 24 Février 2018, Gibsons, Colombie-Britannique, Canada
+Moïse - reçu par Al Fike le 24 Février 2018, Hollis Woods Community Church, Queens, New York, USA.
 
 Je suis Moïse, le Moïse de la Bible. Tant de personnes dans votre monde dérivent sur une mer de désespoir. Perdus et confus, ils ne se connaissent pas eux-mêmes. Ils ne savent pas pourquoi ils sont dans ce monde. Ils ne voient pas de direction dans leur vie. Ils ne se sentent pas vraiment aimés. Et pourtant, en ces moments passés ensemble dans ce cercle, vous vous reposez sur une mer différente, une mer d’Amour. Une mer qui est la Présence de Dieu parmi vous.
 
@@ -26,6 +26,3 @@ Ce sont des vérités importantes, mes frères et sœurs. Prenez-les dans votre 
 Les Anges Célestes de Dieu seront avec vous si vos désirs sont sincères et vos efforts sûrs. C’est ainsi que Dieu vous atteint, mes bien-aimés. C’est ainsi que Dieu atteint chaque âme. Il attend vos prières, vos efforts pour être avec Lui. Ce n’est qu’un moment de votre effort. C’est un scintillement de lumière de votre âme envoyé à Dieu et la réponse que vous recevez est magnifique, belle, puissante, joyeuse.
 
 Soyez avec Dieu maintenant, mes chers enfants. Soyez avec Lui. Libérez vos barrières, vos inhibitions, vos jugements et venez connaître Dieu, qui est impatient, impatient de faire partie de vos vies. Que Dieu vous bénisse, mes bien-aimés. Je suis Moïse et je viens à vous dans l’Amour. Que Dieu vous bénisse.
-
-
-

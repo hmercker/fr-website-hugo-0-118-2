@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière pour provoquer le changement
 
-Augustin - reçu par Al Fike le 16 Avril 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 16 Avril 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant Augustin. Le pouvoir de l’Amour, mes bien-aimés, le pouvoir de l’Amour pour changer ce monde – vous devez vous concentrer sur cette prière et le désir de rechercher cet Amour, d’encourager et d’inspirer les autres à rechercher la bénédiction de l’Amour du Père.
 
@@ -28,8 +28,3 @@ Puissiez-vous continuer à être dans l’Amour du Père, dans le flux de Son Am
 Vous verrez ces changements au cours de votre vie, mes bien-aimés. Ayez la foi que vous participerez au Plan de Dieu pour le salut de l’humanité. Dieu vous porte, mes âmes bien-aimées, vous porte sur ce chemin. Vous serez bénis et protégés. Vous apprendrez à connaître votre véritable moi et vous réaliserez les grandes capacités et la force qui accompagnent votre âme éveillée. Ayez la foi, cherchez toujours la Source. Soyez toujours avec Dieu. Beaucoup de choses se réaliseront parce que vous avez eu la foi et la force intérieure de soutenir la Lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin, toujours à vos côtés. Que Dieu vous bénisse. Que Dieu vous bénisse, mes âmes bien-aimées.
-
-
-
-
-

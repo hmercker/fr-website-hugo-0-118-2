@@ -9,7 +9,7 @@ weight:
 ---
 ### Qui apportera la vérité à ce monde ?
 
-Professeur Salyards - reçu par Al Fike le 21 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 21 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis le Professeur Salyards. J’ai pris un vif intérêt à votre travail ensemble. Je suis avec vous depuis le début.
 
@@ -22,6 +22,3 @@ Il n’y a pas de temps à perdre, mes bien-aimés, il n’y a pas de temps perd
 Je tiens à souligner que même si vous ne réussissez pas avec ce cadeau, vous apporterez cette Vérité. Vous apporterez d’autres cadeaux. Ils ne dépendent pas uniquement de la réalisation de ce don de la voix directe, mais ce don suscitera un grand intérêt et une grande prise de conscience, et il vaut la peine d’être poursuivi. Nous faisons donc tous les efforts possibles pour apporter tous les dons possibles pour aider à réveiller l’humanité. Pour apporter une condition différente à ce monde, une condition de plus grande lumière et de plus grande harmonie. Ainsi, ceux qui sont disposés et désireux de faire ce travail recevront tous les moyens nécessaires pour accomplir ces tâches et apporter ces vérités. Ainsi, nous continuons à travailler avec diligence, sans relâche, constamment pour apporter les conditions qui sont nécessaires pour changer ce monde et apporter une plus grande Lumière et une plus grande harmonie.
 
 Je vous remercie de m’avoir écouté. Je suis très heureux de pouvoir m’adresser à vous. Je continue à travailler avec vous mes amis. Je continue à travailler dans ce monde de toutes les manières possibles, car cela apporte une grande joie à mon âme, une grande joie. Je suis béni dans mes efforts comme vous l’êtes. Que Dieu vous bénisse. Que Dieu vous bénisse, mes chers amis. Professeur Salyards à votre service. Que Dieu vous bénisse.
-
-
-

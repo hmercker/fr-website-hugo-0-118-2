@@ -9,7 +9,7 @@ weight:
 ---
 ### Communiquez d'âme à âme
 
-Keea Atta Kem - reçu par Maureen Cardoso le 6 Octobre 2018, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 6 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 IL y a une croissance instrumentale en chacun de vous, l’expansion de vos âmes qui fusionnent avec votre mental. Vous sentez et ressentez à différents moments la plus grande harmonie qui existe en vous et la force que cela vous donne dans votre expression, dans la joie que vous ressentez dans votre être.
 
@@ -22,6 +22,3 @@ Bien sûr, cela ne signifie pas qu’il ne faut pas communiquer verbalement, mai
 Accordez-vous à l’âme d’un autre. Commencez à ressentir comment votre âme communie. Permettez à cet exercice de s’exprimer dans votre vie, mes bien-aimés. Il apportera une paix profonde, de la joie, de la clarté et un sens du but selon la manière dont vous vous reliez à ceux que Dieu place devant vous. Rien n’est aléatoire dans vos vies. Voyez l’œuvre de Dieu dans chaque pas que vous faites et dans ce qui se présente à vous. Voyez l’œuvre de Dieu, le déroulement de son plan. Permettez à cela d’être votre manière dominante d’exprimer, de recevoir et d’aimer ce qui se présente à vous. Renforcez vous dans cette tâche mes bien-aimés ; renforcez vous dans cette façon d’être dans le monde.
 
 C’est une si grande bénédiction de faire partie et de travailler ensemble avec des âmes bien-aimées sur cette terre qui aspirent à grandir en amour, en force et en harmonie. Je vous apporte mon amour, les couleurs vives et les lumières de Dieu pour bénir chacun de vous. Que Dieu vous bénisse dans votre journée dans ce voyage continu. Je vous aime. Je suis Keea Atta Kem et je suis souvent avec chacun de vous. Que Dieu vous bénisse, je vous aime.
-
-
-

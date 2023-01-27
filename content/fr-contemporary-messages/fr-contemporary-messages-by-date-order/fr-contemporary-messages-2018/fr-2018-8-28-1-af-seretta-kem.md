@@ -9,7 +9,7 @@ weight:
 ---
 ### Élevez vos dons grâce à l'Amour Divin
 
-Seretta Kem - reçu par Al Fike le 28 Août 2018, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 28 Août 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Certains d’entre vous me connaissent bien tandis que d’autres ne me connaissent pas. J’ai vécu en Égypte il y a plusieurs milliers d’années. Je suis un guérisseur et un chimiste. Je travaille avec les mortels qui désirent développer leurs dons et qui souscrivent également à la voie de l’Amour Divin. Je suis un habitant du Royaume céleste et, comme beaucoup d’autres qui vivent dans ces magnifiques royaumes, je viens aider les mortels dans leur croissance spirituelle et l’éveil de leur âme.
 
@@ -32,5 +32,3 @@ Beaucoup d’entre vous ici connaissent ces dons dont je parle et certains ne le
 Chacun de vous souhaite dans son âme être un canal d’amour, un instrument de bénédictions. Vous souhaitez utiliser vos dons de cette manière. Ces dons naissent de votre expression de l’amour. Cela doit être le fondement même de tout ce que vous faites. Plus l’amour est puissant en vous et plus vous l’exprimez clairement, plus vous obtiendrez de résultats dans votre service et l’expression de vos dons. C’est simple. L’univers de Dieu coule et fonctionne selon des lois simples mais profondes. Si l’on suit ces lois, si l’on comprend le processus, le succès sera au rendez-vous de bien des manières et dans bien des dimensions. Nous vous encourageons donc à nouveau à ouvrir vos âmes à l’afflux de l’Amour de Dieu. Cherchez Dieu par-dessus tout et vos dons s’épanouiront dans ce seul désir du plus haut.
 
 Dieu vous bénisse, mes bien-aimés, je suis Seretta Kem. Je suis avec vous alors que vous priez et que vous êtes ensemble. Nous mélangeons les produits chimiques et les énergies parmi vous pour vous aider à réaliser ces dons qui sont en vous, des potentiels qui attendent d’être réalisés. Vous pouvez ressentir différentes sensations et énergies. Vous pouvez percevoir des lumières, des couleurs, beaucoup de choses. C’est notre travail. Bien que vous ne perceviez pas en détail ce que nous faisons, vous pouvez avoir un aperçu, un sens de nos efforts. Que Dieu vous bénisse avec une profonde perspicacité et de profondes connaissances de l’âme afin que vous puissiez démêler les mystères de l’univers, que vous puissiez connaître la merveille de l’Amour. Que Dieu vous bénisse, mes bien-aimés, et vous garde dans ses soins. Mon amour est avec vous. Je suis Seretta Kem. Que Dieu vous bénisse.
-
-

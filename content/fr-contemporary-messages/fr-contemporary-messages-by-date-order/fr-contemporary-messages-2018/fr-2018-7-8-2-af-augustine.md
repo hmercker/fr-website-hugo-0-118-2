@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisirez-vous la transformation de l'âme par l'Amour Divin ?
 
-Augustin - reçu par Al Fike le 8 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 8 Juillet 2018, Atelier de médiumnité Divine Love à la librairie Serendipity, White Rock, Colombie-Britannique, Canada.
 
 Je suis Augustin, un enseignant, et je réside dans les Cieux Célestes. La lumière que vous ressentez ici parmi vous dans ce cercle n’est pas une expérience commune à l’humanité. En fait, peu savent comment attirer cette lumière à eux. Pourtant, cette lumière est disponible pour chaque âme dans votre monde. Chaque âme peut faire l’expérience du profond toucher de Dieu, peut avoir son âme bénie par Son Amour et peut connaître la joie profonde qui accompagne cette bénédiction.
 
@@ -22,6 +22,3 @@ Utilisez votre temps avec sagesse, âmes bien-aimées. Cherchez ce qui est le pl
 Puissiez-vous trouver et parvenir à connaître les désirs de vos âmes, et être ainsi inspirés par un plus grand bien, une guérison profonde, une joie merveilleuse et une paix sans mesure. C’est à vous de le demander, âmes bien-aimées. Dieu répond à toutes les prières sincères. En priant pour sa bénédiction d’Amour Divin, Dieu vous assignera un ange qui vous accompagnera dans votre voyage. Vous pouvez avoir plusieurs anges avec vous, selon ce que vous choisissez, ce que votre voyage implique, comment vous servez. Dieu vous bénisse, âmes bien-aimées, et vous garde dans Sa Lumière et Son Amour. Nous sommes avec vous. Vous n’êtes jamais seuls. Approchez-vous de nous et vous nous connaîtrez.
 
 Approchez-vous de Dieu et vous connaîtrez l’univers. Que Dieu vous bénisse mes bien-aimés, je suis Augustin et je vous aime. Que Dieu vous bénisse.
-
-
-

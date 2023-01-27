@@ -9,7 +9,7 @@ weight:
 ---
 ### L'éveil de l'âme
 
-Marie - reçu par Al Fike le 9 Juillet 2018, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 9 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Puisse l’Amour du Père continuer à se déverser dans vos belles âmes et vous porter toujours plus près de la fontaine de tout amour, embrassés par Dieu, guéris et élevés alors que Son Amour continue à purifier vos âmes et à élever vos cœurs et à vous amener dans cette grande lumière et cette joie et cette paix. Puissiez-vous continuer à embrasser beaucoup de gens sur votre chemin, à être un canal d’amour partout où vous allez, âmes bien-aimées, et à attirer les autres près de vous alors que vous donnez et nourrissez ces âmes qui cherchent le réconfort, la paix et la vérité. Que leurs âmes soient ouvertes à la bénédiction de l’Amour du Père, éveillées dans l’amour, baignées dans l’amour et guéries dans l’amour.
 
@@ -28,8 +28,3 @@ Vous continuerez à toucher de nombreuses âmes, mes bien-aimés. Et maintenant 
 Puissiez-vous continuer sur ce chemin, âmes bien-aimées. Continuez à vous éveiller à la merveilleuse vérité de l’Amour et du Toucher de Dieu sur vous et nous vous accompagnerons dans ces voyages d’éveil et de service. Notre amour est avec vous, âmes bien-aimées. L’Amour de Dieu vous entoure et tout est baigné de lumière.
 
 Dieu vous bénisse, mes bien-aimés, je suis Marie et je vous aime profondément. Vous êtes mes enfants dont je prends soin et pour lesquels je prie et je cherche à vous apporter une plus grande vérité alors que vous grandissez dans l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Que Dieu vous bénisse.
-
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Faire entrer la volonté de Dieu dans ce monde
 
-Marc - reçu par Al Fike le 3 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 3 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, Marc, l’apôtre, et je souhaite commenter vos discussions et la réception de conseils. Chacun de vous a été inspiré ces derniers temps. Chacun d’entre vous a une vision différente et des idées, des concepts et des désirs. Ces choses jaillissent de vos âmes, car Dieu jette de nombreuses graines d’inspiration dans ce monde, et certaines s’accrochent à l’intérieur de vous-mêmes et certaines s’avancent dans votre conscience. Selon la progression de votre âme et la volonté de votre esprit, une vision ou une aspiration devient claire, pleine de corps et de détails, de couleurs, de sentiments et de compréhensions attentives. Le tout éclairé par la Lumière de Dieu. Ainsi, alors que vous êtes inspirés de cette manière, à votre manière unique, une excitation s’élève en vous, un enthousiasme, un désir profond d’accomplir la volonté de Dieu, d’être dans le flux de son plan pour le salut de l’humanité.
 
@@ -30,6 +30,3 @@ Vous accomplirez beaucoup dans ce monde, de sorte que ces visions et inspiration
 Vous commencez tout juste à vous éveiller, mes bien-aimés, vous commencez tout juste à vous éveiller, à vous éveiller à votre propre personne, aux possibilités de vos âmes, aux possibilités de vos vies infusées par la touche de Dieu. Continuez à maintenir cette flamme vivante et plus brillante avec chaque jour et marchez dans ce monde dans la foi et la confiance, l’amour et le service. Par des moyens infimes, même subtils, un regard sur l’autre, un sourire, un toucher – c’est le service de Dieu. Pourtant, il y a des moments où ce que vous faites est remarquable et puissant et est vu par beaucoup. Ce sont les possibilités de chaque jour, et vous construisez vers l’accomplissement du plan de Dieu pour vous et vos vies uniques. Cela se fait étape par étape, prière par prière, avec des indices et des réveils de l’âme et de l’esprit. Tout cela vient dans ce grand et puissant courant d’amour de Dieu qui vous a enveloppé et vous porte toujours plus loin et plus près de Lui.
 
 Permettez à Dieu de vous porter, mes bien-aimés, et de vous garder près de son sein, de vous garder dans la lumière de son amour. Tout ira bien, mes chers et beaux amis. Vous êtes des Lumières dans le monde et vous continuerez à l’être. Vous êtes beaux d’âme, vos expressions sont nouvellement formées, innocentes, et protégées par la Main de Dieu. Puissiez-vous continuer, âmes bien-aimées, sur ce chemin d’éveil et de service dans l’Amour. Que Dieu vous bénisse. Je suis Mark et je vous aime. Merci de m’avoir écouté. Et je continuerai à vous aider sur ces voyages d’éveil. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

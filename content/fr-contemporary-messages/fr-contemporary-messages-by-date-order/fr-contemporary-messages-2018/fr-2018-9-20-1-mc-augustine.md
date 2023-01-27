@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chemin de l'Amour Divin est la voie de l'âme
 
-Augustin - reçu par Maureen Cardoso le 20 Septembre 2018, Abbotsford, Colombie-Britannique, Canada
+Augustin - reçu par Maureen Cardoso le 20 Septembre 2018, FUSC, Burnaby, Colombie-Britannique, Canada
 
 Il est bon de vous voir réunis en prière dans ce beau sanctuaire, ce Centre de Lumière. En effet, vous avez eu ce soir une conversation que vous avez basée sur plusieurs de ses aspects comme : *« Que se passe-t-il dans ce Cercle de Lumière ? »* *« Quel est le but de ce voyage ? »* Il est bon d’entendre chacun de vous partager ce que vous avez appris à connaître, la vérité qui repose sur votre âme, ces enseignements que vous avez testés et que vous avez pris comme votre vérité. Cela va continuer à croître et à se développer. Une plus grande compréhension viendra à vos âmes, mais aussi à vos esprits.
 
@@ -20,6 +20,3 @@ Il s’agit d’un chemin simple, mais profond, et nous vous encourageons à ajo
 Bien-aimés, vous êtes grandement surveillés et de nombreux anges entourent ceux qui prient pour l’Amour Divin. C’est l’un des grands cadeaux que Dieu accorde à ses enfants de la terre. Ceux qui prient pour cet Amour ont des Anges Célestes près d’eux. Nous désirons vous servir et être proches de vous, alors continuez à tendre la main. Tendez la main de vos âmes. Tendez la main depuis la tendresse de votre cœur, en permettant au magnifique Créateur, le dispensateur de toutes les actions et de tous les dons bons et parfaits, de vous bénir puissamment.
 
 Que Dieu bénisse chacun d’entre vous. Je suis votre enseignant, Augustin, et je vous remercie de m’avoir permis de parler ce soir. Que Dieu vous bénisse.
-
-
-

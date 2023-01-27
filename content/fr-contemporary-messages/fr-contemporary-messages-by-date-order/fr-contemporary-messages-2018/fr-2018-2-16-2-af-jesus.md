@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos efforts feront de cette église un centre de lumière
 
-Jésus - reçu par Al Fike le 16 Février 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 16 Février 2018, Hollis Woods Community Church, Queens, New York, USA.
 
 Je suis Jésus et je viens vous bénir parce que vous cherchez à servir notre Père Céleste, vous cherchez à apporter l’Amour aux enfants qui crient, vous cherchez à apporter de plus grandes bénédictions à vos propres âmes. Toutes les âmes qui cherchent le plus haut, qui connaissent la grande bénédiction de l’Amour du Père auront mes bénédictions, seront dans mes prières et seront servies par les anges qui portent la Volonté de Dieu dans ce monde.
 
@@ -24,6 +24,3 @@ Vous vous tenez au seuil, vous regardez le monde et vous vous demandez pourquoi 
 Continuez vos efforts et vos prières, continuez à chercher à servir de cette manière. Ce Centre de Lumière qui existe dans le monde sera connu dans le monde. Mais vous devez en parler. Vous devez montrer le chemin aux âmes perdues afin qu’elles puissent trouver les trésors que cet endroit a à offrir. Lorsque les événements se déroulent de manière inattendue et que vous vous sentez parfois seuls et frustrés face à ces éléments et ces forces qui veulent travailler contre la Lumière, allez vers Dieu, mes bien-aimés, allez vers Dieu et cherchez Son réconfort, Son Amour, Sa sagesse pour vous donner la force de continuer et de poursuivre cet effort car Dieu vous bénira puissamment, mes bien-aimés. Dieu vous donnera ce dont vous avez besoin pour aller de l’avant, pour maintenir ces portes ouvertes et pour amener de nombreuses âmes parmi vous. Il faut de la ténacité, un engagement, une force de foi pour faire ce travail, mes bien-aimés. Car c’est un travail profond et nécessaire, qui exige votre concentration, votre volonté, qui exige que vous puissiez connaître vos âmes, connaître les désirs de vos âmes et connaître la volonté de Dieu. Pouvez-vous aller à cet endroit qui est en vous et qui atteint Dieu comme Dieu vous atteint et permettre à cette communion d’être le roc dans votre vie qui informera vos actions de service à Dieu, qui informera l’Amour dans tout ce que vous faites ?
 
 Tant de choses vous attendent, mes bien-aimés, tant de choses. Puissiez-vous surmonter tous les obstacles et les barrières sur votre chemin. Que Son Amour béni coule en vous en permanence, vous élevant, vous informant, vous montrant le chemin. Mon amour et mes prières sont avec vous. Vous faites mon travail et je marcherai toujours avec vous, mes âmes précieuses. Je marcherai avec vous et vous soutiendrai et j’éclairerai le chemin, j’éclairerai le chemin vers la voie voulue par Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis Jésus. Je t’aime.
-
-
-

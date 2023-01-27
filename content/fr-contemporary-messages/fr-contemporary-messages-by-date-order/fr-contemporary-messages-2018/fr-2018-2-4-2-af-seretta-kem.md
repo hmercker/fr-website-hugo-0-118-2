@@ -9,7 +9,7 @@ weight:
 ---
 ### Les changements de l'âme intérieure se manifesteront dans vos vies
 
-Seretta Kem - reçu par Al Fike le 4 Février 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 4 Février 2018, Gibsons, Colombie-Britannique, Canada.
 
 Mes amis, c’est Seretta Kem. Il est bon de vous voir vous déplacer dans le monde, pour suivre les urgences de vos âmes, pour servir de canaux de l’Amour du Père dans le monde. Dieu vous guide ainsi, mes amis bien-aimés, il vous guide vers différents endroits, il vous guide vers beaucoup d’autres âmes comme nous l’avons promis et vous découvrirez que vous serez appelés à dire la Vérité de l’Amour de Dieu et à en être une expression, un exemple pour les autres, à en parler et à en faire la démonstration. Tout est en préparation de ce qui est à venir. Comme les oisillons, ils doivent battre des ailes et essayer de voler. Pour utiliser leurs dons et voir ce qui vient alors qu’ils atteignent la Lumière de Dieu et la Vérité de Dieu, afin qu’elle puisse s’exprimer plus pleinement en chacun de vous, âmes bien-aimées. Et que vous puissiez marcher dans cette Lumière sans être gênés par l’erreur, la peur, la confusion et être dans le vrai flux de l’Amour du Père, de sorte que tout ce que vous pouvez faire dans votre monde, chaque jour de votre vie, puisse être d’une certaine manière une expression et un reflet de l’Amour Divin qui réside en vous.
 
@@ -30,6 +30,3 @@ Même si parfois les choses semblent différentes, quelque peu étranges, désor
 Que vos voyages soient rapides, mes bien-aimés. Que vos réveils soient joyeux. Que vos pas soient sûrs, que vos efforts soient clairs et que tout ce que vous êtes soit une expression parfaite de la glorieuse Création de Dieu, cet être unique qu’est vous. Que cela émerge dans toute sa gloire. Que Dieu vous bénisse, mes bien-aimés. Continuez dans vos prières et vos efforts et nous continuerons dans les nôtres.
 
 Nous travaillons tous ensemble pour servir Dieu, pour apporter la Vérité à l’humanité, pour apporter l’Amour à cet endroit et à tous les endroits sombres des Univers de Dieu. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime. Je vous aime tendrement. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez l'âme s'exprimer
 
-André - reçu par Al Fike le 2 Mars 2018, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 2 Mars 2018, Homosassa Springs, FL, USA.
 
 Oui, j’ai suivi votre conversation et je souhaite ajouter certaines de mes pensées à ce dont vous avez parlé et au dilemme apparent auquel vous faites face.
 
@@ -19,7 +19,7 @@ Donc, en tenant compte de cela, vous devez examiner vos propres pensées et votr
 
 En effet, lorsque vous êtes confronté à un dilemme, à un choix, celui-ci est important. Vous devez prier et demander à être guidé pour être inspiré par la Vérité, pour connaître la voie à suivre qui est celle de l’Amour.
 
-Vous avez entendu parler de l’histoire de la relation entre moi et Judas après qu’il soit passé en esprit et ait atterri dans les plaines sombres de l’enfer. Je suis venu à lui pour le rassurer et pour l’inspirer à progresser hors de cette condition et j’ai travaillé très diligemment pour l’aider. Je suis venu le voir très souvent et je lui ai apporté mon amour, afin d’avoir le don d’aider à élever mon frère vers la Lumière. Et avec le temps, il a trouvé sa voie. Avec le temps, il est devenu un ange Céleste.
+Vous avez entendu parler de [l’histoire de la relation entre moi et Judas après qu’il soit passé en esprit et ait atterri dans les plaines sombres de l’enfer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-6-1-hr-judas/). Je suis venu à lui pour le rassurer et pour l’inspirer à progresser hors de cette condition et j’ai travaillé très diligemment pour l’aider. Je suis venu le voir très souvent et je lui ai apporté mon amour, afin d’avoir le don d’aider à élever mon frère vers la Lumière. Et avec le temps, il a trouvé sa voie. Avec le temps, il est devenu un ange Céleste.
 
 Maintenant, j’aurais pu juger mon frère pour ce qu’il a fait, j’aurais pu dire qu’il avait mérité son sort. Mais alors, d’où serait venue cette pensée ? Pas de l’âme. L’âme est faite d’amour. L’âme pardonne, l’âme embrasse tous les frères et sœurs sur son chemin. Bien que j’aie dû faire des sacrifices afin d’effectuer ce voyage des Cieux Célestes aux enfers, mon âme m’a poussé et j’ai été poussé par l’amour. J’ai embrassé mon frère. J’ai fait la promesse à Dieu de soutenir mon frère qui s’était égaré dans ses voies et qui payait le prix en compensation de ses actes.
 
@@ -42,4 +42,3 @@ Ainsi, vous faites vos efforts, âmes bien-aimées, pour vous réunir et accueil
 Puissiez-vous continuer dans ce travail, âmes bien-aimées. C’est un travail noble. C’est un reflet de la croissance au sein de vos âmes. Dieu vous sourit, mes bien-aimés, Il déverse Son Amour et Ses bénédictions sur vous et en effet vous bénéficiez, comme je l’ai fait, de mes efforts et continuez à le faire, à travers ces efforts pour soutenir tous les mortels dans ce monde qui cherchent à servir de cette façon.
 
 Que Dieu vous bénisse, mes chères âmes, pour tout votre amour, votre désir et votre travail pour le Royaume de Dieu. Que Dieu vous bénisse. Je suis André et je vous aime. Que Dieu vous bénisse.
-

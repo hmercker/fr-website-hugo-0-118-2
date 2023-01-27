@@ -9,7 +9,7 @@ weight:
 ---
 ### Apportez vos désirs de servir à Dieu
 
-Seretta Kem - reçu par Al Fike le 8 Août 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 8 Août 2018, Gibsons, Colombie-Britannique, Canada.
 
 Il est agréable de vous voir tous les quatre à nouveau réunis dans la prière. Je vous encourage à le faire autant que vous le pouvez dans les prochains temps pour vous préparer à la prochaine étape du développement de la voix directe. En effet, mieux vous serez préparés pour ce moment où vous serez tous ensemble, plus il y aura de chances que cette grande entreprise se manifeste et porte ses fruits.
 
@@ -26,6 +26,3 @@ Chacun d’entre vous, au sein de son âme, continue d’anticiper avec impatien
 Il y a une effervescence dans vos âmes bien-aimées, un désir profond, un désir de continuer sur ce chemin que Dieu a désigné pour vous. Concentrez vos prières sur ces objectifs, le désir de servir, le désir d’être plus proche de Dieu, le désir de recevoir Son Amour en toujours plus grande abondance. Il en résultera une joie profonde, une compassion profonde pour vos frères et sœurs, un amour profond pour tous, y compris pour vous-mêmes. Tous ces dilemmes, ces luttes entre votre esprit et les conditions de votre esprit et de votre âme se dissiperont comme les nuages qui se dissipent du ciel. La clarté du soleil brillera sur vous, vous éveillant à l’appel de Dieu qui vous supplie de servir dans l’Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse dans vos voyages. Sachez que je suis avec vous et que vos guides, enseignants et de nombreux anges continuent à vous soutenir, à vous élever, à vous guider et à vous rapprocher de Dieu. Vous êtes vraiment bénis, mes bien-aimés. Vous êtes vraiment bénis. Puissiez-vous continuer à grandir dans Son Amour et vous éveiller à la Grâce et à la Beauté de la réalité et de la présence de Dieu dans votre vie. En cela, tout le reste suivra en harmonie, grâce et beauté, joie et sagesse. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime. Que Dieu te bénisse. Que Dieu vous bénisse.
-
-
-

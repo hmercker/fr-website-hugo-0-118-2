@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisir le droit chemin
 
-St Matthieu - reçu par Al Fike le 18 Février 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 18 Février 2018, Hollis Woods Community Church, Queens, New York, USA.
 
 Je suis Matthieu. Le monde est dans les ténèbres, mes bien-aimés. Je crois que vous ressentez les conditions de cette obscurité dans le monde. Vous en êtes conscients et vous vivez en son sein. Pourtant, vous continuez à tendre la main vers Dieu pour apporter la Lumière en vous-mêmes et dans vos vies. Vous faites de grands efforts pour purifier vos âmes, pour rechercher la Vérité, pour être dans l’Amour et dans le flux de l’Amour de Dieu.
 
@@ -42,6 +42,3 @@ Alors, mes bien-aimés, marchez dans la Lumière. Maintenez vos pratiques de pri
 Vous trouverez votre chemin. Oui, ce ne sera peut-être pas le chemin le plus droit, mais vous avancerez, vous progresserez dans la Lumière et vous grandirez dans l’Amour. Cela doit être dû à la puissance de l’Amour dans vos âmes, qui vous pousse en avant. Le toucher de Dieu est sur vous, mes bien-aimés, vous encourageant à aller de l’avant. Vous continuez à le désirer et à être sur ce chemin vers l’unification avec Dieu.
 
 Que Dieu vous bénisse. Je suis Matthieu et je vous aime. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

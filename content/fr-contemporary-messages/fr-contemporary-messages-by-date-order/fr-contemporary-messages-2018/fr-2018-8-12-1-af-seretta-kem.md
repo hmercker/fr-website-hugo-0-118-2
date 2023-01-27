@@ -9,7 +9,7 @@ weight:
 ---
 ### Une belle lumière grandit, signalant le réveil de vos âmes
 
-Seretta Kem - reçu par Al Fike le 12 Août 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 12 Août 2018, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées. Oui, vous devenez tout à fait acclimatées à être élevés dans ces sphères supérieures. C’est très agréable pour nous, que vous fassiez l’effort nécessaire pour être dans des conditions de lumière afin que le travail que nous continuons à engager avec vous puisse être accompli dans cette condition de lumière. Cet instrument a récemment écrit sur la différence de médiumnité avec l’Amour Divin, qui fait partie de ce qui est nécessaire pour faire venir les anges Célestes. La Voix Directe est une autre forme de médiumnité et elle nécessite effectivement la bénédiction de l’Amour Divin en chacun de vous pour être viable. Ainsi, avec le don de l’Amour Divin dans vos âmes, nous sommes en mesure de vous élever dans une condition qui est tout à fait différente de la condition terrestre. Il vous aide à être en harmonie, une plus grande harmonie avec nous et à être plus réceptifs aux produits chimiques que nous utilisons pour vous harmoniser tous ensemble ainsi qu’à être réceptifs aux autres changements que nous faisons en chacun de vous, dans vos corps physiques, dans vos corps spirituels.
 
@@ -24,8 +24,3 @@ Il n’y a pas besoin d’être anxieux ou d’avoir le sentiment que vous devez
 Une paix profonde est avec vous maintenant, âmes bien-aimées. Une paix et une lumière profondes. Son amour coule dans vos âmes. Respirez profondément ces bénédictions. Reposez-vous dans le sein de Dieu. Laissez Son Amour et Sa guérison vous envahir. Demain est un autre jour. Chaque jour sera différent. Chaque jour sera béni et guidé. Dieu prend soin de vos âmes bien-aimées. Soyez réceptifs, choisissez d’être élevés, choisissez d’être en harmonie, choisissez de recevoir Son Amour en grande abondance et tout se réalisera. Tout s’accomplira dans la volonté et le plan de Dieu pour le salut de l’humanité. Vous êtes profondément connectés à Dieu au sein de vos âmes. C’est là que la sagesse viendra. C’est là que les dons se manifesteront. C’est là que réside la joie, tout comme cette paix profonde. Vous êtes des bien-aimés bénis. Vous êtes Ses enfants et vous le reconnaissez dans vos prières, vos efforts, vos désirs et votre façon de marcher dans le monde. C’est votre témoignage d’amour et puissiez-vous continuer à connaître véritablement l’amour et à l’exprimer à chaque respiration et à le recevoir à chaque fois que vous respirez.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre Seretta Kem et je suis très, très heureux de voir la lumière grandir. Vos efforts et vos intentions d’amour continuent de s’épanouir. Beaucoup de choses vous attendent, âmes bien-aimées. Le pouvoir de l’amour se construit en vous. La belle lumière grandit, signalant le réveil de vos âmes. La main de Dieu est fermement sur vous. En effet, vous êtes bénis. En effet, vous êtes aimés. Dieu vous bénit, mes bien-aimés. Seretta Kem vous aime. Jusqu’à notre prochaine rencontre, Dieu vous bénisse, Dieu vous bénisse.
-
-
-
-
-

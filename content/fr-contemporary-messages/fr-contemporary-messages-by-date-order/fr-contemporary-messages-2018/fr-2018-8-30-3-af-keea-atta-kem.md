@@ -9,11 +9,11 @@ weight:
 ---
 ### Cercles de lumière
 
-Keea Atta Kem - reçu par Al Fike le 30 Août 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 30 Août 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/circlesoflight.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-circlesoflight-2018.jpg)
 
-Que Dieu vous bénisse, âmes bien-aimées, Je suis Keea-atta Kem et vous avez des questions concernant les cercles de lumière et les manifestations qui se produisent dans ces cercles et je suis heureux de répondre à vos questions, bien-aimés.
+Que Dieu vous bénisse, âmes bien-aimées, Je suis Keea Atta Kem et vous avez des questions concernant les cercles de lumière et les manifestations qui se produisent dans ces cercles et je suis heureux de répondre à vos questions, bien-aimés.
 
 Un Cercle de Lumière est formé par les intentions de ceux qui font partie du cercle, ces mortels qui viennent prier ensemble. Si leurs intentions sont pour le meilleur et pour recevoir les bénédictions de l'amour de Dieu et qu'ils attirent les anges parmi eux, […] en effet cela commence un processus où non seulement les mortels présents reçoivent des bénédictions[…], mais beaucoup d'autres personnes dans le monde des esprits en reçoivent aussi. Car vous attirez au milieu de vous des belles bénédictions énergies, des guérisons qui ravivent et apportent une grande lumière alors que vous priez pour l'afflux de l'amour divin dans vos âmes. Ainsi, les anges emmènent avec eux cette bénédiction.
 
@@ -31,7 +31,4 @@ C’est une chose merveilleuse de voir des âmes bénies se rassembler de cette 
 
 Au fur et à mesure que vos cercles grandissent et que la lumière dans votre âme grandit et que les dons se déploient, que vos âmes s'éveillent dans leurs perceptions, vous verrez que ce que j'ai décrit vous deviendra familier et vous comprendrez l'ampleur de vos efforts et de nos efforts combinés. qui apporteront la vérité à l'humanité. Nous sommes tous des enfants de Dieu travaillant ensemble pour apporter la lumière, la vérité, l'amour et la paix au monde. Puissiez-vous continuer à vous éveiller, mes chers amis, à repousser toutes les barrières et restrictions pour vivre votre vie en alignement avec Dieu, à exprimer votre vie dans le flux de Son Amour, à utiliser vos dons au profit de beaucoup, nous permettant de le royaume céleste de nous rapprocher et de travailler avec vous! Nous continuons notre travail ensemble et nous le faisons avec joie et une profonde gratitude envers Dieu qui ouvre les canaux de lumière qui nous profitent tous.
 
-Que Dieu vous bénisse, bien-aimés, je suis Keea-atta Kem. Dieu vous bénisse, je vous aime!
-
-
-
+Que Dieu vous bénisse, bien-aimés, je suis Keea Atta Kem. Dieu vous bénisse, je vous aime!

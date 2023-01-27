@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C.<sup id=”a1”>[1](#f1)</sup>
+### Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
 
-John Wesley - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada
+John Wesley - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis John Wesley. Pour beaucoup d’entre vous, votre vie est un rêve dont vous devez vous réveiller. Car vous vivez dans vos pensées, et les pensées de l’humanité sont enveloppées d’illusion, bien qu’elle croie connaître la Vérité. La seule façon dont chacun peut s’éveiller des illusions, c’est par l’intermédiaire de son âme. Car dans votre âme se trouve la capacité de connaître la Vérité, de s’éveiller à la Création de Dieu plutôt que de s’endormir dans l’illusion de l’homme. Le monde doit réveiller mes amis, avant qu’il ne soit trop tard et que les illusions de l’humanité n’entraînent sa propre destruction. Le monde doit s’éveiller mes amis, parce que Dieu désire que tous ceux qui vivent dans ce monde finissent par connaître la vérité de leur propre existence, et finissent par connaître le pouvoir de Dieu et de Son Amour, le pouvoir de réveiller l’humanité de Son sommeil et d’apporter cette connaissance, claire et nette, qui vient des facultés de l’âme qui sont éveillées par le Toucher de Dieu.
 
@@ -23,6 +23,3 @@ Alors je vous donne cette invitation, à chercher cette bénédiction, à mettre
 <small>
 
 1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
-
-
-

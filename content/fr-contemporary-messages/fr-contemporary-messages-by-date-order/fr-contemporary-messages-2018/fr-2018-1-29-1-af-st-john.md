@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu réveille les dons de l'âme
 
-St Jean - reçu par Al Fike le 29 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 29 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jean le Bien-Aimé. En chacun de vous se trouvent de nombreux mondes, mes bien-aimés, de nombreuses couches de votre être, toutes complexes et magnifiquement créées par Dieu. À l’intérieur, il y a de nombreux aspects de votre expression, des complexités de vos esprits à l’émerveillement de vos âmes, au firmament de vos corps créés par d’innombrables cellules qui travaillent toutes ensemble pour créer votre moi physique et le firmament de votre âme qui possède de nombreux aspects, dons et belles expressions. Car dans votre âme, Dieu a planté de nombreuses graines d’une grande variété et d’une grande beauté en attendant le moment où elles germeront et porteront leurs fruits. En vous, mes bien-aimés, se trouve un beau jardin fait des dons que Dieu a plantés en vous, créant une âme unique et belle. Cette âme, c’est vous, mes bien-aimés. Cette âme est la création de Dieu, unique pour chaque individu. Ce qui rend l’âme vivante, c’est la Lumière de l’Amour de Dieu, Son Don, Son Essence versée en vous, enflammant tous les potentiels de votre âme, faisant germer tous ces dons merveilleux qui fleurissent et portent des fruits.
 
@@ -22,6 +22,3 @@ Ainsi, mes belles âmes bien-aimées, chacune d’entre vous a en elle tout un u
 Puissiez-vous continuer à rechercher ce don d’Amour. Puissiez-vous continuer à vous éveiller et que toute cette merveille en vous prenne vie et émerge comme quelque chose de substantiel. Il peut être et sera utilisé par Dieu pour enflammer les vérités de Son Amour chez les autres. Car dans l’âme éveillée, l’impulsion la plus profonde est d’aimer tout le monde, d’aimer la Création, d’aimer Dieu. De ce grand service découle un grand flux d’Amour et dans ce flux, cette Lumière, sont portés les nombreux dons que vous possédez et qui s’expriment en harmonie, en beauté et en unicité. Ainsi, chaque âme avec sa flamme allumée, sa lanterne brûlante, attire d’autres âmes là où Dieu allumera et éveillera leurs âmes, et d’autres seront éveillées, et d’autres seront éveillées jusqu’à ce que le monde entier soit enflammé dans la beauté de la Création de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Que votre Lumière continue de briller et que ces découvertes de votre véritable moi soient profondes et remplies de joie, car beaucoup de choses vous attendent. Tant de choses attendent d’être découvertes et de prendre vie. Dieu vous bénisse, âmes bien-aimées, je suis Jean et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

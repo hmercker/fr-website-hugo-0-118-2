@@ -9,7 +9,7 @@ weight:
 ---
 ### Orientations pour la session d'Octobre 2018 de Voix Directe
 
-Seretta Kem - reçu par Maureen Cardoso le 21 Septembre 2018, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 21 Septembre 2018, Abbotsford, Colombie-Britannique, Canada.
 
 C’est Seretta Kem et je vous remercie d’avoir accepté de vous asseoir et de recevoir un message concernant le temps que votre cercle va partager ensemble dans un avenir très proche, ce temps intense de travail vers la réalisation de la voix directe.
 
@@ -30,6 +30,3 @@ Encore une fois, c’est notre profonde gratitude pour le dévouement que vous a
 Je suis Seretta Kem et je vous remercie d’avoir revisité votre dévouement envers ce don, car le temps est très proche où votre cher cercle des sept se réunira une fois de plus, travaillant au développement de la voix directe.
 
 Que Dieu bénisse chacun d’entre vous. Mon amour est avec vous. Je suis Seretta Kem et je vous aime.
-
-
-

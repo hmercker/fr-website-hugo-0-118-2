@@ -9,9 +9,9 @@ weight:
 ---
 ### S'éveiller au plus grand amour
 
-St Matthieu - reçu par Al Fike le 21 Mai 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 21 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
-Bénis ceux, Tes enfants, qui cherchent à connaître leur âme, qui continuent à poursuivre le chemin pour Te connaître, pour connaître Ton Amour. Père, bénis-les, car dans ce monde, chacun lutte pour la Lumière et désire connaître la Vérité. Chacun, Ta création bénie, Ton enfant bien-aimé. Qu’ils soient bénis en conséquence, en conjonction avec leurs désirs de Lumière et d’Amour, de guérison et de paix. Puissent-ils être bénis et touchés par Ton Amour qui guérit l’âme et apporte le confort et la Vérité à tous ceux qui cherchent.
+*« Bénis ceux, Tes enfants, qui cherchent à connaître leur âme, qui continuent à poursuivre le chemin pour Te connaître, pour connaître Ton Amour. Père, bénis-les, car dans ce monde, chacun lutte pour la Lumière et désire connaître la Vérité. Chacun, Ta création bénie, Ton enfant bien-aimé. Qu’ils soient bénis en conséquence, en conjonction avec leurs désirs de Lumière et d’Amour, de guérison et de paix. Puissent-ils être bénis et touchés par Ton Amour qui guérit l’âme et apporte le confort et la Vérité à tous ceux qui cherchent. »*
 
 Que Dieu vous bénisse mes bien-aimés, je suis Matthieu. Vous suivez chacun un chemin si unique et pourtant vous vous réunissez pour partager votre amour et vos désirs de Lumière et de Vérité. Vous êtes attirés par vos âmes, mes bien-aimés. Vous recherchez la subsistance pour vos âmes afin de pouvoir vous éveiller et connaître le plus grand Amour, l’Amour de Dieu. En cela, vous vous connaîtrez vous-mêmes, ces parties de vous qui sont cachées mais désireuses d’être connues. Ces aspects de vous-même qui sont restés en sommeil pendant de nombreuses années, mais qui sont maintenant avides de la lumière du jour afin de faire partie intégrante de votre vie. Ces choses viennent de vos âmes, mes bien-aimés. Ces désirs, ces dons, ces capacités et facultés qui donnent un sens plus profond à vos vies. Une plus grande perspective de la vie vient de ce lieu profond en vous, ce lieu vital qui est votre âme toujours à la recherche de la Lumière, toujours à la recherche de la Vérité et toujours à la recherche d’expressions d’Amour.
 
@@ -22,6 +22,3 @@ Puissiez-vous connaître cette relation profonde avec le Créateur et chercher c
 Buvez dans cette bénédiction, mes bien-aimés. Vous êtes dans la Lumière en ce moment. Buvez ces bénédictions, tout ce que Dieu a à vous donner, tout ce à quoi vous pouvez être réceptifs et capables de vraiment communier avec Dieu. C’est ce que vos âmes recherchent, mes bien-aimés. C’est la réponse aux désirs de vos âmes. Recevez et reconnaissez la Source de tout Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et je prie avec vous dans ce cercle de Lumière bien-aimé. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

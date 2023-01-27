@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils personnels pour la retraite de médiumnité de l'Amour Divin
 
-Alec Gaunt - reçu par Al Fike le 8 Août 2018, Gibsons, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 8 Août 2018, Gibsons, Colombie-Britannique, Canada.
 
 Oui, je vais assister cet instrument et sa compagne dans cette aventure de retraite de médiumnité. Elle a raison de penser que je ferai partie de ce projet, tout comme le cher et bel ange Faith et beaucoup d’autres. C’est une étape importante pour vous, âmes bien-aimées, pour présenter à beaucoup les subtilités et les merveilles de la médiumnité de l’Amour Divin. Bien que cela semble être une nouvelle aventure pour vous, à bien des égards, vous avez déjà présenté ces vérités auparavant et maintenant vous les appliquez au besoin de développer plus de médiums dans le monde qui sont capables de transmettre les messages des anges.
 
@@ -52,6 +52,3 @@ Dieu vous fait un cadeau ici. Un cadeau non seulement pour que vous puissiez don
 Puissiez-vous continuer à servir Dieu de ces belles manières. Le monde a besoin d’un plus grand nombre d’entre vous pour travailler ensemble, pour servir, pour amener l’humanité vers un lieu de plus grande illumination, de connaissance et d’amour. Tous ces efforts que vous faites aident le monde en apportant une plus grande lumière et dans cette entreprise dans laquelle vous êtes engagés, vous allumerez des bougies qui allumeront des bougies jusqu’à ce que le monde entier soit éveillé dans la lumière.
 
 Que Dieu vous bénisse, votre ami Alec est avec vous et je vais effectivement parler aux foules et donner un peu de ma sagesse et être avec vous chaque jour dans vos efforts. Que Dieu vous bénisse. Je suis toujours avec toi, ton frère, ton ami, qui t’aime tant. Que Dieu te bénisse. Que Dieu te bénisse.
-
-
-

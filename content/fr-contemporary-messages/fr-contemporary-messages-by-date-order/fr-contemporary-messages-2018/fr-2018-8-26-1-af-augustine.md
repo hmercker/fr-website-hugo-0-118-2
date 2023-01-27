@@ -9,7 +9,7 @@ weight:
 ---
 ### Message d'ouverture de la retraite de médiumnité
 
-Augustin - reçu par Al Fike le 26 Août 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 26 Août 2018, Retraite de médiumnité,Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant Augustin. Sommes-nous prêts à commencer ce voyage de découverte de l’éveil des potentiels qui sont en vous ? Avez-vous la foi qui vous dit que vous pouvez en effet être utilisé comme un canal d’amour dans ce monde, que vous avez des dons que Dieu vous a donnés et que vous souhaitez utiliser ces dons pour le bénéfice des autres ? Puis-je marcher dans ce monde avec l’amour comme élan et comme désir ? Est-ce que je connais Dieu et sa volonté pour moi ? Puis-je être ouvert et innocent, humble et rempli de gratitude ?
 
@@ -39,6 +39,3 @@ Considérez ceci, âmes bien-aimées, considérez comment le monde est endormi e
 Vous continuez à ouvrir vos yeux et à les tourner vers Dieu, et en cela, vous forgez un chemin pour les autres. Beaucoup d’entre vous ici seront utilisés par Dieu pour aider les autres à trouver leur chemin. Dieu allume une grande lumière en chacun de vous et la puissance et la beauté de cette lumière toucheront de nombreuses âmes lorsque vous irez dans le monde. Ici, en vous réunissant, vous allumez une plus grande lumière en vous. Dieu continue à ouvrir les nombreuses avenues et possibilités de vos âmes, créant un lien plus profond, une connexion puissante et une compréhension de Sa présence, de Son être. Cela se poursuivra pour toute l’éternité, mes bien-aimés, alors que vous continuez le voyage avec toute sa beauté et ses découvertes, son pouvoir et sa grâce, apportant une joie profonde dans votre âme, sachant que votre âme a trouvé sa marque, sa place, qui est avec Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse profondément de son amour. Je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse.
-
-
-

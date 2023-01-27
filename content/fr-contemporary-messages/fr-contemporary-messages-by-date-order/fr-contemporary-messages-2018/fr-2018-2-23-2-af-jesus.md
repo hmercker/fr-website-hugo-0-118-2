@@ -9,7 +9,7 @@ weight:
 ---
 ### Le travail commence
 
-Jésus - reçu par Al Fike le 23 Février 2018, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 23 Février 2018, Adria Hotel, Queens, New York, USA.
 
 Je viens, mes bien-aimés. Je suis Jésus. Je viens bénir mes disciples qui sont prêts à parcourir la route et à bénir les enfants qui viennent sur leur chemin car ceux qui le font sont vraiment mes disciples car ils le font dans l’amour, ils le font en portant la Vérité et en portant les eaux de la vie.
 
@@ -20,6 +20,3 @@ Rappelez-vous que les âmes perdues vivent dans cette obscurité, dans la brume 
 Vous commencez simplement, mes âmes bien-aimées, vous commencez simplement. Je suis heureux de voir que vous commencez avec la foi et la confiance dans la Volonté de Dieu et le désir d’apporter la Vérité de l’ordre le plus élevé à ceux à qui vous parlez et à ceux à qui vous rendez service. C’est ce désir unique, ce rassemblement de vos âmes pour travailler dans le cadre du Plan de Dieu pour le salut de l’humanité, qui continuera à ouvrir des portes et à apporter des possibilités et des opportunités pour vous d’apporter ce qui doit être apporté dans ce monde. Goutte à goutte, mes bien-aimés, chaque effort se construit sur le suivant et le suivant jusqu’à ce que vous atteigniez de nombreuses âmes dans ce monde. Vous venez de commencer et je suis très heureux que vous soyez prêts. Je vous guiderai, mes bien-aimés, sur ce Chemin Divin, sur ce travail béni par Dieu, sur tous ces efforts partagés par vous sur cette terre et nous dans le Royaume Céleste qui travaillons ensemble pour toucher de nombreuses âmes dans ce monde et dans le prochain.
 
 Mes bien-aimés, vous êtes vraiment bénis. Vous continuerez dans ce grand travail. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

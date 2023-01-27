@@ -9,7 +9,7 @@ weight:
 ---
 ### L'éveil de l'âme, une nouvelle naissance
 
-Keea Atta Kem - reçu par Al Fike le 1 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 1 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis heureux que vous ayez eu cette prière afin que je puisse parler. Cet instrument n’a pas besoin de prendre la responsabilité de l’absence de ma présence plus tôt, car je n’étais pas présent. J’ai été appelé au loin par une chère âme de votre monde qui me demandait de l’assister. Cela se produit parfois, mes bien-aimés, car nous avons beaucoup de personnes que nous assistons dans votre monde et dans le monde de l’esprit. Parfois, nous ne pouvons pas être avec vous. Il y a toujours des anges avec vous, bien-aimés, donc vous ne devez pas vous inquiéter d’être abandonnés à tout moment, car vous ne l’êtes pas.
 
@@ -19,7 +19,4 @@ C’est un beau cadeau, mes bien-aimés. Combien de personnes dans votre monde s
 
 Ainsi, ce voyage, unique pour chacun, est une sorte de naissance, la naissance d’une nouvelle réalité qui émergera de votre âme et fusionnera avec votre esprit. C’est ce que nous encourageons, nous vous poussons à aller de l’avant, nous vous entourons de notre amour et nous vous gardons près de nous. Car dans cette nouveauté de la naissance de votre âme, il y a une sensibilité et une vulnérabilité qui nécessitent un ajustement, une force et une foi, afin que vous puissiez connaître cette nouvelle personne qu’est vous, cachée dans les recoins de votre âme, mais maintenant vivifiée par la puissance de l’Amour de Dieu. Avancez, mes bien-aimés. Apprenez à vous connaître tels que vous êtes vraiment.
 
-Que Dieu vous bénisse et je vous aime, mes tendres et belles âmes. Je vous aime. (Keea-atta Kem)
-
-
-
+Que Dieu vous bénisse et je vous aime, mes tendres et belles âmes. Je vous aime. (Keea Atta Kem)

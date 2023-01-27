@@ -9,7 +9,7 @@ weight:
 ---
 ### D'une graine naît un grand arbre
 
-Seretta Kem - reçu par Al Fike le 12 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 12 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
 
 Oui les liens d’Amour continuent à vous lier tous dans une connexion étroite et dans l’Amour, et bien que vous ayez trouvé difficile d’aller dans le grand monde, de trouver votre chemin à travers ces conditions qui font partie de l’humanité, vous portez cette Lumière, vous portez cette connexion l’un avec l’autre, avec vous. Nous continuons à travailler avec vous, âmes bien-aimées, dans vos efforts pour soutenir cette Lumière, cette aventure de la voix directe. Ainsi, tout comme nous vous avons réunis pour prier ensemble, nous vous avons encouragés à sortir dans le monde et à trouver votre chemin dans la Lumière, dans le service, dans l’harmonie et dans l’Amour. En effet, comment pouvez-vous faire progresser ce don autrement qu’en avançant vous-mêmes, en entrant dans les conditions de ce monde et en faisant face à tout ce qui se présente à vous dans votre vie ?
 
@@ -26,6 +26,3 @@ Oui, il y en a dans ce monde qui souhaitent ardemment servir Dieu, mais leurs id
 En recherchant l’Amour de Dieu, mes bien-aimés, vous en viendrez à connaître votre destinée, votre but, les dons que vous avez en vous. Vos yeux s’ouvrent, votre conscience s’épanouit et les connaissances de votre âme parlent à votre esprit. C’est en train de se produire, mes bien-aimés, ce grand réveil en vous. Il y a des moments où vous ressentez un grand optimisme, de la passion et des moments où vous vous sentez déçu. Ce sont les conditions de la vie, mais vous êtes conscients de la façon dont vous pouvez contrôler ces conditions avec votre propre discipline, vos prières et votre amour pour vous-même. Ainsi, mes bien-aimés, je vous exhorte à faire ces choix pour la Lumière toujours, comme je l’ai toujours fait. Je vous encourage à rechercher la Lumière et à vous rassurer que nous sommes avec vous, et que l’Amour de Dieu continue de croître dans vos âmes, les changements se manifestant dans votre esprit conscient goutte à goutte, pas à pas.
 
 Nous sommes heureux de vous voir ensemble de cette manière joyeuse, à nouveau avec ce désir de servir, de développer les dons qui ont été promis. Nous allons travailler avec vous dans ces moments ensemble. Oui, je vous invite à aller dans la chambre noire une fois de plus, bien que vous ne soyez pas au complet, et nous ferons tout notre possible pour amener les autres à travailler avec vous tous ensemble. Vous continuez dans ce grand effort comme nous le faisons, et nous verrons ce qui en sortira. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime. Je continue à vous servir, à prier avec vous et à vous apporter toutes les bénédictions que j’ai pour vous. Que Dieu vous bénisse mes bien-aimés. Que Dieu vous bénisse. Je vous aime.
-
-
-

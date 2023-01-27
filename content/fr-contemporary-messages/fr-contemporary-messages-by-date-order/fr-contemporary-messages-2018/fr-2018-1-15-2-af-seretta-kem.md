@@ -9,7 +9,7 @@ weight:
 ---
 ### En grandissant dans l'amour, vous grandissez au service de Dieu
 
-Seretta Kem - reçu par Al Fike le 15 Janvier 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 15 Janvier 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse. Sentez-vous l’empressement de vos amis lointains qui souhaitent être avec vous dans la prière ? Cette occasion ne sera qu’une parmi tant d’autres, car lorsque d’autres âmes s’éveilleront aux possibilités, elles souhaiteront elles aussi être avec vous, pour se rapprocher dans la prière. De nombreuses opportunités vous attendent, mes bien-aimés. Votre vie est maintenant consacrée à la prière et au partage de cette expérience de l’Amour de Dieu les uns avec les autres et avec beaucoup d’autres. Il est donc important pour vous d’être ouverts et réceptifs aux opportunités qui se présentent à vous, d’être en paix et de vous ouvrir joyeusement à tous. Car si vous vous aventurez dans cette voie, Dieu vous fournira les moyens de le faire. L’accomplissement de ce but fait partie de sa volonté, car il désire rassembler Ses enfants dans la prière. Il désire utiliser tous vos dons les uns pour les autres et, à mesure que vous construisez cette Lumière parmi vous, ces liens d’amour, ces expériences que vous partagez, vous en attirerez d’autres qui en attireront d’autres. L’élan va se construire, âmes bien-aimées, l’élan va se construire.
 
@@ -22,5 +22,3 @@ Un nouveau jour se lève, mes bien-aimés. Un nouveau jour, un réveil, l’util
 Nous sommes heureux de vos efforts, mes bien-aimés. Nous continuons à travailler avec vous de nombreuses façons différentes pour ouvrir des portes, exploiter des opportunités, des possibilités qui apporteront une nouvelle croissance, de nouvelles compréhensions, une conscience plus profonde, un plus grand Amour. Donc, vous continuez à avancer, à trouver vos voies, à connaître votre vrai moi. Vous êtes bénis, mes bien-aimés. Le Père vous bénit tous, vous enveloppe dans Son Amour, vous porte avec Sa profonde attention et Son Amour pour vous.
 
 Continuez à marcher dans ce flux de Lumière, cette belle relation avec votre âme et Sa grande Âme. Tant de choses vont venir en cela. Tant de choses viendront et trouveront leur chemin et s’exprimeront dans votre monde. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime. Je vous aime tendrement. Que Dieu vous bénisse.
-
-

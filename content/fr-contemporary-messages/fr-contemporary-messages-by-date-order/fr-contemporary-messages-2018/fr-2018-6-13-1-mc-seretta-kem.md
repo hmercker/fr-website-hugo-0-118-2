@@ -9,9 +9,9 @@ weight:
 ---
 ### Permettez à l'amour de Dieu de s'exprimer de manière unique à travers votre âme
 
-Seretta Kem - reçu par Maureen Cardoso le 13 Juin 2018, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 13 Juin 2018, Abbotsford, Colombie-Britannique, Canada.
 
-C’est Seretta Kem et je souhaite faire un commentaire sur le message que vous avez récemment écouté, l’expiation de l’âme, l’expiation des conditions sur une âme<sup id=”a1”>[1](#f1)</sup>. Au début, lorsqu’une âme commence à aspirer à l’Amour de Dieu, à recevoir ce don extraordinaire – don de guérison, don de sagesse, don de connaissance, ce don qui nourrit les dons de l’individu à partager dans le monde – au début, lorsqu’on a un désir, un désir basé sur l’âme de recevoir ce don d’Amour, oui, il peut y avoir un bouclier épais dans lequel l’âme est enfermée, un bouclier qui rend difficile pour l’âme de trouver un moyen d’expression. Pourtant, il reste toujours une fissure où Dieu a cette capacité de communier d’âme à âme avec l’activation de Son Esprit Saint, Son messager d’Amour, pour faire naître ce don le plus élevé. Au fur et à mesure que cet Amour trouve son chemin, maintes et maintes et maintes fois, au fur et à mesure que le désir de l’individu s’intensifie et augmente pour être avec Dieu et pour communier avec Dieu et pour recevoir ce don d’Amour le plus élevé, maintes et maintes et maintes fois, alors que cet individu est assis en prière et tend la main à Dieu, cet Amour trouvera un chemin.
+C’est Seretta Kem et je souhaite faire un commentaire sur le message que vous avez récemment écouté, l’expiation de l’âme, l’expiation des conditions sur une âme <sup id=”a1”>[1](#f1)</sup>. Au début, lorsqu’une âme commence à aspirer à l’Amour de Dieu, à recevoir ce don extraordinaire – don de guérison, don de sagesse, don de connaissance, ce don qui nourrit les dons de l’individu à partager dans le monde – au début, lorsqu’on a un désir, un désir basé sur l’âme de recevoir ce don d’Amour, oui, il peut y avoir un bouclier épais dans lequel l’âme est enfermée, un bouclier qui rend difficile pour l’âme de trouver un moyen d’expression. Pourtant, il reste toujours une fissure où Dieu a cette capacité de communier d’âme à âme avec l’activation de Son Esprit Saint, Son messager d’Amour, pour faire naître ce don le plus élevé. Au fur et à mesure que cet Amour trouve son chemin, maintes et maintes et maintes fois, au fur et à mesure que le désir de l’individu s’intensifie et augmente pour être avec Dieu et pour communier avec Dieu et pour recevoir ce don d’Amour le plus élevé, maintes et maintes et maintes fois, alors que cet individu est assis en prière et tend la main à Dieu, cet Amour trouvera un chemin.
 
 Au fur et à mesure que cette réception d’amour se développe, il y a une cause et un effet sur les conditions dans lesquelles cette âme est enfermée. Ces conditions commencent à se desserrer, à se déloger et à se libérer, créant ainsi une plus grande ouverture pour que cet Amour puisse entrer et, avec le temps, une ouverture pour que cet Amour soit exprimé dans la vie de l’individu. N’est-ce pas là une façon pour Dieu d’atteindre un autre individu, mais à travers l’expression d’une âme à une autre, que ce soit par ses actions, ses paroles, son regard ou son sourire ?
 
@@ -27,7 +27,3 @@ Il y a toujours un grand amour pour vous, je suis Seretta Kem et je souhaite exp
 <small>
 
 1. <large id=”f1”> [Message de Serreta Kem du 12 Décembre 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-12-2-af-seretta-kem/).[↩](#a1)
- 
-
-
-
