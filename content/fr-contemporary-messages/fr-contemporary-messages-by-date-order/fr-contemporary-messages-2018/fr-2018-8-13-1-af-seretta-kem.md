@@ -32,14 +32,5 @@ Ceci vous devez l’enseigner, âmes bien-aimées. Ces vérités simples, le pou
 Souvenez-vous de cela, âmes bien-aimées : quelle que soit la situation dans laquelle vous vous trouvez dans votre vie, ce sont vos efforts dans la prière, votre désir de servir, votre éveil continu qui apportent le changement dans ce monde. Bien que vos actions manifestes de service soient importantes, rappelez-vous que c’est la lumière que vous portez et la lumière qui se construit en vous qui aura le plus grand effet et qui guidera votre voyage et votre service dans ce monde. Ainsi, la prière sincère vous amènera à cet endroit où vous pourrez vraiment être un instrument de changement et de lumière dans le monde.
 
 Le monde a besoin de vous, mes bien-aimés. Dieu a besoin de vous. Vos âmes souffrent et aspirent à accomplir leur but et leur destinée. Écoutez vos âmes. Écoutez Dieu. Cherchez son amour. Cherchez à être forts et clairs. Marchez avec intégrité et vérité. Soyez humbles et doux. Soyez un enfant de Dieu.
-<<<<<<< HEAD
-=======
-
-Dieu vous bénisse mes bien-aimés, je suis Seretta Kem. J’ai un grand amour pour vous. J’ai un grand amour pour l’humanité et pour toutes les lumières de ce monde qui luttent pour maintenir leur lumière, pour faire grandir leur lumière, pour être une lumière dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis souvent avec vous. Que Dieu vous bénisse.
-
-
-
-
->>>>>>> baea53e17c36649c534b584044f371223742b482
 
 Dieu vous bénisse mes bien-aimés, je suis Seretta Kem. J’ai un grand amour pour vous. J’ai un grand amour pour l’humanité et pour toutes les lumières de ce monde qui luttent pour maintenir leur lumière, pour faire grandir leur lumière, pour être une lumière dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis souvent avec vous. Que Dieu vous bénisse.

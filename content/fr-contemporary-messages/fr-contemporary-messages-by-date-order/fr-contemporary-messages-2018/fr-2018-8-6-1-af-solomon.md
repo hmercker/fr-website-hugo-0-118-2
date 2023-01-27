@@ -11,11 +11,7 @@ weight:
 
 Solomon - reçu par Al Fike le 6 Août 2018, Gibsons, Colombie-Britannique, Canada.
 
-<<<<<<< HEAD
 Je suis Salomon et je suis venu te parler mon fils (R____), car tu as besoin de mes conseils et en effet, je te guide dans ta vie.
-=======
-Je suis Salomon et je suis venu te parler mon fils ( R………..), car tu as besoin de mes conseils et en effet, je te guide dans ta vie.
->>>>>>> baea53e17c36649c534b584044f371223742b482
 
 Ton esprit spécule sur de nombreuses choses. Tu as un profond désir de connaître la vérité grâce à tes facultés intellectuelles. Tu as exploré de nombreuses choses et ruminé de nombreuses idées, mais tu n’es pas satisfait des réponses que tu as obtenues de cette manière. Parallèlement à cela, ton âme continue à grandir dans l’Amour du Père. Ton âme s’éveille au contact de Dieu. On te l’a dit maintes fois et tu comprends avec ton esprit, la vérité vient avec l’éveil de ton âme. Car c’est l’esprit de ton âme qui comprendra et saura vraiment, car Dieu te nourrit de la vérité avec Son Amour. Au fur et à mesure que ta connexion grandit, ton amour pour Dieu grandit dans la prière.
 

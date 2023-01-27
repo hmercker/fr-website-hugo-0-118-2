@@ -25,11 +25,4 @@ Les anges de Dieu sont avec vous, âmes bien-aimées. La Vérité est évidente 
 
 **Note du médium :** Ce message était une puissante déclaration d’Isaïe. La puissance spirituelle dans la salle était extraordinaire et les personnes présentes l’ont ressentie vivement. J’espère que le lecteur ressentira également la puissance et la beauté de cette déclaration pour la fin de l’ère des ténèbres provoquée par notre inhumanité les uns envers les autres.
 
-<<<<<<< HEAD
 Que vous Dieu bénisse Al Fike.
-=======
-Que vous Dieu bénisse. Al Fike.
-
-
-
->>>>>>> baea53e17c36649c534b584044f371223742b482

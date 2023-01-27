@@ -9,11 +9,7 @@ weight:
 ---
 ### Vous êtes prêt à aller de l'avant
 
-<<<<<<< HEAD
 Seretta Kem - reçu par Al Fike le 1 Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
-=======
-Seretta Kem - reçu par Al Fike le 1 Septembre 2018, Gibsons, Colombie-Britannique, Canada
->>>>>>> baea53e17c36649c534b584044f371223742b482
 
 Je suis Seretta Kem. Il y a un changement à venir dans vos cercles, un changement profond, car des dons sont en train d’être développés qui recueilleront plus d’attention sur vous et un travail à venir qui vous attirera dans le monde. Vous devez vous préparer, âmes bien-aimées, à l’intérieur de vos âmes. Ayez une connexion profonde avec Dieu, une connexion qui est forte et claire avec chaque jour de votre vie, un engagement à servir votre Père Céleste d’une manière qui puisse atteindre largement, dans le monde, les nombreuses âmes qui attendent, les nombreuses opportunités que Dieu va placer devant vous. Chacun de vous aura un rôle à jouer, les opportunités arrivent, les portes s’ouvrent, les possibilités se réalisent. Car, à mesure que le changement arrive dans ce monde, vos responsabilités s’approfondissent. Nous venons à vous de cette manière pour vous rassembler dans des Cercles de Lumière, pour vous préparer, pour vous éveiller, pour vous éduquer afin que vous puissiez marcher avec une clarté, une sagesse, une lumière et un amour qui toucheront de nombreuses âmes et seront utilisés par Dieu de nombreuses manières.
 
