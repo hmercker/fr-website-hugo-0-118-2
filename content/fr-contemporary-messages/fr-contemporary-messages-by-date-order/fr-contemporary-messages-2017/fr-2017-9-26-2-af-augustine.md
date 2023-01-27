@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir du libre arbitre
 
-Augustin - reçu par Al Fike le 26 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 26 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je souhaite aborder un sujet dont j'ai parlé à plusieurs reprises et qui est le pouvoir du libre arbitre.
 

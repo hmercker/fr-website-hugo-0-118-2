@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher dans la lumière
 
-Guru Nanak - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Guru Nanak - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, je suis fondateur de la grande foi Sikh. Merci de dire mon nom (M) car cet instrument avait du mal à le prononcer. Oui, nous avons pris des dispositions pour que vous ayez une relation avec ceux qui apportent cette religion dans le monde. Car c'est le plan de Dieu que toutes les religions se réunissent dans l'amour. Votre cher ami et serviteur de Dieu le comprend et reconnaîtra vos efforts, comme vous reconnaissez les siens, car vous apportez tous une plus grande lumière à votre monde. Vous en rencontrerez beaucoup d'autres, mes amis, beaucoup d'autres qui sont prêts à apporter une plus grande lumière à l'humanité et à vivre la vérité de l'amour, à donner l'exemple de cette vérité. Avec le temps, toute erreur qui pourrait subsister dans cette religion de la compréhension sikh tombera et la vérité régnera avec tous ceux qui suivent cette foi.
 

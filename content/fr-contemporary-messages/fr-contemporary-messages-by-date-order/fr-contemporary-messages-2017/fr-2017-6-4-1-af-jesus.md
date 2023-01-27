@@ -9,7 +9,7 @@ weight:
 ---
 ### La bénédiction de Dieu par Jésus
 
-Jésus - reçu par Al Fike le 4 Juin 2017, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 4 Juin 2017, Gibsons, Colombie-Britannique, Canada
 
 *[Jésus debout]*
 

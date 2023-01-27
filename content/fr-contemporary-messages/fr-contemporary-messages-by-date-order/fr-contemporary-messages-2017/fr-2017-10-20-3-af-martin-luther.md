@@ -9,7 +9,7 @@ weight:
 ---
 ### Martin Luther salue H
 
-Martin Luther - reçu par Al Fike le 20 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Martin Luther - reçu par Al Fike le 20 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Martin Luther. Nous poursuivrons nos efforts pour apporter des messages qui enseigneront les autres alors que vous priez ensemble en dehors de vos cercles vocaux directs. Il y aura des messages prolifiques, car il y a encore beaucoup de choses qui doivent être abordées, pour enseigner les autres. Car lorsque ce don de voix directe sera accompli, vous susciterez beaucoup d'intérêt dans ce monde et vous devrez vous présenter à ceux qui sont curieux, qui ont un profond désir de connaissance et de vérité. Dans de nombreux cas, vous devez d'abord nourrir leurs pensées afin qu'ils soient à l'aise pour nourrir leurs âmes dans cette voie de la prière et nous donnerons donc des messages d'enseignement lorsque vous serez ensemble en prière.
 

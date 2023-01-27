@@ -24,8 +24,7 @@ Vous n’avez pas besoin de vous inquiéter de donner aux autres un avertissemen
 Je suis ouvert à vos questions en ce moment s’il y a des interrogations concernant vos collaborations ensemble. Je vous laisse un moment de réflexion si vous avez envie de me demander quelque chose.
 (il y a une brève pause dans l’audio)
 
-Donc, je suppose que vous êtes d’accord sur le sujet et que vous allez procéder en conséquence.
-Maintenant, je vais laisser la place à mon beau frère Jésus qui souhaite également vous parler.
+Donc, je suppose que vous êtes d’accord sur le sujet et que vous allez procéder en conséquence. Maintenant, je vais laisser la place à mon beau frère Jésus qui souhaite également vous parler.
 
 Orion et Jésus encouragent les efforts pour de futures publications (2021 Gardiens de la Lumière)
 

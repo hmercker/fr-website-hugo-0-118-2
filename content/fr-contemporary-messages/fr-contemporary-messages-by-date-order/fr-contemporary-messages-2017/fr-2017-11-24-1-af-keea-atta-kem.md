@@ -9,7 +9,7 @@ weight:
 ---
 ### Le 19ème mille
 
-Keea Atta Kem - reçu par Al Fike le 24 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 24 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea-Atta-Kem. Oui j'ai écouté votre discussion sur l'énergie et notre bien-aimée Fleur de Lotus a très bien exprimé les concepts dans [son message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-29-2-af-lotus-blossom/). À bien des égards, c'est ce que nous traitons dans votre groupe et votre cercle pour la voix directe. Couleur et énergie, âmes bien-aimées, couleur et énergie, l'une reflète l'autre. Et comme cela a été dit, il y a une myriade d'énergies dans chaque corps humain, esprit et âme. Toutes interagissent les unes avec les autres avec une telle complexité et subtilité, et c'est dans ces interactions, ces manifestations d'énergies en vous que nous devons travailler pour apporter l'harmonie à ces énergies. 
 

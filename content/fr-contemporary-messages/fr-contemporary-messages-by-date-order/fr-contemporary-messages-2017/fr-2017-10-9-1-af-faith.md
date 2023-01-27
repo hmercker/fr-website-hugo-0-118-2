@@ -9,7 +9,7 @@ weight:
 ---
 ### L'émerveillement de l'Amour Divin de Dieu
 
-Faith - reçu par Al Fike le 9 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Faith - reçu par Al Fike le 9 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, mes bien-aimés, je suis Faith. Je suis venue me joindre à vous dans vos prières, vos supplications au Père Céleste et ajouter mes prières et mon amour.
 

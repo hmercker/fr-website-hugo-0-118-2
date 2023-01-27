@@ -9,7 +9,7 @@ weight:
 ---
 ### À la pointe du changement
 
-Lao Tseu - reçu par Al Fike le 15 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Lao Tseu - reçu par Al Fike le 15 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Lao Tseu. Je fus, historiquement, un philosophe chinois d'une certaine importance et je souhaite m'adresser à mon peuple avec une voix directe. Je suis connu dans mon pays et je serai reconnu, comme le seront ceux que vous connaissez déjà et qui travaillent avec vous. Ils seront connus. Vous allez effectivement vous rendre dans mon pays et apporter cette Vérité, cette Lumière. La sagesse des anciens vient de Dieu. Nos perceptions de Dieu sont différentes et notre culture est différente de la vôtre, mais nous avons tous une âme et dans cette âme se trouve la capacité de nous comprendre les uns les autres d'une manière qui n'engage pas tant l'esprit. C'est ce que nous allons enseigner : *« Regarder dans son âme pour trouver la Vérité et dans cette recherche, vous trouverez Dieu et Son Amour. »*
 

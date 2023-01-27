@@ -9,7 +9,7 @@ weight:
 ---
 ### Réponse aux questions de H
 
-Seretta Kem - reçu par Al Fike le 23 Juin 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 23 Juin 2017, Gibsons, Colombie-Britannique, Canada
 
 C’est moi Seretta Kem et vous et la chère âme au-delà des eaux m’avez invité à répondre à certaines questions, ce que je vais tenter de faire. En ce qui concerne le besoin d’un cabinet et de trompettes, il s’agit d’un mécanisme de vibrations inférieures qui, nous l’espérons, ne sera pas nécessaire dans vos efforts, mais je dois souligner que la préparation et la condition de l’âme et l’harmonie entre vous détermineront ces facteurs. Ces mécanismes peuvent être utiles, mais nous espérons qu’ils ne seront pas nécessaires. Il est donc important que vous poursuiviez vos prières et vos efforts pour apporter la lumière et l’harmonie parmi vous et en vous, et que vous vous concentriez toujours sur le plus élevé afin que ces mécanismes matériels ne soient pas nécessaires, et ne devraient pas être nécessaires pour le développement de ce don.
 

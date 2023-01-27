@@ -11,6 +11,8 @@ weight:
 
 James Padgett - reçu par Al Fike le 15 Juillet 2019, Gibsons, Colombie-Britannique, Canada
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/verite-et-reconciliation.jpg)
+
 Je suis James Padgett. Je me suis rapproché de ce cher instrument car il a pensé à moi et à mon travail. Au cours des derniers jours, il y a eu des discussions sur les messages reçus par le biais de divers instruments qui sont valides et non valides en termes de vérités de l’Amour Divin. Ces questions ont été posées en mon temps également. Qu’est-ce qui est valable ? Quelles informations provenant de l’esprit sont pertinentes pour la Vérité spirituelle ? Ainsi, à votre époque, qui est très différente de la mienne, nombreux sont ceux qui apportent des enseignements des royaumes spirituels, ce qui soulève la question de savoir ce qu’est la Vérité.
 
 Lorsqu’une âme est ouverte à la bénédiction de l’Amour Divin, éveillée par cette bénédiction, il y a des facultés dans l’âme qui sont capables de discerner la Vérité d’une manière qui est quelque peu contradictoire avec les déductions logiques de l’esprit. D’une certaine manière, c’est davantage le sentiment que le fait d’assembler tous les mots dans un dialogue qui constitue une explication véridique d’un sujet donné. L’âme se met en phase avec Dieu. L’âme aspire à renforcer cette relation avec Dieu et à recevoir la bénédiction de l’Amour de Dieu, cette bénédiction tangible qui vient de la grande âme de Dieu à la vôtre par les opérations de l’Esprit Saint.
@@ -19,7 +21,7 @@ Dans ce désir ardent, cette expérience et ce voyage vers la Vérité, l’espr
 
 Le bien-aimé Maître Jésus est venu et a utilisé mes dons pour apporter une explication, une ligne directrice, un moyen par lequel l’âme peut clairement atteindre Dieu et recevoir Son salut par l’Amour. Ces vérités sont aussi valables aujourd’hui qu’elles l’étaient à mon époque. Il y a beaucoup de Vérité dans ce qui a été écrit et rassemblé dans les volumes qui sont encore disponibles.
 
-Bien-aimées âmes, il y a beaucoup de choses qui peuvent être glanées dans ces Vérités, ces mots, bien qu’ils soient écrits à la manière et dans le style des messages de mon époque, il y a encore beaucoup de Vérité pour ceux qui sont prêts à prendre le temps et à faire l’effort de les étudier. Mais beaucoup dans votre monde en ce moment manquent d’engagement, d’énergie et de temps pour le faire et ils souhaitent un style plus contemporain et un effort des médiums pour apporter ces Vérités.1 Nous ne jugeons pas cela, ce désir de continuer à relayer les Vérités de l’Amour Divin dans des mots qui sont plus faciles à comprendre pour vos frères et sœurs, dans des voies et des avenues de Vérité qui s’ajoutent aux Vérités qui ont été données il y a tant d’années et enseignées il y a tant d’années par le Maître Jésus.
+Bien-aimées âmes, il y a beaucoup de choses qui peuvent être glanées dans ces Vérités, ces mots, bien qu’ils soient écrits à la manière et dans le style des messages de mon époque, il y a encore beaucoup de Vérité pour ceux qui sont prêts à prendre le temps et à faire l’effort de les étudier. Mais beaucoup dans votre monde en ce moment manquent d’engagement, d’énergie et de temps pour le faire et ils souhaitent un style plus contemporain et un effort des médiums pour apporter ces Vérités.<sup id="a1">[1](#f1)</sup>  Nous ne jugeons pas cela, ce désir de continuer à relayer les Vérités de l’Amour Divin dans des mots qui sont plus faciles à comprendre pour vos frères et sœurs, dans des voies et des avenues de Vérité qui s’ajoutent aux Vérités qui ont été données il y a tant d’années et enseignées il y a tant d’années par le Maître Jésus.
 
 La Vérité continue à être donnée au monde sous une forme ou une autre. Dieu continue à déverser Son Amour, Sa Vérité sur Ses enfants. La source n’a pas d’importance. Ce qui compte, c’est que l’âme soit inspirée et ouverte pour recevoir la Vérité et pour illustrer et exercer sa compréhension de la Vérité. C’est cela qui importe. La Vérité en elle-même est très simple. Elle est facilement obtenue par l’âme, mais c’est la condition mentale de l’humanité qui continue à faire obstacle à ces questions et compréhensions spirituelles.
 
@@ -38,8 +40,12 @@ Ainsi, ce qui a été écrit à travers moi il y a quelques années peut inspire
 Puissiez-vous le savoir dans vos âmes, le comprendre avec chaque partie de vous-mêmes et être libérés des contraintes et des restrictions de la pensée et de la condition humaines vers ce lieu d’éveil et d’expansion de l’âme, de joie et d’amour grands et merveilleux.
 
 Que Dieu vous bénisse ainsi, mes amis. Je suis James et je suis souvent avec vous. Que Dieu vous bénisse.
+<small>
 
-Note 1 Ceci est maintenant arrivé et Jésus délivre à nouveau la Vérité mais dans un style moderne.
+1. <large id=”f1”> Ceci est maintenant arrivé et Jésus délivre à nouveau la Vérité mais [dans un style moderne](/fr-jesus-of-nazareth-messages/fr-messages-of-jesus-to-the-world/).[↩](#a1)
+
+
+
 
 
 

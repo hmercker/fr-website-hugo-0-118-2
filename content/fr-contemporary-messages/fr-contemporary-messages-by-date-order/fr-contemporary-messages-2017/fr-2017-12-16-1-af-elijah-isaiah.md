@@ -9,7 +9,7 @@ weight:
 ---
 ### Les âmes que vous attirerez pour travailler ensemble
 
-Élie & Ésaïe - reçu par Al Fike le 16 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Élie & Ésaïe - reçu par Al Fike le 16 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Enfants de Dieu, écoutez-moi. Je suis le prophète d'autrefois, Élie, et je viens vous parler de votre avenir. Vous portez en vous un cadeau, mes bien-aimés, un cadeau puissant, qui continue de mûrir en vous et qui sera porté par les vents de changement de ce monde. Car Dieu vous a imprégné d'un don, un don pour aider l'humanité dans les temps à venir, un don qui apportera la sagesse et l'Amour, la force et un nouveau sens du but à l'humanité. Vous êtes toutes porteuses de ce don, âmes bien-aimées. Vous avez chacun un rôle à jouer dans le déroulement du plan de Dieu pour l'humanité. Et c'est ainsi que Dieu vous a profondément touchées, mes bien-aimées, il vous porte en avant. 
 

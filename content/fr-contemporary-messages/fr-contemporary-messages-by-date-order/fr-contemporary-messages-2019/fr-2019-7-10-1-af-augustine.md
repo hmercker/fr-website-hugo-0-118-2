@@ -13,7 +13,7 @@ Augustin - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, 
 
 C’est moi votre enseignant, Augustin. J’ai le privilège aujourd’hui d’être avec vous, pour répondre aux questions que vous pourriez avoir. C’est notre engagement envers vous et nous vous promettons de le faire, à condition que ces questions soient pertinentes pour l’éveil de l’âme et les fonctions de l’âme en ce qui concerne la croissance de l’âme avec l’Amour de Dieu. Donc, je suis disponible en ce moment, pour répondre à vos questions, âmes bien-aimées. S’il vous plaît, n’hésitez pas à demander.
 
-[Question : En ce qui concerne l’éveil et le développement de l’âme, pouvez-vous élaborer sur l’essence de l’Amour de Dieu, la Vérité et la Lumière ? Quelle est la différence entre la Vérité et la Lumière ? La Lumière est-elle la Vérité ? Comment se fait-il que la Vérité puisse être transformée en Lumière ? Y a-t-il une différence ?]
+*[Question : En ce qui concerne l’éveil et le développement de l’âme, pouvez-vous élaborer sur l’essence de l’Amour de Dieu, la Vérité et la Lumière ? Quelle est la différence entre la Vérité et la Lumière ? La Lumière est-elle la Vérité ? Comment se fait-il que la Vérité puisse être transformée en Lumière ? Y a-t-il une différence ?]*
 
 La lumière a été créée par Dieu. Dieu est la lumière. La lumière est un reflet de Dieu. La lumière a donc un pouvoir, la lumière est un élément de l’Univers de la Création de Dieu qui a sa fonction dans cette Création. Chaque âme a été créée pour s’épanouir et recevoir la lumière en elle, pour se développer dans la lumière, pour être la lumière. C’est un aspect naturel de l’individu de désirer et d’être imprégné de lumière. Lorsque la lumière est présente, les diverses capacités et facultés de l’individu sont renforcées par cette lumière. Ainsi, Vérité et Lumière ne sont pas synonymes, mais il n’y a pas de Vérité sans Lumière.
 
@@ -27,7 +27,7 @@ La lumière n’est pas la Vérité en soi, mais sans lumière, il n’y a pas d
 
 C’est un choix, comme toute chose, c’est un choix. Il est donné librement. Elle est présente dans tous les éléments de l’Univers, mais pour l’âme individuelle qui a la bénédiction du libre arbitre, elle doit choisir. Elle doit choisir. Dieu ne refuse pas la lumière à ses enfants, mais ses enfants se refusent la lumière à eux-mêmes. Ils s’affament eux-mêmes par leurs désirs délibérés d’enfreindre les lois de leur existence. Parfois, ils se délectent de ce déséquilibre et de cette obscurité. C’est le dilemme de l’humanité et de nombreux esprits qui continuent à préférer l’obscurité à la lumière, à désirer ce qui n’est pas en harmonie à ce qui l’est. Mais avec le temps, tout viendra à la lumière, tout viendra à l’équilibre et à l’harmonie. Tout sera dans cette grande atmosphère de lumière. Cela doit être, car c’est ainsi. La lumière est une force irrésistible dans l’Univers. Elle attirera tout à elle avec le temps. Cela satisfait-il votre questionnement, monsieur ?
 
-[Question : Vous avez mentionné le processus de la voie naturelle et aussi que l’amour et la lumière de Dieu peuvent transformer une personne. Faites-vous référence au processus de la voie naturelle en utilisant le mental matériel dans lequel beaucoup d’entre nous sont piégés et en luttant pour notre propre pouvoir, ou bien en ouvrant notre âme et en nous abandonnant à l’amour et à la lumière de Dieu pour la transformation ? L’humanité semble dominée par le processus du mental intellectuel/matériel et empêche l’homme de s’abandonner à la volonté de Dieu].
+*[Question : Vous avez mentionné le processus de la voie naturelle et aussi que l’amour et la lumière de Dieu peuvent transformer une personne. Faites-vous référence au processus de la voie naturelle en utilisant le mental matériel dans lequel beaucoup d’entre nous sont piégés et en luttant pour notre propre pouvoir, ou bien en ouvrant notre âme et en nous abandonnant à l’amour et à la lumière de Dieu pour la transformation ? L’humanité semble dominée par le processus du mental intellectuel/matériel et empêche l’homme de s’abandonner à la volonté de Dieu.]*
 
 Oui, cette inclinaison à écouter la volonté de l’individu est présente dans l’humanité depuis le début. Mais sans le don du libre arbitre, sans permettre à l’humanité de choisir son cours, son chemin vers Dieu, alors ces capacités qui sont de l’âme, ces choses au sein de l’humanité qui sont uniques et différentes de toute autre création dans votre monde, ne peuvent exister. Cela fait partie du plan complexe et parfait de la création de Dieu. L’individu a donc des capacités et des potentiels qui dépassent de loin ceux de toute autre créature dans votre monde. Pourtant, l’humanité ne comprend souvent pas ces pouvoirs et ces potentiels dans une large mesure et est inclinée vers les désirs et les aspects les plus bas de la vie. Elle est essentiellement endormie et se contente de l’être.
 
@@ -41,7 +41,7 @@ Il y a eu des âmes courageuses au cours des nombreuses années d’existence de
 
 Y a-t-il autre chose, cher fils ?
 
-[Question : Pouvez-vous nous en dire plus sur la transcendance de l’ego, mon enseignant ?]
+*[Question : Pouvez-vous nous en dire plus sur la transcendance de l’ego, mon enseignant ?]*
 
 Fille bien-aimée, le concept de l’ego n’est pas ce que vous pouvez penser qu’il est. Ce que tu appelles l’ego est en réalité ce dont j’ai parlé pendant tout ce temps. C’est l’individu conscient et volontaire qui souhaite être reconnu et avoir le contrôle et le pouvoir dans sa vie. La transcendance de l’ego vient avec la foi et la reconnaissance qu’il est un enfant de Dieu. Ces choses simples sont difficiles à établir dans la vie d’une personne de manière authentique. On ne peut pas se contenter de prier du bout des lèvres et de désirer être avec Dieu. Cela doit vraiment faire partie de votre désir, le désir de votre âme. Ainsi, transcender l’ego, comme vous le dites, c’est reconnaître qu’il y a quelque chose de plus élevé en vous et exprimer et appliquer votre désir de transcendance.
 
@@ -49,7 +49,7 @@ C’est notre enseignement, fille bien-aimée, que lorsque tu demandes vraiment 
 
 Oui, je dois y aller maintenant. Il est en effet difficile pour cet instrument de continuer à répondre à ces questions en ce moment, mais nous nous réunirons à nouveau et nous aurons ces conversations. Nous sommes heureux de pouvoir le faire et nous sommes heureux que cet instrument soit capable de maintenir cette condition pour que nous puissions le faire. Que Dieu vous bénisse dans Son Amour, âmes bien-aimées. Puissiez-vous arriver à connaître votre vrai moi. Que toutes ces conditions de la condition humaine se dissolvent dans cette Bénédiction d’Amour, afin que vous puissiez connaître la paix et la joie profondes, la sagesse et la Vérité profondes, l’Amour glorieux qui vient de Dieu. Toutes ces choses vous sont données avec cette seule Vérité de l’Amour de Dieu.
 
-Que Dieu vous bénisse, je suis votre maître Augustin. Que Dieu te bénisse.
+Que Dieu vous bénisse, je suis votre maître Augustin. Que Dieu vous bénisse.
 
 
 

@@ -17,7 +17,7 @@ Il y a une grande aspiration à la lumière, à l'amour et à la paix qui dépas
 
 Dieu veille sur vous et nous serons avec vous, comme vous le savez. En ce jour de transition, nous serons avec toi dans tes voyages, chère sœur. Nous serons ravis d'être avec toi lorsque les portes s'ouvriront, non seulement aux véhicules dans lesquels tu seras transportée, mais aussi lorsque les portes s'ouvriront aux cœurs qui t'entourent. Votre lumière et votre amour les toucheront. Quant à toi, cher frère, nous serons avec toi dans ta marche aujourd'hui. Nous te demandons d'être attentif aux désirs de ton cœur.
 
-Où que tu choisisses d'aller, si cela te semble juste dans ton cœur ou même si tu sens que c'est un endroit qui a besoin de ton cœur et de tone âme, nous vous encourageons à y aller. Prends le temps de te reposer. Réfléchis à ces choses. Prie à leur sujet. Nous ne vous laisserons pas tomber. Le Père te protège.
+Où que tu choisisses d'aller, si cela te semble juste dans ton cœur ou même si tu sens que c'est un endroit qui a besoin de ton cœur et de ton âme, nous t'encourageons à y aller. Prends le temps de te reposer. Réfléchis à ces choses. Prie à leur sujet. Nous ne te laisserons pas tomber. Le Père te protège.
 
 Dans le jardin de l'Amour de Dieu, puissiez-vous continuer à fleurir comme les roses, comme le lotus, comme les lumières que vous êtes. Que Dieu vous bénisse. Je vous promets mon amour et ma protection. Je suis votre frère dans les Cieux Célestes, François, et je vous aime.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez toujours l’amour le plus élevé
 
-Augustin - reçu par Al Fike le 14 Juin 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 14 Juin 2017, Gibsons, Colombie-Britannique, Canada
 
 Je souhaite vous rappeler et renforcer l’idée et l’effort de toujours prier pour l’Amour Divin. Je sais que vos pensées sont dirigées sur ce projet de Voix Directe et je sais que cela est en effet requis de vous pour être vigilants et attentifs et avoir vos désirs alignés vers cet effort merveilleux. Mais rappelez-vous, mes bien-aimés, c’est le pouvoir du grand Amour de Dieu, Sa Sainte Essence, qui apportera ce cadeau dans toute sa plénitude. Vous pouvez lire de nombreux articles, faire des recherches sur ce phénomène, et considérer les possibilités de ce don. Rappelez-vous, âmes bien-aimées, que ces dons ont été apportés par des esprits qui n’avaient pas le développement de l’âme que vous possédez en ce moment, et qu’ils n’avaient pas non plus les anges Célestes qui les assistaient dans cet effort. Cette manifestation n’a pas non plus été spécialement bénie par Dieu. Non, mes bien-aimés, il s’agissait d’un effort des esprits naturels et des mortels pour provoquer un phénomène naturel dans ce monde.
 

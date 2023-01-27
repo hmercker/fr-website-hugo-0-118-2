@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement et orientation - un plan directeur pour le changement
 
-Seretta Kem - reçu par Al Fike le 12 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 12 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis heureux de voir que vous êtes tous proactifs dans la réparation de vos corps, dans la vivification de vos âmes et dans l'harmonisation de vos pensées, en apportant la lumière, la lumière de l'Amour de Dieu dans vos êtres. C'est ce que nous vous avons demandé et vous êtes effectivement à l'écoute et faites les efforts nécessaires. Il est important que ces choses soient faites dans l'équilibre. Il est facile de se concentrer sur une seule chose et nous vous avons demandé de faire plusieurs choses. Rappelez-vous que vous ne devez pas vous concentrer intensivement sur un aspect, mais que vous devez vous concentrer légèrement sur tous les aspects. Ce que je veux dire par là, c'est que chaque jour apporte un choix et que lorsque vous établissez une nouvelle routine, disons une routine de pensée, elle s'applique chaque jour mais elle ne requiert pas toute votre attention car il y a beaucoup d'autres choses qui requièrent votre attention. Vous avez développé une pratique et une routine de prière, continuez ainsi et vous pouvez l'intensifier si vous en avez besoin. Lorsque vous pensez à vos régimes alimentaires, il n'est pas nécessaire de tout rejeter complètement de vos anciennes routines, mais d'améliorer ce que vous faites déjà et d'éliminer ce que vous savez ne pas être en harmonie avec votre corps.
 

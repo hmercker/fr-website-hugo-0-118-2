@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez tomber les peurs et les jugements
 
-Augustin - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis votre enseignant Augustin. Oui, pour quelqu'un qui est souvent très sérieux, je serais d'accord pour dire que le rire est le meilleur médicament. Vos discussions portaient sur le lâcher prise de ces conditions, schémas de pensée, peurs et jugements - en fait, tout ce qui n'est pas en harmonie avec l'amour doit être libéré. Ces fardeaux ne vous profitent pas, âmes bien-aimées. Vos inquiétudes ne résolvent pas les problèmes. Plus souvent, elles créent des problèmes. Où devez-vous aller avec vos soucis et ces dilemmes dans votre vie ? Vous devez aller vers Dieu. Ensuite, priez Dieu de vous aider avec chaque situation que vous reconnaissez comme ayant ce potentiel ou qui est problématique dans votre vie, car Dieu va effectivement aider et apporter l'harmonie.
 

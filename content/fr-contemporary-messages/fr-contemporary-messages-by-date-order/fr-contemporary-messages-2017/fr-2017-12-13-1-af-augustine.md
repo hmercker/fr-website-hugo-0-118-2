@@ -9,7 +9,7 @@ weight:
 ---
 ### Liés pour l'éternité
 
-Augustin - reçu par Al Fike le 13 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 13 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, Augustin, votre enseignant, est là. Oui en effet les chaînes ont été brisées, les chaînes de la condition humaine autour de vous tous. Et vous avez forgé de nouvelles chaînes, des chaînes d'Amour, des chaînes de Vérité, des chaînes qui vous soutiendront et vous connecteront dans le futur. Des chaînes qui se développent avec l'amour et qui relient les uns aux autres. Vous vous avez maintenant les uns les autres, âmes bien-aimées. Vous pouvez maintenant compter les uns sur les autres pour l'Amour et le soutien pour travailler ensemble alors que vous avancez dans le monde comme Ses canaux d'Amour. Comme vous continuez à apporter la Vérité à l'humanité, vous vous aurez les uns les autres, car vous avez fait un serment entre vous, n'est-ce pas ? Vous avez dit : *« Je serai votre frère et votre sœur dans ce travail »* et vous avez donné votre temps et votre amour, vous vous êtes réunis, certains d'entre vous avec un grand effort pour être dans ce cercle des sept. Dieu a choisi chacun d'entre vous, mes bien-aimés, Dieu vous a réunis dans un but précis et ce but est forgé à chaque souffle.
 

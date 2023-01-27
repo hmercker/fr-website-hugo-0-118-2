@@ -9,7 +9,7 @@ weight:
 ---
 ### Questions et réponses 
 
-Flavius Joseph - reçu par Al Fike le 24 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 24 Novembre 2019, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées. Je viens à vous pour répondre à vos questions. Je souhaite d’abord commenter le don de perception et de créativité de la chère fille. Ses dons s’intensifieront et s’ouvriront plus complètement à mesure que son âme continuera à grandir dans l’Amour du Père. Ces perceptions de l’âme vont devenir de plus en plus profondes au fur et à mesure qu’elle avance sur ce chemin pour révéler les secrets de l’âme d’une manière si créative. Oui, ces images que vous créez remuent l’âme de l’individu qui les perçoit. Cela ne peut que s’intensifier au fur et à mesure que ton âme grandit et se développe dans l’Amour, permettant au don que Dieu a mis en toi de s’éveiller plus complètement.
 
@@ -17,7 +17,7 @@ Je te suggère, chère fille, lorsque tu crées ces belles images, de continuer 
 
 Maintenant, chère fille bien-aimée, peux-tu lire la première question ? Et je souhaite que tu commences de droite à gauche.
 
-Question 1 : Est-il acceptable de déformer la Vérité, d’exagérer, de ne pas dire toute la Vérité, ou même si vous croyez que le résultat final sera plus aimant, la fin peut-elle jamais justifier les moyens ?
+*Question 1 : Est-il acceptable de déformer la Vérité, d’exagérer, de ne pas dire toute la Vérité, ou même si vous croyez que le résultat final sera plus aimant, la fin peut-elle jamais justifier les moyens ?*
 
 Il s’agit très certainement d’une question provenant des interrogations du mental sur ce qui est moral et correct. En effet, l’honnêteté et l’intégrité dans votre vie quotidienne sont importantes et constituent l’un des piliers de votre voyage spirituel, car sans ces deux éléments, on se perd dans ses propres illusions et délires exprimés de manière malhonnête et non correcte. L’erreur vient de la malhonnêteté, âmes bien-aimées. Ce n’est pas nécessairement une malhonnêteté qui est intentionnelle, mais c’est une hypothèse, une formulation mentale interprétant une vérité. C’est la source de vérité la plus courante dans votre monde car l’humanité continue d’utiliser les facultés de son esprit afin d’exprimer la vérité spirituelle sans engager les facultés de son âme.
 
@@ -39,7 +39,7 @@ Il est important que vous développiez le discernement de votre âme, frères et
 
 Je vais donc répondre à la question suivante.
 
-Question 2 : Pouvez-vous nous parler des attachements d’âme et de ce qu’il faut faire à leur sujet ?
+*Question 2 : Pouvez-vous nous parler des attachements d’âme et de ce qu’il faut faire à leur sujet ?*
 
 Chaque mortel dans le monde, en vertu de la loi d’attraction, est influencé par, il y a une influence des esprits causée par la loi de l’attraction. Lorsqu’une personne attire certains esprits à elle, encore et encore, la relation entre elle et l’esprit peut devenir intense. Si cet esprit est sombre et faible, s’il a besoin de réconfort ou s’il désire faire du mal, alors la relation devient très intense. C’est ce que vous pouvez appeler l’attachement. Tout comme vous êtes attaché à vos proches par l’amour, ces esprits sont attachés à un autre mortel par le désir.
 
@@ -67,7 +67,7 @@ Pour vous, chères âmes qui continuez à lutter pour la Lumière, qui êtes par
 
 Faites-le en toute innocence. Faites-le au fur et à mesure que votre journée se déroule et évolue, et les occasions se présenteront. Comme je l’ai dit, souvent elles ne sont pas invitées ou même inconnues. Mais votre prière est exaucée et Dieu a une grande joie dans votre décision d’être un instrument de Lumière, un canal d’Amour. Le monde a besoin de beaucoup, beaucoup plus de personnes comme vous. Nous travaillons avec diligence pour aider à enflammer ces vérités dans les esprits et les âmes de l’humanité. Continuez à prier pour le monde. Continuez à être les instruments de Lumière de Dieu. Merci.
 
-Question 3 : Je pense que vous avez probablement répondu à une grande partie de cette question, mais au cas où il y aurait quelque chose à ajouter. La question concerne l’influence des esprits en colère, en particulier les esprits de femmes en colère. L’autre partie de la question est de savoir quelle est la différence entre la guidance et l’influence ? Certains esprits ont-ils le pouvoir d’influencer contre le libre arbitre ?
+*Question 3 : Je pense que vous avez probablement répondu à une grande partie de cette question, mais au cas où il y aurait quelque chose à ajouter. La question concerne l’influence des esprits en colère, en particulier les esprits de femmes en colère. L’autre partie de la question est de savoir quelle est la différence entre la guidance et l’influence ? Certains esprits ont-ils le pouvoir d’influencer contre le libre arbitre ?*
 
 Oui, je pense avoir déjà répondu à la plupart de ces questions. Il y a beaucoup d’individus en colère dans le monde, qu’ils soient hommes ou femmes. L’intensité de la colère est grande chez beaucoup d’entre eux car ils ressentent de profondes blessures. Ils ont fait l’expérience d’une vie qui n’a pas été satisfaisante et ils souhaitent rejeter la faute sur les autres plutôt que de prendre la responsabilité en eux-mêmes de cette situation. Il est tellement plus facile de projeter la colère. C’est d’une certaine manière satisfaisant pour l’individu et souvent très gratifiant. Dans son esprit, il existe de nombreuses façons de justifier sa colère. Mais ce n’est pas la voie de l’amour. Ce n’est pas un reflet de l’amour. C’est le reflet de leur propre obscurité intérieure. Ainsi, il faut faire preuve de compassion et éventuellement de vérité envers cette personne.
 
@@ -89,7 +89,7 @@ Ayez confiance dans votre chemin vers Dieu, âmes bien-aimées. Ne permettez pas
 
 Cette pénétration est le résultat de vos vrais désirs, des désirs intenses de recevoir ce cadeau de l’Amour Divin, cette Essence Sainte qui résoudra tous vos dilemmes, apportera la Vérité à votre moi conscient, et vous permettra d’être une lumière intense, un canal d’Amour, un cadeau pour le monde parce que vous avez surmonté tous les grands obstacles, toutes les difficultés, et toute la douleur, les complications, et les va-et-vient attentifs et êtes arrivés à la paix, la joie et l’Amour. L’expression de l’Amour qui imprègnera chaque partie de votre être, tout ce que vous êtes, et fera de vous une grande Lumière, un grand cadeau pour le monde. Il est à vous et il est pour tout le monde, mais il est pour vous et votre responsabilité d’être dans la Lumière, de marcher dans la Lumière, d’être un véritable enfant de Dieu. Puissiez-vous vraiment comprendre cela avec une profonde compassion pour vous-même et un profond amour pour vous-même et pour votre Créateur. Merci.
 
-Question 4 : La dernière question du groupe ce matin est la suivante : Est-ce que l’Amour Divin entre en nous par le chakra couronne ou directement dans notre cœur sous forme de vibration et de lumière et est-ce que les blocages dans le chakra couronne rendent plus difficile de recevoir ou de ressentir l’Amour de Dieu ?
+*Question 4 : La dernière question du groupe ce matin est la suivante : Est-ce que l’Amour Divin entre en nous par le chakra couronne ou directement dans notre cœur sous forme de vibration et de lumière et est-ce que les blocages dans le chakra couronne rendent plus difficile de recevoir ou de ressentir l’Amour de Dieu ?*
 
 Ainsi, lorsque vous faites référence au chakra couronne et au cœur et à ces concepts, vous faites référence au corps spirituel, n’est-ce pas ? Et oui, bien sûr, l’Amour Divin doit entrer par le corps spirituel et dans le cas de vous-mêmes, par votre chair. A travers toutes ces couches de votre être, l’Amour Divin doit entrer pour atteindre l’âme. Or, la chair est facilement pénétrée parce qu’elle est en quelque sorte sans rapport avec cet afflux d’Amour. Bien que vous puissiez être distrait par votre chair qui n’est pas en harmonie et qui a des douleurs et des maux et que ces choses vous distraient de vos prières, ce n’est pas nécessairement le cas.
 

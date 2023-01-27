@@ -9,7 +9,7 @@ weight:
 ---
 ### Levez les yeux vers Dieu
 
-Augustin - reçu par Al Fike le 8 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 8 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Cet instrument pose une question et sa question est : *« Comment serai-je assez fort pour faire ces choses que Tu me demandes Père bien-aimé ? Comment vais-je être digne, clair et rempli d'Amour afin d'être vraiment en harmonie avec Ta volonté ? »*
 

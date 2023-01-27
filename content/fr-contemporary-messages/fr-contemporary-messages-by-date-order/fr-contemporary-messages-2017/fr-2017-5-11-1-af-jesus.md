@@ -9,7 +9,7 @@ weight:
 ---
 ###  Jésus parle de la Pentecôte
 
-Jésus - reçu par Al Fike le 11 Mai 2017, Indio, Californie, USA.
+Jésus - reçu par Al Fike le 11 Mai 2017, Indio, Californie, USA
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-pentecost-and-mission-1.jpg)
 

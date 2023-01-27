@@ -13,7 +13,7 @@ Jésus - reçu par Jane Gartshore le 27 Août 2020
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fleur-de-lotus.jpg)
 
-Je suis ici. Et oui, je souhaite prolonger notre discussion sur ce sujet très important.
+Je suis ici. Et oui, je souhaite prolonger notre discussion<sup id="a1">[1](#f1)</sup>  sur ce sujet très important.
 
 Je suis ici. Pour vous tous. Car vous êtes vraiment mes frères et sœurs, et ceux d’entre vous qui cherchent l’Amour de notre Père et continuent à lutter pour la vérité et, surtout, cherchent à être à Son service, vous marchez avec moi. Je suis ici.
 
@@ -32,6 +32,11 @@ Quel est donc le but de la vie ? Est-ce de glorifier le corps, de le nourrir, de
 Nourrissez votre âme, mes bien-aimés. Ornez-la de bonnes actions. Hébergez-la dans le luxe de l’étreinte de Dieu. Et utilisez votre âme pour l’adorer. C’est cela l’Amour dans sa pleine expression : utiliser les dons de l’âme pour glorifier Dieu et pour créer un monde d’Amour où tous peuvent s’épanouir.
 
 Je suis Yeshua. Je continuerai bientôt ce message.
+small>
+
+1. <large id=”f1”> Le message précéedent est disponible |ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-18-3-jg-jesus/).[↩](#a1)
+
+
 
 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Quelques discussions sur la médiumnité
 
-Augustin - reçu par Al Fike le 30 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 30 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, mes bien-aimés. Oui, cet instrument va continuer à se familiariser avec de nombreux autres anges du Royaume Céleste. Il est souvent difficile de discerner le nom de ces individus, de ces anges qui viennent. Nous allons l'aider à être clair dans sa compréhension et sa perception de ces individus et à connaître leurs noms. C'est difficile à cause des parties du cerveau matériel qui sont utilisées pour produire une communication verbale, car ces noms doivent être clairs.
 

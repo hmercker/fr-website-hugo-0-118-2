@@ -9,7 +9,7 @@ weight:
 ---
 ### Les dons et le but de chaque âme
 
-Samuel - reçu par Al Fike le 27 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Samuel - reçu par Al Fike le 27 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Samuel. Je suis venu parler d'un sujet important, l'importance de connaître le but que Dieu a infusé dans vos âmes. La raison première pour laquelle une âme s'incarne dans le monde est d'établir son identité, une individualité qui vient avec l'expérience du monde matériel et le fait de revêtir une chair matérielle. C'est le but de chaque âme lorsqu'elle s'incarne.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Je suis là pour vous aider
 
-Martha - reçu par Al Fike le 18 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Martha - reçu par Al Fike le 18 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Martha. Ayez foi en vos beaux moi et sachez que de nombreux changements ont eu lieu en vous. Ayez la foi que ces changements vont effectivement se manifester dans vos pensées et vos actions dans le monde. Car c'est en croyant en vous-mêmes, en ce qui est en vous, en cette connaissance, en cette conscience et en cet engagement que ces belles lumières en vous, ces dons et cet Amour vous aideront à vous exprimer dans le monde d'une manière qui soit en harmonie, en Lumière, en force et en Amour.
 

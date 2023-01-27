@@ -9,7 +9,7 @@ weight:
 ---
 ### La guérison et la loi de l'harmonie Partie 2
 
-Seretta Kem - reçu par Al Fike le 21 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 21 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je souhaite poursuivre mon propos sur la guérison, car il y a de nombreux aspects de la guérison et des conditions autour d'une guérison réussie qui peuvent être discutés en ce moment.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Faites de l'amour votre vérité directrice à travers les changements terrestres
 
-Keea Atta Kem - reçu par Al Fike le 13 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 13 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Keea Atta Kem. Je suis venu vous parler des changements dans ce monde, des changements qui se sont déjà produits et des changements qui vont se produire. À l'heure actuelle, ces changements dans le monde ne sont pas particulièrement remarqués, sauf lorsqu'ils apportent un certain chagrin aux personnes qui sont directement touchées par les changements météorologiques.
 

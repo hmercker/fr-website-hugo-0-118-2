@@ -9,7 +9,7 @@ weight:
 ---
 ### J'ai une histoire à raconter !
 
-Marilyn Munroe - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Marilyn Munroe - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Bonjour, je suis Marilyn Monroe. Bon sang, j'ai une histoire à raconter ! J'aimerais raconter mon histoire avec une voix directe. Je pense que beaucoup reconnaîtront qui je suis. Je souhaite apporter non seulement la vérité de ma vie mais aussi la vérité des belles bénédictions de Dieu pour tous.
 

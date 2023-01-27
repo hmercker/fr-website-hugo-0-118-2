@@ -9,7 +9,7 @@ weight:
 ---
 ### Beaucoup travaillent ensemble pour la Voix Directe
 
-Reine Victoria - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Reine Victoria - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis la Reine Victoria et moi aussi je suis une habitante du Royaume Céleste et moi aussi j'ai un grand intérêt pour votre travail. J'espère me présenter devant de nombreuses personnes dans le monde qui me connaissent et moi aussi, je dirai la vérité dans ma propre langue aux autres. Vous voyez, il y a beaucoup, beaucoup de possibilités qui peuvent découler de ce travail, beaucoup d'anges et d'esprits magnifiques qui peuvent parler et faire avancer la vérité. Nous sommes donc profondément intéressés et soutenons votre travail. Nos prières sont avec vous, mes chers et bien-aimés amis.
 

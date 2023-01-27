@@ -9,7 +9,7 @@ weight:
 ---
 ### La porte est ouverte
 
-Seretta Kem - reçu par Al Fike le 6 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 6 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis Seretta Kem. Ainsi vous êtes arrivés à un autre carrefour. Chaque jour est en effet un carrefour, un lieu de choix, un lieu différent du précédent, un lieu plus proche de votre objectif. Aujourd'hui, vous avez eu une discussion sérieuse entre vous et cet instrument a donné certaines de ses impressions, comme d'autres l'ont fait. Vous avez tous réalisé qu'en effet, le temps qu'il vous reste à passer ensemble est un temps important. Un temps d'effort extrême et de concentration extrême et pas nécessairement de concentration de vos esprits mais de vos âmes. Pour élever à nouveau votre Lumière et les désirs de votre âme vers Dieu dans la prière, non pas tant pour chercher cette douce assurance de Dieu que vous êtes aimés, car vous êtes certainement mes bien-aimés et vous le reconnaissez. 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérez vos limites
 
-Augustin - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Augustin. Chacun d’entre vous est conscient de ses limites. Vous vivez dans ce monde. Vous vivez dans un corps de chair.
 

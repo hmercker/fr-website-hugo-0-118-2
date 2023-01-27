@@ -9,7 +9,7 @@ weight:
 ---
 ### Personnel pour M
 
-Fleur de Lotus - reçu par Al Fike le 10 Août 2017, Gibsons, Colombie-Britannique, Canada.
+Fleur de Lotus - reçu par Al Fike le 10 Août 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse. Je suis Fleur de Lotus et je suis heureux de pouvoir parler à travers cet instrument. J'ai souvent été avec toi, ma fille ; j'ai entendu tes requêtes et tes questions. Je t'ai vue utiliser les vérités que tu connais pour apporter plus de connaissances, de santé, de dynamisme et de joie à toi et aux autres.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Nul besoin d'avoir honte de ce que vous êtes
 
-Rock Hudson - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Rock Hudson - reçu par Al Fike le 21 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Rock Hudson. Ce n'est pas mon vrai nom mais c'est mon nom de scène. J'ai trouvé une grande libération dans le monde de l'esprit car j'ai vécu ma vie en secret. J'avais honte de ma vie, et de la façon dont j'étais dans ce monde - le vôtre. Mais maintenant, j'ai appris à connaître l'Amour de Dieu et à connaître mon âme et j'en suis venu à voir la vie très différemment. Je souhaite venir avec une voix directe car beaucoup reconnaîtront mon visage. Je veux parler de la façon dont Dieu aime chaque âme dans ce monde et dans mon monde, peu importe comment ils sont dans ce monde, ce qui les attire et affecte leur pensée et leur être dans ce monde. Ils sont toujours aimés de Dieu.
 

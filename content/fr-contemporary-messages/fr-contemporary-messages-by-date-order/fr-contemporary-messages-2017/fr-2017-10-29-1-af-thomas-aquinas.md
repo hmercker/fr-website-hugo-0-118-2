@@ -9,7 +9,7 @@ weight:
 ---
 ### S'accorder les uns avec les autres apporte une puissante harmonie
 
-Thomas d'Aquin - reçu par Al Fike le 29 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Thomas d'Aquin - reçu par Al Fike le 29 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, âmes bien-aimées, je suis Thomas d'Aquin.
 

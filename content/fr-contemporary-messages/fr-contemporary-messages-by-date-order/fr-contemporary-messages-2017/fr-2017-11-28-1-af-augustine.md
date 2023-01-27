@@ -9,7 +9,7 @@ weight:
 ---
 ### Lâcher prise sur les attentes
 
-Augustin - reçu par Al Fike le 28 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 28 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je souhaite parler de ce que signifie être un canal d'Amour dans le monde. Vous avez entendu cette âme bien-aimée venue de loin parler de ses pensées et de ses sentiments sincères, comment son âme s'est ouverte à l'Amour du Père, comment elle désire partager cet Amour avec ceux qu'elle aime, avec tous ceux qui écouteront.
 

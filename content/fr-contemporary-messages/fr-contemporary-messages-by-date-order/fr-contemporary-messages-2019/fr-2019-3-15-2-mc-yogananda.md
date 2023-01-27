@@ -11,7 +11,7 @@ weight:
 
 Yogananda - reçu par Maureen Cardoso le 15 Mars 2019, Abbotsford, Colombie-Britannique, Canada
 
-Je prie avec vous. C’est Yogananda. Je n’ai pas parlé à travers cet instrument auparavant, mais je suis très heureux d’établir un rapport avec cet instrument et d’apporter un message continu de soutien à la chère âme avec laquelle je vais travailler ensemble pour apporter des écrits et des enseignements de vérité, car j’ai déjà partagé mon désir de le faire à travers lui. (Jimbeau)
+Je prie avec vous. C’est Yogananda. Je n’ai pas parlé à travers cet instrument auparavant, mais je suis très heureux d’établir un rapport avec cet instrument et d’apporter un message continu de soutien à la chère âme avec laquelle je vais travailler ensemble pour apporter des écrits et des enseignements de vérité, car j’ai déjà partagé mon désir de le faire à travers lui (Jimbeau).
 
 Âmes bien-aimées, alors que vous priez maintenant ensemble à deux océans de distance et dans votre monde, cela peut sembler une vaste distance, mais n’est-ce pas charmant de voir comment l’âme transcende le temps et l’espace et avec quelle facilité vous pouvez sentir la présence aimante de l’autre et la proximité, les liens qui sont là par la Grâce de Dieu. C’est ce que l’amour de Dieu fait sur les âmes. Il les unit. Il les lie et crée une connaissance de l’âme de l’un à l’autre, plus profonde que ce que l’on peut expérimenter à travers le mental. Les relations à travers l’esprit sont limitées. Les relations à travers l’âme n’ont absolument aucune limite.
 

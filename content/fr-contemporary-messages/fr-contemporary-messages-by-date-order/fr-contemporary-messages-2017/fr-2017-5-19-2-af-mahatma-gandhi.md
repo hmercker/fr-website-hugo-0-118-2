@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous pouvez changer le monde
 
-Mahatma Gandhi - reçu par Al Fike le 19 Mai 2017, Bend, Oregon, USA.
+Mahatma Gandhi - reçu par Al Fike le 19 Mai 2017, Bend, Oregon, USA
 
 Je suis Mahatma Gandhi et je souhaite communiquer avec cette chère âme qui vous accueille dans cette maison et lui dire que j’ai été avec elle et que je lui ai apporté mon influence pour l’aider dans le travail qu’elle fait et le travail qui se manifestera de son vivant pour aider à apporter l’harmonie dans ce monde. Il y a une grande porte qui est sur le point de s’ouvrir, mon amie, pour vous dans le service. Vous vous êtes bien préparé. Vous avez de profondes connaissances et une âme qui aspire à servir Dieu. Et Dieu ne gaspillera pas vos talents et vos aspirations. Dieu utilisera ceux qui souhaitent servir et fera naître des opportunités qui apporteront la Lumière, la Paix et la Vérité à ce monde.
 

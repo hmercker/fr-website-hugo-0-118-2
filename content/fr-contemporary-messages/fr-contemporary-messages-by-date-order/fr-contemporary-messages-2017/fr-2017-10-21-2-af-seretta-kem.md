@@ -9,7 +9,7 @@ weight:
 ---
 ### Se préparer à l'arrivée de la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 21 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 21 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse. Nous nous adresserons à votre cercle demain et chacun de nous dira quelques mots d'encouragement. Vous faites partie de votre cercle et vous êtes un partenaire privilégié pour l'un et l'autre et pour tous les autres qui viendront, et c'est ainsi que nous commencerons nos efforts. Ma fille, tu as raison de penser qu'il faudra un dévouement spécial parmi vous pour créer et maintenir les conditions et le pouvoir nécessaires afin que nous puissions accomplir ces tâches et ce développement en vous. 
 

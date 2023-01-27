@@ -9,7 +9,7 @@ weight:
 ---
 ### Le désir de l’âme est une prière
 
-Augustin - reçu par Al Fike le 21 Mai 2017, Bend, Oregon, USA.
+Augustin - reçu par Al Fike le 21 Mai 2017, Bend, Oregon, USA
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-spiritualite-14.jpg)
 

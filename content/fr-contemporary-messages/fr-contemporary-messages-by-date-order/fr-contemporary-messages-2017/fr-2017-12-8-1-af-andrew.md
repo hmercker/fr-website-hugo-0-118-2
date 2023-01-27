@@ -9,7 +9,7 @@ weight:
 ---
 ### S'unir dans l'amour
 
-André - reçu par Al Fike le 8 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 8 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Nous allons en effet nous joindre à vous dans votre célébration demain pour rassembler les belles âmes dans l'Amour. L'excitation et l'anticipation que vous ressentez proviennent de la beauté de vos âmes, sachant que même si les perspectives peuvent être différentes, les âmes sont les mêmes dans la Lumière. C'est sur cela que vous devez vous concentrer, mes bien-aimés, mes amis bien-aimés, pour être aimants et acceptants, pour dire votre Vérité clairement, pour tendre votre main dans l'Amour, pour ouvrir vos bras et embrasser ces belles âmes qui sont des chercheurs sérieux de la Vérité. Elles sont venues connaître une Vérité et sont venues vivre une Vérité qui est de Lumière.
 

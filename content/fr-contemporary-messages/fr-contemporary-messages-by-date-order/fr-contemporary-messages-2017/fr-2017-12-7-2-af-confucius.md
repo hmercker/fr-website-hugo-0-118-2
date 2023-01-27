@@ -9,7 +9,7 @@ weight:
 ---
 ### Guérisons par la couleur
 
-Confucius - reçu par Al Fike le 7 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 7 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Confucius. Dieu déverse sur vous, mes bien-aimés, une grande vague de guérison. Une vague de nombreuses couleurs, profonde et résonnante et belle pour vous aider avec vos corps physiques, pour vous aider avec vos corps spirituels, pour vous aider à être en plus grand alignement et harmonie avec vos âmes. Ceci afin que vous puissiez être préparés pour le travail qui vient et les opportunités qui se présenteront grâce à vos dons qui se déploient et se concrétisent.
 

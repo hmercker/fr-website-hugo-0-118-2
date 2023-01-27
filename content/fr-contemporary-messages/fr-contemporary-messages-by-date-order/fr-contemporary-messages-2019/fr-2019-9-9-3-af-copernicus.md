@@ -23,9 +23,12 @@ Car à mesure que vous grandissez dans cet Amour et que vos âmes s’éveillent
 
 Puissiez-vous continuer à marcher sur ce Chemin de l’Amour et découvrir les nombreux mystères que Dieu a créés. Car en grandissant dans l’Amour et en vous éveillant dans l’Amour, il n’y aura pas de mystères, mais de la compréhension, de la Vérité et de la joie.
 
-Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Copernic et je vous remercie de m’avoir accordé ce temps de parole et je reviendrai vous parler des mystères du monde, de l’univers et de Dieu. Merci, mes amis, et que Dieu vous bénisse. Que Dieu vous bénisse.
+Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Copernic et je vous remercie de m’avoir accordé ce temps de parole et je reviendrai vous parler des mystères du monde, de l’univers et de Dieu. Merci, mes amis, et que Dieu vous bénisse. Que Dieu vous bénisse.<sup id="a1">[1](#f1)</sup>
+<small>
+1. <large id=”f1”> Ce message est à rapprocher d'une communication faite par Galilée [le 21 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-21-2-jep-galileo/).[↩](#a1)
 
-**Note du traducteur :** Ce message est à rapprocher d'une communication faite par Galilée [le 21 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-21-2-jep-galileo/) 
+
+
 
 
 

@@ -11,7 +11,11 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 16 Septembre 2018, Phoenix, Arizona, USA.
 
+<<<<<<< HEAD
 Vous sentez de nombreuses âmes attirées vers vous. Cela semble être un défilé sans fin d’âmes qui veulent être avec vous, prier avec vous, partager quelques moments avec vous dans votre vie. C’est le pouvoir de l’amour, mes bien-aimés. C’est le pouvoir de l’amour. Car lorsque vous continuez à grandir dans l’Amour du Père, cela agit comme un aimant sur les âmes qui cherchent, qui ressentent la résonance de leur désir et de votre lumière. Alors mes bien-aimés, c’est ainsi que cela se passera dans votre monde. De nombreuses âmes vous chercheront, cherchant quelque chose, souvent sans savoir pourquoi, mais cherchant néanmoins, attirées par vous. Ce sera en effet un flux plus prolifique, plus important et une connexion puissante qui sera établie avec chacune de ces âmes.
+=======
+Il est bon de vous voir réunis en prière dans ce beau sanctuaire, ce Centre de Lumière. En effet, vous avez eu ce soir une conversation que vous avez basée sur plusieurs de ses aspects comme : *« Que se passe-t-il dans ce Cercle de Lumière ? »* *« Quel est le but de ce voyage ? »* Il est bon d’entendre chacun de vous partager ce que vous avez appris à connaître, la vérité qui repose sur votre âme, ces enseignements que vous avez testés et que vous avez pris comme votre vérité. Cela va continuer à croître et à se développer. Une plus grande compréhension viendra à vos âmes, mais aussi à vos esprits.
+>>>>>>> baea53e17c36649c534b584044f371223742b482
 
 Lorsque vous développerez avec succès le don de la voix directe, mes bien-aimés, il y en aura beaucoup, beaucoup d’autres qui seront attirés vers vous, beaucoup de curieux, beaucoup de personnes désireuses de connaître cette vérité et comment vous en êtes arrivés à développer ce don. Ceux que vous avez rencontrés pendant ce temps ensemble seront très curieux. Vous avez établi des contacts importants pendant votre séjour ici. Bien sûr, vous devez toujours faire preuve de discernement et connaître au sein de votre âme les directions que vous devez prendre et suivre.
 

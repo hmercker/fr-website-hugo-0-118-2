@@ -9,7 +9,7 @@ weight:
 ---
 ### L'avancée de l'âme
 
-Jésus - reçu par Helge Mercker le 5 Août 2017, Swakopmund, Namibie.
+Jésus - reçu par Helge Mercker le 5 Août 2017, Swakopmund, Namibie
 
 Je suis venu, je suis là, oui c'est Jésus. Vous avez ressenti mes incitations et je suis heureux que vous ayez prié avec sérieux et que vous sentiez ma proximité. Je suis venu vous parler de l'Amour du Père et de la puissance qu'il apporte à chaque âme et de l'avancement de l'âme dans sa progression vers une proximité toujours plus grande avec le Père. C'est le fait de se rapprocher toujours plus de l'état de renaître dans la divinité de Son Amour. Et chaque prière qui vient avec un désir sincère de l'âme pour cet Amour est un pas de plus vers ce grand moment d'un nouvel être, d'une nouvelle réalité. Chaque personne en fait l'expérience d'une manière différente, avec une conscience et une reconnaissance différentes. Pour la plupart, c'est un processus progressif. C'est un voyage, c'est un processus.
 

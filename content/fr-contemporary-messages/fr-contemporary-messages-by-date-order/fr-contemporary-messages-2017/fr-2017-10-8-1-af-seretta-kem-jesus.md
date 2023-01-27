@@ -9,11 +9,11 @@ weight:
 ---
 ### Instruction pour la voix directe
 
-Seretta Kem & Jésus - reçu par Al Fike le 8 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem & Jésus - reçu par Al Fike le 8 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
-Je suis Seretta Kem. Nous entamons une nouvelle phase de votre préparation à la voix directe. Ces prochaines semaines, nous serons avec vous plus intensément et nous vous demandons de prier avec plus de ferveur pour notre présence et pour la présence de l'Amour de Dieu dans vos âmes. Pour l'instant, nous forgeons ce lien d'engagement et de rapport et nous vous apportons une condition d'amour qui vous élèvera et vous aidera dans vos routines quotidiennes, afin que vous puissiez vous sentir plus connectés à Dieu.
+**Je suis Seretta Kem.** Nous entamons une nouvelle phase de votre préparation à la voix directe. Ces prochaines semaines, nous serons avec vous plus intensément et nous vous demandons de prier avec plus de ferveur pour notre présence et pour la présence de l'Amour de Dieu dans vos âmes. Pour l'instant, nous forgeons ce lien d'engagement et de rapport et nous vous apportons une condition d'amour qui vous élèvera et vous aidera dans vos routines quotidiennes, afin que vous puissiez vous sentir plus connectés à Dieu.
 
-*[C'est à ce moment-là que Jésus entre en scène (je crois).]*
+**[C'est à ce moment-là que Jésus entre en scène (je crois).]**
 
 Cette élévation est importante pour que vous ressentiez ce sentiment profond de la présence de Dieu, cette paix et cet amour profonds, pour que vous puissiez porter cette lumière partout où vous allez, pour que vous vous sentiez proche des anges, pour qu'il y ait de la joie dans votre cœur et que vous soyez enthousiastes et animés d'un désir profond pour une plus grande lumière et une union plus étroite avec Dieu. Vous pouvez mettre de côté toutes les autres préoccupations et être dans cette lumière, car cela exigera une condition d'harmonie en vous qui est cohérente et se construit d'un jour à l'autre. Ce n'est pas un fardeau, n'est-ce pas, de sentir la joie, de sentir l'amour couler sur vous et en vous, de sentir la présence de Dieu dans votre vie ? En gardant vos pensées sur des choses plus élevées et en anticipant avec impatience vos moments ensemble, les anges travailleront ensemble pour créer une ouverture, un portail de lumière et d'énergie qui manifestera la voix directe afin que chacun d'entre vous se réunisse d'une telle manière que toute disharmonie et résonance s'écoulera ensemble comme un seul homme dans cette lumière magnifique.
 
@@ -25,7 +25,7 @@ Libérez vos esprits de toute limitation. Permettez à vos âmes de s'élever da
 
 Avancez, mes bien-aimés. Prenez la place qui vous revient et permettez à Dieu de vous utiliser dans son plan pour apporter le salut, l'harmonie, la paix, la joie, la vérité et le réveil à l'humanité. Vous serez connus dans le monde, vos efforts auront un impact. Les mots que vous prononcerez apporteront la vérité et les anges de Dieu se manifesteront dans la lumière, indiquant aux personnes présentes que c'est bien la vérité. Ils parleront. Ils partageront leur amour. Ils toucheront de nombreuses âmes car eux aussi sont des canaux d'amour pour Dieu et Dieu nous utilisera tous dans cette grande œuvre pour apporter plus d'amour et de lumière à ce monde. Nous devenons un seul corps, un seul corps dans le grand plan de Dieu. Nous sommes ensemble. Dieu vous bénit. Je suis Jésus et je vous aime mes frères et sœurs. Je vous aime. Vous êtes mes disciples et nous travaillons ensemble pour apporter cette vérité, si simple, au monde. Je suis avec vous. Je continuerai à être avec vous et je ne vous quitterai jamais. Je suis votre frère. Je suis Jésus. Que Dieu vous bénisse.
 
-*[Seretta Kem reprend la parole.]*
+**[Seretta Kem reprend la parole.]**
 
 Quelle belle bénédiction Jésus vous apporte mes bien-aimés pour vous encourager dans vos efforts et votre cheminement. Maintenant je suis venu pour vous donner des instructions plus pratiques. Je vous suggère qu'à partir de maintenant et jusqu'à ce que vous vous rencontriez, vous fassiez un effort pour garder vos régimes légers, pas des aliments lourds, plus légers, certainement nutritifs. Ne vous surchargez pas. Continuez à ingérer les éléments qui ont été recommandés : phosphore, calcium et chlorophylle. Continuez à surveiller vos corps et à vous assurer que votre apport nutritionnel est conforme à votre compréhension intuitive de ce dont vous avez besoin. Nous vous aiderons à cet égard. Vos corps peuvent se sentir plus légers et fonctionner d'une manière qui sera utile dans votre développement pour la voix directe.
 

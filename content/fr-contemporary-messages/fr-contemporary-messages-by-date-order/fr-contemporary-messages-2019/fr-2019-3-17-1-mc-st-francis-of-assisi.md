@@ -11,7 +11,7 @@ weight:
 
 St François d'Assise - reçu par Maureen Cardoso le 17 Mars 2019, Abbotsford, Colombie-Britannique, Canada
 
-Gracieux et chers amis, je suis François, connu sous le nom de Saint François lorsqu’il était sur Terre. Oui, il y a beaucoup de choses dans l’air qui s’épanouissent en ce moment dans chacune de vos vies, alors que vous entamez cette nouvelle saison du printemps. Beaucoup d’entre vous ont été attirés ensemble dans des Cercles de Lumière, pour prier, communier et se joindre à des événements joyeux.
+Gracieux et chers amis, je suis François. Je fus connu sous le nom de Saint François lors de ma vie terrestre. Oui, il y a beaucoup de choses dans l’air qui s’épanouissent en ce moment dans chacune de vos vies, alors que vous entamez cette nouvelle saison du printemps. Beaucoup d’entre vous ont été attirés ensemble dans des Cercles de Lumière, pour prier, communier et se joindre à des événements joyeux.
 
 Mes chers amis, de ce moment de rassemblement naîtront des idées, des événements, des projets et des rencontres. C’est un grand, grand moment sur vos chemins de cet Amour Divin où de nombreuses opportunités seront offertes à chacun d’entre vous – à la fois ceux qui ont suivi ce chemin depuis très longtemps et ceux qui sont nouveaux sur ce chemin. Beaucoup de choses vous arriveront, ces grandes ouvertures et opportunités, pour que vous puissiez partager avec les autres, d’une manière très gracieuse et simple, vos vies spirituelles, dans la Grâce de l’Amour de Dieu, de la manière qui vous convient le mieux. Car Dieu a besoin de chaque âme unique pour parler à ceux qui sont devant eux, d’une manière très confortable et partager avec les autres ce grand voyage que vous faites.
 

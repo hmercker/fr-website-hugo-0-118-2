@@ -9,7 +9,7 @@ weight:
 ---
 ### C'est aujourd'hui que vous servez Dieu
 
-Samuel - reçu par Al Fike le 19 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Samuel - reçu par Al Fike le 19 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Samuel. Je suis venu pour vous encourager dans vos efforts pour être des canaux clairs de l'Amour du Père, pour placer votre relation avec Dieu au-dessus de tout. Lorsque vous êtes avec Dieu, ne permettez à rien de la nature matérielle et de votre mental de perturber et d'interférer avec cette connexion avec votre Père Céleste. Ce qui est le plus important en ce moment, c'est de prier intensément, de demander sincèrement que l'Amour du Père coule dans vos âmes, d'être dans cette condition de pureté, de Lumière, de paix et d'Amour.
 

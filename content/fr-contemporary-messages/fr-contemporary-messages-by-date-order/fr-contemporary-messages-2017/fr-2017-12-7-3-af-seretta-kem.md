@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu vous offre l'amour
 
-Seretta Kem - reçu par Al Fike le 7 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 7 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Seretta Kem. Alors ne voyez-vous pas comment Dieu envoie Ses anges les plus brillants au milieu de vous pour vous élever et vous encourager sur ce chemin dans ce travail ? Dieu vous donne tout ce dont vous avez besoin, chaque don, chaque goutte d'amour, toute la connaissance dont vous avez besoin, toute la compréhension de vos âmes. Les généreuses bénédictions de Dieu sont sur vous, mes bien-aimés, pour vous amener plus profondément dans ce travail, plus profondément dans vos âmes, plus profondément dans la Lumière afin que vous soyez bien préparés pour ce qui est à venir.
 

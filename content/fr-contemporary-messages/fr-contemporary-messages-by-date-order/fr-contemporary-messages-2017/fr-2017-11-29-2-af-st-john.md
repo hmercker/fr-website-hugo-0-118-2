@@ -9,7 +9,7 @@ weight:
 ---
 ### Construire des ponts d'amour
 
-St Jean - reçu par Al Fike le 29 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+St Jean - reçu par Al Fike le 29 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que l'Amour du Père trouve un afflux constant dans vos âmes mes bien-aimés. Que Sa Lumière brille toujours sur vous. Où que vous soyez dans ce monde, sachez que le toucher de Dieu vous accompagne, vous réconforte et vous enveloppe.
 

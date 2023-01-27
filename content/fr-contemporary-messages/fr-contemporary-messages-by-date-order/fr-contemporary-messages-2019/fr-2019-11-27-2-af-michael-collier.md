@@ -9,9 +9,9 @@ weight:
 ---
 ### Permettre aux âmes de venir sans se soucier de leurs croyances
 
-Michael Collier - reçu par Al Fike le 27 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 27 Novembre 2019, Gibsons, Colombie-Britannique, Canada
 
-C'est moi, Michael Collier. Votre travail a été accompli ici, mes amis. Comme vous avez parcouru les terres de ce pays vers les chères âmes qui vous ont attiré dans l’amour, cherchant vos conseils et votre sagesse, cherchant à prier avec vous, ainsi vous avez répondu à l’appel avec amour. Vous nous avez permis, dans le Royaume Céleste, de parler à travers vous et d’exercer notre ministère auprès des âmes chères qui se sont rassemblées. Dieu nous a tous bénis, n’est-ce pas, dans cette belle effusion d’amour et de service ?
+C'est moi, Michaël Collier. Votre travail a été accompli ici, mes amis. Comme vous avez parcouru les terres de ce pays vers les chères âmes qui vous ont attiré dans l’amour, cherchant vos conseils et votre sagesse, cherchant à prier avec vous, ainsi vous avez répondu à l’appel avec amour. Vous nous avez permis, dans le Royaume Céleste, de parler à travers vous et d’exercer notre ministère auprès des âmes chères qui se sont rassemblées. Dieu nous a tous bénis, n’est-ce pas, dans cette belle effusion d’amour et de service ?
 
 Vous reviendrez, mes amis bien-aimés. Vous reviendrez. Nous sommes déjà en train de préparer ce retour car vous découvrirez à votre retour qu’il y aura beaucoup plus de personnes intéressées par ce que vous avez à dire et à donner. Vous constaterez que la puissance de la Lumière et de l’Amour que vous apportez s’intensifiera également et que ceux d’entre vous qui commencent à ouvrir leurs dons seront plus puissants dans leur expression et plus beaux dans le flux d’Amour qui vient. Vous progressez tous, mes beaux amis. Vous êtes diligents et inébranlables dans votre désir d’apporter la Vérité de l’Amour de Dieu partout où vous allez. Il y a toujours beaucoup de travail à faire, mes amis, toujours beaucoup de travail à faire et toujours beaucoup de progrès à faire dans votre âme. Rappelez-vous que recevoir le don de l’Amour du Père est le fondement même de tout ce que vous faites.
 

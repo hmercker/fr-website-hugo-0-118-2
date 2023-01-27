@@ -9,7 +9,7 @@ weight:
 ---
 ### La prière sincère est un désir de l'âme
 
-André - reçu par Al Fike le 31 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 31 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Engagez-vous dans la prière, mes bien-aimés. Passez du temps chaque jour en prière, pour être avec votre Père Céleste, pour être en vous-mêmes, votre âme, pour rechercher Son Amour, pour être dans Sa Présence. Vous voyez, cette pratique et cette habitude vont nourrir votre âme dans la Lumière. Faire ainsi chaque jour, s'engager dans cette pratique de la prière assurera que Dieu aura Sa Main sur vous, âmes bien-aimées, assurera que vous construisez une Lumière en vous, assurera une mesure d'harmonie, de paix et de joie.
 

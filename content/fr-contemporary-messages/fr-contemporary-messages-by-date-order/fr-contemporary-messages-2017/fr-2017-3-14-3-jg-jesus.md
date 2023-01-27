@@ -9,7 +9,7 @@ weight:
 ---
 ### La dévotion
 
-Jésus - reçu par Jane Gartshore le 14 Mars 2017.
+Jésus - reçu par Jane Gartshore le 14 Mars 2017
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-tree-736885_orig.jpg)
 

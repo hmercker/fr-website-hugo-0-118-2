@@ -9,7 +9,7 @@ weight:
 ---
 ### Humilité
 
-Augustin - reçu par Al Fike le 7 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 7 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Augustin. Vous avez eu une discussion sur la signification de l'humilité et je souhaite faire un commentaire à ce sujet. L'humilité est évidente lorsqu'il y a une forme de grâce dans l'individu, une grâce qui vient avec l'harmonie avec l'âme. Cette harmonie peut être établie avec la purification de l'amour naturel ou l'afflux de l'Amour Divin. L'âme n'est pas déclenchée par les conditions mentales mais s'exprime par un sentiment de plénitude, de clarté et de paix qui vient de l'âme. Cette âme est consciente d'elle-même, de sa propre condition magnifique, non pas avec un sentiment de fierté, non pas en se vantant de sa condition, mais elle est simplement. Elle est vivante dans cette Lumière. L'individu est en paix, le mental ne cherche pas la reconnaissance des autres, il ne cherche pas à s'exprimer d'une manière qui lui apportera du pouvoir ou même un sentiment d'accomplissement. Au contraire, il y a un endroit dans l'âme qui est en paix et qui est éveillé. Ce sentiment d'être qui ne dépend pas des conditions du monde extérieur apporte l'humilité, une grâce à cet individu. Car essentiellement, l'âme qui est humble est une âme qui est connectée à Dieu, qui connaît Dieu et qui connaît sa connexion avec Dieu. C'est la véritable humilité.
 

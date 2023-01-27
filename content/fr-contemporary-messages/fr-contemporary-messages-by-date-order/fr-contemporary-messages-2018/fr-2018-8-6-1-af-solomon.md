@@ -11,7 +11,11 @@ weight:
 
 Solomon - reçu par Al Fike le 6 Août 2018, Gibsons, Colombie-Britannique, Canada.
 
+<<<<<<< HEAD
 Je suis Salomon et je suis venu te parler mon fils (R____), car tu as besoin de mes conseils et en effet, je te guide dans ta vie.
+=======
+Je suis Salomon et je suis venu te parler mon fils ( R………..), car tu as besoin de mes conseils et en effet, je te guide dans ta vie.
+>>>>>>> baea53e17c36649c534b584044f371223742b482
 
 Ton esprit spécule sur de nombreuses choses. Tu as un profond désir de connaître la vérité grâce à tes facultés intellectuelles. Tu as exploré de nombreuses choses et ruminé de nombreuses idées, mais tu n’es pas satisfait des réponses que tu as obtenues de cette manière. Parallèlement à cela, ton âme continue à grandir dans l’Amour du Père. Ton âme s’éveille au contact de Dieu. On te l’a dit maintes fois et tu comprends avec ton esprit, la vérité vient avec l’éveil de ton âme. Car c’est l’esprit de ton âme qui comprendra et saura vraiment, car Dieu te nourrit de la vérité avec Son Amour. Au fur et à mesure que ta connexion grandit, ton amour pour Dieu grandit dans la prière.
 
@@ -30,6 +34,19 @@ Si tu peux te débarrasser des spéculations de ton esprit et aller innocemment 
 Laisse tomber ces désirs et ces ambitions de l’esprit. Ils ne mèneront qu’à plus de questions, n’ouvriront la porte qu’à plus d’informations qui ne sont pas tout à fait véridiques mais souvent contradictoires, et cela n’apporte pas la paix et cela n’apporte pas la sagesse. Cela te capture dans les énergies tourbillonnantes de l’esprit, tournant sans cesse, aspirant à la connaissance, cherchant des illusions, voulant croire et pourtant ne sachant jamais vraiment. Libère-toi de ces conditions, fils bien-aimé. Va vers Dieu en toute humilité. Cherche Sa Grâce, Son Toucher, la paix qui dépasse toute compréhension et aie confiance que tout viendra en son temps.
 
 Ne te dispute pas avec les autres. Respecte leurs positions, leurs idées, mais cela ne signifie pas que tu doives adopter ce que ton esprit croit être un argument solide, mais que ton âme sait être faux. C’est là qu’intervient le discernement, mon fils bien-aimé, en sachant faire la différence, en ressentant au plus profond de toi un sentiment de vérité et en libérant toutes ces conditions, ces idées et ces pensées qui proviennent de la condition de l’humanité, les fabrications mentales si présentes dans ton monde, mais qui sont pour la plupart nées de l’imagination de l’homme.
+<<<<<<< HEAD
+=======
+
+Reconnais la vérité, mon fils. Tu es prêt à savoir, à accepter avec gratitude ces gouttes subtiles mais puissantes de Vérité que Dieu place dans ton âme et à commencer à construire cette structure de Vérité qui vient de l’âme. Tu seras guidé sur la façon de le faire, d’accomplir cette tâche, car tu es destiné à enseigner la Vérité à beaucoup. Lorsque ton esprit sera installé et que ton âme prédominera, Dieu t’enverra dans de nombreuses missions pour enseigner, pour démontrer la Vérité.
+
+Au cours de tes spéculations et de tes voyages, tu as appris à connaître de nombreuses idées et les voyages que d’autres entreprennent, et cela t’est utile dans la mesure où tu auras une profonde empathie pour les spéculations et les préoccupations de l’humanité, connaissant tant de ces épreuves et de ces tribulations que le chercheur doit traverser pour trouver la vérité. Vous aurez un grand amour pour le chercheur de vérité. C’est un don que tu as, fils bien-aimé, de comprendre les machinations de l’âme qui cherche et d’apporter le réconfort et le pouvoir de la vérité à ceux qui cherchent. Cela vient, mon fils bien-aimé. Tu continues ton voyage et oui, nous voyons tes luttes, tes dilemmes, ton désir de te libérer de ce qui t’accable. Avec le temps, tout sera résolu et l’harmonie régnera.
+
+La vie est un test. Elle teste les forts et elle teste les faibles. Chacun doit lutter à sa manière, doit tester la vérité à sa manière, doit trouver la résolution et la paix à sa manière. Lorsque tu t’engages avec Dieu dans cette lutte et que tu cherches Son Toucher, Sa guérison pour apporter une résolution aux dilemmes auxquels tu es confronté, alors tu agis par la foi, tu agis avec confiance, tu agis comme un enfant innocent qui dit :  *« Je ne peux pas résoudre cela par moi-même, j’ai besoin que mon Père Céleste bien-aimé me montre le chemin et j’abandonnerai mes propres ambitions, mes idées et mes spéculations pour cette solution du problème pour faire place à Dieu et à ce qui viendra avec Sa sagesse et Sa bénédiction sur moi. »*
+
+Tel est ton défi, mon fils. Tu continues à passer d’un camp à l’autre, à faire des allers-retours entre ces deux idées et consciences. Puisses-tu toujours chercher la vérité, mon fils, et choisir d’être avec Dieu. La paix viendra. La compréhension viendra à mesure que ton âme grandira et s’éveillera dans l’amour de Dieu.
+
+Que Dieu te bénisse. Je suis Salomon et je suis avec toi. Je suis souvent avec toi pour t’aider à apporter la sagesse à ton âme. Que Dieu te bénisse.
+>>>>>>> baea53e17c36649c534b584044f371223742b482
 
 Reconnais la vérité, mon fils. Tu es prêt à savoir, à accepter avec gratitude ces gouttes subtiles mais puissantes de Vérité que Dieu place dans ton âme et à commencer à construire cette structure de Vérité qui vient de l’âme. Tu seras guidé sur la façon de le faire, d’accomplir cette tâche, car tu es destiné à enseigner la Vérité à beaucoup. Lorsque ton esprit sera installé et que ton âme prédominera, Dieu t’enverra dans de nombreuses missions pour enseigner, pour démontrer la Vérité.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Changements dans le monde
 
-Augustin - reçu par Al Fike le 17 Février 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 17 Février 2017, Gibsons, Colombie-Britannique, Canada
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-paysage-de-printemps3-1.jpg)
 

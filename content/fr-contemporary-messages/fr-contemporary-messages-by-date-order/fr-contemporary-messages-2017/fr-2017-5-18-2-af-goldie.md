@@ -9,7 +9,7 @@ weight:
 ---
 ### L’enthousiasme et les encouragements de Goldie
 
-Goldie - reçu par Al Fike le 18 Mai 2017, Klamath Falls, Oregon, USA.
+Goldie - reçu par Al Fike le 18 Mai 2017, Klamath Falls, Oregon, USA
 
 Goldie arrive en riant, apportant une grande joie ! Oh, mes amis, j’ai hâte de pouvoir chanter et danser avec vous en voix directe !!!
 

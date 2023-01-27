@@ -9,7 +9,7 @@ weight:
 ---
 ### Diagnostic pour Al
 
-Seretta Kem - reçu par Al Fike le 14 Juin 2017, Abbotsford, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 14 Juin 2017, Abbotsford, Colombie-Britannique, Canada
 
 C’est moi, Seretta Kem. Je voudrais donner quelques conseils à cet instrument concernant les problèmes qu’il rencontre avec sa vision. Son effort a causé un très petit caillot qui a voyagé jusqu’à son cerveau, causant ce que vous appelleriez une hémorragie, un petit accident vasculaire cérébral dans la zone où le nerf optique entre dans le système cérébral et cela a effectivement causé quelques effets problèmes pour sa vision. Je vous suggère donc de concentrer vos énergies de guérison dans cette zone située derrière l’œil droit, un quadrant autour de la tempe. En effet, ces manifestations physiques vont disparaître avec le temps. Il n’y a pas eu beaucoup de dégâts, mais cet instrument a remarqué un changement spectaculaire de sa vision, de son sens de l’équilibre et même de certaines capacités cognitives.
 

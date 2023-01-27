@@ -9,7 +9,7 @@ weight:
 ---
 ### S'abreuver aux eaux de l'amour de Dieu
 
-Jésus - reçu par Al Fike le 20 Mai 2017, Bend, Oregon, USA.
+Jésus - reçu par Al Fike le 20 Mai 2017, Bend, Oregon, USA
 
 Mes chers frères et sœurs, venez boire les eaux vives de l'Amour de Dieu. Leurs cœurs sont desséchés dans ces lieux désertiques de la vie, et ils sont venus pour être rafraîchis. Père, bénis-les, bénis-les dans leur désir et leur empressement à se laisser embrasser par Toi. Car ils connaissent l'Amour et ils désirent connaître l'Amour plus abondamment. Puisses-tu les rafraîchir, Père, dans le flot de ton Amour, ces eaux merveilleuses qui guérissent et pansent les blessures, qui donnent l'espoir et la foi, qui apportent la connaissance et la force, qui guident et guérissent et apportent la Paix qui dépasse toute compréhension.
 

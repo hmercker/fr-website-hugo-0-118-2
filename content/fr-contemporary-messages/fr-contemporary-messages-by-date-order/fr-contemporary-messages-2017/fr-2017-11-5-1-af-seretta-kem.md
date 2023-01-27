@@ -9,7 +9,7 @@ weight:
 ---
 ### Je suis profondément touché par vos efforts
 
-Seretta Kem - reçu par Al Fike le 5 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 5 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis Seretta Kem. Nous sommes grandement amusés, car nous vous avons donné de copieuses quantités d'informations et de messages. Avez-vous lu ces informations, mes amis ? Avez-vous étudié ce que nous vous avons dit ? Il y a beaucoup, beaucoup de pages disponibles pour vous, à lire, à étudier et je vous suggère d'étudier comme on le ferait pour un examen. Prenez les bribes d'informations que vous glanez dans ces messages et écrivez-les sous forme de points, ce qui vous donnera beaucoup de détails sur ce que l'on attend de vous et sur ce que vous pouvez faire chaque jour afin de maintenir les conditions qui ont été construites grâce à vos prières lors de vos rencontres dans la chambre noire et ici. Quant au stade de développement auquel nous nous trouvons actuellement, pensez-y comme lorsque vous mettez dans un bol tous les ingrédients pour faire un gâteau. De nombreux ingrédients différents doivent entrer dans le bol et être mélangés ensemble.
 

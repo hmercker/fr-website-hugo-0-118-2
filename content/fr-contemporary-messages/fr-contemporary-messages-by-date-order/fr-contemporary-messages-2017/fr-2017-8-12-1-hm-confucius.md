@@ -9,7 +9,7 @@ weight:
 ---
 ### Confucius nous conseille de reposer notre esprit
 
-Confucius - reçu par Helge Mercker le 12 Août 2017, Swakopmund, Namibie.
+Confucius - reçu par Helge Mercker le 12 Août 2017, Swakopmund, Namibie
 
 Ma fille, ma fille bien-aimée, je te remercie de m'avoir accordé l'opportunité de parler et vous avez ressenti mes incitations de ce début de matinée et d'hier que je désire utiliser ton instrumentalité. C'est pour pouvoir transmettre un message à nos chers, chers frères et sœurs dans cette entreprise de vos efforts communs. Ce sont nos efforts conjoints dans l'accomplissement de ce cadeau qui a été accordé, dans l'accomplissement du temps passé ensemble pour faire progresser non seulement vos âmes, et l'amour dans vos âmes, mais aussi la réception, la manifestation et la démonstration des nombreuses vérités que nous souhaitons transmettre.
 

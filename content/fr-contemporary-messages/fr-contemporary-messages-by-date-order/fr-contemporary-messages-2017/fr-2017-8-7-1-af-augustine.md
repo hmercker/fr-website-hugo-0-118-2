@@ -9,7 +9,7 @@ weight:
 ---
 ### Le temps est venu d'écouter la sagesse de vos âmes
 
-Augustin - reçu par Al Fike le 7 Août 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 7 Août 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis venu commenter l'état physique de cet instrument. Il a fait l'expérience d'un épisode ce matin qui était assez dramatique. Il continuera à vivre ces épisodes s'il ne fait pas attention aux limites de son régime alimentaire. Il ne peut pas traverser la vie en s'attendant à ce que ces limites physiques ne soient pas pertinentes.
 

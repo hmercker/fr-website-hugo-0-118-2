@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer la volonté propre et embrasser la volonté parfaite de Dieu
 
-Jacques - reçu par Al Fike le 27 Mars 2017, Gibsons, Colombie-Britannique, Canada.
+Jacques - reçu par Al Fike le 27 Mars 2017, Gibsons, Colombie-Britannique, Canada
 
 Ah, vous vous sentez découragés, n’est-ce pas, lorsque ces plans bien conçus que vous faites ne se réalisent pas, lorsque vos ambitions et vos désirs ne sont pas satisfaits et réalisés, lorsqu’il est difficile de comprendre la Volonté de Dieu, de la connaître vraiment, de renoncer à vos propres volontés et désirs en faveur de la volonté et du désir de Dieu pour vous dans votre vie. Oui, vous êtes immergés dans les conditions complexes et difficiles de ce monde, la condition humaine. On vous a appris à vous investir dans le monde, à trouver ce que vous appelez le succès, à exprimer vos dons spirituels et à trouver une reconnaissance dans ces efforts.
 

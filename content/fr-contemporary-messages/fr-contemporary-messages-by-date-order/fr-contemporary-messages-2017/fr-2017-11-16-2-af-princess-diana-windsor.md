@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous connaissez cet amour
 
-La princesse Diana Windsor - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+La princesse Diana Windsor - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Diana Windsor. Vous m'avez appelée afin de venir vous parler et me voici assise avec vous, charmantes personnes. Je ne suis plus une princesse, je suis maintenant une roturière, comme on dit en Angleterre, et j'ai toujours souhaité être une roturière parmi les gens du peuple. Et c'est ainsi que je suis, car je réside dans la 3ème sphère et oui, j'ai été informée de vos efforts et de vos entreprises et je souhaite aussi venir parler au monde avec une voix directe, c'est aussi mon désir.
 

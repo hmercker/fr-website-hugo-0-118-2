@@ -9,7 +9,7 @@ weight:
 ---
 ### Orientations concernant la prochaine phase de développement
 
-St Matthieu - reçu par Al Fike le 4 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 4 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Ainsi, mes enfants souhaitent courir plutôt que de marcher ? Ils sont impatients de commencer et de manifester ce don de voix directe sans comprendre soigneusement ce que cela implique. Cependant, vous avez reçu beaucoup de conseils, mes amis, beaucoup de conseils. Comprenez-vous vraiment ce que nous essayons d'accomplir ? Passer des conditions de ce monde aux conditions d'un être Céleste ? C'est un très long chemin à parcourir, un très long chemin en effet. Pourtant, vous avez en vous une lumière, les bénédictions de l'Amour Divin de Dieu vous poussant dans ce voyage, vous aidant à atteindre une lumière en vous et, en effet, cette lumière brûle magnifiquement comparée au contraste de l'obscurité de ce monde. Elle est belle en effet, la lumière qui brille en chacun de vous.
 

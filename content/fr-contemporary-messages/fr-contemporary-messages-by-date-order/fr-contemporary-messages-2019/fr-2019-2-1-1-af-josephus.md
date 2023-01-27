@@ -11,7 +11,7 @@ weight:
 
 Josephus - reçu par Al Fike le 1 Février 2019, Gibsons, Colombie-Britannique, Canada
 
-Que Son Amour trouve un grand afflux dans votre âme. Mon nom est Flavius Josèphe, je n’ai jamais parlé antérieurement à travers cet instrument, mais on m’a demandé de parler des facultés de l’âme. Je fus un philosophe et un enseignant de la foi Juive et j’ai aidé à formuler les écritures de cette religion. Maintenant, je réside dans le Royaume Céleste. J’ai suivi les enseignements du Messie d’Israël, notre Jésus bien-aimé.
+Que Son Amour trouve un grand afflux dans votre âme. Mon nom est Flavius Josèphe, je n’ai jamais parlé antérieurement à travers cet instrument, mais il m’a été demandé de parler des facultés de l’âme. Je fus un philosophe et un enseignant de la foi Juive et j’ai aidé à formuler les écritures de cette religion. Maintenant, je réside dans le Royaume Céleste. J’ai suivi les enseignements du Messie d’Israël, notre Jésus bien-aimé.
 
 J’ai étudié en détail la composition de l’âme et ce qui constitue les facultés de l’âme. J’espère que je pourrai transmettre ces informations avec précision grâce à cet instrument, car il s’agit d’un sujet difficile. Pour vraiment comprendre les facultés de l’âme, il faut les expérimenter en action, s’éveiller dans l’âme et s’exprimer consciemment dans sa vie. C’est la véritable voie de la compréhension afin que même le mental puisse comprendre leurs fonctionnements.
 

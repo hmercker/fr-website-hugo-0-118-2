@@ -9,7 +9,7 @@ weight:
 ---
 ### Bienvenue pour le retour à la Chambre
 
-Seretta Kem - reçu par Al Fike le 13 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 13 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, âmes bien-aimées, c'est Seretta Kem. Nous vous souhaitons la bienvenue à nouveau dans la chambre et oui, nous poursuivons nos efforts pour développer la voix directe à travers l'ectoplasme et cela nécessite notre concentration et nos efforts. Cela nécessite vos efforts pour élever votre condition toujours plus loin, toujours plus près de la Lumière. Tant de choses dépendent de vos efforts, âmes bien-aimées. Tout dépend de vos efforts chaque jour pour maintenir la lumière autour de vous, pour maintenir l'harmonie entre vous, pour présenter vos désirs à Dieu, pour apporter Son Amour toujours plus abondamment dans vos âmes et pour être en paix, âmes bien-aimées, pour être en paix. 
 

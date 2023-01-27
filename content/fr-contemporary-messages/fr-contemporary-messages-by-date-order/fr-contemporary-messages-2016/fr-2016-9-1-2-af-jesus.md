@@ -20,4 +20,5 @@ Le pardon, mes âmes bien-aimées, ouvrira la porte, le pardon de vous-mêmes, d
 Vous aspirez tous à cela, mes bien-aimés. Vous le cherchez tous et je vous guiderai comme le feront de nombreux anges sur ce chemin. Soyez humbles. Soyez innocents. Demandez ; demandez à Dieu de vous montrer et il vous montrera et vos yeux seront ouverts et l’Amour, l’Amour glorieux sera vôtre.
 
 Que Dieu vous bénisse. Je serai avec vous pendant ce court voyage ensemble. Je serai avec vous alors que vous parvenez à réconcilier la vérité en vous-mêmes et à connaître la grande puissance, la gloire et l’émerveillement qu’est l’Amour de Dieu pour vous, âmes bien-aimées.
+
 Que Dieu vous bénisse. Que Dieu vous bénisse.

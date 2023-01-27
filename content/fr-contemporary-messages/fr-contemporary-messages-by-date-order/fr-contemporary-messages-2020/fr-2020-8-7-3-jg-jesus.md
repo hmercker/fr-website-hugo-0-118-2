@@ -11,23 +11,16 @@ weight:
 
 Jésus - reçu par Jane Gartshore le 7 Août 2020
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/le pardon_2.jpg)
+Le concept de la préparation est de réduire la nécessité de paniquer en cas de situation imprévue. Parfois, ces situations sont des pertes. Comment se préparer à une perte ? Par l’amour.
 
-Je viens de nouveau pour parler du pardon. C’est un sujet qu’il vaut la peine de répéter, pour ceux qui n’arrivent pas à accepter que cela reste une possibilité pour eux.
+La douleur de la perte peut être ressentie plus profondément dans le cœur. Le cœur qui aime est plein. Et cette plénitude ne vient pas d'une possession, car la perte de cette possession laisserait alors un vide, un trou, pour ainsi dire. L'amour est la plénitude en soi. Il ne diminue pas avec le décès d'un être cher ou d'un animal de compagnie aimé. Il demeure. Ce que vous ressentez comme une douleur due à la perte, c'est de l'amour inassouvi. L'amour dans sa plénitude ne ressent que de la joie. C'est un concept difficile pour beaucoup. Le manque d'amour est ressenti comme une douleur, les actes malveillants (actes de non-amour) que l'on a commis, les sentiments de colère envers l'autre. Lorsque l'on a agi de manière désintéressée dans une relation, en montrant à l'autre de la gentillesse, de la compassion et de l'amour, alors il y a une complétude, une plénitude à ce lien. C'est un lien indissoluble. L'amour demeure longtemps après la séparation physique. Et il n'y a pas de regrets.
 
-Il n’y a rien que vous puissiez faire qui puisse détourner le Père Céleste de vous. C’est toujours vous qui choisissez – consciemment, ou plus souvent, inconsciemment – de vous détourner de Dieu.
+Faites la paix avec vos proches. Donnez pleinement et délibérément de vous-même. Traitez votre proche comme l'âme parfaite qu'il est, un enfant de Dieu, beau et unique, et qui mérite votre amour et vos soins.
 
-Tout ce que vous avez à faire est de faire demi-tour.
+Vous pouvez le faire. Nous, vos aides et enseignants Célestes, nous vous donnerons la force et le courage de le faire. Vous devez montrer le chemin du retour.
 
-Que tous ceux qui ont des oreilles pour entendre, entendent ceci: Vous n’êtes en aucune façon intrinsèquement mauvais. Vous, en tant qu’âme unique dans la vaste création de Dieu, avez été créé parfait, une image parfaite du Divin. Vous n’êtes pas vous-même divin, mais vous pouvez atteindre cette divinité, cette transformation substantielle au niveau de votre âme, si vous choisissez une telle voie. Et c’est un choix qui s’offre à vous, c’est une option, disponible pour chaque âme sur Terre et dans l’au-delà. Ce choix est même accessible et atteignable par ces enfants de notre Père bien-aimé qui sont tombés si bas qu’ils demeurent dans les plans astrals inférieurs. Il n’y a pas de péché impardonnable.
+Choisissez vos actions avec sagesse. Elles déterminent votre destin. Et écoutez. Écoutez l'appel de votre âme, l'appel de l'amour, l'appel à quitter ce monde et ses pièges matériels, pour accéder à un royaume supérieur, le Royaume de Dieu.
 
-Je viens parler de cela parce que je perçois les cœurs de beaucoup, et beaucoup ont besoin d’entendre. Il n’y a pas de damnation éternelle. Jamais, depuis le début de la création, une âme n’a été condamnée à un tel sort. Jamais.
+Je vous laisse avec un aperçu de nature personnelle. Il n'y a pas une seule âme sur cette terre qui ne soit pas prête à mourir. C'est inhérent. La volonté de vivre coexiste avec la connaissance et la certitude que l'on va inévitablement mourir. N'ayez pas peur de la mort. Elle n'est qu'une transition, une porte d'entrée d'un royaume à l'autre.
 
-Il y a de l’amour qui attend chacun. Un amour sacré. Un amour du plus haut niveau. Il est temps de tourner vos visages vers Dieu, bien-aimés. Toi qui as péché. Toi, que d’autres ont appelé pécheur. Toi qui crains Dieu. Toi qui crains que Dieu ne puisse jamais t’aimer, parce que tes parents terrestres ne le pouvaient pas. Toi qui vois le monde comme un lieu d’épreuves et attends d’être jugé.
-
-Venez à Dieu, vous tous. Tournez-vous vers la Lumière. Demandez Ses bénédictions. Demandez-lui de vous pardonner. Demandez à être montré le chemin de la rédemption de votre âme. Demandez et recevez. C’est la loi.
-
-Je suis Yeshua et je connais le chemin.
-
-
-
+Je reviendrai pour poursuivre cette discussion. Je suis Yeshua ben Yosef du Royaume Céleste, celui qui fut là où vous êtes maintenant.

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les changements terrestres arrivent
 
-St Pierre - reçu par Al Fike le 15 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
+St Pierre - reçu par Al Fike le 15 Janvier 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, âmes précieuses, je suis Pierre. Des changements arrivent dans votre monde, des changements profonds. Des changements qui vont toucher chacun d’entre vous. Vous devez vous préparer en vous-mêmes. Vous devez être proches de Dieu, être sous la protection de Dieu, être dans ce grand flux de Son Amour et de Sa Lumière, connaître votre Père Céleste d’une manière profonde et durable. Cela exige un effort de votre part, mes bien-aimés, un effort profond pour aller au-delà de vous-mêmes et pour vous ouvrir au contact de Dieu, pour être portés par Son Amour, Sa Grâce, Sa Force, Sa Guidance.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu est amour
 
-St Matthieu - reçu par Al Fike le 12 Novembre 2017, FUSC, Burnaby, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 12 Novembre 2017, FUSC, Burnaby, Colombie-Britannique, Canada
 
 Je suis Matthieu et je viens en tant que messager de Dieu pour vous dire que vous êtes tous aimés, qu'en effet, Dieu est Amour, et qu'en vous ouvrant à ce don, beaucoup vous sera donné de manière surprenante, dans de merveilleux événements au sein de votre vie qui vous apporteront l'inspiration, qui vous apporteront la sagesse, qui vous apporteront une profonde compréhension et qui vous enseigneront comment apporter l'Amour de votre âme aux autres.
 

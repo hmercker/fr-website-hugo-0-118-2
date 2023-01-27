@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre âme et la loi de l’attraction
 
-Confucius - reçu par Al Fike le 15 Février 2017, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 15 Février 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes précieuses. C’est Confucius. Vous vous êtes réunis, mes bien-aimés, pour apporter la lumière dans vos âmes, pour vous apporter l’amour les uns aux autres, pour venir et être dans ce cercle béni rempli d’âmes qui reconnaissent la lumière dans toutes ses manifestations, qui cherchent Dieu de différentes manières, qui ont des compréhensions, des croyances culturelles et des façons de vénérer Dieu qui sont différentes et uniques. Pourtant, ne sentez-vous pas tous que vous faites partie d’une seule famille, une famille précieuse dans la lumière de l’Amour de Dieu ?
 

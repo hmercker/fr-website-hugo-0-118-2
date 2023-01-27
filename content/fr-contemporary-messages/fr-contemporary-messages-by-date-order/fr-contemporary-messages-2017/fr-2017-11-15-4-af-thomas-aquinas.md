@@ -9,7 +9,7 @@ weight:
 ---
 ### Beaucoup dans ce monde sont endormis
 
-Thomas d'Aquin - reçu par Al Fike le 15 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Thomas d'Aquin - reçu par Al Fike le 15 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse mes amis. Je suis Thomas d'Aquin. Vous avez entendu plusieurs esprits qui souhaitent parler par la voix directe et je vous dis qu'il y en a plusieurs centaines d'autres, de toutes catégories, de toutes époques de l'histoire, de diverses professions, de divers niveaux de connaissances et de divers niveaux de condition d'âme. Car il existe, dans le monde spirituel, un vaste éventail d'esprits, une grande variété de conditions, de perspectives, de niveaux de compréhension, une telle variété. Mais notre plan est principalement d'amener ces esprits qui attireront une grande attention de vos frères et sœurs qui marchent dans ce monde. De cette façon, ils dresseront leurs oreilles et ouvriront leurs yeux de leur sommeil et ce que ces esprits et anges pourront dire suscitera une réflexion, une préoccupation et une contemplation concernant leur propre condition spirituelle personnelle et la condition de ce monde qui est dans une obscurité, et une inharmonie, sérieuses. 
 

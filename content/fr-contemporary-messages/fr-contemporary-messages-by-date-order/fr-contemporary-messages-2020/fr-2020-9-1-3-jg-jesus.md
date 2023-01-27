@@ -35,8 +35,7 @@ Maintenant, je souhaite vous parler des temps que vous vivez actuellement et des
 
 Pour ceux d’entre vous qui sont appelés à exercer une plus grande responsabilité en ces temps, à étendre leur influence d’amour et de protection sur beaucoup, y compris sur ceux qui sont en dehors de ceux que vous connaissez et aimez, beaucoup sera donné. Vous devez prier aussi souvent que vous le pouvez et ne pas laisser vos pensées s’abaisser à un état de peur.
 
-Beaucoup sera donné à ceux qui cherchent, car le salut d’un seul peut conduire au salut de beaucoup.
-Le désastre à venir mettra en lumière les affaires des hommes qui ne sont pas en harmonie avec la volonté et le plan de Dieu. Priez pour le réveil de vos frères et sœurs, mes bien-aimés. Priez pour qu’ils voient la lumière : la lumière qui est Dieu, la lumière de la vérité.
+Beaucoup sera donné à ceux qui cherchent, car le salut d’un seul peut conduire au salut de beaucoup. Le désastre à venir mettra en lumière les affaires des hommes qui ne sont pas en harmonie avec la volonté et le plan de Dieu. Priez pour le réveil de vos frères et sœurs, mes bien-aimés. Priez pour qu’ils voient la lumière : la lumière qui est Dieu, la lumière de la vérité.
 
 Je serai avec vous tous. Je suis Yeshua.
 

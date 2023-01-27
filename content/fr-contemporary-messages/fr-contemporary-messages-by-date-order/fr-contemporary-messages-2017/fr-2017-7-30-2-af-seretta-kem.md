@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu vous guidera vers les terres desséchées du monde
 
-Seretta Kem - reçu par Al Fike le 30 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 30 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Une fois de plus, j'arrive à l'heure dite pour donner des conseils. J'étais avec vous lorsque vous avez prié ensemble dans ce groupe d'âmes affamées. Beaucoup ont été touchés et beaucoup ont reçu la bénédiction de l'Amour du Père. Je vous dis qu'il y avait beaucoup plus d'esprits présents pendant vos prières et vos discussions qui ont été influencés et bénis qu'il n'y avait de mortels assis dans le cercle.
 

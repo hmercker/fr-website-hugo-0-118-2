@@ -9,7 +9,7 @@ weight:
 ---
 ### Tout ce dont vous avez besoin est l'Amour Divin
 
-John Lennon - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+John Lennon - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis heureux d'avoir des nouvelles de mon ami Maharishi. Je suis John Lennon.
 

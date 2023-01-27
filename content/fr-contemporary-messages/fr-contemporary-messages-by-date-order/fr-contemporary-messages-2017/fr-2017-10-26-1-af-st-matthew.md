@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez émerger les tendres pousses de votre âme
 
-St Matthieu - reçu par Al Fike le 26 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 26 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Matthieu.
 

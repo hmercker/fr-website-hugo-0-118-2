@@ -9,7 +9,7 @@ weight:
 ---
 ### Les préparatifs de l'esprit se poursuivent
 
-Seretta Kem - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Nous continuons à vous préparer, chacun, même ceux qui sont en voyage. Nous continuons à travailler avec vous et à vous encourager à amener les conditions de votre âme à un endroit plus élevé, à un niveau plus élevé. Alors que vous continuez à prier pour l'Amour du Père, le Père déverse Son amour en vous et vous assiste dans vos efforts pour éliminer les obstacles et les conditions qui peuvent entraver vos efforts pour la Voix Directe.
 

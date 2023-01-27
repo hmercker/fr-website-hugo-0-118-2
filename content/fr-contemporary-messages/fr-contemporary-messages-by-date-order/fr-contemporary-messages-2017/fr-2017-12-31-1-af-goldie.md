@@ -9,7 +9,7 @@ weight:
 ---
 ### Dansez sur la musique de l'amour de Dieu
 
-Goldie - reçu par Al Fike le 31 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Al Fike le 31 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Puissiez-vous danser sur le bel air que Dieu joue pour vous, âmes bien-aimées. Car Dieu vous portera dans cette harmonieuse, belle Lumière et musique de l'âme. Les pas que vous apprendrez seront nouveaux et surprenants. Vos dons vont se déployer. Le travail vous mènera dans de nombreuses directions différentes. Que vos pas soient inspirés par Dieu dans la belle musique qu'il a à donner à chacun. Chantez de vos cœurs, aimez de vos âmes et embrassez tous ceux que vous rencontrez.
 

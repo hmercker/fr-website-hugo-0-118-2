@@ -9,7 +9,7 @@ weight:
 ---
 ### Les salutations de Martin Luther
 
-Martin Luther - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Martin Luther - reçu par Al Fike le 22 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Vous vous êtes engagés dans cette œuvre. Je serai avec vous tout au long de la période où vous serez réunis. Chacun de nous a une fonction au sein du cercle, tout comme vous, en fonction de nos dons. Nous allons donc assumer nos rôles, fournir notre service, donner le maximum de ce que nous avons à donner.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions individuelles
 
-Jésus - reçu par Al Fike le 7 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 7 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Jésus et j'ai observé l'ouverture de vos âmes et le flot d'émotions qui vient avec la reconnaissance de là où vous avez besoin du Toucher et de la bénédiction du Père en vous. Ainsi, avec cette ouverture et ce désir de prière, Dieu vous a touché profondément, âmes bien-aimées. La puissance de Son Amour continue à fissurer l'armure de pensées. Vous commencez à vous réunir en harmonie, dans la paix et la joie. C'est le pouvoir de l'Amour de Dieu. C'est la bénédiction de l'Amour de Dieu. Pour chaque âme qui aspire à être touchée par Son grand amour merveilleux, il se déversera en vous, mes âmes bien-aimées, dans une abondance toujours plus grande à mesure que vous vous ouvrez, que vous venez à Dieu dans cette vulnérabilité et cette vérité. Vos âmes s'éveillent, mes bien-aimés. Vos âmes s'éveillent avec le toucher de Dieu. Ainsi, vous continuerez à ouvrir vos yeux et à connaître Sa Présence en vous et dans vos vies, mes bien-aimés.
 

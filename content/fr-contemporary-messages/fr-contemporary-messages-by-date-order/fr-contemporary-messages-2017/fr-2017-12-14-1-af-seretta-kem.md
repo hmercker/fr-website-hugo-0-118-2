@@ -9,7 +9,7 @@ weight:
 ---
 ### Une veillée de prière jusqu'au succès
 
-Seretta Kem - reçu par Al Fike le 14 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 14 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Vous êtes près de la fin de votre voyage ensemble pour cette fois, cet effort. Et c'est certainement votre habitude de vous interroger sur les prochaines étapes, de vous demander ce qui est à venir. Comment le plan de Dieu va-t-il se déployer dans votre vie ? Il est vrai qu'il a fallu beaucoup de concentration et d'efforts ces derniers jours pour que ces manifestations aient lieu. Comme beaucoup d'entre vous le perçoivent, il y a beaucoup d'efforts à faire de notre côté de la vie pour que ces dons se produisent. Nous ne voulons pas précipiter ces manifestations, mais nous réalisons les limites de ce monde matériel et ce grand cadeau qui vous a tous réunis de cette façon. Nous souhaitons donc exploiter ces opportunités du mieux que nous pouvons et nous vous demandons à nouveau de garder vos pensées élevées, d'être en mode prière à chaque moment de chaque jour, de continuer à exprimer et à ressentir l'Amour entre vous, de désirer les résultats, comme je sais que vous le faites, que vous souhaitez tant avoir dans ces efforts.
 

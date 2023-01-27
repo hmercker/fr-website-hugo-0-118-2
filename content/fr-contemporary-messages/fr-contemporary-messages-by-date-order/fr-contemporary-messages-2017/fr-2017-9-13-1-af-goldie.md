@@ -9,7 +9,7 @@ weight:
 ---
 ### Ensemble dans la joie de l'amour
 
-Goldie - reçu par Al Fike le 13 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Al Fike le 13 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 … je t'aime. 
 

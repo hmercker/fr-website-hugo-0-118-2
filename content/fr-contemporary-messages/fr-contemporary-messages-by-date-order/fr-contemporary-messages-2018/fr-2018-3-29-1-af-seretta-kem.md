@@ -9,7 +9,7 @@ weight:
 ---
 ### La trans médiumnité comparée à la médiumnité physique ou matérielle
 
-Seretta Kem - reçu par Al Fike le 29 Mars 2018, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 29 Mars 2018, Gibsons, Colombie-Britannique, Canada
 
 Vous vous questionnez sur la différence entre la trans médiumnité et la médiumnité matérielle ou physique. Elles sont tout à fait différentes, âmes bien-aimées. Cet instrument est développé comme un trans médium, utilisant le cerveau, le mental et l’âme. Ainsi, à cet égard, l’utilisation du cerveau a un aspect physique, mais c’est le seul élément qui est impliqué dans la trans médiumnité. Il y a des parties du cerveau, des fonctions du cerveau qui sont reconfigurées et modifiées afin de développer ce don. Avec la médiumnité physique, le corps entier est engagé dans la production de manifestations. Ainsi, chaque cellule du corps, chaque partie du corps est engagée lorsque ce don est utilisé.
 

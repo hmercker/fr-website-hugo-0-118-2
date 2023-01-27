@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions à tous ceux qui ont apporté leur aide à cette entreprise
 
-Augustin - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse. Je suis votre enseignant Augustin. Je souhaite reconnaître toutes ces âmes qui ont prié avec vous depuis de nombreux endroits. Elles ont consacré leur temps, leurs efforts de soutien, de prière et d'amour. Elles ont aussi été portées sur ce chemin d'éveil et ont ressenti les bénédictions de Dieu. Car leurs cœurs sont purs et désireux d'apporter ce don, de grandir dans leurs âmes et de servir Dieu. Chacun d'entre eux est une belle âme, chacun d'entre eux se donne avec tant d'amour, de dévouement et de désir pour vous soutenir dans vos efforts pour la voix directe.
 

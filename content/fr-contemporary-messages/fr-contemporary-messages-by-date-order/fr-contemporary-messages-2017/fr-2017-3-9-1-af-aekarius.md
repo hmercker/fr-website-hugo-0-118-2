@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de l’astronomie et de l’astrologie est limité
 
-Aekarius - reçu par Al Fike le 9 Mars 2017, Abbotsford, Colombie-Britannique, Canada.
+Aekarius - reçu par Al Fike le 9 Mars 2017, Abbotsford, Colombie-Britannique, Canada
 
 Je m’appelle Aekarius et je ne me suis jamais exprimé par le biais de cet instrument auparavant. Je suis un habitant du Royaume Céleste et je fus, autrefois, un astrologue et un astronome, il y a très longtemps, dans le royaume que vous décrivez comme la Phénicie.
 

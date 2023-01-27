@@ -9,7 +9,7 @@ weight:
 ---
 ### C’est le temps de la purification
 
-Mère Terre-Gaïa - reçu par Anyas le 8 Septembre 2017, Oregon, USA.
+Mère Terre-Gaïa - reçu par Anyas le 8 Septembre 2017, Oregon, USA
 
 Urantia :  « Chère fille de Moi, tu souhaites que nous établissions une relation de cœur à cœur. Tu souhaites apprendre à Me connaître plus en profondeur. En effet, si peu de Mes enfants comprennent vraiment ce que Je suis.
 

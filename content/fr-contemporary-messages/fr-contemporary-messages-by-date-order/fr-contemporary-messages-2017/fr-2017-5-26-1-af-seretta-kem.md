@@ -9,7 +9,7 @@ weight:
 ---
 ### Suite de l’orientation par la voix directe
 
-Seretta Kem - reçu par Al Fike le 26 Mai 2017, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 26 Mai 2017, Gibsons, Colombie-Britannique, Canada
 
 Je souhaite poursuivre mon message d’hier concernant la voix directe. Et cette partie du message fera référence aux possibilités et aux potentiels de ce don, changeant vos vies ; ouvrant des avenues de service ; les possibilités d’atteindre le monde avec ce don.
 

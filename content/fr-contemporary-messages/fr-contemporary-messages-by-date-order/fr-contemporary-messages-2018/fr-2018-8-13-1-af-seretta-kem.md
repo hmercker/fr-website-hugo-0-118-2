@@ -18,6 +18,7 @@ Il y a si peu, si peu de connaissance et de sagesse dans le monde. Oui, il y a u
 Chaque âme doit plonger au plus profond d’elle-même, même si beaucoup trouveront de la douleur et du vide. Il est important pour chaque âme d’être honnête avec elle-même, de réaliser que des changements doivent être effectués en son sein. Avec cette prise de conscience, puissent-elles arriver à la conclusion qu’elles ont besoin d’aide. Qu’elles ont besoin de quelque chose de plus grand qu’elles-mêmes pour surmonter ces conditions d’obscurité qui sont à l’intérieur. Dieu attend le véritable désir de chaque âme de se connecter et d’être en harmonie avec Lui, avec le Créateur. De cette façon, les solutions viendront, la sagesse viendra, la paix viendra. Mais tant que l’humanité ne sera pas honnête et fidèle à ces connaissances profondes en elle, il ne pourra y avoir de véritable changement dans le monde.
 
 Pour vous, âmes bien-aimées, qui connaissez la clé pour éveiller l’âme, pour recevoir l’Amour Divin, vous devez vous efforcer d’être des exemples. Vous devez poursuivre le voyage de toute une vie d’éveil, de guérison, de vérité et de connaissance de votre relation avec Dieu. Car cela aussi est la clé qui permettra de résoudre les dilemmes de l’humanité. Vous devez assurer à ceux que vous connaissez que Dieu a un plan, qu’il y a un grand effort en cours pour apporter le salut de l’humanité, pour ramener ce monde dans l’harmonie et l’équilibre, pour apporter une plus grande vérité, un plus grand amour. De cette façon, toutes les idées erronées de l’humanité tomberont et la vérité régnera en maître dans votre monde.
+
 Je sais que vous aspirez tous à cela. Vous êtes suffisamment sensibles, suffisamment éveillés pour réaliser que quelque chose de profondément mauvais se passe dans votre monde et que des solutions doivent venir, que le changement doit venir, que l’harmonie doit venir. Pourtant, vous êtes une très petite minorité dans ce monde. Beaucoup ne sont pas assez forts pour regarder.
 
 Beaucoup préfèrent leurs illusions et beaucoup cherchent des distractions sans fin. Et puis il y a tant de gens dans votre monde qui vivent une vie de privation. Il y a une profonde tristesse chez ceux qui n’ont rien et ne voient aucun moyen d’avancer dans leur vie. Vous devez prier pour ces âmes perdues. Vous devez prier pour les dirigeants de votre monde. Vous devez prier pour ceux qui souffrent, qui sont désorientés et dans l’obscurité. Car sans l’élévation qui doit venir pour tous les enfants de ce monde, il n’y a pas d’espoir. Il n’y a rien à saisir pour stabiliser l’humanité dans cette marche sans fin et détournée à travers la vie.
@@ -31,5 +32,14 @@ Ceci vous devez l’enseigner, âmes bien-aimées. Ces vérités simples, le pou
 Souvenez-vous de cela, âmes bien-aimées : quelle que soit la situation dans laquelle vous vous trouvez dans votre vie, ce sont vos efforts dans la prière, votre désir de servir, votre éveil continu qui apportent le changement dans ce monde. Bien que vos actions manifestes de service soient importantes, rappelez-vous que c’est la lumière que vous portez et la lumière qui se construit en vous qui aura le plus grand effet et qui guidera votre voyage et votre service dans ce monde. Ainsi, la prière sincère vous amènera à cet endroit où vous pourrez vraiment être un instrument de changement et de lumière dans le monde.
 
 Le monde a besoin de vous, mes bien-aimés. Dieu a besoin de vous. Vos âmes souffrent et aspirent à accomplir leur but et leur destinée. Écoutez vos âmes. Écoutez Dieu. Cherchez son amour. Cherchez à être forts et clairs. Marchez avec intégrité et vérité. Soyez humbles et doux. Soyez un enfant de Dieu.
+<<<<<<< HEAD
+=======
+
+Dieu vous bénisse mes bien-aimés, je suis Seretta Kem. J’ai un grand amour pour vous. J’ai un grand amour pour l’humanité et pour toutes les lumières de ce monde qui luttent pour maintenir leur lumière, pour faire grandir leur lumière, pour être une lumière dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis souvent avec vous. Que Dieu vous bénisse.
+
+
+
+
+>>>>>>> baea53e17c36649c534b584044f371223742b482
 
 Dieu vous bénisse mes bien-aimés, je suis Seretta Kem. J’ai un grand amour pour vous. J’ai un grand amour pour l’humanité et pour toutes les lumières de ce monde qui luttent pour maintenir leur lumière, pour faire grandir leur lumière, pour être une lumière dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis souvent avec vous. Que Dieu vous bénisse.

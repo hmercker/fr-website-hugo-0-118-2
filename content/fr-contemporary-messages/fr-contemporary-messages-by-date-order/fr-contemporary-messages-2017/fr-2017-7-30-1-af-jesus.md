@@ -9,7 +9,7 @@ weight:
 ---
 ### Que vos âmes brillent de l'amour du Père
 
-Jésus - reçu par Al Fike le 30 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 30 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Que la Grâce de Dieu soit avec vous, mes bien-aimés….
 

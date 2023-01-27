@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes nombreux à travailler à l'unisson
 
-Nikola Tesla - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Nikola Tesla - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Êtes-vous surpris ? Je suis tellement heureux d'être avec vous mes amis. Oui, nous sommes nombreux à travailler à l'unisson pour vous aider dans ces entreprises. Et ma compréhension particulière de la mécanique de l'univers entre en jeu dans mon aide au développement de votre don. Car à bien des égards, ce don a une composante électrique et, bien sûr, tout est énergie, n'est-ce pas ? De nombreuses formes différentes d'énergie ! Depuis que je suis un esprit, j'ai eu l'occasion d'explorer ces concepts et de les expérimenter de nombreuses manières différentes. Je suis donc enthousiaste à l'idée de travailler avec vous pour approfondir la compréhension de la mécanique de votre monde de l'univers de Dieu. Il y a tellement de choses qui peuvent être données à l'humanité grâce à vos efforts. Et ces choses pourront être données une fois que l'humanité sera capable d'utiliser ces dons avec sagesse et d'apporter une plus grande harmonie dans le monde. Pour l'instant, ce n'est pas conseillé, mais dans les temps à venir, qui sont presque sur nous, il y aura une plus grande opportunité pour l'humanité de changer dans sa conscience, ses objectifs et ses désirs du monde.
 

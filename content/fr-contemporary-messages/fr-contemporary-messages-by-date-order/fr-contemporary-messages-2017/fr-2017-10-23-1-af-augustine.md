@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer le contrôle de l'esprit
 
-Augustin - reçu par Al Fike le 23 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 23 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, mes bien-aimés. Je vois que notre amie Seretta Kem a été plutôt ferme avec vous, mes amis. C'est généralement ma responsabilité, de vous prendre à partie. *[Un message de Seretta Kem en date du 23 Octobre qui n'a pas été enregistré.]*
 

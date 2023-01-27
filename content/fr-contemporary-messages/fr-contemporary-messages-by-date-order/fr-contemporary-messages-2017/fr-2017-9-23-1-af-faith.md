@@ -9,7 +9,7 @@ weight:
 ---
 ### Qu'est-ce que la foi ?
 
-Faith - reçu par Al Fike le 23 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Faith - reçu par Al Fike le 23 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Faith. Je ne vous ai pas parlé depuis un certain temps, mais mon amour pour vous continue de croître. J'ai été proche, j'ai été proche. Je suis venue vous parler du sujet dont je porte le nom, c'est-à-dire de la foi. Je veux parler de la puissance de la foi.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Débarrassez-vous de ces choses qui ne sont pas d’Amour
 
-St Luc - reçu par Al Fike le 11 Janvier 2017, Abbotsford, Colombie-Britannique, Canada.
+St Luc - reçu par Al Fike le 11 Janvier 2017, Abbotsford, Colombie-Britannique, Canada
 
 Je vous apporte mes bénédictions d’amour. Âmes précieuses et bien-aimées, chaque jour vous êtes confrontées à de nombreux choix. Vous êtes mis au défi par les conditions de ce monde et pourtant Dieu vous touche et nous tend la main pour vous apporter la lumière et comme vous priez pour l’Amour du Père, vous recevez cette bénédiction, son toucher. Avec cette touche d’Amour, cette ouverture de votre âme et l’éveil de votre âme vient une plus grande sensibilité. Et vous prenez conscience de votre propre condition, une condition du monde avec laquelle chaque âme lutte sur son propre chemin de vie.
 

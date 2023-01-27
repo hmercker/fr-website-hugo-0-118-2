@@ -9,7 +9,7 @@ weight:
 ---
 ### Croissance de l'âme
 
-André - reçu par Al Fike le 3 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 3 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Il est si bon de vous voir, âmes bien-aimées réunies, dans la Lumière de l'Amour de Dieu, dans la lumière de vos liens et de votre amitié ensemble, cette fraternité d'Amour. Alors que vous vous réunissez et dans vos prières, vous créez ce puits d'Amour et de Lumière où vous pouvez être rafraîchis et bénis dans vos prières communes, alors que vous venez donner de l'amour les uns aux autres, reconnaître, être un canal d'Amour dans ce monde et dans votre monde.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les bénédictions de l'Amour du Père
 
-Jean le Bien-Aimé - reçu par Al Fike le 15 Octobre 2017, FUSC, Burnaby, Colombie-Britannique, Canada.
+Jean le Bien-Aimé - reçu par Al Fike le 15 Octobre 2017, FUSC, Burnaby, Colombie-Britannique, Canada
 
 Soyez bénies, âmes bien-aimées, je suis Jean, Jean le bien-aimé.
 

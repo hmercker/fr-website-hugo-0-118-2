@@ -9,7 +9,7 @@ weight:
 ---
 ### C'est un chemin béni
 
-Jésus - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Jésus. Le souffle de Dieu est sur vous, âmes bien-aimées. Son souffle est Amour et Son Amour entre dans votre âme en guérissant vos blessures, en élevant votre cœur et en vous rapprochant toujours plus de la fontaine d'Amour. Puisse Son toucher d'Amour continuer à vous amener dans ce lieu d'union, de paix profonde et de joie merveilleuse. Je suis avec vous, mes bien-aimés, Je suis avec vous dans vos efforts et Je parlerai à travers les médiums de la Voix Directe. J'apparaîtrai à tous ceux qui sont présents afin qu'ils puissent voir ma personne et connaître ma voix, mon Amour et ma Lumière. Souvenez-vous de cela, mes bien-aimés, bien que vous deviez prier fort et chercher à être toujours plus proches de Dieu afin que ces dons puissent se manifester à travers vous. Il y a un grand but, un grand but et une grande récompense pour ces efforts alors que vous continuez à vous efforcer pour le plus haut, le plus grand bien, les vérités de l'amour.
 

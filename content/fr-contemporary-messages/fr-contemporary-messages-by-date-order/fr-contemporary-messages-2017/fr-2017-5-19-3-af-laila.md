@@ -9,7 +9,7 @@ weight:
 ---
 ### Marchez chaque jour dans Sa lumière
 
-Laila - reçu par Al Fike le 19 Mai 2017, Bend, Oregon, USA.
+Laila - reçu par Al Fike le 19 Mai 2017, Bend, Oregon, USA
 
 Je m’appelle Laila et j’ai vécu il y a de très nombreuses années dans ce monde et je suis maintenant une habitante du Royaume Céleste. Je veux que vous sachiez, mes chers amis qui résidez dans cette ville, que je travaille avec vous et que je vous aide à former votre petit groupe de Lumière, votre cercle d’Amour. Ne vous inquiétez pas de savoir qui viendra dans votre petit cercle. Dieu guidera les âmes qui sont sérieuses et qui recherchent l’Amour, la guérison et le soulagement, le réconfort que procurent ces prières. Former ce petit cercle, c’est apporter une bénédiction à beaucoup d’autres, car vous alimentez ensemble les flammes, la Lumière qui réchauffera beaucoup d’âmes qui sont proches. Dieu ajoutera ses bénédictions à de nombreuses personnes lorsque vous prierez sincèrement pour ce don et cette bénédiction pour ceux que vous aimez, pour les nombreuses personnes qui sont connectées à chacun de vous qui faites partie de ce cercle.
 

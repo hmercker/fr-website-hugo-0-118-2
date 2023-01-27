@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment la vérité émerge dans l'âme
 
-Keea Atta Kem - reçu par Al Fike le 14 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 14 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Keea Atta Kem. J'ai vécu à l'époque de Ramsès le Second en Égypte. J'étais l'une de ses filles. J'avais une position dans ce lieu, même si j'avais aussi plus de 100 sœurs, princesses à la cour égyptienne de l'époque. Maintenant, je suis une habitante du Royaume Céleste. Je suis proche de toi ma fille et je viens souvent lorsque tu pries. Je viens t'apporter mon amour et mon soutien alors que tu continues à explorer la Vérité de l'Amour de Dieu. Souviens-toi, ma fille bien-aimée, de chercher avec tout ton sérieux et ton désir de recevoir ce don d'Amour, afin qu'il puisse remplir ton âme, couler librement à l'intérieur, et t'élever.
 

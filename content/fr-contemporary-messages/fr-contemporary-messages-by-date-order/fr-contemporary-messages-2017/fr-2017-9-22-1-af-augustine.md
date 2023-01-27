@@ -9,7 +9,7 @@ weight:
 ---
 ### L'expression de l'amour par le service est importante
 
-Augustin - reçu par Al Fike le 22 Septembre 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 22 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. Je suis venu délivrer un message sur le service, sur l'importance du service à mesure que l'on grandit spirituellement en continuant à grandir dans l'Amour de Dieu. Le résultat naturel de l'Amour est la connexion avec les autres, le don aux autres, permettant au flux d'Amour de s'écouler vers de nombreuses âmes.
 

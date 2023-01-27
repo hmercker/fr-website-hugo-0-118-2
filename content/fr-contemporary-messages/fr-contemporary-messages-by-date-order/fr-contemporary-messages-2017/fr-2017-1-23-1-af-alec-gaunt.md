@@ -9,7 +9,7 @@ weight:
 ---
 ### Les changements que vous allez vivre
 
-Alec Gaunt - reçu par Al Fike le 23 Janvier 2017, Gibsons, Colombie-Britannique, Canada.
+Alec Gaunt - reçu par Al Fike le 23 Janvier 2017, Gibsons, Colombie-Britannique, Canada
 
 Chacun d'entre vous est au bord du précipice d'un grand changement. Il se passe beaucoup de choses en vous qui se manifesteront à travers vous et autour de vous avec le temps et vous ressentez le déplacement et les énergies changeantes en vous-mêmes, dans votre âme. Chacun d'entre vous a passé de nombreuses heures en prière, s'est regroupé pour recevoir l'Amour de Dieu et a reçu l'Amour de Dieu en abondance et cela apporte un résultat. Cela apporte un changement en vous, un déplacement du cœur même de votre être comme cela a été promis et guidé. Ainsi, votre perspective change, ce qui est important change - les priorités, la concentration et le service. Toutes ces choses sont illuminées par l'Amour qui est dans vos âmes. Ces changements de perception et d'attitude filtrent à travers vos esprits et comme vous êtes en transition, comme vous absorbez et vous ajustez à ces nouvelles conditions en vous, vous vous sentez souvent mal à l'aise, quelque peu contestés et peut-être confus, mais je vous le dis mes amis, vous atteindrez un niveau plus élevé de compréhension et de perception et les dons en découleront de manière puissante et magnifique.
 

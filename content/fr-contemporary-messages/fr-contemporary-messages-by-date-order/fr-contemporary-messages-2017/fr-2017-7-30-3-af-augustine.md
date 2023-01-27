@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité passe par l'âme et elle commence par un simple désir
 
-Augustin - reçu par Al Fike le 30 Juillet 2017, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 30 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 C'est moi, votre enseignant Augustin. Ressentez-vous la paix dans cette pièce ? Êtes-vous conscients de la Présence de Dieu ? Connaissez-vous le contact de Son Amour dans vos âmes ? Pouvez-vous sentir les effets de cet Amour sur vos âmes et votre être ? Car lorsqu'une âme est touchée par Dieu, il y a une réponse de joie, d'exaltation et de paix en même temps. Car l'âme reconnaît son Créateur. L'âme désire une connexion avec Dieu. Vos pensées peuvent s'emballer avec de nombreuses idées, des explications sur la nature de la vie, la nature de votre être. Mais, mes bien-aimés, lorsque vos âmes sont touchées par Dieu de cette manière, il n'y a pas besoin d'explications complexes. C'est un toucher de Vérité, une compréhension qui ne vient pas de la tête mais de l'âme. Vous commencez un voyage, un voyage d'éveil. Une étincelle a allumé une flamme en vous. Cette étincelle est l'Amour. Cette flamme est cette partie de vous, votre âme, qui s'éveille, qui prend vie.
 

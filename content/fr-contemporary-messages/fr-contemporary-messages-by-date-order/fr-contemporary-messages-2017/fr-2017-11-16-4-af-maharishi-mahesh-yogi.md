@@ -9,7 +9,7 @@ weight:
 ---
 ### Utilisez vos dons
 
-Maharishi Mahesh Yogi - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Maharishi Mahesh Yogi - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Maharishi Yogi et je souhaite utiliser vos dons pour apporter la Vérité de cet Amour à l'humanité. 
 

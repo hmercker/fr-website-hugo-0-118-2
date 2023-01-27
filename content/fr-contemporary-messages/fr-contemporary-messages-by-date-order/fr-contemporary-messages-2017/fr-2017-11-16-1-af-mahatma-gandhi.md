@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez forts dans l'amour, car les autres ont besoin de vous dans ce monde
 
-Mahatma Gandhi - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Mahatma Gandhi - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis le Mahatma Gandhi, je vous ai déjà parlé auparavant mes amis et je souhaite réitérer mon enthousiasme, mon désir de travailler avec vous dans cette ambitieuse entreprise pour apporter la Vérité à l'humanité par la voix des anges et des esprits élevés du Ciel. Puissions-nous en effet travailler tous ensemble à ces fins. Puissions-nous en effet réussir dans cette entreprise, car il n'y a pas de meilleur moment pour apporter la Vérité à partir de stations de vie plus élevées dans le monde spirituel et le monde angélique. Et de le faire maintenant ! Le monde a désespérément besoin de ces vérités, n'est-ce pas ?
 

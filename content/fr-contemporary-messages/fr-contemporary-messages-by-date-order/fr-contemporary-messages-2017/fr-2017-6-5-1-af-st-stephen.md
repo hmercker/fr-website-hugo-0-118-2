@@ -9,7 +9,7 @@ weight:
 ---
 ### Prier pour l’amour, s’épanouir dans l’amour.
 
-St Étienne - reçu par Al Fike le 5 Juin 2017, Gibsons, Colombie-Britannique, Canada.
+St Étienne - reçu par Al Fike le 5 Juin 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Étienne, connu sous le nom de Saint Étienne lors de ma vie terrestre. Je n’ai pas parlé à travers cet instrument auparavant. Vous constaterez qu’en vous réunissant dans ces Cercles d’Amour, beaucoup de nouveaux anges parleront, car nous préparons cet instrument et ceux qui lui sont associés pour le don de la voix directe. De très nombreux anges qui ne sont pas encore intervenus viendront donc ajouter leurs énergies et leurs bénédictions à cette entreprise et donneront des conseils pour cet effort.
 

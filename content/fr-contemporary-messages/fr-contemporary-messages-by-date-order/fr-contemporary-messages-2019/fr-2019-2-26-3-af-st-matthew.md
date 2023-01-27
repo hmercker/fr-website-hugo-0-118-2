@@ -23,8 +23,7 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu. Je suis avec vous dan
 <small>
 
 1. <large id=”f1”> Il est curieux que je n’aie jamais vu ce point articulé dans un message canalisé, mais cela m’a amené à me dquestionner lorsque, en particulier des "maîtres spirituels' de l’Est, manifestent des dons étonnants, alors que nous sommes informés qu’après la mort ils n'ont pas dépassé la quatrième sphère. (Geoff Cutler)[↩](#a1)
-
-Note 1 
+ 
 
 
 

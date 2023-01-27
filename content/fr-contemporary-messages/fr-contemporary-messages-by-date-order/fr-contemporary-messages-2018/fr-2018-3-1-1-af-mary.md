@@ -11,7 +11,7 @@ weight:
 
 Marie - reçu par Al Fike le 1 Mars 2018, Homosassa Springs, FL, USA.
 
-Je suis Marie, mère de Jésus. Puissiez-vous sentir en vous le désir ardent de vos âmes d’être proches de Dieu, que vous puissiez venir à Dieu avec les désirs de votre cœur, les préoccupations de votre vie, les douleurs et les difficultés d’une vie dans ce monde. Déposez-les aux pieds de Dieu et dites :  » Mon Père céleste bien-aimé, soulève-moi, amène-moi dans la Lumière de ta Présence. Remplis mon âme de ton Amour afin que je puisse vivre dans l’harmonie et la paix, la joie et la Vérité, que la Vérité que tu veux me donner soit bénie dans mon âme et qu’elle percole dans mon esprit afin que cette Vérité soit claire et puissante, que je sois éveillé dans l’Amour ».
+Je suis Marie, mère de Jésus. Puissiez-vous sentir en vous le désir ardent de vos âmes d’être proches de Dieu, que vous puissiez venir à Dieu avec les désirs de votre cœur, les préoccupations de votre vie, les douleurs et les difficultés d’une vie dans ce monde. Déposez-les aux pieds de Dieu et dites :  *« Mon Père céleste bien-aimé, soulève-moi, amène-moi dans la Lumière de ta Présence. Remplis mon âme de ton Amour afin que je puisse vivre dans l’harmonie et la paix, la joie et la Vérité, que la Vérité que tu veux me donner soit bénie dans mon âme et qu’elle percole dans mon esprit afin que cette Vérité soit claire et puissante, que je sois éveillé dans l’Amour. »*
 
 Le monde a besoin d’âmes aspirant à la Lumière. Le monde a un besoin profond d’âmes qui sont fortes en Lumière, claires en Vérité et aimantes dans leur comportement. Car le monde se noie dans le matérialisme et les esprits de l’humanité sont concentrés sur les conditions de base de ce monde et non sur leurs âmes.
 

@@ -11,9 +11,9 @@ weight:
 
 Jésus - reçu par Al Fike le 28 Mai 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/spiritualite-14.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/spiritualite-14.jpg)
 
-Dieu vous bénisse, âmes bien-aimées, je suis Jésus. Je suis venu une fois de plus pour parler des choses de l’âme afin d’aider à vous élever, vous inspirer et vous enseigner ce voyage vers l’union avec Dieu. Alors que vous recevez le don de l’Amour Divin, Son Essence, ainsi l’âme s’éveille et devient un véritable partenaire dans votre vie et vous pouvez expérimenter des choses de nature spirituelle à partir des véritables perceptions de votre âme et des expériences qui viennent avec une âme éveillée.
+Dieu vous bénisse, âmes bien-aimées, je suis Jésus. Je viens une fois de plus pour parler des choses de l’âme afin d’aider à vous élever, vous inspirer et vous enseigner ce voyage vers l’union avec Dieu. Alors que vous recevez le don de l’Amour Divin, Son Essence, ainsi l’âme s’éveille et devient un véritable partenaire dans votre vie et vous pouvez expérimenter des choses de nature spirituelle à partir des véritables perceptions de votre âme et des expériences qui viennent avec une âme éveillée.
 
 Je souhaite parler de ces choses de l’âme éveillée et de la façon dont cela peut être accompli et quelles sont en effet les composantes d’une âme éveillée de cette façon. L’âme est le centre même de la vie dans votre être. Sans âme, vous n’existeriez pas sur le plan matériel, car c’est l’âme qui a été créée par Dieu et qui s’est enflammée dans la vie, dans ce lieu d’existence de l’âme qui préexiste à l’incarnation dans la chair. L’essence même de ce que vous êtes est ancrée dans votre âme et votre être qui a été enflammé par l’incarnation de votre âme dans un corps de chair.
 
