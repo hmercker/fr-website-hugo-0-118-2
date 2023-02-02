@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-1969/fr-4-1969-2-14-anonymous-keea-atta-kem/) | 14 Février 1969
+Keea Atta Kem | [Demandez au Père d'ouvrir vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-4-1969-2-14-anonymous-keea-atta-kem/) | 14 Février 1969
 Keea Atta Kem | [Soyez conscient de ce que vous dites. Soyez conscient de ce que vous pensez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-5-1969-2-24-anonymous-keea-atta-kem/) | 24 Février 1969
 Augustin | [Voici votre chance d'avancement - Voici la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-6-1969-2-24-anonymous-augustine/) | 24 Février 1969
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
