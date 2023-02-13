@@ -9,7 +9,7 @@ weight:
 ---
 ### Remettez à Dieu les blessures et les fardeaux de votre âme
 
-Augustin - reçu par Maureen Cardoso le 11 Novembre 2018, Abbotsford, Colombie-Britannique, Canada
+Augustin - reçu par Maureen Cardoso le 11 Novembre 2018, First United Spiritualist Church, Burnaby, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Augustin et je souhaite venir à vous et aborder les nombreuses blessures et les fardeaux qui sont sur une âme. Mes bien-aimés, il n’y a pas une seule âme sur terre qui ne porte pas de blessures et de fardeaux résultant de ses expériences au cours de sa vie. Et je voudrais vous encourager aujourd’hui à réaliser que ce sont des occasions pour vous de venir devant votre Créateur bien-aimé en demandant la guérison, en demandant que cet endroit en vous soit guéri par l’Amour et la Grâce de Celui qui vous a créé.
 
@@ -20,6 +20,3 @@ Comment sait-on quand ces changements prennent effet ? Ces fardeaux et ces bless
 Alors bien-aimés, alors que vous êtes assis maintenant avec vos âmes ouvertes, aspirant et désirant ardemment ressentir cet Amour de votre Créateur, ne vous sentez-vous pas merveilleux, ne vous sentez-vous pas à l’aise, ne vous sentez-vous pas réconfortés ? Chers amis, ceci est disponible à tout moment. C’est seulement à vous de faire un effort et c’est seulement vous qui vous tenez à l’écart de cette guérison. C’est l’Amour le plus gracieux, le plus tendre, le plus connaissant et le plus attentif qui vous guérira. Je vous laisse donc avec le souhait de rechercher l’Amour de votre Créateur bien-aimé, permettant à l’essence, à la vérité, de ce que vous êtes en tant qu’âme, d’être soignée par Celui qui vous a créé. Alors que cet Amour coule en vous, mes amis, vous verrez votre essence grandir et se transformer en celle de l’Amour.
 
 Que Dieu vous bénisse en ce jour, je suis Augustine et je réside dans le Royaume Céleste. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

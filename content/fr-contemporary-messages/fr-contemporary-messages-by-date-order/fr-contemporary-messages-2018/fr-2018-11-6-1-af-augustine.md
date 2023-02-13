@@ -9,7 +9,7 @@ weight:
 ---
 ### La lutte du mental matériel pour être en harmonie avec l'amour
 
-Augustin - reçu par Al Fike le 6 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 6 Novembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Augustin. Vous priez, mes bien-aimés, d’accepter et d’apprécier les différences de ceux qui vous entourent, de marcher humblement dans le monde et pourtant, bien souvent, vous prenez plutôt ombrage de ces différences et vous prenez personnellement les critiques et les perspectives qui ne sont pas en harmonie avec les vôtres. Comment pouvez-vous être un exemple de l’Amour béni du Père si vous êtes dans un état de jugement, si vous ne pouvez pas accepter avec humilité et amour inconditionnel les différences de l’autre ? Tant que vous cherchez l’acceptation d’autrui, ce qui, de l’autre côté de la médaille, signifie que vous cherchez à ce que les autres se comportent d’une manière acceptable de votre point de vue, alors vous ne forgerez pas vraiment de liens d’amour et d’acceptation entre vous. Donnez à chaque personne son temps et sa place dans le monde, en exprimant qui elle est de cet endroit, avec ses propres perspectives et sa propre vision du monde. Faites-le en les honorant, non pas pour ce qui est de l’erreur et clairement de l’erreur, mais pour voir que chacun est sur un chemin d’apprentissage, de compréhension, de guérison et d’apport d’un plus grand amour dans son être. Vos anges amis vous jugent-ils, mes bien-aimés ? Car nous voyons tout, même les pensées que vous ne partagez pas. Elles sont très transparentes pour nous.
 
@@ -36,8 +36,3 @@ Sachez que nous sommes avec vous pour vous aider, nous sommes avec vous pour vou
 Que Dieu vous bénisse, mes beaux amis, vous qui luttez tant dans ce monde qui est le vôtre, et pourtant, vous êtes comblés de tant de bénédictions. Jour après jour, instant après instant, Dieu continue de vous bénir mes bien-aimés. Il envoie ses anges pour être avec vous. Que vos choix soient toujours pour la lumière, que vos mots reflètent toujours l’amour, que vos pensées soient dans le flux de l’Amour de Dieu.
 
 Dieu vous bénit mes bien-aimés. Je suis votre enseignant Augustin et je vous aime, belles âmes qui continuez sur ce Chemin Divin. Que Dieu vous bénisse mes bien-aimés. Que Dieu vous bénisse.
-
-
-
-
-

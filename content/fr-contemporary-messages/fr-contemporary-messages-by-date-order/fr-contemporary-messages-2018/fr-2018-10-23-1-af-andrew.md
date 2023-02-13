@@ -9,7 +9,7 @@ weight:
 ---
 ### Recherchez l'harmonie grâce à l'amour de Dieu
 
-André - reçu par Al Fike le 23 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 23 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis André. Dans la création de Dieu, toutes les choses recherchent l’harmonie. Tout mouvement, toute évolution et toute expression de la création de Dieu est attiré à rechercher l’harmonie d’une façon qu’elle interagisse et soit avec toutes les autres choses. Dieu a créé ce besoin au sein de toute sa création, afin d’être en phase avec les flux et reflux de la force créatrice de l’univers. Il n’y a qu’une seule créature dans l’univers de Dieu qui ne recherche pas l’harmonie, et ce sont les âmes de l’humanité, bien qu’à l’intérieur de leurs âmes, à l’intérieur de toutes vos âmes, il y a une compulsion, un besoin, d’être en harmonie. Cependant parce que les esprits de tant de personnes dans votre monde sont prédominants et que chaque âme a reçu le don du libre arbitre, il y a un manque d’harmonie. Bien qu’à l’intérieur de leurs âmes, à l’intérieur de toutes vos âmes, il y a une compulsion, un besoin, d’être en harmonie, mais parce que les esprits de tant de personnes dans votre monde sont prédominants et que chaque âme a reçu le don du libre arbitre, il y a un manque d’harmonie. Ainsi, le désir d’amour, d’exprimer l’amour et d’être dans le flux de l’amour est supprimé par le mental.
 
@@ -24,6 +24,3 @@ Mes âmes bien-aimées, vous détenez la clé, la clé qui déverrouillera la po
 Vos âmes continuent de s’éveiller à cela, mes amis bien-aimés. Vous reconnaîtrez la vérité. Vous verrez l’erreur. Vous trouverez votre chemin à travers la forêt d’erreurs que l’humanité a créée et vous arriverez à ces prairies ensoleillées de paix, de vérité et d’harmonie. C’est votre destin, âmes bien-aimées, alors que vous continuez à recevoir ce don de l’Amour Divin. Vous êtes donc attirées par la lumière et tout ce qui est bon. Vous êtes attirés par Dieu et Dieu vous guidera et vous amènera à la lumière. Vous avez bien choisi, mes bien-aimés. Vous avez choisi de marcher sur la route de l’amour et de la vérité, de la paix et de l’harmonie. Et cela vous mènera loin, plus loin que l’œil ne peut voir, car ce voyage est pour toute l’éternité. Âmes bien-aimées, soyez avec Dieu et tout se déroulera et coulera dans l’amour gracieux, l’amour enveloppant, l’amour renforçant, l’amour embrassant, l’amour merveilleux.
 
 Dieu vous bénisse, mes chers amis. Je suis André. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

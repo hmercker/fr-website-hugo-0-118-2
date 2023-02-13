@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre relation la plus profonde est avec votre Créateur
 
-Keea Atta Kem - reçu par Maureen Cardoso le 4 Novembre 2018, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 4 Novembre 2018, First United Spiritualist Church, Barnaby, Colombie-Britannique, Canada
 
 Amis bien-aimés, je suis Keea. Chères âmes, chacune d’entre vous a un désir inné, un désir inné de connexion. N’est-ce pas d’ailleurs la raison pour laquelle vous êtes ici réunis en prière, aspirant à une connexion, à un sentiment d’appartenance ? Âmes bien-aimées, la connexion la plus profonde et l’appartenance la plus profonde sont avec votre Créateur bien-aimé. Car c’est au cours de votre création que Dieu a implanté dans chaque âme ce désir de connexion.
 
@@ -25,7 +25,4 @@ C’est à ce moment-là que l’on commence à renoncer à avoir besoin que les
 
 Apportez tout à Dieu, mes bien-aimés. Apportez tout ce qui souffre à l’intérieur de vous, tout ce qui désire être aimé. Toutes les émotions qui manquent d’amour, amenez-les à votre Créateur bien-aimé, celui qui vous bercera, qui vous aimera et vous consolera. Vous constaterez qu’à l’intérieur de vous vient cette grande stabilité, cette capacité à marcher en sachant que vous êtes pris en charge par celui qui vous a créé et que vous êtes aimé et guidé. Mes amis bien-aimés, continuez sur ce chemin de construction de votre communion, d’âme à âme. Tout vient en harmonie, mes bien-aimés. Soyez en prière et permettez à Dieu de vous aimer et d’harmoniser tout ce qui est en vous.
 
-Je suis Keea-atta Kem et mon amour est avec chacun de vous. Dieu vous bénit. Je vous aime.
-
-
-
+Je suis Keea Atta Kem et mon amour est avec chacun de vous. Dieu vous bénit. Je vous aime.

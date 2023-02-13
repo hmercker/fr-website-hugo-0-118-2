@@ -9,7 +9,7 @@ weight:
 ---
 ### L'éveil de l'âme, la puissance de vos dons
 
-Seretta Kem - reçu par Al Fike le 23 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 23 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes, je suis Seretta Kem. Il y a de petits éveils qui se produisent partout en vous, mes bien-aimés. Il y a des décalages et des changements dans tous les aspects de votre être. De vos corps à votre âme, beaucoup de choses prennent vie, des guérisons de ces parties endommagées de votre corps. Il y a des ajustements de votre chimie ensemble, apportant un lien plus profond entre vous, presque comme si vous étiez d’un seul corps, mes bien-aimés. Avec ce mélange de vos êtres physiques et de vos corps spirituels, une communication plus profonde est possible entre vous, une connaissance, un sentiment de proximité qui n’est pas inhibé par la distance. Cela va continuer à s’approfondir alors que vous continuez à prier ensemble, non seulement pendant que vous êtes ici, mais aussi lorsque vous êtes dans vos maisons respectives. Beaucoup d’énergies et de mises au point de vos corps spirituels aident à introduire les dons qui émergent et s’éveillent dans votre âme. Car un don de l’âme nécessite que l’esprit et les corps physiques soient alignés avec l’âme pour que ce don soit clair et exprimé puissamment à travers vous.
 
@@ -28,6 +28,3 @@ C’est cela faire le travail de Dieu, mes bien-aimés. Nous sommes tous des ouv
 Sachez que nous poursuivrons ces grands efforts pour toute votre vie, que l’ouverture de vos dons ne se fait pas en un instant, mais dans la progression de vos âmes dans l’Amour du Père, dans votre désir d’être proches de Dieu et de servir l’humanité. Nous avons déjà beaucoup accompli. Vos efforts ont apporté de nombreuses bénédictions. Le fruit de vos âmes continue à mûrir dans l’amour. Il y aura des manifestations. Elles viendront à mesure que Dieu continuera à vous guider sur votre chemin et à vous offrir des occasions de servir l’humanité. Son Amour continuera à couler toujours plus profondément. Cette rivière s’élargit, ses courants sont plus rapides, se déversant sur le monde, guérissant cette Terre desséchée, les âmes desséchées de l’humanité, ramenant la paix et l’harmonie dans le monde. Cela continue à être dans le flux de la volonté de Dieu. Et vous, âmes bien-aimées, continuez à vous éveiller dans Son Amour.
 
 Que Dieu vous bénisse, mes chers amis bien-aimés. Je suis Seretta Kem. Je suis avec vous dans vos voyages d’éveil. Que Dieu vous bénisse.
-
-
-

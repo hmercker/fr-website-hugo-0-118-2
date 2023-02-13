@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chemin le moins fréquenté
 
-St Paul - reçu par Al Fike le 29 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+St Paul - reçu par Al Fike le 29 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Paul, Paul de Tarse, Paul de la Bible. Je suis venu vous parler de la valeur et du but de votre âme. Lorsque vous priez ensemble dans un cercle comme celui-ci, vous faites entrer vos énergies et vos intentions spirituelles dans le cercle. En fonction de vos croyances et de vos désirs, vous apportez certaines énergies, influences et bénédictions.
 
@@ -26,7 +26,5 @@ Ceux qui prennent le chemin de la purification des attributs naturels et de l’
 Alors que vous êtes assis ici dans ce cercle et que vous priez pour ce don d’Amour Divin, nous souhaitons que vous réalisiez le voyage que vous entreprenez. Bien que ce soit le chemin le moins fréquenté par les mortels, c’est un voyage merveilleux, qui peut apporter des bénédictions profondes et merveilleuses, des aperçus, des perceptions, de la joie, une communion avec Dieu.
 
 Vous êtes invités, mes bien-aimés, à parcourir ce Chemin Divin vers Dieu, une invitation qui vous a été faite à maintes reprises. Beaucoup d’entre vous ressentent le beau toucher de l’Amour de Dieu dans leur âme. Vous sentez l’atmosphère autour de vous chargée de cet Amour, chargée de paix, chargée de guérison. Toutes ces réalités viennent avec ce don d’Amour, toutes ces choses sont à votre disposition sans restriction et toutes peuvent venir en grande abondance, en grande abondance et profondément ressenties dans l’âme. Cherchez ce cadeau, mes chers amis, nous vous en supplions. Je vous dis que chaque moment passé à désirer cette bénédiction vous apportera des récompenses insondables, alors que vos âmes s’ouvriront et émergeront dans cette lumière et cet éveil de l’Amour de Dieu en vous.
+
 Que Dieu vous bénisse, mes bien-aimés, je suis Paul et je suis heureux de vous parler ce soir. Que vos voyages vers Dieu soient rapides et pleins de merveilles et de grande joie. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés, mon amour est avec vous, que Dieu vous bénisse.
-
-
-

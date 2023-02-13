@@ -9,9 +9,9 @@ weight:
 ---
 ### Des changements terrestres stimulants apportent plus de lumière et d’harmonie à l’humanité
 
-Augustin - reçu par Al Fike le 29 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 29 Novembre 2018, Fitzroy Falls, NSW, Australie.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/eveil-spirituel8.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-eveil-spirituel8.jpg)
 
 Je suis Augustin. Vous ne connaissez pas de véritable adversité, mes bien-aimés. Votre vie est bien isolée de la véritable adversité. Vous ne manquez de rien. Vous avez tout ce qu’il vous faut pour être dans la grâce de Dieu. Vous êtes à l’aise dans votre vie. Bien qu’il y ait des imperfections, des difficultés et des défis, comparé à beaucoup d’autres dans votre monde, vous vivez une vie idéale. Parfois, nous qui sommes en charge de votre progression, de votre travail et de l’éveil de votre âme, nous nous inquiétons de ce que, lorsque la véritable adversité se présentera à vous, vous soyez suffisamment forts pour résister aux assauts du monde chaotique dans lequel vous vivez.
 
@@ -42,5 +42,3 @@ Il n’y a rien à craindre. Ayez plutôt un sentiment de gratitude, de joie dan
 Beaucoup de choses vont changer, chers amis. Beaucoup de choses changent. Vous devez changer avec cela et vous réveiller pour recevoir le nouvel âge de lumière qui s’annonce. Considérez ces choses, mes amis. Considérez comment vous pouvez avancer dans votre monde en harmonie et en paix, dans l’amour et la joie.
 
 Dieu vous bénisse, âmes bien-aimées, je suis votre enseignant Augustin. Je suis avec vous. Je suis très proche, comme le sont de nombreux anges qui vous aideront dans vos efforts pour vous rapprocher de Dieu et être en plus grande harmonie avec Ses lois d’Amour et de création. Dieu vous bénisse, Dieu vous bénisse.
-
-

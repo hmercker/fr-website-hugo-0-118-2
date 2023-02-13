@@ -9,7 +9,7 @@ weight:
 ---
 ### Apporter une plus grande vie à l’humanité en tant que canaux d’amour de Dieu
 
-Michael Collier - reçu par Al Fike le 26 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Michael Collier - reçu par Al Fike le 26 Novembre 2018, Fitzroy Falls, NSW, Australia.
 
 Je suis Michael Collier et je me suis déclaré comme l’un de vos aides mes amis bien-aimés. J’ai résidé en Angleterre au cours des années 1800 et je suis décédé au début des années 1900. J’étais un simple employé de bureau dans la ville animée de Londres et j’ai vécu une vie humble sur cette terre qui est la vôtre. Je n’avais pas une vie particulièrement spirituelle et, à bien des égards, elle manquait d’éclat et d’excitation, mais après ma venue à la vie spirituelle, mes yeux se sont ouverts. J’ai commencé à voir les possibilités de cette vie et j’ai eu la chance d’avoir de magnifiques amis esprits qui m’ont appris les merveilles de l’amour de Dieu.
 
@@ -28,6 +28,3 @@ Oui, comme vous le savez bien, c’est très simple. C’est votre geste d’amo
 Mes amis, votre travail est donc grand et sans fin. Son expression actuelle est simple et puissante et facilement exécutée, alors ne compliquez pas les choses, mes amis bien-aimés, et ne vous inquiétez pas des exigences de résultats, des possibilités ou des problèmes qui peuvent en découler, car oui, la condition humaine continuera à se manifester avec ceux avec qui vous êtes. Cela exige un certain détachement qui est surmonté par l’amour et vous, mes chers amis, mes âmes bien-aimées, avez toutes les capacités, la lumière et la force pour le faire avec grâce et beauté. Dieu utilise chacun de ses magnifiques canaux d’amour de bien des façons, de bien des façons.
 
 Que Dieu vous bénisse mes amis et vous garde toujours dans son amour. Je suis proche. Beaucoup sont proches qui marchent avec vous dans la lumière. Le Maître marche avec vous mes amis. Beaucoup marchent avec vous. Que Dieu vous bénisse. Je suis Michael. Que Dieu vous bénisse.
-
-
-

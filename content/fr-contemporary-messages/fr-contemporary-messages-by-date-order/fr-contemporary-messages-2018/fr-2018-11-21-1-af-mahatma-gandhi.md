@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement à poursuivre les projets
 
-Mahatma Gandhi - reçu par Al Fike le 21 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Mahatma Gandhi - reçu par Al Fike le 21 Novembre 2018, Bayview, Sydney, Australie.
 
 De nombreux voyages vous attendent, de nombreux voyages dans de nombreux pays car le maître bien-aimé Jésus ne s’est pas assis dans un seul lieu en prière dans son ministère. Il a marché vers de nombreux lieux, jusqu’aux limites de ses capacités, pour être un enseignant pour beaucoup. Ainsi, vous aussi, chers amis, vous devez être prêts à voyager et à être dans les lieux où Dieu vous guidera. Car il y a bien un plan, un plan qui ouvre les portes à de nombreuses possibilités, un plan qui n’est pas gravé dans la pierre mais qui exige de la flexibilité et le désir d’écouter votre guidance, d’être ouvert à ce que Dieu souhaite que vous fassiez.
 
@@ -24,6 +24,3 @@ Oui, vous êtes imparfaits, mais vous continuez à grandir, à vous éveiller et
 Oui, il y a un grand travail qui a désespérément besoin d’être fait dans votre monde. Vous devez être prêts. Vous êtes prêts, nous le savons, et vous êtes impatients. Ce qui continue à être votre défi, c’est d’être dans cette lumière si purement et si intensément que vous puissiez effectivement être un canal clair et magnifique de l’amour et de la Volonté de Dieu dans le monde. Nous continuons donc à enseigner, à encourager et à ajouter notre amour et notre soutien à vos efforts. Cela nous apporte une grande joie de voir que vous êtes disposés, que vous avez un profond désir de servir, que vous avez soif et faim de vérité et d’amour. Nous sommes donc assurés par vos désirs et vos efforts que vous arriverez effectivement à ce lieu, que vous serez de puissants canaux de l’Amour de Dieu, clairs et lumineux, inébranlables dans la vérité, forts dans la foi, humbles et sages, aimants et simples dans ces expressions.
 
 Que Dieu vous bénisse davantage de son amour. Puissiez-vous connaître votre vraie et belle âme et vous éveiller à la Présence de Dieu à chaque respiration. Je suis le Mahatma Gandhi et je suis celui qui continue à vous soutenir dans vos efforts et votre voyage vers Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis, afin que vous puissiez poursuivre votre route et que je marche avec vous avec mon bâton et mes vêtements simples. Sachez que le Mahatma Gandhi est votre frère. Que Dieu vous bénisse.
-
-
-

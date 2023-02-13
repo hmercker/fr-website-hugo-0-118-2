@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est temps de faire de plus grands efforts pour grandir dans la prière
 
-St Matthieu - reçu par Al Fike le 22 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 22 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Matthieu. Oui vous entamez la dernière étape de votre voyage ensemble, pour le réveil de vos âmes. Il y a une différence appréciable, dans votre lumière, depuis le moment où vous avez commencé jusqu’à maintenant. Vos âmes ont bénéficié de vos efforts, mes bien-aimés. Vous continuez à vous rapprocher de Dieu et à permettre aux changements et à la revitalisation de votre âme de se manifester dans votre conscience. Bien-aimés, vous êtes sur la bonne voie dans ce voyage d’éveil. Vous continuez à concentrer vos attentions sur votre âme et votre relation avec votre Père Céleste. Nous vous encourageons à poursuivre vos efforts et à renforcer votre résolution, votre concentration et vos désirs de recevoir les bénédictions de l’Amour du Père.
 
@@ -34,7 +34,3 @@ Dieu vous guidera sur ce chemin de service au profit de l’humanité. Vous irez
 Cherchez à être dans la grâce de Dieu à chaque moment où vous êtes ensemble, mes bien-aimés, dans ce temps qui est court, de faire tous les efforts possibles pour le réveil de vos âmes, de redoubler vos efforts dans la prière, d’être alignés avec ce grand déversement et flux d’amour et de grâce. Il se déverse vers vous, mes bien-aimés, en soutien à ces efforts que vous faites pour marcher dans la lumière, et accompagnés par les anges des Cieux Célestes qui continuent à assister à la naissance de votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés, et vous garde dans sa Grâce et son Amour, vous élevant, vous guérissant, vous apportant sagesse et force. Que Dieu vous bénisse. Je suis Matthieu. Mon amour est avec vous et je suis constamment avec vous dans ces efforts pour briser la condition humaine et trouver votre liberté avec Dieu. Que Dieu vous bénisse.
-
-
-
-

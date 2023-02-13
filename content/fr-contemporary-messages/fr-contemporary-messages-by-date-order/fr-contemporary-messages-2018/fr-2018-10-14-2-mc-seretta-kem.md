@@ -9,7 +9,7 @@ weight:
 ---
 ### Le service réveille l'âme
 
-Seretta Kem - reçu par Maureen Cardoso le 14 Octobre 2018, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 14 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Ce fut une très grande journée, participant au service, servant vos frères et sœurs, servant votre Père Ciel, et servant le réveil de vos âmes. Voyez-vous comment ces choses sont entrelacées ? Car lorsque vous aidez à vous élever, à vous élever et à être dans la lumière du service, cela vous apporte également une grande lumière. Beaucoup ont été profondément touchés lorsque vous avez travaillé côte à côte, lorsque vous avez partagé dans votre discours aujourd’hui sur le pouvoir de l’amour. Nous étions avec vous et présents, aidant à élever, renforcer, soutenir et influencer tous ceux qui étaient là.
 
@@ -24,6 +24,3 @@ Dans les jours à venir, continuez comme vous l’avez fait. Restez assis avec v
 Je souhaite à chacun d’entre vous une bonne nuit, la bénédiction de Dieu sur vous. Puissiez-vous sentir Dieu près de vous en permanence, le connaître, son amour, ses soins, ses conseils, le laisser vous servir, invoquer votre Père céleste en toutes choses.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Seretta Kem. Je vous aime et bonne nuit.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Se reposer et prier pour se ressourcer
 
-St Matthieu - reçu par Al Fike le 20 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 20 Novembre 2018, Bayview, Sydney, Australie.
 
 Puis-je suggérer un ordre du jour pour demain ? Puisque vous deux avez effectivement bénéficié d’une guérison et d’un traitement puissants, je vous suggère de prendre une journée pour absorber et intégrer [cette bénédiction de la chère âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-1-af-confucius/). Je vous suggère également de prendre le temps de prier trois fois demain et si cette journée est reposante entre ces sessions, vous êtes assurés de recevoir certains des messages que vous attendez. Prendre du temps pour ce travail et ces efforts apporteront les fruits de vos labeurs.
 
@@ -30,8 +30,3 @@ Nous continuons à nous tenir à vos côtés, à marcher avec vous, à utiliser 
 Il y a un grand potentiel, âmes bien-aimées. Tant de choses attendent que vous arriviez à cet endroit où toutes les barrières et les distractions, toutes les erreurs, tout ce qui n’est pas de l’amour, peuvent tomber et l’amour peut régner en maître dans votre être, dans votre esprit et dans votre âme. Que les deux parties de votre être et toutes les parties de votre être puissent être intégrées dans l’amour, éveillées dans l’amour et exprimées dans l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et je suis avec vous. Que Dieu vous bénisse.
-
-
-
-
-

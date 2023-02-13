@@ -9,7 +9,7 @@ weight:
 ---
 ### L'éveil et la libération de l'âme par l'Amour Divin
 
-St Matthieu - reçu par Al Fike le 15 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 15 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse. Je suis Matthieu. Nous voyons l’engourdissement et le malaise qui ensevelissent l’âme sous tant de couches de non-sentiment, de non-conscience, incapables de voir au-delà de la condition qui est immédiate et insatisfaisante. Chaque âme, chaque âme continue à réclamer la libération et l’amour. Vous avez trouvé un moyen de briser ces conditions au sein de vos vies et de vos êtres afin de trouver un moyen de vous réveiller des somnolences profondes qui continuent de piéger vos frères et sœurs. Vous avez trouvé un moyen de connaître vos propres âmes et de connaître la Source de toute vie et de tout amour. En cela, l’éveil de vos âmes continue de se dérouler. Cette libération, cette joie qui vient de la connaissance de l’Amour du Père continuera à vous éveiller et à vous montrer le chemin. Vous ne le faites pas seulement pour vous-mêmes, âmes bien-aimées, mais vous le faites pour tous vos frères et sœurs. Vous apportez la lumière de cette Vérité dans votre monde par vos prières et vos désirs, vos efforts pour servir l’humanité dans ce flux de grand Amour. Cette rivière qui continue à se construire, attirant de nombreuses âmes, attirant ceux qui cherchent, ceux qui sont perdus et ceux qui cherchent à étancher leur soif. Ce réveil grandit et se construit, alors que vos âmes s’agitent au contact de l’Amour de Dieu. Elles s’étirent, bougent et s’étendent dans ce contact, réveillant les autres de leur profond sommeil.
 
@@ -20,6 +20,3 @@ Bien-aimés, chacun d’entre vous porte ce feu. Chacun d’entre vous aspire à
 Âmes bien-aimées, soyez réconfortées par la certitude que la main de Dieu repose fermement sur vous, que vous êtes en train de connaître votre vrai moi, que vos âmes s’éveillent en effet dans ce beau voyage de la vie. Puissiez-vous continuer à forger votre relation avec le Créateur et marcher dans la lumière, marcher dans la lumière, mes bien-aimés. Cherchez à être en harmonie, à permettre à l’Amour de circuler, qu’il puisse s’infiltrer dans chaque cellule de votre être, chaque pensée de votre esprit, chaque chambre de votre âme, que ce beau cadeau puisse éveiller chaque partie de vous.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Je continue à être avec vous pour assister à votre réveil et pour vous aider de toutes les manières possibles à vous éveiller et à vous adapter à cette nouvelle voie, cette nouvelle conscience de Dieu, de votre âme, de la vie, dans cette réalité de Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

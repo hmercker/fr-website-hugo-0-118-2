@@ -15,7 +15,7 @@ Augustin | [Nourrir ce centre de lumière ouvrira de nombreuses portes à l'aven
 Marc | [Le pouvoir de la lumière pour surmonter les ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-1-af-mark/) | 4 Janvier 2019
 Augustin | [Prenez la résolution de faire grandir votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-2-mc-augustine/) | 4 Janvier 2019
 St Matthieu | [Soyez un instrument de l’amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-3-af-st-matthew/) | 4 Janvier 2019
-Marc | [Se concentrer sur la volonté de Dieu et avoir la foi ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-4-af-mark/) | 4 Janvier 2019
+Marc | [Se concentrer sur la volonté de Dieu et avoir la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-4-af-mark/) | 4 Janvier 2019
 Marc | [pporter la bénédiction de l'amour divin à ce sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-5-1-af-mark/) | 5 Janvier 2019
 Marie | [Apportez la lumière de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-6-1-af-mary/) | 6 Janvier 2019
 André | [Connaître la paix de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-7-1-af-andrew/) | 7 Janvier 2019
@@ -44,15 +44,15 @@ Sri Yarisupta | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-conte
 Augustin | [Les défis de la prédiction des changements terrestres à venir (Retraite de questions-réponses)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-28-1-af-augustine/) | 28 Janvier 2019
 St Matthieu | [Libérer les derniers vestiges sombres dans l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-28-2-af-st-matthew/) | 28 Janvier 2019
 Yogananda | [L’Amour Divin est disponible pour que vous le demandiez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-28-3-af-yogananda/) | 28 Janvier 2019
-Albert Einstein | [Comment pouvons-nous aider à approcher les scientifiques ? ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-28-4-af-albert-einstein/) | 28 Janvier 2019
+Albert Einstein | [Comment pouvons-nous aider à approcher les scientifiques?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-28-4-af-albert-einstein/) | 28 Janvier 2019
 Augustin | [Chaque âme a-t-elle un but ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-1-af-augustine/) | 29 Janvier 2019
 Marie-Madeleine | [Marie-Madeleine n’est pas l’âme-soeur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) | 29 Janvier 2019
 Jésus | [Comment discerner la Vérité lorsque des messages provenant de différents médiums se contredisent ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-30-1-af-jesus/) | 30 Janvier 2019
 Seretta Kem | [Jésus assigne des guides spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-30-2-af-seretta-kem/) | 30 Janvier 2019
 St Matthieu | [Merci pour vos efforts dans la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-30-2-af-st-matthew/) | 30 Janvier 2019
-Augustin | [Comment une personne peut-elle recevoir l'Amour Divin sans le savoir ? ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-31-1-af-augustine/) | 31 Janvier 2019
+Augustin | [Comment une personne peut-elle recevoir l'Amour Divin sans le savoir?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-31-1-af-augustine/) | 31 Janvier 2019
 Yogananda | [La réincarnation et sa perception et dissémination par de nombreux yogis et gourous de l’Orient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-31-2-af-yogananda/) | 31 Janvier 2019
-Josephus | [Facultés de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-1-1-af-josephus/) | 1 Février 2019
+Josephus | [Facultés de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-1-1-af-josephus/) | 1 Février 2019
 André | [La porte de la vérité s'ouvre avec l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-3-1-af-andrew/) | 3 Février 2019
 Jésus | [La lumière doit vaincre les ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-4-1-af-jesus/) | 4 Février 2019
 Confucius | [Supprimer les aspects de soi qui ne sont pas de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-5-1-af-confucius/) | 5 Février 2019
@@ -60,7 +60,7 @@ Keea Atta Kem | [Sentir l’Amour](/fr-contemporary-messages/fr-contemporary-mes
 St François d'Assise | [Vos prières peuvent changer les conditions du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-6-1-af-st-francis-of-assisi/) | 6 Février 2019
 Augustin | [Choisir la lumière plutôt que l’obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-10-1-af-augustine/) | 10 Février 2019
 Confucius | [Réunissez-vous à nouveau avec vos questions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-11-1-af-confucius/) | 11 Février 2019
-Confucius | [Vous ne pouvez pas imaginer ce qui vient ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-11-1-af-confucius/) | 11 Février 2019
+Confucius | [Vous ne pouvez pas imaginer ce qui vient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-11-1-af-confucius/) | 11 Février 2019
 Osho Bhagwan | [L'Amour de Dieu est la véritable voie de la libération](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-12-1-af-osho-bhagwan/) | 12 Février 2019
 Solomon | [Salomon parle de la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-14-1-af-solomon/) | 14 Février 2019
 St Matthieu | [L'expérience de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-15-1-af-st-matthew/) | 15 Février 2019
@@ -222,7 +222,7 @@ André | [Nous sommes capables de nous rapprocher lorsque vous êtes proche de D
 Augustin | [Partagez l'expérience de votre âme et de votre cœur lorsque vous enseignez l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-31-1-mc-augustine/) | 31 Juillet 2019
 Lotus Blossom | [Être vulnérable avec Dieu pour guérir les blessures de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-1-1-mc-lotus-blossom/) | 1 Août 2019
 Guru Nanak | [Chaque âme parcourt son propre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-4-1-mc-guru-nanak/) | 4 Août 2019
-Keea Atta Kem | [Nourrir cette partie spirituelle de qui vous êtes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-4-2-mc-keea-atta-kem/) | 4 Août 2019
+Keea Atta Kem | [Nourrir cette partie spirituelle de qui vous êtes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-4-2-mc-keea-atta-kem/) | 4 Août 2019
 Flavius Joseph | [Les portails de lumière sont de puissants instruments de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-5-1-af-josephus/) | 5 Août 2019
 Yogananda | [Le yoga le plus important est d'être ouvert à l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-6-1-jw-yogananda/) | 6 Août 2019
 Jacques | [Chaque âme qui contribue au treillis de lumière fait partie de sa vitalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-6-2-af-james/) | 6 Août 2019
@@ -341,7 +341,7 @@ Augustin | [Ne perdez pas un instant et ne prenez rien pour acquis](/fr-contempo
 Augustin | [Dieu pourvoit à tout ce dont vous avez besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-21-1-af-augustine/) | 21 Novembre 2019
 Confucius | [La vérité, la grâce et l'amour qui ont été promis seront donnés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-21-2-af-confucius/) | 21 Novembre 2019
 St Matthieu | [Il y aura de la joie sur la terre !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-22-1-af-st-matthew/) | 22 Novembre 2019
-Flavius Joseph | [Questions et réponses ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-24-1-af-josephus/) | 24 Novembre 2019
+Flavius Joseph | [Questions et réponses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-24-1-af-josephus/) | 24 Novembre 2019
 André | [Dieu a entendu vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-26-1-af-andrew/) | 26 Novembre 2019
 Confucius | [Buvez profondément ces eaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-27-1-af-confucius/) | 27 Novembre 2019
 Michael Collier | [Permettre aux âmes de venir sans se soucier de leurs croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-27-2-af-michael-collier/) | 27 Novembre 2019

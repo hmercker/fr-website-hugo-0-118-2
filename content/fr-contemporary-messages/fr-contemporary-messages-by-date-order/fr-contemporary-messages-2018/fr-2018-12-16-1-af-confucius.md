@@ -9,7 +9,7 @@ weight:
 ---
 ### Préparez-vous pour les temps qui viennent
 
-Confucius - reçu par Al Fike le 16 Décembre 2018, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 16 Décembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Bienvenue, frères et sœurs. Je suis Confucius. Nous avons du travail à faire, n’est-ce pas, âmes bien-aimées ? Car le monde est dans un profond besoin et Dieu a de grandes bénédictions à accorder à ce monde. Mais il a besoin de Ses canaux d’Amour, de Ses belles âmes, d’enfants qui font partie de Sa Grâce et de Son Amour, afin que ceux-ci puissent couler dans le monde et apporter la guérison, apaiser la douleur et faire disparaître les ténèbres dans votre monde.
 
@@ -24,6 +24,3 @@ Permettez à la transformation d’avoir lieu, mes âmes bien-aimées. Acceptez 
 Âmes bien-aimées, vous êtes maintenant dans cette grande famille des enfants de Dieu et vous allez connaître une grande joie au sein de vos âmes, des réveils qui viendront dans la prière, qui viendront de façon spontanée, qui viendront puissamment dans votre conscience. Vos âmes s’éveillent à Dieu, mes bien-aimés, et Dieu, avec une grande joie, vous accueille dans son giron.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Confucius et je vous bénis tous. Puissiez-vous sentir le contact des bénédictions de Dieu sur vous et savoir combien vous êtes vraiment aimés, mes bien-aimés, combien vous êtes vraiment aimés. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

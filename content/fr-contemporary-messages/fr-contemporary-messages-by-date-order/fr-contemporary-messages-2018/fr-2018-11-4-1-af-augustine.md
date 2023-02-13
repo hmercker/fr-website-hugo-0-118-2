@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu vous invite à vous réveiller dans Son amour
 
-Augustin - reçu par Al Fike le 4 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 4 Novembre 2018, First United Spiritualist Church, Barnaby, Colombie-Britannique, Canada.
 
 Je suis Augustin. Dieu rassemble de nombreuses âmes, de différentes manières, dans les prières, dans les conversations, dans les efforts mutuels pour apporter l’Amour Divin, la Vérité de l’Amour Divin à votre monde et cela va s’étendre, âmes bien-aimées. Cela ne fera que s’étendre si vous continuez à faire ces efforts, si vous continuez à ouvrir vos âmes à ce grand cadeau de l’Amour Divin. Bien-aimés, il y a un grand plan que Dieu a pour le salut de l’humanité. Vous pouvez tous faire partie de ce plan si vous le choisissez, si vous êtes ouverts dans vos âmes et si vous avez un désir clair de servir pour le bénéfice de l’humanité et pour l’ouverture de la Vérité de l’Amour de Dieu pour l’humanité.
 
@@ -20,8 +20,3 @@ Si vous priez pour être utilisés de cette manière, mes bien-aimés, Dieu orch
 Le moment est venu de faire un pas en avant, mes bien-aimés, car ce monde a un besoin désespéré d’amour. Ce monde a désespérément besoin de connaître Dieu et Son Amour. Je vous demande, âmes bien-aimées, je vous demande de prier pour être dans le service, de prier pour être un canal d’amour, de prier pour que tout ce qui pourrait restreindre soit retiré. Priez pour que Son Amour puisse inonder votre être, éveiller vos âmes et votre conscience à la réalité de Dieu, à la vérité de Dieu, et vous pouvez en effet trouver beaucoup de surprises et d’opportunités à votre disposition dans votre service, dans vos vies quotidiennes, dans vos expressions de votre vrai moi dans votre monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin et je vous aime. Que Dieu vous bénisse.
-
-
-
-
-

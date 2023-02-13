@@ -9,7 +9,7 @@ weight:
 ---
 ### L’amour naturel contre l’Amour Divin Développement de l’âme
 
-Professeur Salyards - reçu par Al Fike le 20 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 20 Novembre 2018, Bayview, Sydney, Australie.
 
 *Question posée : Geoff Cutler a demandé si un esprit dans la sixième sphère, sans Amour Divin, aurait une âme qui a « grandi », par rapport à une âme développée par l’Amour Divin dans la cinquième sphère.*
 
@@ -34,6 +34,3 @@ Je vous dis donc, mes amis, de continuer à suivre le développement et l’éve
 Je vous remercie de m’avoir écouté, mes amis. Votre professeur Salyards continue d’observer votre progression et votre lumière et je suis heureux de venir vous parler de ce sujet. Puissiez-vous continuer à grandir dans l’Amour du Père, à vous éveiller et à connaître avec le temps toutes les possibilités et tous les potentiels qui viennent avec ce don alors que votre âme s’étend dans l’amour et que ses énergies touchent loin dans votre monde et dans notre monde, alors que la lumière devient brillante, que l’amour coule sans restriction et que votre conscience devient pleinement intégrée à votre âme. Oui, il y a tellement plus de vérité à connaître, mes amis. Il n’y a pas de fin à cela et cela apporte à cet humble chercheur une grande joie alors que je continue à voyager dans l’univers avec mon âme pleinement éveillée et désireuse d’absorber toutes les vérités de Dieu.
 
 Que Dieu vous bénisse mes amis, qu’il vous garde dans sa lumière et qu’il vous montre le chemin de la vérité et de la connaissance infinies, de la joie et de la paix, de l’amour, de l’amour qui ne peut être contenu mais qui grandit et grandit. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
-
-
-

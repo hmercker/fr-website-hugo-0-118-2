@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus et les guides accueillent le Cercle des Sept
 
-Jésus et les guides spirituels - reçu par Al Fike le 1er Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Jésus et les guides spirituels - reçu par Al Fike le 1er Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 **Seretta Kem**
 

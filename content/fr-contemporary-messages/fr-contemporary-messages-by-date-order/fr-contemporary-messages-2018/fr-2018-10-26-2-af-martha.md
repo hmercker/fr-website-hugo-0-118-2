@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes avec vous sur le chemin de l'amour
 
-Martha - reçu par Al Fike le 26 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Martha - reçu par Al Fike le 26 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je m’appelle Martha. Vous savez lorsque nous voyons les conditions du monde et les conditions des âmes qui habitent ce monde, il est décourageant pour nous de tenter d’élever une âme au-delà de ces conditions. Ce n’est pas une tâche facile et cela demande nos efforts, mais surtout cela demande la Toucher de Dieu pour réaliser cette transformation de l’âme. Avec Son Amour, tout est possible, sinon ceux qui marchent sur le chemin de l’amour naturel ont un grand et difficile voyage à gravir au-delà de ces conditions. Nous recherchons donc les âmes qui sont ouvertes à la voie de l’amour, qui sont prêtes à investir leur temps et leurs efforts, à voir la vie sous un angle différent et à marcher dans ce monde dans l’amour.
 

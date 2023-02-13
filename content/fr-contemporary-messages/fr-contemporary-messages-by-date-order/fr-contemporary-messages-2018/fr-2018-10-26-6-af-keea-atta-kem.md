@@ -41,7 +41,4 @@ Vous êtes tous des enfants de Dieu. Chacun d’entre vous possède de magnifiqu
 
 Mes beaux, très beaux amis qui portez une telle lumière et une telle beauté, qui marchez dans ce monde dans une sorte d’innocence et de confiance qui permettez à Dieu de travailler à travers vous, puissiez-vous continuer à être renforcés, à être ouverts et réceptifs à la Volonté de Dieu. Que l’Amour que Dieu déverse en vous continue à vous éveiller et à vous montrer le chemin.
 
-Vous êtes aimés, mes bien-aimés, vous êtes aimés et je vous aime. Que Dieu vous bénisse, je suis Keea-atta Kem. Je vous aime. Que Dieu vous bénisse.
-
-
-
+Vous êtes aimés, mes bien-aimés, vous êtes aimés et je vous aime. Que Dieu vous bénisse, je suis Keea Atta Kem. Je vous aime. Que Dieu vous bénisse.

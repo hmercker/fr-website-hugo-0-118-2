@@ -9,7 +9,7 @@ weight:
 ---
 ### L'importance des cercles de lumière
 
-St Luc - reçu par Al Fike le 29 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 29 Novembre 2018, Fitzroy Falls, NSW, Australie.
 
 Je suis Luc et je souhaite vous parler de l’importance des cercles de lumière. Ces cercles de prière qui se concentrent sur la réception des bénédictions de l’amour du Père sont destinés à se répandre et à se multiplier dans le monde. Pour chaque cercle qui est établi, Dieu a envoyé des anges spéciaux pour apporter de puissantes bénédictions à ce groupe d’âmes terrestres. Je tiens donc à vous rassurer, mes bien-aimés, que même si vous n’êtes que deux personnes à vous asseoir dans un cercle de lumière, vous recevrez de puissantes bénédictions de Dieu et, pour compléter votre cercle, les anges vous tiendront la main et compléteront le cercle de lumière.
 
@@ -28,6 +28,3 @@ Ainsi, mes amis bien-aimés qui continuent à travailler dans le flux de la volo
 Je vous assure, mes amis bien-aimés, que chaque effort que vous faites à cet égard aura un effet dans votre monde – un effet qui allumera d’autres réponses et actions qui augmenteront la lumière et qui apporteront les résultats désirés que Dieu a ordonnés dans son Amour. Chaque goutte versée dans l’étang en augmente le volume. Ainsi, goutte après goutte, vous et beaucoup d’autres personnes continuez à ajouter de la lumière et des bénédictions à ce monde, jusqu’à ce que le monde entier soit inondé de lumière. Oui, c’est progressif et c’est lent, et parfois vous le trouvez fastidieux, mais il continue à avoir ses effets en établissant le fondement de la vérité dans votre monde. J’aimerais que vous puissiez avoir la vision que nous avons pour voir cette image plus grande, cette perception plus élevée, alors vous ne douterez pas et vous ne serez pas inquiets du rythme et de la cadence de votre travail. Car vous êtes en effet en train de mettre en place quelque chose de vraiment beau et puissant et ses effets pour apporter du bien à ce monde et c’est là que votre foi et votre confiance en Dieu continuent à vous motiver dans vos efforts et votre foi se construit au fur et à mesure que l’amour intérieur se construit, que vos efforts se construisent, que la réponse vient, que la lumière grandit, que le plan continue à se dérouler.
 
 Soyez en paix mes amis bien-aimés et sachez que vous marchez sur le chemin prévu et que vous continuerez à marcher sur ce chemin protégés, bénis et guidés. Il continue à se déployer jour après jour. Vous continuez à grandir jour après jour et tout cela dans le flux de la grande bénédiction de la vie que Dieu nous a donnée à tous. Que votre vie continue à s’étendre de nombreuses façons et directions différentes, de bénédictions et de surprises alors que vous vous éveillez dans l’Amour. Dieu vous bénisse mes bien-aimés, je suis Luc et je vous aime, mes beaux frères et sœurs de votre monde. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

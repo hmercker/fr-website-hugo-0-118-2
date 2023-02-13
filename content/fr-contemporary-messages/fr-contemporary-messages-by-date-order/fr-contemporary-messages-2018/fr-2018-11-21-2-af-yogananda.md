@@ -9,7 +9,7 @@ weight:
 ---
 ### Être un vecteur de l'Amour de Dieu
 
-Yogananda - reçu par Al Fike le 21 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 21 Novembre 2018, Bayview, Sydney, Australie.
 
 Je suis Yogananda. J’ai promis que je viendrais et je suis ici. J’ai été avec vous pendant la matinée et je vous trouve tous assez amusants, votre conversation était très mondaine bien que vous âmes soient très brillantes. Oui, c’est la façon dont est votre monde. Le cerveau continue à jouer avec ces questions et ces idées qui ne sont pas pertinentes pour une âme mature. Pourtant, avec ce don de l’Amour Divin, vos âmes grandissent et mûrissent et sont resplendissantes de sagesse et d’amour. Je trouve cela plutôt ironique, mais c’est ainsi. C’est ainsi que vous êtes dans le monde, mes chers frères, et que tous ceux qui vivent dans votre monde continuent à entretenir les illusions, les compréhensions incomplètes, les désirs et les idées du plan matériel.
 
@@ -40,6 +40,3 @@ Ne voulez-vous pas être libres ? J’ai enseigné cela lorsque j’étais sur T
 Je vous remercie, mes amis, de m’avoir écouté et j’en ajouterai d’autres à l’avenir, car j’aime beaucoup parler avec vous. J’ai un profond désir de pouvoir parler à de nombreuses personnes grâce à ce don de la Voix Directe. C’est notre désir, et cela pourrait se réaliser à l’avenir. Je vous encourage donc dans vos efforts pour la lumière, vos efforts pour être la lumière.
 
 Que Dieu vous bénisse dans ce voyage et que je continue à vous suivre dans ce voyage. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse profondément. Que Dieu vous bénisse pleinement. Que Dieu vous bénisse afin que vos âmes puissent se développer, se développer dans l’amour. Je vous remercie et mon amour continue d’être avec vous mes amis. Je suis Yogananda. Que Dieu vous bénisse.
-
-
-

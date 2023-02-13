@@ -9,7 +9,7 @@ weight:
 ---
 ### Ayez la foi que votre âme s'éveille
 
-Confucius - reçu par Al Fike le 15 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 15 Novembre 2018, Bayview, Sydney, Australie.
 
 Je suis Confucius et je suis heureux de vous voir ensemble en prière, dans un désir d’accroître votre service à l’humanité et à Dieu. Vous portez en vous, bien-aimés, frères bien-aimés, une grande force, la force de l’Amour Divin qui brûle ses feux dans vos âmes. Vous devez utiliser cette force dans tous les efforts que vous faites au nom de Dieu pour apporter cette Vérité à l’humanité. Vous devez vraiment connaître votre âme, la composition de votre âme, la lumière de votre âme, les capacités de votre âme à connaître la vérité et à être en alignement avec votre Créateur. Lorsque cette compréhension est bien établie dans votre conscience et s’exprime dans tous vos efforts, alors le travail commence vraiment, frères bien-aimés, le travail se déroule vraiment dans l’harmonie, le timing et le plan de Dieu.
 
@@ -28,10 +28,3 @@ Soyez joyeux, frères bien-aimés, de la façon dont Dieu continue à vous évei
 Âmes bien-aimées, vous en viendrez à connaître votre vrai moi dans une plus grande mesure et des connaissances profondes, dans de merveilleuses expressions d’amour, alors que l’Essence de Dieu continue à enflammer ces beaux aspects et dons de votre âme. Cela se produit à chaque respiration que vous prenez. Il y a un réveil, un changement et un déplacement, bien que subtils, mais puissants et permanents, en vous. Permettez à Dieu d’effectuer sa transformation miraculeuse de votre âme et tout le reste suivra à sa place.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius et je vous apporte ma bénédiction, mon amour à mes frères bien-aimés sur ce chemin Divin. Grande paix et lumière sur vous, mes frères. Dieu vous bénit. Confucius vous aime.
-
-
-
-
-
-
-

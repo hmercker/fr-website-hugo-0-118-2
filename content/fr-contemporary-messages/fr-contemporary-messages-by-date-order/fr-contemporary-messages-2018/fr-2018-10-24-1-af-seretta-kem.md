@@ -9,7 +9,7 @@ weight:
 ---
 ### Seretta Kem parle de ce qui peut venir
 
-Seretta Kem - reçu par Al Fike le 24 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 24 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Je souhaite vous parler aujourd’hui de ce qui peut advenir dans le futur pour chacun d’entre vous, alors que vous continuez sur ce cours d’éveil de l’âme et d’éveil de vos dons tels qu’ils sont nourris et assistés par nous en esprit. Il y a beaucoup de choses qui sont possibles dans votre vie, beaucoup d’opportunités, beaucoup de choses qui vous surprendront. Nous avons parlé du plan de Dieu pour le salut de l’humanité, comment ce plan complexe continue à se déployer dans votre monde et vous amène à ce lieu d’alignement, d’éveil, de service et de plus grand amour.
 
@@ -44,6 +44,3 @@ Nous entrons donc dans une période très grave pour le monde, une période qui 
 Mes bien-aimés, nous continuons ce voyage. Vous savez dans vos cœurs que ce dont je parle est vrai. Vous reconnaissez la gravité des conditions de ce monde. Vous reconnaissez également les grandes bénédictions que Dieu vous a accordées dans vos vies et vous avez reconnu les choix que vous avez faits pour la lumière. Dieu travaille de cette manière, mes bien-aimés, à travers Ses plans simples remplis d’amour, d’encouragement, d’acceptation, vous poussant toujours à avancer dans la lumière. Cela continuera pour toute l’éternité alors que vous trouverez votre chemin, alors que vous vous rapprocherez d’un grand voyage de service et d’amour. Puissiez-vous toujours accepter la volonté de Dieu, âmes bien-aimées, et voir que la voie de Dieu est la voie de l’harmonie, est parfaite, est la plus élevée et apportera les plus grands cadeaux d’amour, d’harmonie et de paix sur votre monde. Son désir est d’élever l’humanité, comme le vôtre, comme le nôtre. Puisse-t-il en être ainsi, alors que vous continuez à vous éveiller et à vous renforcer. La sagesse de votre âme vient à votre conscience. La connaissance de la Volonté de Dieu est votre guide et la puissance de Son Amour infuse tout et vous motive à avancer en tant que Ses canaux d’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Seretta Kem vous aime et est avec vous. Ressentez la puissance de l’amour dans cette pièce et que cet amour vous apporte une grande joie. Car quoi qu’il arrive dans votre monde, cet amour et cette joie sont toujours à votre disposition. Ils ne vous quitteront pas. Nous ne vous quitterons pas. La main de Dieu est toujours sur vous. C’est dans cette connaissance et en étant en harmonie et en alignement avec Dieu, que tout sera possible et que tout le travail à venir trouvera son aboutissement. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
-
-
-

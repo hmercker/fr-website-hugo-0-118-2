@@ -9,7 +9,7 @@ weight:
 ---
 ### Exprimez-vous pour la vérité et le changement
 
-John Wesley - reçu par Al Fike le 5 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+John Wesley - reçu par Al Fike le 5 Novembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis John Wesley et je suis heureux que cet individu ait accepté ma présence et soit capable de prononcer les mots que je souhaite transmettre. Je suis maintenant un habitant du Royaume Céleste. Cependant, pour y parvenir, j’ai dû changer beaucoup de mes attitudes et de mes idées et les reconstruire dans la Vérité de l’Amour Divin. Cela arrive à beaucoup d’entre nous qui passent en esprit. Nous devons tout repenser car les plans spirituels sont si différents, et les options et les possibilités de la vie sont considérablement élargies dans ces plans d’existence supérieurs.
 
@@ -40,6 +40,3 @@ Mes amis, vous avez de nombreux amis dans le ciel, vous êtes observés par beau
 Puissiez-vous aller de l’avant mes amis et continuer à servir Dieu comme vous l’avez fait et continuer à le faire avec un plus grand engagement et une plus grande intensité, afin que vous puissiez affecter le changement dans ce monde qui aura ses effets durables et ses conséquences pour apporter une plus grande lumière. Vous détenez un grand pouvoir en vous et une grande vérité. Puissiez-vous partager cette richesse avec vos frères et sœurs et marcher dans la grâce, l’amour et la joie avec une certitude et une clarté, une force et une humilité qui vous vaudront le respect et l’écoute des autres pour ce que vous avez à dire.
 
 Que Dieu vous bénisse, mes amis. Je suis John Wesley et je continuerai à être avec vous, à vous soutenir de toutes les manières possibles, car en tant qu’habitant du Royaume céleste, j’ai la bénédiction et le privilège de servir l’humanité dans sa lutte pour s’élever et être pure dans la lumière des lois et de l’amour de Dieu. Je vous sers donc, mes amis, et je sers tous ceux qui sont prêts à travailler à ces fins. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

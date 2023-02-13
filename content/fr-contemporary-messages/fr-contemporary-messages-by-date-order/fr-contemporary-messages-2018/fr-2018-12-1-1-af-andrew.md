@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est encore temps de réveiller vos âmes par l’amour de Dieu
 
-André - reçu par Al Fike le 1 Décembre 2018, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 1 Décembre 2018, Bayview, NSW, Australie.
 
 Je m’appelle André. Je vous exhorte à continuer de prier avec ferveur pour l’Amour du Père, non pas pour obtenir certains résultats matériels par la prière, ou pour que Dieu vous conduise vers des terres étrangères, ou même pour que Dieu vous apporte certains dons de perspicacité et de sagesse. Non, mes bien-aimés, ce n’est pas là le but de la prière. Le but de la prière est de recevoir l’afflux de l’Amour du Père afin que vos âmes puissent grandir en conséquence dans cet Amour. Et que tout ce pour quoi vous priez, en effet ces désirs dans vos cœurs, viendront et couleront de cette prière singulière pour recevoir le don de l’Amour du Père dans vos âmes.
 
@@ -34,6 +34,3 @@ N’ayez pas l’impression que le chemin à parcourir est trop difficile ou ins
 Nous continuons donc à vous servir mes frères bien-aimés et tous ceux qui ont l’intention d’éveiller leur âme. Oui, le temps est court, mais il n’est pas impossible pour vous de parvenir à ce lieu de véritable éveil. Si, dans les temps à venir, votre éveil n’est pas complet, je ne suggère pas que Dieu vous abandonne ou n’utilise pas ce que vous avez à donner pour aider les autres dans la Vérité. Nous vous encourageons simplement à viser le plus haut, à exprimer votre grande âme dans toute sa beauté et sa lumière, à utiliser tous les dons et la sagesse de votre âme pour aider les autres à voir et à connaître la grande Vérité et l’Amour de Dieu.
 
 Continuez à prier mes frères. Continuez votre voyage d’éveil. Faites-en votre centre d’intérêt. Faites-en votre joyeux dévouement à Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Son Amour continue à éveiller chaque partie de vous et vous garde dans Sa Lumière et Son Amour. Que Dieu vous bénisse. Je suis André. Je vous aime. Mes frères bien-aimés, je vous aime.
-
-
-

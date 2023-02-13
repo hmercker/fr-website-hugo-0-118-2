@@ -9,7 +9,7 @@ weight:
 ---
 ### Un portail de lumière est établi à Fitzroy Falls
 
-Seretta Kem - reçu par Al Fike le 27 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 27 Novembre 2018, Fitzroy Falls, NSW, Australia.
 
 Je suis venu parler du portail de lumière qui a été établi dans cette salle. C’est pourquoi vous vous êtes réunis, mes amis bien-aimés, pour établir cet outil béni de communication, un canal qui atteint loin dans le monde de l’esprit jusqu’à la septième sphère. Cette ouverture a été éveillée par le Toucher de Dieu, Sa sainte bénédiction sur ce don.
 
@@ -22,6 +22,3 @@ Ce beau cadeau vous apportera de nombreuses bénédictions, mes amis bien-aimés
 Attirez la lumière vers vous à chaque respiration. Permettez aux bénédictions de Dieu, qui sont grandes et abondantes, de couler vers vous. Laissez tomber votre garde et soyez cet enfant innocent qui est nourri par le Père et la Source de tout.
 
 Que Dieu vous bénisse, mes amis. Je suis Seretta Kem et j’ai aidé à l’établissement de ce portail et de ce cadeau pour vous. Permettez-moi de venir un autre jour et de vous parler de beaucoup de choses en ce qui concerne vos dons et ce qui peut couler à travers vous, âmes bien-aimées. Car vous avez beaucoup de dons, beaucoup de potentiels inconnus, beaucoup de choses dans votre âme à éveiller et c’est la responsabilité et la bénédiction de beaucoup d’entre nous d’aider à vous assister dans cet éveil de dons. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Seretta Kem est à votre service. Que Dieu vous bénis
-
-
-

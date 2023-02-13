@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment apporter la vérité aux nouvelles âmes
 
-Michael Collier - reçu par Al Fike le 18 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Michael Collier - reçu par Al Fike le 18 Novembre 2018, Bayview, Sydney, Australie.
 
 Que Dieu vous bénisse mes amis, mon nom est Michael et je guide les deux chères âmes que vous allez rencontrer. Je suis un habitant du Royaume Céleste, un autre ange parmi tant d’autres qui travaillent avec vous tous sur terre. Vous avez été sérieusement invités à parler à ces chères âmes qui vont se rassembler et faire partie de votre Cercle de Lumière. Nous sommes occupés à organiser et à inciter d’autres personnes à venir faire partie de ce cercle et nous sommes très heureux que vous ayez répondu à cet appel.
 
@@ -30,6 +30,3 @@ Bien-aimés, amis bien-aimés, je suis heureux, très heureux que vous soyez dis
 Nous continuons à travailler avec vous, frères bien-aimés. De nombreuses âmes ont été touchées aujourd’hui, mes amis, alors que vous marchiez dans les rues de cette ville animée. Oui, vous n’en êtes pas conscients, mais cela fait partie de l’humilité et de la fidélité, d’avancer, en faisant confiance à Dieu pour toucher les âmes. Il vous apportera des bénédictions qui profiteront à ceux qui sont en votre présence. C’est ainsi que Dieu travaille, un toucher doux, la bénédiction subtile, très subtile qui sème de nombreuses graines dans de nombreuses âmes alors vous devenez une partie des instruments de vérité et de changement de Dieu dans ce monde.
 
 Dieu vous bénisse, âmes bien-aimées, Dieu vous bénisse. Je suis Michael et je suis heureux d’avoir parlé et de faire partie de cet effort pour apporter la vérité à l’humanité. Que Dieu vous bénisse et vous garde toujours dans son amour. Que Dieu vous bénisse.
-
-
-

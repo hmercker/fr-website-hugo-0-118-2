@@ -9,7 +9,7 @@ weight:
 ---
 ### La guérison par l'amour crée la richesse de l'âme
 
-St Matthieu - reçu par Al Fike le 26 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 26 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je vois les mouvements et les changements au sein de vos âmes, mes bien-aimés. Je vois une grande volonté et un grand désir d’harmonie et de changement, le changement qui apportera une joie et une perspicacité plus profondes, les changements qui rapprocheront Dieu de vous, et les efforts et les désirs de servir dans l’amour vos frères et sœurs dans le monde. Et comme vous vous êtes préparés, mes chers amis, à sortir et à servir dans l’amour, à porter les vérités les plus élevées, les compréhensions les plus profondes qui sont possibles en vous. Cela nous apporte une grande joie, mes amis bien-aimés, car vos motivations sont pures, vos désirs sont les plus élevés et vos efforts sont dirigés dans la prière, suppliant Dieu de remplir continuellement votre âme de son amour. Alors Dieu exauce vos souhaits et vos prières envoyées avec ferveur. Dieu touche vos âmes profondément, enflammant les chambres de vos âmes qui ont tant besoin de Sa chaleur, de Son amour et de Sa guérison.
 
@@ -26,6 +26,3 @@ Chacun de vous désire connaître la liberté d’une âme rachetée dans l’Am
 Comme nous vous voyons dans l’amour, nous reconnaissons vos luttes, car nous avons nous aussi lutté à un moment donné. Nous reconnaissons votre force, votre bravoure et votre volonté d’aller de l’avant là où beaucoup pourraient reculer. Vous allez de l’avant en sachant que ce que vous faites, vous le faites dans la sagesse et l’amour, avec une profonde compassion pour vous-même et une vraie connaissance de la volonté de Dieu pour vous. Vous récolterez les récompenses, mes bien-aimés. Non seulement cela, mais vous apporterez beaucoup à beaucoup, beaucoup d’âmes qui cherchent le même soulagement que vous, le même réveil, la même libération et la même libération des pierres à l’intérieur de leurs âmes. Bien-aimés, vous ne faites pas cela seulement pour vous-mêmes, mais vous le faites pour pouvoir aider les autres de manière profonde et puissante et pour chercher à être les instruments de Dieu pour le changement et la guérison, la joie et la paix dans ce monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et je vous connais, chacun d’entre vous, et je vous aime profondément. Je reconnais vos belles âmes et vos grands efforts et tout ce que vous avez fait jusqu’à présent et tout ce que je vois à l’horizon qui sera beau et merveilleux et rempli de joie. Dieu vous bénisse, mes bien-aimés. Matthieu vous aime. Que Dieu vous bénisse.
-
-
-

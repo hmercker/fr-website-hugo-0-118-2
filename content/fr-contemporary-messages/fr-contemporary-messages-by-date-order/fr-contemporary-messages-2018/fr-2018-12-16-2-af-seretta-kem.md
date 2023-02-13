@@ -9,7 +9,7 @@ weight:
 ---
 ### Changements terrestres – Le temps est venu
 
-Seretta Kem - reçu par Al Fike le 16 Décembre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 16 Décembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je vous souhaite à tous la bienvenue dans ce bercail, ce temps de prière et votre désir de servir Dieu de ces diverses manières, d’exprimer votre amour et la beauté de votre âme. L’année qui vient sera remplie de services. Il y aura de nombreuses occasions pour chacun d’entre vous de s’avancer et d’être un canal d’amour pour beaucoup d’autres. C’est une année qui apportera de grandes difficultés à votre monde, des réactions imprévues, des conditions qui mettront au défi chaque âme sur cette planète. Et donc, âmes bien-aimées, c’est à vous d’avancer dans la force et l’amour, d’être prêts à suivre votre guidance, de marcher dans la lumière, d’être étroitement alignés avec Dieu afin que vous puissiez être utilisés pour apporter le confort, la guérison, la vérité, l’amour à vos frères et sœurs.
 
@@ -38,6 +38,3 @@ Que Dieu vous bénisse profondément dans vos âmes, amis bien-aimés, et qu’i
 Ces choses viennent, mes bien-aimés et moi serons proches, beaucoup seront proches. Vous apprendrez à nous connaître. Certains d’entre vous viendront nous voir comme si nous étions en chair et en os et il y aura une grande coopération et collaboration entre nous pour aider à ramener le monde du bord du gouffre.
 
 Que Dieu vous bénisse, mes bien-aimés, toujours. Que vos âmes soient avides d’Amour, avides et ouvertes afin que Dieu puisse être proche et que vous puissiez marcher dans la Lumière. Bien-aimés, amis bien-aimés, que Dieu vous bénisse et que je vous aime. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Un appel à une plus grande responsabilité
 
-Augustin - reçu par Al Fike le 10 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 10 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis Augustin, votre enseignant. Je tiens à vous assurer qu’il n’y a pas eu de tromperie de notre part. Si vous deviez parcourir les chroniques des messages et des mots que nous vous avons adressés et les rassembler dans le récit de nos efforts continus ensemble, vous verriez que chaque étape était nécessaire. Chaque changement de programme a eu lieu pour des raisons particulières. Vous voyez, mes bien-aimés, vous vivez sur le plan terrestre. C’est une condition très volatile dans laquelle nous travaillons et vous travaillez. Votre condition personnelle, votre condition spirituelle, fluctue d’un jour à l’autre. Vos pensées, vos intentions peuvent être très différentes d’un jour à l’autre. Nous ne pouvons pas contrôler cela. Nous ne vous contrôlons pas. Chacun de vous a le don du libre arbitre. Chacun de vous choisit, qu’il en soit conscient ou non, comment il sera un jour donné en termes de condition spirituelle et de désirs.
 
@@ -34,6 +34,3 @@ Mes bien-aimés, mon amour est avec vous et je comprends. Moi aussi, j’ai ét�
 Vous trouverez l’accomplissement dans vos efforts, mes bien-aimés, et cet accomplissement sera celui de l’âme. Cela ne se manifestera peut-être pas comme vous l’aviez prévu, mais cela se manifestera bel et bien comme Dieu le veut. C’est cela l’humilité, accepter le plan de Dieu pour le salut de l’humanité afin que vous puissiez y trouver votre part, et ne pas dicter ce que cela pourrait être. Soyez patients, mes bien-aimés. Beaucoup de choses sont à venir, de nombreuses surprises, de belles intuitions et des expériences d’amour, beaucoup de choses sont à venir.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin continue d’être avec vous, à vos côtés, alors que vous luttez et grandissez, émergeant des contraintes de ce plan terrestre vers quelque chose de beaucoup plus grand, plus beau. Cela continue. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

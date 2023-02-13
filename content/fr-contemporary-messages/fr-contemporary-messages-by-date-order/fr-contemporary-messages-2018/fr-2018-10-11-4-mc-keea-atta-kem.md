@@ -9,9 +9,9 @@ weight:
 ---
 ### Compassion pour soi et pour les autres pendant l'éveil de l'âme
 
-Keea Atta Kem - reçu par Maureen Cardoso le 11 Octobre 2018, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 11 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
-Mes chéris, s’il vous plaît, ne soyez pas durs envers vous-mêmes. Notre bien-aimé Augustin a donné un grand message d’enseignement et a apporté la clarté qui était nécessaire. C’est la nature humaine de se replier quelque peu, de se réprimander dans une certaine mesure. Ses conseils sont donnés là où peut-être vous sentez que vous avez échoué, mais ce n’est certainement pas la raison de ces conseils et de ces enseignements. C’est purement par amour et par ce que nous voyons que vous êtes prêts à marcher et à grandir, à vivre et à venir enseigner aux autres.
+Mes chéris, s’il vous plaît, ne soyez pas durs envers vous-mêmes. Notre bien-aimé Augustin a donné un [grand message d’enseignement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-10-1-af-augustine/) et a apporté la clarté qui était nécessaire. C’est la nature humaine de se replier quelque peu, de se réprimander dans une certaine mesure. Ses conseils sont donnés là où peut-être vous sentez que vous avez échoué, mais ce n’est certainement pas la raison de ces conseils et de ces enseignements. C’est purement par amour et par ce que nous voyons que vous êtes prêts à marcher et à grandir, à vivre et à venir enseigner aux autres.
 
 Vous êtes tous d’excellents étudiants, prenant à cœur les conseils qui vous sont donnés. Vos conversations sont nécessaires, mes bien-aimés. Elles aident à mettre en avant les incertitudes, peut-être les confusions, afin que nous puissions nous avancer, clarifier et guider. Votre voyage de l’âme, éveillant l’âme plus grandement, est un voyage éternel. Veillez donc à faire preuve de compassion envers vous-mêmes et envers les autres.
 
@@ -26,5 +26,3 @@ L’amour que vous avez l’un pour l’autre est si évident. Garder de l’esp
 Car il peut alors s’entendre, extérieurement, et non plus seulement dans son esprit. C’est une partie importante de la découverte d’une personne. Ainsi, lorsque vous vous trouvez l’un l’autre dans le besoin d’exprimer quelque chose qui se produit en vous, maintenez l’espace dans l’amour. Envoyez-lui de l’amour. Permettez à votre amour de s’écouler à travers lui et soyez un canal nourricier, témoin de sa libération.
 
 Je vous remercie pour votre vigilance et votre attention en ce moment même, car je sens que vous écoutez tous avec les oreilles de votre âme. Que Dieu bénisse chacun d’entre vous. Mon amour reste avec chacun de vous. Que vous soyez dans la joie sur le chemin de l’éveil de vos âmes. Que Dieu vous bénisse. Je suis Keea Atta Kem et je vous aime. Mon amour est avec vous. Que Dieu vous bénisse.
-
-

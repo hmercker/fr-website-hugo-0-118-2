@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous continuez à construire le treillis de lumière dans votre monde
 
-Seretta Kem - reçu par Al Fike le 9 Décembre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 9 Décembre 2018, Gibsons, Colombie-Britannique, Canada.
 
 C’est Seretta Kem qui vous parle. Oui vous avez tous été engagés dans de nombreux voyages et activités, prières, communications et efforts pour continuer à tisser ensemble ce grand treillis de lumière dans votre monde. Et nous vous avons guidés sur ce chemin, cet effort pour rassembler beaucoup de gens dans un sens de connexion et de famille, d’amour et de reconnaissance, car personne n’a besoin d’être seul ou de sentir qu’il lutte seul dans votre monde dans ce climat de dureté et d’incapacité à aimer. Mes enfants, mes amis bien-aimés, mes âmes bien-aimées, vous faites tous partie de la grande couverture de Dieu qui vous enveloppe tous, cette couverture de lumière qui vous tire ensemble, vous apportant réconfort et force dans vos connexions et votre amour les uns pour les autres.
 
@@ -28,5 +28,3 @@ Votre âme est une création si impressionnante de Dieu et vous êtes en train d
 C’est votre destin, mes bien-aimés. C’est votre destin et Dieu vous guide. Dieu continue à vous protéger et à vous apporter la vérité et à éveiller votre âme dans l’Amour. C’est votre destin et tout se déroule comme le Créateur nourrit Son jardin, Ses belles fleurs, Sa création parfaite dans l’Amour.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Seretta Kem. Mon amour est avec vous et je suis avec vous, âmes bien-aimées. Que Dieu vous bénisse.
-
-

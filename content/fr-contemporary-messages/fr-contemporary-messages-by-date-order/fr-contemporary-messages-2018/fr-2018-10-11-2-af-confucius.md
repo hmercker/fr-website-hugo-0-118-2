@@ -24,4 +24,3 @@ Ses tendres soins vous seront prodigués pour l’éternité. La lumière au sei
 Buvez profondément mes bien-aimés et soyez dans la grâce du toucher de Dieu. Oui, oui, le Père nous bénit tous, n’est-ce pas ? Tous ceux qui viennent dans la prière fervente et le désir profond. Vous êtes bénis mes bien-aimés, mes enfants bien-aimés, bénis en effet.
 
 Dieu vous bénit. Confucius vous aime.
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### La Voix Directe Clarifiée - Alignement de l'âme
 
-Seretta Kem - reçu par Al Fike le 10 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 10 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Vous vous attendiez à ce que je parle de la voix directe et je suis heureux de le faire aujourd’hui. Cet instrument est correct dans ses perceptions qu’en effet la voix directe, le potentiel pour elle, est fermement en place en chacun de vous. Ce que je souhaite clarifier, c’est que ce que vous appelez voix directe ou vos idées sur ce don ne sont peut-être pas tout à fait correctes. Cet instrument a observé et étudié récemment les composants des manifestations ectoplasmiques. Il s’agit d’une approche très physique et mécanique pour faire apparaître des esprits que les cinq sens peuvent reconnaître. Ce n’est pas notre approche et je crois que vous le comprenez. Ce qui va se manifester à travers vous, mes amis bien-aimés, sera quelque peu différent, parce que nous engageons l’âme dans ce processus et les composants vitaux pour faire émerger cette manifestation viennent de vos âmes, et non d’un organe de votre corps. (Donc, pas ectoplasmique) Ainsi, nous vous encourageons à continuer à éveiller vos âmes par la prière en implorant Dieu pour Son Amour.
 
@@ -28,6 +28,3 @@ Je vous invite à ne pas vous inquiéter outre mesure de la manifestation de ce 
 Soyez en paix et sachez qu’il y a un plan pour le salut de l’humanité. Vous n’avez pas à vous préoccuper outre mesure de la place que vous occupez dans ce plan. Car ce plan s’exerce à chaque instant et tant que vous êtes en accord avec Dieu, beaucoup de choses peuvent arriver. L’alignement de votre être est important pour être un canal clair, un instrument. Il serait souhaitable de se concentrer sur cela, que toutes les parties de vous soient infusées de l’Amour du Père, que vous permettiez à la sagesse de votre âme de dicter vos actions, que ce soit la nourriture que vous mangez, les conversations que vous avez, les actions que vous prenez dans votre vie. Tout ce que vous faites doit refléter l’amour, et de cette façon l’alignement se fera de manière plus raffinée chaque jour, jusqu’à ce que cette lumière devienne concentrée et puissante, permettant à de nombreux cadeaux de se manifester. Mais cette lumière doit venir de votre âme et cette âme doit être remplie de lumière. Il en sera ainsi en toutes choses, l’infusion de l’Amour de Dieu en tout.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Seretta Kem. Je continue à vous assister dans ce beau voyage, l’éveil de l’âme, l’exploration des potentiels de votre âme, l’expression de l’amour de toutes sortes de manières et de moyens. Que Dieu vous bénisse. Que Dieu vous bénisse mes amis. Mon amour est avec vous tous.
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### Nous travaillons ensemble au service de Dieu
 
-James Reid - reçu par Al Fike le 15 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+James Reid - reçu par Al Fike le 15 Novembre 2018, Bayview, Sydney, Australie.
 
-Je suis votre ami terrestre, James<sup id=”a1”>[1](#f1)</sup>, et je continuerai à être avec vous dans vos veillées de prière ensemble. Et je suis tellement heureux de vous voir tous les trois réunis. Si j’étais encore sur la terre, j’aurais aimé me joindre à vous dans ce cercle d’hommes spirituels. J’aurais aimé pouvoir vous raconter mon cheminement, vous dire à quel point mes expériences en progressant dans les sphères de l’esprit ont été merveilleuses et impressionnantes par leur nature. Bien-aimés, amis bien-aimés, je veux que vous sachiez que beaucoup, beaucoup de choses attendent chacun d’entre vous lorsque ce temps sera venu. Je serai là pour vous accueillir, chacun d’entre vous, comme le seront de nombreux esprits et anges, qui voudront vous accueillir dans la grande vie de l’esprit.
+Je suis votre ami terrestre, James <sup id=”a1”>[1](#f1)</sup>, et je continuerai à être avec vous dans vos veillées de prière ensemble. Et je suis tellement heureux de vous voir tous les trois réunis. Si j’étais encore sur la terre, j’aurais aimé me joindre à vous dans ce cercle d’hommes spirituels. J’aurais aimé pouvoir vous raconter mon cheminement, vous dire à quel point mes expériences en progressant dans les sphères de l’esprit ont été merveilleuses et impressionnantes par leur nature. Bien-aimés, amis bien-aimés, je veux que vous sachiez que beaucoup, beaucoup de choses attendent chacun d’entre vous lorsque ce temps sera venu. Je serai là pour vous accueillir, chacun d’entre vous, comme le seront de nombreux esprits et anges, qui voudront vous accueillir dans la grande vie de l’esprit.
 
 Je vois que vous avez un profond désir de faire des plans pour atteindre vos frères et sœurs, pour les aider, afin qu’ils puissent avoir la clarté de cette vérité. Je veux que vous sachiez que vos désirs ne sont pas déplacés, que vos efforts porteront leurs fruits, avec de la patience et de la persistance, et qu’il y a beaucoup de personnes de mon côté de la vie qui travaillent pour aider à ouvrir des portes et à faire avancer les possibilités dans votre travail.
 
@@ -27,8 +27,3 @@ Mes amis, votre frère James est avec vous. Que Dieu vous bénisse. C’est un c
 <small>
 
 1. <large id=”f1”> Je (Geoff Cutler, webmastrer dES site New-Birth.net et Soul.Truth.Ca) considère James comme un ami très spécial et nous avons passé de nombreuses heures heureuses à parler de choses spirituelles et à prier ensemble. Malheureusement, comme il vivait à Queensland, je ne l’ai pas vu, lui et sa charmante épouse, aussi souvent que je l’aurais souhaité. Il n’était que récemment décédé à cette date.[↩](#a1)
-
-
-
-
-

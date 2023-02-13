@@ -9,7 +9,7 @@ weight:
 ---
 ### Un kaléidoscope de lumière
 
-Seretta Kem - reçu par Al Fike le 16 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 16 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Vous m’avez demandé de parler des dons de l’âme et je vais le faire aujourd’hui, ce qui est un cadeau pour votre âme. Une âme qui n’est pas éveillée par l’Amour Divin de Dieu a de nombreuses chambres en elle qui sont sèches et inactives, comme un fruit qui a été momifié. Bien que le potentiel existe en elle, il n’y a pas de vie à l’intérieur qui puisse activer ces différentes chambres de l’âme. Dans chacune de ces chambres se trouvent des graines, les cadeaux de Dieu à votre âme, mes chers amis. Ces cadeaux sont uniques. Bien qu’ils puissent être semblables à ceux d’un autre, la façon dont ils sont combinés dans votre âme est unique et la façon dont ils peuvent être exprimés à travers votre moi individuel unique est déterminée par votre belle âme. Ainsi, alors que Dieu apporte ses eaux aimantes dans votre âme, apportant la vie, votre âme s’éveille et est capable de fonctionner parce que les énergies nécessaires à l’intérieur de l’âme sont présentes. Ces graines germent et se développent, des grappes de graines réunissant différents aspects de votre âme. Cela ne se produit pas d’un seul coup, les chambres sont remplies progressivement et s’éveillent de cette façon. Ainsi, ce qui apparaît à votre conscience est déterminé par ce à quoi l’Amour Divin accède en vous et vous touche. Certains endroits sont difficiles à atteindre au début, mais le potentiel est toujours là et finalement tout prend vie.
 
@@ -36,8 +36,3 @@ Je pourrais dire que cette compréhension, de votre progression et votre express
 Puissiez-vous connaître une paix profonde, amis bien-aimés. Puissiez-vous connaître de profonds réveils et révélations de votre âme et trouver la vraie joie qui vient avec la vie exprimée en harmonie avec les lois de Dieu, Sa Volonté et Son Amour. Tant de choses, tant de choses, mes bien-aimés. Comment puis-je vous parler de toutes ces choses ? Je ne peux parler que de ces vérités simples car c’est ce que vous êtes capables de comprendre en ce moment. Au fur et à mesure que vous grandissez, que cet instrument grandit, que l’amour continue à vous remplir, alors peut-être y aura-t-il l’opportunité d’exprimer plus, de parler de plus de choses dont vous êtes curieux. Mais jusqu’à ce moment-là, nous parlerons en généralités et nous apporterons les vérités qui comptent le plus pour vous.
 
 Que Dieu vous bénisse. Je suis Seretta Kem. Mon amour est toujours avec vous, mes bien-aimés. Que Dieu vous bénisse.
-
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Yogananda décrit son voyage à travers les Sphères
 
-Yogananda - reçu par Al Fike le 22 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 22 Novembre 2018, Bayview, NSW, Australie.
 
 Je suis Yogananda et je souhaite vous faire part de mon expérience de transition vers le monde de l’esprit et de mon voyage vers les Cieux Célestes. Lorsque je suis passé dans le monde des esprits, j’ai emporté avec moi de nombreuses idées et pensées qui provenaient des religions orientales. J’ai nourri et vénéré ces pensées dans mon esprit, mais aussi dans mon cœur. J’aimais tendrement Dieu et je ressentais Son amour pour moi, mais il m’était difficile de me libérer de ces pensées et conditions qui étaient ancrées en moi depuis l’enfance. Ainsi, suite à mon décès, je me suis retrouvé dans la 4ème sphère et j’ai trouvé de nombreuses merveilles, des expériences dans cette sphère qui satisfaisaient les édits de mon esprit et mes idées religieuses. Pourtant, je savais qu’il y avait en moi un autre désir, le désir de mon cœur, d’aller au-delà de ces concepts mentaux vers quelque chose que je savais être plus profond et plus proche de Dieu. Je devais donc moi aussi lutter entre les idées de mon mental et les désirs de mon âme.
 
@@ -24,8 +24,3 @@ Il y a tant de choses à transmettre à l’humanité, tant d’ignorance dans l
 Ainsi, j’ai connu les deux cieux et j’ai choisi ainsi. J’en suis venu à connaître l’unification avec Dieu dans une certaine mesure en réalisant que la joie et la félicité, l’émerveillement et le pouvoir de l’Amour continueront à augmenter pour toute l’éternité. La récompense que j’ai récoltée avec mes efforts et mes prières a été grande et je souhaite partager ce que je sais et ce qui est la Vérité, les connaissances de mon âme. Vous, mes frères bien-aimés, m’aiderez à le faire, et je sais que vous êtes impatients de le faire. Nous travaillons tous ensemble dans cette œuvre sacrée pour apporter la lumière à ce monde et pour apporter la lumière aux nombreux esprits qui sont dans l’obscurité et la grisaille des sphères inférieures. Il est possible d’atteindre plusieurs millions de personnes, mes amis, étant donné votre engagement et vos efforts pour suivre la volonté de Dieu. C’est possible. Ayez la foi que le plan de Dieu est extraordinaire et vaste dans sa portée et que vous pouvez en faire partie, pour travailler avec beaucoup de gens à la réalisation du désir de Dieu d’apporter la Lumière, la Paix et l’Amour à votre monde.
 
 Merci de m’avoir écouté, mes amis. Je suis Yogananda. Je continue à enseigner et à être le serviteur de Dieu. Nous allons poursuivre notre travail ensemble et être dans le flux de l’amour et de la volonté de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Mon amour est avec vous. Que Dieu vous bénisse
-
-
-
-
-

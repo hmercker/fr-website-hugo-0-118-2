@@ -158,7 +158,7 @@ Confucius | [Une bénédiction spéciale donnée](/fr-contemporary-messages/fr-c
 Jésus | [Vous êtes à un point tournant dans votre service à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-31-2-af-jesus/) | 31 Juillet 2018
 André | [Chaque âme est unique et fleurit dans la vérité de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-1-1-af-andrew/) | 1 Août 2018
 St Luc & Seretta Kem | [Orientation V.D (Seretta Kem) et être au service (Luc)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-5-1-af-st-luke-seretta-kem/) | 5 Août 2018
-Solomon | [La confiance dans la sagesse de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
+Solomon | [La confiance dans la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
 Marc | [Le choix de connaître Dieu vous appartient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-1-af-mark/) | 8 Août 2018
 Seretta Kem | [Apportez vos désirs de servir à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-2-af-seretta-kem/) | 8 Août 2018
 Alec Gaunt | [Conseils personnels pour la retraite de médiumnité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-3-af-alec-gaunt/) | 8 Août 2018
@@ -240,7 +240,7 @@ Seretta Kem | [Un kaléidoscope de lumière](/fr-contemporary-messages/fr-contem
 Goldie | [L'Amour de Dieu apporte la plus grande joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-1-af-goldie/) | 17 Octobre 2018
 St Matthieu | [L'Amour de Dieu en vous apporte de profonds changements dans vos vies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-2-af-st-matthew/) | 17 Octobre 2018
 Seretta Kem | [Les anges approfondissent leur relation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-3-af-seretta-kem/) | 17 Octobre 2018
-Solomon | [La sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-4-af-solomon/) | 17 Octobre 2018
+Salomon | [La sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-4-af-solomon/) | 17 Octobre 2018
 Thomas d'Aquin | [Le travail se poursuit si vous restez dévoué à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-5-af-thomas-aquinas/) | 17 Octobre 2018
 Martin Luther | [Votre force croissante vous prépare à servir dans les temps à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-6-af-martin-luther/) | 17 Octobre 2018
 Seretta Kem | [Remerciements du cercle de prière en ligne, encouragements pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-21-1-mc-seretta-kem/) | 21 Octobre 2018

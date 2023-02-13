@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous avez bien fait
 
-Thomas d'Aquin - reçu par Al Fike le 26 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Thomas d'Aquin - reçu par Al Fike le 26 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Vous avez bien fait, mes bien-aimés. Vous avez suivi nos instructions et vous avez pris au sérieux votre quête d’éveiller vos âmes en recevant l’Amour du Père. Vous avez interagi ensemble dans l’harmonie et l’amour. Vous avez fait tout ce qui vous a été demandé, âmes bien-aimées. Vous continuez à grandir dans cet Amour, à vous éveiller, à sentir sa force et son rafraîchissement dans vos âmes. Nous continuerons dans ce voyage de progression de l’âme. Bien que vous ne soyez peut-être pas ensemble dans la chair, les liens que vous avez créés et qui sont devenus de plus en plus forts vous assureront d’être connectés d’une manière profonde, vos âmes étant liées pour l’éternité, vos lumières grandissant ensemble. Vos efforts continueront à être forgés en un seul.
 
@@ -22,8 +22,3 @@ Le temps que vous passez ensemble est certes court, mais il a ouvert de nombreus
 Âmes bien-aimées, vous avez bien fait. Vous avez bien choisi. Vous avez prié avec ferveur. Vous avez connu une profonde honnêteté en vous et vous êtes en train de connaître la vérité dans toute sa splendeur. Elle devient plus claire avec chaque jour. Votre force grandit. Vos perceptions s’approfondissent. Votre capacité à aimer est plus profonde avec la plénitude de vos beaux cœurs exprimant l’amour. Vous êtes profondément bénis, mes bien-aimés, et nous marchons toujours avec vous.
 
 Que Dieu vous bénisse. Je suis Thomas. Mon amour est avec vous.
-
-
-
-
-

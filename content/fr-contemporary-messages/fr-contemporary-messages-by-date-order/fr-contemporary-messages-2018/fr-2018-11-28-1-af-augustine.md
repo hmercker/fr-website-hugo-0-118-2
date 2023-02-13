@@ -9,7 +9,7 @@ weight:
 ---
 ### Toute vérité vient de l'âme
 
-Augustin - reçu par Al Fike le 28 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 28 Novembre 2018, Fitzroy Falls, NSW, Australie.
 
 Je vois que vous avez eu une discussion animée ce matin. Une discussion plutôt controversée par nature. Une qui a ébouriffé les plumes de quelques-uns, peut-être même fait que les nuages se heurtent pour faire du tonnerre (rires). Mes chers frères et sœurs bien-aimés, vous devez réaliser que la multitude d’esprits dans le monde spirituel est vaste et complexe. Dans cette complexité, il y a beaucoup de perspectives et ce que vous appelleriez des réalités parce que l’esprit est un outil puissant qui s’exprime plus facilement dans le monde de l’esprit, créant ces réalités dans lesquelles de nombreux esprits vivent et croient avoir trouvé la vérité. En effet, ils ont trouvé une vérité qu’ils ont créée d’eux-mêmes et ont rendu un monde réel et substantiel par leur propre création.
 
@@ -38,8 +38,3 @@ En effet, beaucoup d’entre vous sont mis au défi par le pouvoir de leur propr
 C’est le chemin de la vérité. C’est le chemin vers la vérité. Et elle vient. Elle remplit votre âme en ce moment même. Elle vient avec la foi et la confiance, la patience et la persistance. Vous marcherez sur ce chemin et trouverez des joyaux de vérité hors de prix, des joyaux de compréhension qui ne peuvent pas venir du mental matériel mais qui viendront avec les éveils de votre âme. Permettez à cela de venir à vous, âmes bien-aimées. Continuez à prier pour l’afflux de cette merveilleuse bénédiction de l’Amour du Père et vous trouverez ce que vous cherchez. Même vos esprits se sentiront satisfaits de ce grand et copieux repas que le Père vous offre et qui est rempli de noyaux après noyaux de vérité. Dieu ne vous prive de rien, mes âmes bien-aimées. Dieu continue à vous nourrir et à vous réveiller. Il n’est pas nécessaire de vous sentir insuffisantes. Même la faim de votre mental peut être acquittée par la paix au sein de votre âme. Poursuivez, âmes bien-aimées, votre quête d’amour et d’éveil, de vérité et de joie et tout s’écoulera selon vos désirs, vos vrais désirs qui viennent de votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je continuerai à vous apporter une certaine mesure de vérité à mesure que vous êtes capables de vous ouvrir et de recevoir ces cadeaux. Que Dieu vous bénisse. Mon amour est avec vous. Vous savez que je ne suis jamais loin et je suis ici pour vous soutenir et vous guider comme le sont beaucoup de mes amis dans le royaume Céleste. Que Dieu vous bénisse. Dieu vous aime, mes bien-aimés. Dieu vous aime. Dieu vous bénisse.
-
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre force croissante vous prépare à servir dans les temps à venir
 
-Martin Luther - reçu par Al Fike le 17 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Martin Luther - reçu par Al Fike le 17 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Martin Luther. Le sort de l’humanité repose sur ceux qui sont prêts à apporter des changements dans ce monde. Ces âmes qui rejettent les attitudes communes et les conditions dominantes de ce monde, et qui opèrent un changement profond et personnel en elles-mêmes. Ce sont elles qui seront assez fortes, assez robustes et centrées dans leurs âmes, de sorte qu’elles puissent vivre la vérité clairement, sans ambivalence, sans illusions sur elles-mêmes et sans malentendus.
 
@@ -32,6 +32,3 @@ Vous ne capitulerez pas devant les cris de ceux qui s’accrochent fermement au 
 Buvez profondément ces bénédictions, amis bien-aimés, et sachez que nous sommes à vos côtés. La force et la solidarité du ciel sont avec vous. Vous pouvez compter sur notre protection, sur nos ministères d’amour, sur nos paroles de soutien et sur notre toucher sur vous en tant qu’instruments d’amour de Dieu. Nous sommes avec vous, mes bien-aimés, et nous ne vous quitterons jamais. Ce pouvoir et cette force vont croître. Vous en prendrez conscience à mesure que votre lumière continuera de briller à l’intérieur et que vos dons s’ouvriront, chaque fleur s’épanouissant au soleil de la chaleur et de l’amour de Dieu. Âmes bien-aimées, vous êtes plus fortes que vous ne le pensez et cette force continuera à se manifester dans votre vie et dans vos efforts pour apporter la lumière dans le monde.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis avec vous. Je suis Martin Luther, celui qui connaît bien le pouvoir de la réforme et l’effort qu’il faut déployer pour apporter un changement dans le monde. Je suis à vos côtés avec ma force, ma lumière et mon amour. Comme beaucoup d’autres. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

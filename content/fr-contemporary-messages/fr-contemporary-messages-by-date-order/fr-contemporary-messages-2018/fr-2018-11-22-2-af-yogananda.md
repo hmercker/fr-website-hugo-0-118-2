@@ -9,7 +9,7 @@ weight:
 ---
 ### Les chemins de la conscience
 
-Yogananda - reçu par Al Fike le 22 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 22 Novembre 2018, Bayview, NSW, Australie.
 
 Chers amis, Yogananda revient et je souhaite parler du sujet des chemins de la conscience, et comment ceux qui marchent sur le chemin de l’homme naturel gravitent vers le mental. Et dans la prière et la médiation, les avenues de la pensée sont ouvertes, apportant des expériences qui ne sont pas tant de l’âme que de la pensée, avec des niveaux de conscience qui viennent de la pensée qui est calme et claire.
 
@@ -25,7 +25,7 @@ Ceux qui cherchent à connaître leur véritable identité doivent en effet alle
 
 Mes amis, vous avez fait cela de nombreuses fois. Vous avez cherché à être en communion avec votre Créateur et vous connaissez bien la route et reconnaissez ces sentiments et ces sens de l’âme qui s’éveille à Dieu, qui s’approche, qui sait, qui ressent la paix profonde et qui ressent ce noyau de joie dans votre cœur qui apporte l’élévation, qui apporte l’ouverture de vos perceptions. Oui, il est difficile d’expliquer le chemin de l’âme, mais ce n’est pas difficile dans l’action. Lorsque vous enseignez cette voie aux autres, encouragez-les à ne pas aller dans la direction du mental, mais dans une direction plus profonde. Et lorsque vous vous engagez dans ces Cercles de Lumière où la prière et le désir de recevoir ce don de l’Amour Divin sont présents, alors les anges de Dieu sont également présents et ils aident chaque âme à trouver son chemin, en la guidant le long de ce chemin, un chemin qui peut sembler différent et inconnu.
 
-Il appartient à chaque âme de trouver son chemin, de connaître son chemin vers Dieu. Cela commence par un profond désir intérieur, un sentiment de besoin, un désir d’être avec le Créateur de tout. Chaque âme aspire à l’Amour de Dieu, aspire à cette étreinte, à cette communion qui dit : « Tu es mon enfant, je te reconnais comme faisant partie de ma grande famille d’humanité et tu es le bienvenu dans mon étreinte, mon amour et je ne te refuserai jamais ni ne te renverrai dans un endroit où mon amour n’existe pas.« 
+Il appartient à chaque âme de trouver son chemin, de connaître son chemin vers Dieu. Cela commence par un profond désir intérieur, un sentiment de besoin, un désir d’être avec le Créateur de tout. Chaque âme aspire à l’Amour de Dieu, aspire à cette étreinte, à cette communion qui dit : *« Tu es mon enfant, je te reconnais comme faisant partie de ma grande famille d’humanité et tu es le bienvenu dans mon étreinte, mon amour et je ne te refuserai jamais ni ne te renverrai dans un endroit où mon amour n’existe pas. »*
 
 Si ceux qui prient ont une certaine foi, un désir et une volonté de suivre ce chemin pour découvrir Dieu, ils seront récompensés par de nombreuses expériences et de nombreux réveils. Ils se rempliront de ce réveil qui vient de Dieu, qui attend vos efforts pour frapper à la porte puissante de son âme. Et Dieu ne va pas ignorer ce coup. Il prend un grand plaisir à ouvrir cette porte de l’Amour pour que tous les dons bons et merveilleux se déversent sur cette âme qui a pris le temps et l’effort et qui a fait confiance à ce que Dieu peut donner.
 
@@ -34,6 +34,3 @@ L’innocence d’un enfant, la sagesse de l’âme qui désire Dieu, les effort
 Puissiez-vous réussir dans votre travail, mes amis. Puissiez-vous trouver votre rythme dans cette voie d’enseignement et apporter une grande et profonde inspiration avec vos mots, vos prières, votre joie, votre sagesse, votre amour. Tout vient du fait que vous avez un désir sincère de servir et d’être les canaux d’amour de Dieu, les instruments de paix et de changement dans le monde. De nombreuses bénédictions viendront et de nombreuses âmes croiseront votre chemin. Puisse chaque rencontre apporter une grande bénédiction, apporter un contact qui provoquera une réponse, un changement, un changement dans cette âme. Car ces choses sont souvent subtiles, mais avec le temps, ces graines prennent racine et apportent les résultats souhaités. Ayez la foi que vous serez guidé, que vous détenez en effet la clé de cette grande et puissante vérité, la plus haute des bénédictions, le plus grand et le plus profond changement de Dieu à l’âme de l’homme.
 
 Que Dieu vous bénisse, mon ami. Que Dieu vous bénisse. Je suis Yogananda, très, très heureux que nous communiquions de cette façon. Que Dieu vous bénisse.
-
-
-

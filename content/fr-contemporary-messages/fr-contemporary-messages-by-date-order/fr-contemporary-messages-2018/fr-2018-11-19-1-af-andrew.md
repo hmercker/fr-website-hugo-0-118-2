@@ -9,7 +9,7 @@ weight:
 ---
 ### L'univers a besoin de variété
 
-André - reçu par Al Fike le 19 Novembre 2018, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 19 Novembre 2018, Bayview, Sydney, Australie.
 
 Que Dieu vous bénisse, je suis André. N’est-ce pas tout simplement merveilleux, toutes les variétés d’individus dans ce monde. Tant de différences et pourtant vous vous rassemblez tous en tant que frères et sœurs lorsque l’amour est présent. Lorsque l’amour est présent, mes bien-aimés, il y a une connexion, il y a l’honneur de la vie, il y a la tolérance de ces différences dans vos interactions, communications, prières. Chaque âme est différente dans sa personnalité, pas seulement dans l’esprit, mais dans l’âme, il y a des différences entre vous. Non seulement dans les conditions de l’âme, mais dans les expressions de l’âme, car chaque âme est unique. Chaque âme est magnifiquement et merveilleusement créée par Dieu. Et Dieu ensemence l’univers avec une telle variété de vie et d’âmes que c’est un grand cadeau.
 
@@ -22,6 +22,3 @@ Lorsque l’âme est imprégnée de l’amour du Père, cela ne fait que renforc
 Mes âmes bien-aimées, vous êtes ce beau diamant des créations de Dieu. Vous pouvez et vous allez sourire avec toute sa beauté et sa lumière afin que vous aussi puissiez éblouir l’univers dans toute la beauté que vous êtes et que vous avez été créés pour être. Belles âmes, continuez à permettre aux incrustations de tomber et à la lumière de briller à travers et, avec le temps, vous serez cette créature éblouissante et cette âme éblouissante que Dieu a créée dans tous ses potentiels, dans toute la merveille de cette existence.
 
 Bien-aimés, âmes bien-aimées, soyez dans la Grâce de Dieu. Permettez à Sa Lumière et à Son Amour de briller sur vous afin que vous puissiez vraiment être qui vous êtes et être dans la grâce et la beauté de Son Amour. Que Dieu vous bénisse, mes bien-aimés. Je suis André et je vous aime. Que Dieu vous bénisse.
-
-
-

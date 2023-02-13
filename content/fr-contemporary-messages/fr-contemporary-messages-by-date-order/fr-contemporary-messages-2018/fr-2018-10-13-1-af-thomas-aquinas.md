@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître Dieu avec le mental de l’âme
 
-Thomas d'Aquin - reçu par Al Fike le 13 Octobre 2018, Gibsons, Colombie-Britannique, Canada
+Thomas d'Aquin - reçu par Al Fike le 13 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Thomas d’Aquin. Je vous souhaite la bienvenue en cette belle journée alors que je parle au nom de mes compatriotes dans cette œuvre pour vous dire que nous vous aimons. Nous sommes avec vous alors que vous continuez à vous élever toujours plus haut vers Dieu, que vous continuez à aspirer à l’éveil de vos âmes et à rechercher le plus haut. Cependant certains parmi vous spéculent et ruminent avec vos pensées, cherchent la clarté et cherchent des réponses à ces questions profondes auxquelles seule l’âme peut vraiment répondre. Car les réponses à vos questions, mes bien-aimés, ont de nombreuses couches et facettes, et ce n’est qu’en communiquant avec les facultés de votre âme en alignement avec vos esprits matériels que cette compréhension profonde et riche de la vérité peut venir.
 
@@ -22,6 +22,3 @@ C’est ce dont parlent les mystiques, mes bien-aimés. C’est ce dont a parlé
 Vous avez un festin devant vous, mes bien-aimés, un festin merveilleux de vérité, de bénédictions, de guérison et d’amour. En votre temps, selon vos propres désirs, vous ingérerez ces fruits de vérité. Cette eau de vie, ces bouchées qui nourrissent l’âme, l’esprit et le corps, sont toutes déposées devant vous, mes bien-aimés. Que votre faim grandisse et que votre capacité à être dans ce flux d’Amour, de Vérité et de Lumière de Dieu continue à éveiller vos âmes. Dieu ne limite pas ce que vous pouvez consommer à cet égard, Sa largesse est illimitée. Son désir pour votre croissance et votre bonheur, votre joie et votre renforcement continue à assurer que vous êtes nourris, que vous recevez tout ce dont vous avez besoin pour être éveillés et pour que votre nouvelle et tendre âme grandisse jusqu’à la maturité et au-delà. Vous êtes bénis mes amis, tellement bénis. Acceptez les offrandes de Dieu, ayez faim des fruits de son âme, buvez les eaux de l’Esprit Saint, éveillez-vous à la nouvelle aube de vérité qui émerge en vous.
 
 Que Dieu vous bénisse, mes amis. Je suis Thomas et je vous aime. Que Dieu vous bénisse.
-
-
-

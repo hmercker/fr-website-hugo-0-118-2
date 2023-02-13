@@ -9,7 +9,7 @@ weight:
 ---
 ### Remerciements du cercle de prière en ligne, encouragements pour la Voix Directe
 
-Seretta Kem - reçu par Maureen Cardoso le 21 Octobre 2018, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 21 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem. Je souhaite reconnaître vos efforts aujourd’hui en remarquant que vous avez attiré dans de nombreuses personnes qui, dans des circonstances régulières, ne seraient pas en mesure de prier et de se rassembler dans une communauté de chercheurs d’Amour Divin. Lorsque vous tendez la main d’une telle manière à travers les câbles, votre monde ne se sent-il pas proche et petit ? En effet, bien que vous priiez chacun dans vos maisons respectives, beaucoup d’entre vous ont eu l’impression d’être ensemble dans un sens physique. Si vous continuez à prier de cette manière, vous constaterez que cela attirera de nombreuses personnes du monde entier et que vous en toucherez beaucoup.
 
@@ -22,6 +22,3 @@ Maintenant, alors que votre cercle est sur le point de se réunir à nouveau dem
 La semaine qui vient est très importante. Nous espérons que chacun de vos développements et l’éveil de votre âme atteindront une nouvelle profondeur, avec de nouvelles prises de conscience et une plus grande compréhension de votre âme avec une connexion profonde, afin que chacun d’entre vous puisse reconnaître son vrai moi à un degré beaucoup plus élevé que lorsque vous êtes arrivés ensemble. Bien-aimés, ce temps de la semaine à venir est important. Nous continuons de vous soutenir, de vous encourager, nous voyons votre dévouement envers vous-mêmes, envers Dieu, et nous voyons votre profonde appréciation pour vos amis anges. Nous sommes seulement heureux de servir. Nous nous réunirons donc à nouveau demain matin et nous aurons notre dernière partie de ce temps ensemble.
 
 Reposez-vous bien, mes bien-aimés. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
-
-
-
