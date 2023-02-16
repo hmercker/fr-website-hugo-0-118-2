@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque âme a-t-elle un but ?
 
-Augustin - reçu par Al Fike le 29 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 29 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, c’est votre enseignant Augustin. Tu as posé une question importante, ma fille bien-aimée, et tu l'as  l’as fait avec des mots clairs et élégants comme tel est ton don. Oui, chaque âme a un but, quelque chose que Dieu l’a chargée d’accomplir durant son existence terrestre pour apporter une plus grande lumière dans ce monde. Ainsi, chaque âme a des dons, des capacités et des potentiels particuliers qui peuvent s’exprimer dans votre monde. En même temps que cette invitation de Dieu à exprimer Sa belle création qui est une âme dans, et le long d’un certain chemin, Dieu a aussi imprégné chaque âme avec son libre arbitre. Ainsi, l’invitation peut être proposée et se trouve, dans cette âme, profonde et bien implantée. Cela ne veut pas dire que l’âme écoutera, que l’individu écoutera cet appel et suivra un chemin particulier qui le conduira à l’expression de ce don et de cette invitation. Beaucoup ne remplissent pas leur but dans votre monde. Pourtant, chaque âme est invitée, par Dieu à le faire, étant donné les capacités et les dons pour accomplir son dessein. En réponse à l’accomplissement de ce que Dieu leur a demandé de faire dans le monde, il y a une grande joie et un grand épanouissement en elles. Ce don enflamme un vrai sens de soi, un vrai sens des possibilités et du potentiel de l’âme.
 
@@ -48,6 +48,3 @@ Vous vous éveillez à peine à cette réalité, à cette vérité. Mais avec ce
 Belles âmes, Dieu vous rassemble dans ce périple. Le semblable attire le semblable, l’âme attire l’âme, l’amour attire l’amour. De bien des façons, Dieu vous donne beaucoup de choses et vous êtes un don les uns pour les autres. Vous êtes profondément bénis, âmes bien-aimées, et vous vous rapprochez toujours plus de votre but. Tout dans votre vie, chaque expérience, chaque pensée, chaque interaction, chaque élément recherche l’harmonie, l’unification et l’Amour. Permettez qu’il en soit ainsi. Accueillez tout dans l’Amour. Accueillez-vous dans l’Amour. Acceptez tout ce qui est donné dans votre vie comme une bénédiction de Dieu qui vous aime. Cherchez toujours l’harmonie. Grandissez dans l’Amour et grandissez dans le dessein.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant, Augustin. Mon amour est toujours avec vous. Vous savez que c’est moi qui vous regarde continuellement, mes protégés, mes chers protégés, mes merveilleux protégés. Vous cherchez la Vérité. Je suis là et je le serai toujours. Que Dieu vous bénisse.
-
-
-

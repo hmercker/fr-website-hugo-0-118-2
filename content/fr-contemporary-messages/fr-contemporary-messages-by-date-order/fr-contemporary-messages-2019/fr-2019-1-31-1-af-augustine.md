@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Comment une personne peut-elle recevoir l'Amour Divin sans le savoir ? 
+### Comment une personne peut-elle recevoir l'Amour Divin sans le savoir ?
 
-Augustin - reçu par Al Fike le 31 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 31 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, c’est votre enseignant Augustin. Maintenant que cet instrument s’est rétabli, nous pouvons passer à une autre réponse. En effet, il ne prend pas sa situation au sérieux et ces malaises en sont le reflet, un défaut dans son fonctionnement physique, et à mesure qu’il vieillit, ces conditions vont empirer s’il ne fait pas d’efforts pour les corriger.
 
@@ -28,6 +28,3 @@ Pour vous, âmes bien-aimées, alors que vous continuez à enseigner la manière
 Dieu vous utilisera, mes amis bien-aimés, de bien des façons. Dieu ouvrira beaucoup de portes pour que vous puissiez effectivement exprimer la Vérité de l’Amour de Dieu par votre présence, par votre amour pour eux, et peut-être par votre témoignage d’Amour partagé avec eux. Oui, de nombreuses opportunités existent. Beaucoup sont réceptifs à cette Vérité bien qu’ils puissent avoir des barrières mentales et des malentendus sur le chemin, l’âme aspire encore à Dieu et l’âme, à un certain point, atteindra sa marque et forgera cette connexion qui permettra l’afflux d’Amour dans son âme et apportera la transformation, que l’âme aspire à, dans cet échange avec Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Continuez à éveiller votre âme, imprégnez votre âme de Son Amour qui fait de vous un puissant phare de la Vérité. Votre enseignant Augustin continue de vous aider dans ce périple. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

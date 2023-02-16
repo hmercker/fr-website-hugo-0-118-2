@@ -9,7 +9,7 @@ weight:
 ---
 ### Le voyage de la vie n'est pas rapide, il fait des méandres
 
-St Matthieu - reçu par Al Fike le 1 Mars 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 1 Mars 2019, Homosassa Springs, FL, USA.
 
 Vous poursuivez tous vos voyages de la vie et pour ceux qui sont plus jeunes, il y a un empressement à ce que le voyage soit rapide et clair, plein de résultats qui satisfont l’esprit. Pourtant, la vie ne ressemble pas à un tel voyage. Elle fait des méandres. Il y a parfois des changements de cap. Ce n’est jamais un chemin droit et étroit, mais un chemin plein de distractions, de conditions qui interfèrent. La vie fait partie de ce plan terrestre et ne se conforme pas à votre désir d’action rapide et de résultats.
 

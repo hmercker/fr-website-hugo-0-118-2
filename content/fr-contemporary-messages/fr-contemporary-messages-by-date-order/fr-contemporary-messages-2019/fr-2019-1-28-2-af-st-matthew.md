@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer les derniers vestiges sombres dans l'âme
 
-St Matthieu - reçu par Al Fike le 28 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 28 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c’est Matthieu et je viens répondre à vos questions.
 
@@ -19,7 +19,7 @@ Voyez-vous, nous, en esprit, qui apportons les bénédictions de la guérison et
 
 Beaucoup d’entre vous ont des attentes et des jugements profonds à l’égard de votre condition et des luttes auxquelles vous continuez à faire face, souvent au quotidien. Ces modèles usés, ces vieilles blessures, ces vieilles croyances ne sont pas vraiment effacées parce qu’il y a une partie de vous qui continue à s’accrocher et qui ne veut pas libérer ces aspects soigneusement entretenus de votre condition et de vos modèles de pensée.
 
-Il y a quelque temps, vous avez reçu [un enseignement sur la Pentecôte]((/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/)). Combien d’entre vous ont prié pour recevoir ce don, cet afflux dramatique de l’Amour Divin Père. Notre bien-aimé Jésus a parlé des conditions nécessaires pour recevoir ce don. Des conditions qu’aucune personne dans la pièce ou très peu dans ce monde ne connaissent en ce moment. Le désir n’est pas là. Il en est de même de vos luttes et de votre désir de libérer ces derniers vestiges de la douleur. Ils s’accrochent à vous avec une telle ténacité, une telle obstination résolue. Il faut en effet une force égale pour briser ces conditions loin de vous et donc votre motivation, votre désir doit être intense, mes bien-aimés, si vous voulez arriver à ce lieu de libération en ce moment même.
+Il y a quelque temps, vous avez reçu [un enseignement sur la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/). Combien d’entre vous ont prié pour recevoir ce don, cet afflux dramatique de l’Amour Divin Père. Notre bien-aimé Jésus a parlé des conditions nécessaires pour recevoir ce don. Des conditions qu’aucune personne dans la pièce ou très peu dans ce monde ne connaissent en ce moment. Le désir n’est pas là. Il en est de même de vos luttes et de votre désir de libérer ces derniers vestiges de la douleur. Ils s’accrochent à vous avec une telle ténacité, une telle obstination résolue. Il faut en effet une force égale pour briser ces conditions loin de vous et donc votre motivation, votre désir doit être intense, mes bien-aimés, si vous voulez arriver à ce lieu de libération en ce moment même.
 
 Avec le temps, mes bien-aimés, ces conditions disparaîtront. La puissance de l’Amour de Dieu assurera cette guérison. Mais si vous êtes si résolus à être dans une condition intacte de joie et de paix, libres de tous les éléments en vous qui ne sont pas en harmonie avec l’Amour de Dieu, alors vous devez travailler très dur pour vous libérer de ces choses. Ce n’est pas une supplication, un sentiment que Dieu doit le faire pour vous, mais plonger au plus profond de vous-même avec une vraie connaissance de votre âme que lorsque vous affronterez ces démons en vous, avec tant de sincérité, de profondeur, de désir et de prière, cette guérison profonde aura lieu.
 
@@ -32,6 +32,3 @@ Certains d’entre vous se plaignent que ces choses ne sont pas venues comme vou
 Vous avez deux choix, l’un dans lequel vous allez volontairement et délibérément à l’intérieur et rechercher ces chambres obscures remplies de peur, d’inquiétude ou vous pouvez continuer vos prières et avec le temps la guérison sera en effet accordée facilement, mais cela peut prendre plusieurs années. Car de même que le don goutte à goutte de l’Amour du Père s’accumule en vous, de même sa puissance s’intensifie, s’éveille et guérit. Vous devez donc choisir. Néanmoins, cette guérison aura lieu, que ce soit bientôt ou à une date ultérieure. Cela doit arriver et cela arrivera. C’est votre choix.
 
 Et ainsi, j’attends vos questions, bien-aimées âmes bien-aimées.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Apporter la bénédiction de l'amour divin à ce sanctuaire
 
-Marc - reçu par Al Fike le 5 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 5 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Oui, comme notre cher ami nous rappelle que la prière est importante et qu’apporter les bénédictions de Dieu au milieu de vous est une partie cruciale du travail que vous faites au sein de cette église. Vous ressentez les bénédictions de l’Amour de Dieu parmi vous en ce moment. Il est familier à beaucoup d’entre vous. Vous connaissez son confort, sa puissance et sa guérison. La qualité de cette bénédiction est unique à l’Amour Divin. C’est ce que vous devez apporter et continuer à apporter dans votre sanctuaire, votre église. Comme vous continuez à construire les conditions dans ce lieu béni, l’Amour grandira. Cette bénédiction et cette énergie uniques augmenteront de sorte que pour que tous ceux qui y entrent le ressentent et soient attirés par cet endroit réconfortant, chaleureux et béni, et que lorsqu’ils viendront prier, ils sentiront et sauront que tout ce qui les accable puisse disparaître et leur apporter la paix.
 
@@ -27,15 +27,10 @@ Vous ressentez tous les avantages d’être élevés par rapport aux conditions 
 
 C’est la bénédiction qui enflamme toutes les bénédictions, le moyen qui rassemble tout en harmonie, le pouvoir de l’Amour de Dieu de transformer et de rendre entier et d’attirer toutes les forces et les énergies qui sont de la lumière et du plus haut.
 
-Ainsi, Dieu vous a rassemblés une fois de plus pour le servir d’une manière qui est souvent surprenante, inattendue, et pourtant, il faut avoir confiance que le plan de Dieu est parfait. Suivre dans l’obéissance et la foi est de dire que : *« Le Créateur est bien plus sage que moi. Donc, j’abandonne mon emprise sur le destin de cet endroit et je vous le donne, cher Père, afin que Tu puisses nous guider tous dans le déroulement de la guérison de notre monde, que nous pouvons jouer un rôle, que Tu puisses nous guider ainsi, et tout sera comme il doit être. »* 
+Ainsi, Dieu vous a rassemblés une fois de plus pour le servir d’une manière qui est souvent surprenante, inattendue, et pourtant, il faut avoir confiance que le plan de Dieu est parfait. Suivre dans l’obéissance et la foi est de dire que : *« Le Créateur est bien plus sage que moi. Donc, j’abandonne mon emprise sur le destin de cet endroit et je vous le donne, cher Père, afin que Tu puisses nous guider tous dans le déroulement de la guérison de notre monde, que nous pouvons jouer un rôle, que Tu puisses nous guider ainsi, et tout sera comme il doit être. »*
 
 Âmes bien-aimées, c’est en renonçant à votre emprise sur ce qui va se dérouler dans cette église et en le remettant à Dieu que vous pourrez écouter les réponses et les conseils de Dieu et que ce qui se passera dans l’église pourra se réaliser, et que ce dont je parle sera et se manifestera de ces manières merveilleuses.
 
 C’est un test pour votre foi. C’est l’opportunité de grandir dans l’amour. C’est beaucoup de choses. Mais par essence, ce n’est pas une chose de l’homme mais une chose de Dieu. Vous devez donc chercher à servir le plus haut possible, le plus grand bien pour tous et ne pas mettre votre empreinte, votre jugement sur les plans de Dieu, mais être humble et accepter ce qui est présenté devant vous. Dieu offre toujours un festin spirituel devant vous, mes bien-aimés, où vous pouvez en effet trouver une profonde reconstitution, de profondes guérisons et des connaissances, et des occasions de servir dans l’amour.
+
 Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Nous travaillons ensemble au service de Dieu. Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-
-
-
-

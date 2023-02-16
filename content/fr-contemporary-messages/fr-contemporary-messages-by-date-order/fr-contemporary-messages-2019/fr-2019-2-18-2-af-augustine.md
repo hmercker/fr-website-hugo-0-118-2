@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez réceptifs à Dieu et aux anges célestes (Tour 2019 d'éveil de l'âme - Côte Est des USA)
 
-Augustin - reçu par Al Fike le 18 Février 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 18 Février 2019, Bateau de croisière, Floride, USA.
 
 Partout où il y a ceux qui ont un intérêt et un désir de poursuivre ce don d’Amour divin, nous serons avec vous, âmes bien-aimées. Nous serons avec vous car Dieu assigne un ange à chaque âme qui est sérieuse dans ses efforts pour recevoir ce don d’Amour. Maintenant, pour nous connaître, vous devez mettre de côté vos idées préconçues, vos attentes et barrières mentales, et permettre à notre présence d’être ressentie et connue par les sens qui ne sont pas du mental et du physique, mais de l’âme et du cœur. Nous serons avec vous clairement et puissamment dans votre vie. Mais c’est votre responsabilité et votre désir d’être ouvert et réceptif à cette nouvelle conscience et présence dans votre vie. Cela ne peut être forcé. C’est un éveil croissant qui vient avec la bénédiction de l’Amour de Dieu.
 
@@ -24,6 +24,3 @@ Puissiez-vous continuer à vous éveiller, frères et sœurs bien-aimés, à cet
 Dieu vous bénit, âmes bien-aimées, et vous garde sur Son chemin d’amour. Je suis votre enseignant Augustin et je marche avec vous comme beaucoup d’entre nous qui ont un vif intérêt et un grand amour pour ces mortels qui souhaitent dépasser ce lieu de médiocrité vers un lieu de lumière et de vérité.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

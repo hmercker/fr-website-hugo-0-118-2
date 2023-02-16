@@ -9,7 +9,7 @@ weight:
 ---
 ### Prenez la résolution de faire grandir votre âme
 
-Augustin - reçu par Maureen Cardoso le 4 Janvier 2019, Abbotsford, Colombie-Britannique, Canada
+Augustin - reçu par Maureen Cardoso le 4 Janvier 2019, First United Spiritualist Church, Burnaby, Colombie-Britannique, Canada
 
 C’est votre enseignant Augustin, autrefois l’évêque d’Hippone lors de sa vie terrestre, et maintenant un habitant des Cieux Célestes. Je vous salue tous ce soir alors que vous vous réunissez dans ce magnifique sanctuaire, au milieu de ce Portail de Lumière, pour recevoir la bénédiction de guérison de l’Amour Divin. Je vous souhaite la bienvenue, belles âmes qui êtes nouvelles dans ce cercle. Vous avez été guidées ici et nous espérons que vous deviendrez très familières avec cette pratique de prière dans votre vie.
 
@@ -28,6 +28,3 @@ Tout s’harmonise, âmes bien-aimées. Tout s’harmonise. Et lorsque votre âm
 Il viendra un moment dans votre vie où vous n’aurez que la capacité de parler, de penser et d’agir à partir d’un lieu d’amour. Ne serait-ce pas un monde merveilleux à vivre, où l’amour est la première action et la première pensée ? Fixez votre vie sur cet objectif, mes bien-aimés. Prenez la résolution d’apprendre à connaître votre âme, en permettant à Dieu d’être proche de vous. Car c’est alors que tout le reste viendra dans un timing parfait et dans une harmonie qui vous est spécifiquement destinée.
 
 Je vous remercie d’avoir écouté mes paroles et nous nous joignons à vous dans la prière. Notre amour est avec vous. C’est important, mes bien-aimés, vos âmes sont importantes. Développez-les. Demandez à Dieu de les purifier. Guérissez-les et regardez votre nature s’épanouir, la nature de ce que vous avez été créés pour être. Que Dieu bénisse chacun d’entre vous. Je suis votre enseignant Augustin et mon amour est avec vous. Que Dieu vous bénisse et bonne nuit.
-
-
-

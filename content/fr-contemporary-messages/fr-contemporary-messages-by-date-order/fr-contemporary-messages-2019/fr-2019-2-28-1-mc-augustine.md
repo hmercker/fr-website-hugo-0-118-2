@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour Divin est le chemin le plus direct vers Dieu
 
-Augustin - reçu par Maureen Cardoso le 28 Février 2019, Abbotsford, Colombie-Britannique, Canada
+Augustin - reçu par Maureen Cardoso le 28 Février 2019, First United Spiritualist Church Burnaby, Colombie-Britannique, Canada.
 
 Bonsoir, je suis votre enseignant Augustin et je vous souhaite la bienvenue dans le cercle, ce cercle de lumière et dans ce magnifique bâtiment – ce sanctuaire qui a été doté d’un portail de lumière. Ce portail de lumière s’élève jusqu’aux Cieux Célestes permettant aux énergies de guérison de circuler directement dans votre cercle. Ce portail de lumière est un cadeau puissant. Ce qui maintient ce portail actif, ce sont les prières dans ce bâtiment, comme vous le faites et comme le font aussi les autres services. Vous pouvez également prier individuellement tout au long de la journée pour que ce portail reste fort et se développe dans ses capacités à bénir chaque âme qui vient en son sein. Il peut devenir si fort que la terre entière peut être couverte, un bloc entier de ville peut être couvert, et une ville entière peut être couverte. C’est à vous, chères âmes, et à nous, les anges Célestes, sous la direction de Dieu, que revient la tâche de renforcer ce portail de lumière.
 
@@ -28,6 +28,3 @@ Prenez le temps chaque jour de découvrir ce que votre Créateur souhaite vous a
 Continuez à vous ouvrir, mes chers amis, pour recevoir cet amour. Ressentez la présence, la chaleur, la sollicitude, le calme, la paix – la paix qui dépasse toute compréhension. Tout cela est donné gratuitement et ne demande que votre effort pour demander.
 
 Que Dieu vous bénisse mes amis, je suis votre enseignant Augustin. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

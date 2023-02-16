@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous faites tous partie du plan de Dieu
 
-Augustin - reçu par Al Fike le 13 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 13 Janvier 2019, Vancouver Ouest, Colombie-Britannique, Canada.
 
 Je suis votre enseignant, Augustin. Comme il est bon de parler à travers cet instrument dans ce lieu où j’ai parlé de nombreuses fois à mes frères et sœurs bien-aimés qui font partie de ce merveilleux voyage de l’Amour Divin. Il y a des changements à venir pour chacun d’entre vous, mes bien-aimés. Il y a des surprises et des opportunités qui s’ouvrent et vous ne devez pas fixer votre regard sur l’avenir avec trop d’anticipation et de planification avec vos idées qui vous préoccupent. Il s’agit plutôt d’être dans le flux de l’Amour de Dieu, de marcher sur Son chemin d’Amour, de suivre Sa guidance d’Amour et de permettre à tout ce qui doit se dérouler de le faire en harmonie, dans un timing qui est celui de Dieu. Marchez chaque jour en vous rapprochant toujours plus de la Source de l’Amour de Dieu et le futur prendra soin de lui-même, car Dieu continue à incorporer chacun de vous dans Ses plans, Ses efforts pour apporter une plus grande Lumière à ce monde.
 

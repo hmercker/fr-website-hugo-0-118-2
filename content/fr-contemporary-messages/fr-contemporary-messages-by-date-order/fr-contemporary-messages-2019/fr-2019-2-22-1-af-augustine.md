@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez parvenir à une prise de conscience de la réalité de votre propre condition
 
-Augustin - reçu par Al Fike le 22 Février 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 22 Février 2019, Bateau de croisière, Floride, USA.
 
 Je suis votre enseignant Augustin. Je ne peux pas résister à cette opportunité de vous parler de vos choix et du pouvoir de votre propre libre arbitre, concernant votre vie. Dieu vous a accordé de nombreuses opportunités, des bénédictions et des cadeaux, tous les aspects de votre être qui, lorsqu’ils sont en harmonie, propulsent votre vie dans la lumière et l’harmonie. Mais parce que vous vivez sur le plan terrestre et que vous êtes mortels, vous faites de nombreux choix qui ne sont pas en harmonie avec la lumière, la santé, la paix et l’amour.
 

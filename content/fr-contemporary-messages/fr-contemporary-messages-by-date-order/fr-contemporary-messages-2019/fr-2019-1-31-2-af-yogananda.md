@@ -9,9 +9,9 @@ weight:
 ---
 ### La réincarnation et sa perception et dissémination par de nombreux yogis et gourous de l’Orient
 
-Yogananda - reçu par Al Fike le 31 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 31 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/reincarnation.png)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-reincarnation.png)
 
 Que Dieu vous bénisse, mes âmes bien-aimées. Je suis Yogananda. La question a été posée : comment connaît-on les vies passées et confère-t-on cette connaissance dans sa vie présente ? Comme vous le savez, il n’existe pas de mécanisme tel que la réincarnation. Alors pourquoi beaucoup d’individus croient-ils et arrivent-ils à la croyance que la réincarnation existe ?
 
@@ -31,6 +31,6 @@ Je peux témoigner du fait que, bien que j’aie été doté de nombreux dons, i
 
 C’est mon enseignement et ma poursuite de la puissance de l’Amour, la puissance de Dieu qui m’ont attiré vers notre Maître bien-aimé qui incarne de tels enseignements. Le Maître apaisa mon esprit, m’aida à libérer les choses qui n’étaient pas de la Vérité et me mit sur le chemin vers la communion avec Dieu pour recevoir Son Amour. Il n’y a pas de plus grande joie que cette connaissance et cet éveil, libérant mon attente de perfection et me procurant la joie qui vient avec ma relation avec Dieu, le Créateur. Tout s’est mis en place et semblait facile, beau, riche et épanouissant.
 
-J’ai continué ce voyage jusqu’à ce que, moi aussi, je franchisse le seuil des Cieux Célestes, pensant que j’avais alors atteint l’ultime développement, mais réalisant ensuite que cette progression se poursuit pour l’éternité. Quel émerveillement Dieu a-t-il créé dans cette joie toujours croissante, cette expansion de la conscience et de l’Amour et de la Vérité. Comme Dieu doit nous aimer tous, en nous gratifiant de ce don, ce cadeau porteur de tous les dons, cette bénédiction qui ouvre la porte à toutes les bénédictions. Je suis vraiment reconnaissant, mes amis, d’être venu à cette Vérité et d’avoir libéré ces choses qui ne sont pas la Vérité. Mes illusions ont été bannies et à leur place sont venues la Vérité et la puissance de l’Amour qui offrent une si grande capacité à connaître la Vérité. Quelle joie de connaître cette Vérité, de venir dans une joyeuse gratitude envers Dieu, en nous ouvrant à recevoir Son Toucher et Ses Bénédictions en nous. 
+J’ai continué ce voyage jusqu’à ce que, moi aussi, je franchisse le seuil des Cieux Célestes, pensant que j’avais alors atteint l’ultime développement, mais réalisant ensuite que cette progression se poursuit pour l’éternité. Quel émerveillement Dieu a-t-il créé dans cette joie toujours croissante, cette expansion de la conscience et de l’Amour et de la Vérité. Comme Dieu doit nous aimer tous, en nous gratifiant de ce don, ce cadeau porteur de tous les dons, cette bénédiction qui ouvre la porte à toutes les bénédictions. Je suis vraiment reconnaissant, mes amis, d’être venu à cette Vérité et d’avoir libéré ces choses qui ne sont pas la Vérité. Mes illusions ont été bannies et à leur place sont venues la Vérité et la puissance de l’Amour qui offrent une si grande capacité à connaître la Vérité. Quelle joie de connaître cette Vérité, de venir dans une joyeuse gratitude envers Dieu, en nous ouvrant à recevoir Son Toucher et Ses Bénédictions en nous.
 
 Que Dieu nous bénisse tous, mes amis, et que vous en veniez à connaître le voyage sans fin vers l’union avec Dieu et que tout au long de ce voyage vous expérimentiez tout ce qu’il y a à vivre, que vous sachiez tout ce qu’il y a à savoir, que vous ressentiez toute la profondeur de la joie et du réveil qui vient quand Dieu vous bénit profondément dans votre âme. Que Dieu vous bénisse. Je suis Yogananda. Que Dieu vous bénisse et vous remercie.

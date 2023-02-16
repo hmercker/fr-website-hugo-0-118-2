@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils sur notre but et nos besoins
 
-Augustin - reçu par Al Fike le 19 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 19 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, c’est votre enseignant Augustin. Il est bon que vous priiez pour ces Portails de Lumière, âmes bien-aimées. Tout comme la chère âme (M) a été guidée à prier, nous vous guidons vous et quiconque est prêt à prier pour le développement de ces portails, pour apporter la lumière à ce monde. Ces mécanismes de la lumière, les canaux de Dieu pour apporter la guérison et l’amour et les bénédictions à beaucoup sont importants. Ils sont cruciaux dans ces vastes plans pour guérir votre monde et tout ce qui s’y trouve. Ainsi, lorsque vous avez l’occasion d’être présent dans un lieu où l’un de ces portails existe, il est important que vous concentriez vos prières sur les plus hautes pensées, afin de  chercher à être un instrument qui soutient ces lieux.
 
@@ -24,6 +24,3 @@ Il y a beaucoup à faire et les ouvriers sont peu nombreux, mes amis, peu nombre
 Dieu vous bénira chaque jour, âmes bien-aimées, en continuant à consacrer votre vie à l’éveil de l’humanité, à l’éveil de vos âmes, à la guérison de ce monde, à la transformation de la réalité que l’humanité a créée et doit se transformer en celle qui est en harmonie avec sa création. Il y a beaucoup à faire, mes bien-aimés. Continuez vos efforts et vous savez très bien que je suis avec vous et beaucoup d’autres.
 
 Que Dieu vous bénisse. Votre maître Augustin est avec vous, toujours prêt à enseigner, à partager, à apporter la sagesse, à apporter son amour. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

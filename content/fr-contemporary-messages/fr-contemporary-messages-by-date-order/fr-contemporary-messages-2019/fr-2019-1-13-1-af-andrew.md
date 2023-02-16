@@ -9,7 +9,7 @@ weight:
 ---
 ### Le destin de ce monde repose sur le choix de chaque âme
 
-André - reçu par Al Fike le 13 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 13 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Le destin du monde repose sur chaque âme et sur les choix qu’elle fait dans ce monde. Comme une âme aspire à être dans la lumière et le fait dans ses efforts pour être en communion avec le Créateur, alors elle sera élevée, guérie et bénie. Le changement dans le monde que vous désirez tous, que nous désirons tous en esprit, vient avec l’éveil de chaque âme individuelle et l’arrivée à un lieu de compréhension de leur véritable moi. Tant qu’une âme n’est pas éveillée, elle ne peut pas vraiment se connaître elle-même, elle ne peut pas vraiment être consciente de tous les beaux aspects et potentiels créatifs que Dieu a placés en chaque individu.
 
@@ -22,6 +22,3 @@ Pourtant, la disponibilité, le flux de cet amour est sans fin. L’âme peut s�
 Puissiez-vous demander, âmes bien-aimées, ce don et puissiez-vous connaître et comprendre la puissance, la vraie puissance de l’amour et être bénis profondément dans votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis André, un habitant du Royaume céleste et un disciple du Maître, Jésus. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

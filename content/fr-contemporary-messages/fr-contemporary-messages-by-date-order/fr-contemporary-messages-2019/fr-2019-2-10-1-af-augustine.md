@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisir la lumière plutôt que l’obscurité
 
-Augustin - reçu par Al Fike le 10 Février 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 10 Février 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse avec la vérité et la lumière et que toute compréhension soit une bénédiction pour chacune de vos âmes, mes bien-aimés. Je suis Augustin, votre enseignant. J’ai été évêque d’Hippone il y a plusieurs centaines d’années lorsque j’ai marché sur votre Terre et je suis depuis de très nombreuses années dans le monde de l’esprit et j’habite le Royaume Céleste. Je suis un enfant racheté de Dieu, car Dieu m’a béni en abondance avec Son Amour. Je viens à vous, mes chers amis, frères et sœurs, avec un message d’espérance, d’amour et de vérité, afin que, si vous voulez suivre, vous puissiez trouver les nombreuses bénédictions de l’esprit qui viennent de Dieu.
 
@@ -28,6 +28,3 @@ Ici, vous êtes confrontés à de nombreuses pensées, idées et expériences di
 Je vous exhorte à demander cette bénédiction dans la prière, à vous ouvrir à cette expérience, à permettre à ce qui est en vous de vous éveiller dans l’amour, vous commencerez alors un voyage de lumière qui apportera une plus grande lumière pour l’éternité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Son Amour continue à couler en vous. Puissiez-vous vous réveiller amoureux. Je suis votre maître Augustin et je reviendrai vous parler des vérités de votre propre existence. Il y a beaucoup de vérités à connaître et beaucoup de voies à explorer. Que Dieu vous bénisse dans vos pérégrinations. Que Dieu vous bénisse.
-
-
-

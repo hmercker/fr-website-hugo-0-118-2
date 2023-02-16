@@ -9,7 +9,7 @@ weight:
 ---
 ### L'éveil de l'âme est un processus progressif
 
-Augustin - reçu par Al Fike le 26 Février 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 26 Février 2019, Homosassa Springs, FL, USA.
 
 Oui, fille bien-aimée, tu sais de moi et je sais de toi. Aucune bénédiction n’est trop grande pour que ceux d’entre vous, qui sont sur la Terre, ne puissent pas ressentir et connaître cette bénédiction. C’est simplement la force et l’exercice de votre foi, la puissance de votre désir de recevoir, l’ouverture de votre esprit et le désir ardent de votre âme de connaître les bénédictions de Dieu dans une mesure profonde et approfondie, qui changent tout en vous, qui changent tout, de vos perceptions à votre capacité d’aimer.
 
@@ -22,6 +22,3 @@ Il y a beaucoup à faire pour chacun d’entre vous et chacun d’entre vous doi
 A bien des égards, vos instruments viennent juste de commencer, sont juste ouverts. Dans cette ouverture, il y aura beaucoup plus qui viendra. Vous venez de briser et de fissurer la coquille de la chrysalide, émergeant comme de magnifiques papillons. Ceci, nous et Dieu, l’avons attendu pendant de nombreuses années. Nous sommes exaltés de voir quels beaux motifs émergent sur vos ailes, comment vous voltigez magnifiquement dans la lumière de l’Amour de Dieu et la lumière sur beaucoup, les touchant avec la magie de votre belle âme et le flux d’Amour de Dieu à travers vous.
 
 Que Dieu vous bénisse, mes bien-aimés, et vous garde toujours dans Sa Lumière. Nous sommes avec vous. Que Dieu vous bénisse. Je suis votre maître et votre ami, Augustin, évêque d’Hippone, ami de tous. Que Dieu vous bénisse.
-
-
-

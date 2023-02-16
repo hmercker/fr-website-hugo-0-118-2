@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez un instrument de l’amour de Dieu
 
-St Matthieu - reçu par Al Fike le 4 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 4 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Alors que vous continuez à vous aventurer dans le monde avec un profond désir de servir Dieu, Dieu continue à ouvrir des portes et des bénédictions, souvent inattendues, parfois non désirées, mais néanmoins des opportunités de servir et d’apporter plus de lumière, non seulement à ceux que vous servez, mais à vous-même. Alors que vous relevez les défis auxquels Dieu vous confronte, vous êtes assez fort pour mettre de côté votre réticence, ce sentiment et ce besoin de confort et de paix dans votre vie quotidienne, pour le remplacer par le cœur du lion. Le lion qui apporte l’amour, fort et énergique, doux et sage, il y a l’occasion de disperser les ténèbres et d’apporter lumière et vérité à l’humanité.
 
@@ -24,8 +24,3 @@ Les jours à venir apporteront des dons parfaits de Dieu qui vous ont été donn
 Âmes bien-aimées, nous vous avons encouragé à vous asseoir dans la prière pendant de très nombreuses années et vous l’avez fait. Vous l’avez fait et vous vous êtes créé un lien puissant avec Dieu. Le moment est venu d’agir et de vous exprimer davantage. Je ne suggère pas que vous abandonniez vos intentions et vos efforts dans la prière. Non, pas du tout. Mais maintenant, ces choses doivent venir au premier plan, ces dons. Vous devez répondre à l’appel de Dieu dans le service, l’humilité et la grâce. Alors que vous le ferez, nous serons près de vous. Car à mesure que vous avancez dans ces voies, de plus grandes bénédictions viennent à chaque âme et un plus grand soutien, une plus grande protection et une plus grande orientation sont à venir. Vous verrez, mes âmes bien-aimées, vous verrez ce que l’avenir vous réserve. Je vous dis que votre avenir s’annonce prometteur et que de nombreuses bénédictions vous attendent.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu. Je continue de vous soutenir dans vos efforts. Que Dieu vous bénisse profondément et que vos âmes rencontrent vos destins alors que Dieu trace son chemin afin que vous puissiez marcher dessus. Que Dieu vous bénisse. Matthieu vous aime. Que Dieu vous bénisse.
-
-
-
-
-

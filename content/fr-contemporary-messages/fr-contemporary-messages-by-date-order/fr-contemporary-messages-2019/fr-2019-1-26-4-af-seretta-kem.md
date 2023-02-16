@@ -9,7 +9,7 @@ weight:
 ---
 ### Mise en place de portails
 
-Seretta Kem - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem et nous allons commencer. Tout d’abord, je voudrais discuter de l’importance de reconnaître et de réaliser le pouvoir de la loi de la communication et du rapport. Vous avez été encouragés, lorsque vous êtes assis dans un cercle comme celui-ci, à diriger votre amour vers l’instrument qui est utilisé. C’est important, car nous construisons le pouvoir, le pouvoir qui nous permet d’établir un rapport étroit avec cet instrument et avec vous tous. Ceci est accompli par vos prières, votre amour et les conditions que vous apportez dans le cercle. Vous portez une responsabilité, âmes bien-aimées, d’être dans une condition qui est en harmonie avec l’amour et la lumière, avec Dieu et avec nous qui sommes vos amis. Que le désir de votre âme continue de croître et de s’étendre dans ces directions de proximité avec Dieu, de recevoir le don de Son Amour, d’ouvrir la voie afin que nous puissions nous approcher, contrôler vos pensées, les élever à un niveau supérieur, éveiller les dons de votre âme, sentir et connaître les désirs de votre cœur.
 

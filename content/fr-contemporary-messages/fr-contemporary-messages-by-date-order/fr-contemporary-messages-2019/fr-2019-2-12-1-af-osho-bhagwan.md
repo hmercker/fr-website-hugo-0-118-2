@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu est la véritable voie de la libération
 
-Osho Bhagwan - reçu par Al Fike le 12 Février 2019, Gibsons, Colombie-Britannique, Canada
+Osho Bhagwan - reçu par Al Fike le 12 Février 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis celui que vous appelez Osho. Je suis venu saluer mon ami, que j’ai connu et qui me connaît. J’ai beaucoup appris pendant le temps que j’ai passé dans le corps spirituel, et je souhaite faire des commentaires sur ma vie.
 
@@ -28,8 +28,3 @@ Vous, chères et belles âmes, si bénies par Dieu, avez plus de lumière en vou
 Je vois que vous portez en vous une vérité très vitale. Ne vous retenez pas dans vos efforts pour éveiller l’humanité à la véritable libération de l’âme par l’amour. C’est la plus haute vérité, mes amis. Je le vois maintenant. Bien que j’aie abordé ces vérités à ma façon, je vois maintenant que c’est ce qui est nécessaire dans ce grand voyage pour éveiller l’humanité à la beauté de la vie, au pouvoir de l’amour.
 
 Que Dieu vous bénisse de manière profonde et puissante afin que vous puissiez vraiment comprendre le pouvoir de l’amour. Je reviendrai, mes amis, et je parlerai de cela. Que Dieu vous bénisse, belles âmes. Je suis très heureux d’avoir été avec vous, que cet instrument m’ait permis de parler. Son esprit n’était pas très heureux de le faire, mais son âme l’a permis. Encore une fois, le pouvoir de l’amour. Je vous remercie. Je suis Osho Bhagwan. Je vous bénis, mes amis, et je vous souhaite une bonne nuit.
-
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Salomon parle de la sagesse de l'âme
 
-Salomon - reçu par Al Fike le 14 Février 2019, Gibsons, Colombie-Britannique, Canada
+Salomon - reçu par Al Fike le 14 Février 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Salomon et je viens vous parler de la sagesse. Sur votre plan terrestre, vous vous préoccupez de la sagesse de votre esprit et vous vous interrogez sur la sagesse de vos âmes. Ici, dans ce Cercle de Lumière, vous souhaitez éveiller la sagesse de vos âmes en recevant le don de l’Amour Divin. Ce don est facilement accordé lorsque vous continuez à prier et à vous ouvrir, en éveillant les facultés de votre âme, en faisant émerger la sagesse de votre âme. Pour vous, sur le plan terrestre, le mental a encore la prédominance et insiste pour remettre en question la sagesse de l’âme, désirant donner un sens, du point de vue mental, à tout ce qui entre dans votre esprit et à tout ce qui entre dans votre âme. Ce questionnement et cette analyse deviennent une partie réflexe de votre façon de comprendre la vérité.
 
@@ -32,8 +32,3 @@ Dieu vous place sur un chemin puissant, un chemin qui éveille et informe l’â
 Âmes bien-aimées, recherchez cet Amour par-dessus tout. Permettez la transformation de votre âme et de votre esprit afin que tout fonctionne dans la lumière et la beauté du toucher de Dieu sur vous. Oui, avec de grands changements de conscience, des expériences profondes, des capacités d’aimer et de comprendre vraiment vos frères et sœurs, d’avoir une profonde compassion et une profonde connaissance de votre cœur que vous êtes tous frères et sœurs et enfants de Dieu.
 
 Puissiez-vous connaître une paix profonde, mes amis bien-aimés. Que la sagesse profonde s’épanouisse dans votre âme et qu’une grande force et une grande perception accompagnent ce don de sagesse afin que tout ce que vous faites soit coloré de vérité et d’amour. Que Dieu vous bénisse, mes amis qui cherchent la vérité, et que vous trouviez ce que vous cherchez vraiment. Que Dieu vous bénisse. Je suis Salomon. Que Dieu vous bénisse, mes amis.
-
-
-
-
-

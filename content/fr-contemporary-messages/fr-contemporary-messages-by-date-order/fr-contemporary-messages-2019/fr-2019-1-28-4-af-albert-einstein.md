@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Comment pouvons-nous aider à approcher les scientifiques ? 
+### Comment pouvons-nous aider à approcher les scientifiques ?
 
 Albert Einstein - reçu par Al Fike le 28 Janvier 2019, Gibsons, Colombie-Britannique, Canada
 
-Mes amis, je suis Albert Einstein, et vous vous demandez peut-être pourquoi nous nous intéressons tant à vous. Et je vous demande, combien d’opportunités y a-t-il dans votre monde pour communiquer avec les mortels ? Très peu en effet. Donc, nous travaillons avec les matériaux que nous avons, mes amis. Je vous dirai que vous vous sentirez guidés vers beaucoup d’âmes avec lesquelles nous vous encouragerons à vous connecter et à vous lier d’amitié. Ces âmes auront le potentiel d’apporter des informations que nous désirons tant donner au monde. Oui, vous n’êtes peut-être pas les intermédiaires directs de ces précieux éléments de vérité et d’information pour aider votre monde de cette façon. Vous serez les intermédiaires qui nous mettront en contact avec les précieuses âmes qui nous attendent.
+Mes amis, je suis Albert Einstein, et vous vous demandez peut-être pourquoi nous nous intéressons tant à vous. Et je vous demande, combien d’opportunités y a-t-il dans votre monde pour communiquer avec les mortels ? Très peu en effet. Donc, nous travaillons avec les matériaux que nous avons, mes amis. Je vous dirai que vous vous sentirez guidés vers beaucoup d’âmes avec lesquelles nous vous encouragerons à vous connecter et à vous lier d’amitié. Ces âmes auront le potentiel d’apporter des informations que nous désirons tant donner au monde. Oui, vous n’êtes peut-être pas les intermédiaires directs de ces précieux éléments de vérité et d’information pour aider votre monde de cette façon. Vous serez les intermédiaires qui nous mettront en contact avec les précieuses âmes qui nous attendent <sup id="a1">[1](#f1)</sup>.
 
 L’illustre maître Augustin parle du plan de Dieu et je vous le dis, nous faisons partie de ce plan d’ensemble qui a beaucoup de facettes et de possibilités à mettre en œuvre et à apporter dans votre monde. Voyez-vous, toutes les sphères supérieures de l’esprit et du Royaume Céleste sont engagées dans cette danse complexe que Dieu nous a proposée. Nous écoutons attentivement l’orchestre, ce qui doit s’exprimer dans ce beau ballet.
 
@@ -20,6 +20,6 @@ C’est facile pour nous, car nous avons les oreilles pour entendre, les yeux po
 Nous sommes plus proches que vous ne le pensez. Nous trouverons tous notre chemin et connaîtrons une grande joie dans cette belle œuvre, cette expression d’amour pour toute l’humanité. Nous sommes tous guidés par Dieu. Nous sommes tous dans la Lumière du Toucher et de l’Amour de Dieu. Ce sera notre grâce salvatrice, n’est-ce pas ? Le pouvoir de l’Amour pour guérir le monde et le pouvoir de l’Amour pour ajouter à l’élan de grand changement et d’harmonie pour votre monde.
 
 Dieu vous bénisse, mes amis. Que Dieu vous bénisse et vous remercie pour vos efforts. Votre ami Albert est avec vous dans tout ce que vous faites. Je prie pour votre succès, le succès de votre travail comme le font des milliers et des milliers de personnes de mon côté. Continuez, mes amis. Continuez dans votre travail et nous continuerons dans le nôtre, en travaillant ensemble comme un tout. Que Dieu vous bénisse. Que Dieu vous bénisse, mes âmes bien-aimées.
+<small>
 
-
-
+1. <large id="f1"> Le problème non formulé est que pour recevoir du matériel scientifique, le médium a besoin d'un esprit formé à la science. Nous n'avons pas de tels médiums dans notre mouvement.[↩](#a1)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Reconnaissez la création unique de votre âme
 
-Seretta Kem - reçu par Maureen Cardoso le 17 Février 2019, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 17 Février 2019, Abbotsford, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c’est Seretta Kem et je suis avec vous comme le sont beaucoup, beaucoup d’anges célestes avec chacun d’entre vous. Alors que vous tendez la main depuis vos âmes pour le don de l’amour et de la présence de Dieu dans votre vie, le ressentez-vous, mes bien-aimés ? Sentez-vous le contact de Dieu, le souffle de Dieu sur vos âmes ? Prenez ce moment, sentez et recevez cet amour. Car c’est par le don de recevoir cet amour que l’harmonie vient, que la paix vit en vous et que votre expression est joie, compassion, empathie et amour. Comme nous vous l’avons dit à maintes reprises, le voyage de l’âme est un voyage éternel. Comme votre âme existe sur ce plan terrestre et qu’elle est vivifiée par le don de Dieu, cela lui donne l’occasion de s’éveiller pendant qu’elle est ici sur Terre.
 
@@ -28,6 +28,3 @@ Dieu a besoin de votre caractère unique et il place devant vous les âmes indiv
 Pouvez-vous voir le don que vous êtes, mes bien-aimés ? Pouvez-vous vous arrêter un instant et sentir le don que Dieu a créé en vous ? Le sentez-vous maintenant ? Sentez-vous l’essence de votre âme maintenant ? Pouvez-vous l’embrasser ? Pouvez-vous permettre que cela apporte un sourire sur votre visage que Dieu a créé ? Levez-vous, mes bien-aimés, levez-vous et permettez-vous de sentir et de connaître ce don de votre âme que Dieu a créé en vous. Quelle joie de voir l’illumination qui se produit lorsque vous le faites, car, mes bien-aimés, en ce moment, vous êtes plus brillants que je ne l’ai jamais vu auparavant. Vous reconnaissez le don que Dieu a créé en vous. Je vous demande de vous retrouver dans cet endroit, de vous rappeler cette expérience lorsque vous êtes mis au défi par la condition humaine.
 
 Que Dieu vous bénisse, mes bien-aimés, car chacune de vos âmes uniques est un grand cadeau créé par notre Père Céleste et nous, vos frères et sœurs, nous vous aimons profondément. Que Dieu bénisse chacun d’entre vous. Mon amour est avec vous. Je suis Seretta Kem, que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Apportez la lumière de la vérité
 
-Marie - reçu par Al Fike le 6 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 6 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je viens vous saluer. Je suis Marie. Je souhaite vous apporter mes bénédictions et mes souhaits, mes enfants bien-aimés, que Dieu puisse effectivement accroître l’amour dans vos cœurs au cours de l’année à venir et que, lorsque vous marchez sur cette Terre, vous puissiez exprimer l’amour, embrasser vos frères et sœurs dans l’amour, et apporter une plus grande lumière à votre monde, un monde qui a faim et soif d’amour. Puisisez-vous porter l’eau à leurs lèvres et les inciter à boire afin que la soif de leur âme soit étanchée, que les désirs de leurs cœurs connaissent la joie plutôt que la douleur et de l’angoisse, que les questions de leur esprit trouvent une réponse dans la paix profonde du Toucher de Dieu sur eux et que tout cela vienne dans un grand éclat de lumière et de bénédictions sur eux.
 
@@ -18,6 +18,3 @@ Bénis sont ceux qui portent la Vérité de l’Amour du Père dans le monde et 
 Dieu répondra à ces questions, âmes bien-aimées, en déversant Sa grâce sur chaque enfant, alors que le monde continue à avoir faim, alors que le monde continue à avoir faim et soif de vérité et d’amour. Vos efforts et vos prières aideront à soulager ce grand besoin de l’humanité. Marchez avec Dieu, âmes bien-aimées, et soyez dans Sa lumière et Ssa grâce et beaucoup de lumière et de bénédictions se déverseront sur vos frères et sœurs alors que vous cherchez à être les canaux d’amour de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Marie et je suis aussi avec vous dans vos grands cheminements vers Dieu. Que Dieu vous bénisse. Je vous aime. Que Dieu vous bénisse.
-
-
-

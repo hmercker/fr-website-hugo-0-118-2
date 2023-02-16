@@ -9,7 +9,7 @@ weight:
 ---
 ### Le message de Mathieu au réseau de lumière
 
-St Matthieu - reçu par Al Fike le 8 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 8 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Matthieu. Il est bon de voir que vous êtes en train de vous rapprocher les uns aux autres, de chercher la relation et de venir construire le lien d’amour qui est si important, qui a sa propre force et capacité pour répandre la lumière parmi vous dans ce grand réseau et treillis lumineux qui se construit dans votre monde. Oui, nous utilisons ces machines (internet) et ces moyens de communication afin de construire ce grand réseau parmi vous et parmi beaucoup d’autres. Il est important que vous continuiez à nourrir ce lien d’amour, à penser les uns aux autres, à prier les uns pour les autres et à laisser la lumière circuler parmi vous afin de renforcer ce Treillis de Lumière dans le monde.
 
@@ -26,6 +26,3 @@ Faites-en votre objectif chaque jour : Marcher en harmonie avec la Volonté de D
 Mes amis bien-aimés, puissiez-vous continuer à marcher à la lumière de l’Amour de Dieu. Puissiez-vous continuer à rechercher cette bénédiction avec chaque désir ardent de votre âme et de votre esprit d’être en harmonie avec Dieu dans l’amour et vous trouverez votre chemin, âmes bien-aimées. Tout va s’éclaircir. Tout sera une bénédiction. Tout sera un réveil. C’est la Volonté de Dieu pour vous, mes bien-aimés. C’est la Volonté de Dieu que vous et nous, en esprit, marchions ensemble dans le service pour le bien de l’humanité. C’est en train d’arriver. Cela ne cesse de se construire au fur et à mesure que vous continuez à vous éveiller à cet appel. Tout ira bien, mes bien-aimés. Tout se passera bien. La main de Dieu est sur vous. Ses anges sont proches. Comment les choses peuvent-elles être autres que bonnes et bénéfiques et pour le plus haut étant donné vos intentions pour tout cela.
 
 Âmes bien-aimées, que Dieu vous bénisse et vous garde près de lui. Mon amour est avec vous. Je suis Matthieu. Que Dieu vous bénisse.
-
-
-

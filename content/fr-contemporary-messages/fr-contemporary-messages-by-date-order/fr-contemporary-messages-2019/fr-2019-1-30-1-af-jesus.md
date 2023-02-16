@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment discerner la Vérité lorsque des messages provenant de différents médiums se contredisent ?
 
-Jésus - reçu par Al Fike le 30 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 30 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, c’est Jésus. Vous posez une question importante, mes beaux amis bien-aimés, concernant l’efficacité et l’exactitude d’un message reçu par l’intermédiaire d’un médium. Comme vous pouvez l’imaginer, il y a de nombreux éléments et aspects impliqués dans ce don. Le plus important est l’harmonisation de l’esprit et de l’âme, l’harmonisation de l’âme avec Dieu, et l’éveil de cette âme avec les bénédictions de l’Amour Divin qui ont une grande influence sur la qualité d’un message Céleste qui peut venir à travers un médium. La raison joue un rôle important dans les mots, les phrases, les thèmes et le contenu d’un message particulier.
 
@@ -48,6 +48,3 @@ Vous, âmes bien-aimées, avez commencé un voyage qui durera pour toute l’ét
 Allez à Dieu, mes bien-aimés, pour votre Vérité. Les mots ne sont que des mots, mais ce qu’ils transmettent peut inspirer un éveil à la Vérité dans votre âme, qui vous apportera joie, liberté et élévation.
 
 Que Dieu vous bénisse dans ce voyage. Je suis votre frère et votre ami. Je suis Jésus et je vous aime. Je vous aime, mes bien-aimés. Vous êtes proches de mon cœur. Je vous embrasse tous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

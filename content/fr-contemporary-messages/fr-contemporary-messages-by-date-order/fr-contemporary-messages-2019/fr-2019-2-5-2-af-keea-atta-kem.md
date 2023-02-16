@@ -9,9 +9,9 @@ weight:
 ---
 ### Sentir l’Amour
 
-Keea Atta Kem - reçu par Al Fike le 5 Février 2019, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 5 Février 2019, Gibsons, Colombie-Britannique, Canada.
 
-Bénédictions à vous, âmes bien-aimées. Je suis Keea-Atta Kem. Ce cher instrument a été béni par une profonde intuition et il a traversé sa vie sur une vague de sentiments et de compréhension intuitive des éléments de la vie. Et donc, pour lui, lors de la réception de ce don d’Amour, il y a une compréhension intuitive profonde de cette expérience car il connaît sa propre âme depuis de nombreuses années. C’est, comme il le dit, une bénédiction facile à recevoir consciemment.
+Bénédictions à vous, âmes bien-aimées. Je suis Keea Atta Kem. Ce cher instrument a été béni par une profonde intuition et il a traversé sa vie sur une vague de sentiments et de compréhension intuitive des éléments de la vie. Et donc, pour lui, lors de la réception de ce don d’Amour, il y a une compréhension intuitive profonde de cette expérience car il connaît sa propre âme depuis de nombreuses années. C’est, comme il le dit, une bénédiction facile à recevoir consciemment.
 
 Pour beaucoup d’entre vous, âmes bien-aimées, qui avez traversé les expériences de votre vie en utilisant les facultés de votre mental matériel et en vous déplaçant à travers les conditions de ce monde qui ne sont pas tout à fait propices à cette sensibilité, il est compréhensible que certains ne ressentent pas ce don si intensément ou ne savent même pas qu’ils ont reçu ce don.
 
@@ -25,9 +25,4 @@ De nombreuses choses attendent chaque âme qui aspire à ce don, car c’est bie
 
 Chacun d’entre vous sait qu’il est sur la bonne voie et qu’il connaîtra un réveil puissant qui le changera et l’amènera à la Vérité et à Dieu. Ce cadeau et la puissance de ce cadeau le feront dans le temps, dans la foi, dans la prière, ainsi vous serez bénis, âmes bien-aimées.
 
-Je suis Keea-Atta Kem et je vous bénis, mes bien-aimés. Je vous bénis dans la lumière et mon amour coule vers vous pour vous aider à alléger votre chemin et vous apporter une profonde compréhension et reconnaissance de votre âme. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Keea vous aime.
-
-
-
-
-
+Je suis Keea Atta Kem et je vous bénis, mes bien-aimés. Je vous bénis dans la lumière et mon amour coule vers vous pour vous aider à alléger votre chemin et vous apporter une profonde compréhension et reconnaissance de votre âme. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Keea vous aime.

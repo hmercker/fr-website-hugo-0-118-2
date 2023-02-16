@@ -9,7 +9,7 @@ weight:
 ---
 ### Nourrir ce centre de lumière ouvrira de nombreuses portes à l'avenir
 
-Augustin - reçu par Al Fike le 4 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 4 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant Augustin. Le rythme du changement dans votre monde s’accélère, âmes bien-aimées, et le rythme du changement dans vos propres vies suit le même chemin, s’accélérant également. De nombreuses bénédictions vous parviennent, à chacun d’entre vous, afin de soutenir vos efforts pour servir l’humanité et pour vous adapter aux temps à venir, avec les changements qui se manifestent dans votre monde.
 
@@ -34,6 +34,3 @@ Ces choix sont imprévus et surprenants, mais le plan de Dieu est beau, n’est-
 Vous vous embarquez dans un grand voyage, âmes bien-aimées, un grand voyage qui apportera de joyeuses et merveilleuses bénédictions. Vous verrez quelles grandes bénédictions Dieu a pour vous. Vous en viendrez à connaître de manière plus profonde ce qui est vraiment en vous alors que Dieu fait appel à vos dons, à votre lumière, et utilise ses instruments dans votre monde. Dieu vous bénit, âmes bien-aimées, et vous garde dans Sa lumière, Sa protection et Ses soins. Continuez à prier sincèrement pour recevoir Son cadeau d’Amour et dans ce cadeau d’Amour, beaucoup d’autres cadeaux font partie de Sa grande bénédiction sur votre âme.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin est avec vous, il vous aime, il continue à vous enseigner et à vous soutenir, toujours, mes bien-aimés, toujours. Que Dieu vous bénisse.
-
-
-

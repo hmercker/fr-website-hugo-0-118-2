@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour Divin est disponible pour que vous le demandiez
 
-Yogananda - reçu par Al Fike le 28 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 28 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Yogananda. En effet, mon professeur est venu vous rendre visite, mon cher fils. C’était un grand homme et c’est toujours un bel esprit de lumière (Sri Yukteswar). Il a labouré de nombreux champs spirituels dans mon pays d’origine, un endroit où la compréhension spirituelle était beaucoup plus répandue que dans le monde occidental. Malheureusement, même mon pays semble être venu à la pensée occidentale, à la pensée matérialiste. Beaucoup abandonnent ces vieilles façons de vivre leur vie plus proches de l’esprit que de la matière et cela m’attriste. Cela m’attriste que le monde entier semble si consumé par la pensée et l’action matérielles, laissant derrière lui des compréhensions qui sont plus profondes ainsi que Dieu.
 
@@ -22,6 +22,3 @@ Vous y trouverez tant de réconfort, de paix, de joie, de calme et d’Amour. Ce
 Il y a une grande lumière dans cette pièce, mes bien-aimés, de belles âmes. Il y a un grand potentiel pour éveiller votre âme ici aujourd’hui. Buvez profondément, mes amis. Sachez que vous avez un don rare parmi vous, les bénédictions des forces angéliques, le Toucher de la Source Céleste. C’est à vous de demander, à vous toujours parce qu’il n’y a aucune restriction pour ceux qui désirent, au plus profond d’eux-mêmes, le toucher, l’éveil, l’expansion de leur âme dans l’Amour. C’est avec vous maintenant, mes amis. C’est avec vous maintenant. Alors allons-nous nous immerger ensemble dans ces eaux vivantes et ressentir la joie d’un cœur comblé d’Amour ?
 
 Que Dieu vous bénisse. Je suis Yogananda et mon amour et votre amour va à Dieu en reconnaissance de l’émerveillement de l’univers créé dans l’amour. Que Dieu vous bénisse profondément, mes amis.
-
-
-

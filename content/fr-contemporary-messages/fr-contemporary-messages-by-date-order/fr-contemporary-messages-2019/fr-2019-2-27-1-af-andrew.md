@@ -9,7 +9,7 @@ weight:
 ---
 ### Médiumnité d'Al et capacité de communiquer pour tous
 
-André - reçu par Al Fike le 27 Février 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 27 Février 2019, Homosassa Springs, FL, USA.
 
 Je souhaite parler un peu plus de la médiumnité et de cet instrument en ce qui concerne le travail que nous faisons ensemble. Cet instrument est un mécanisme finement ajusté qui a été développé pendant de nombreuses années, même avant qu’il ne s’engage dans ce travail. Nous avons anticipé la possibilité de l’utiliser et donc, pendant de nombreuses années, nous avons continué à développer en lui ces facultés et ces capacités à la fois physiques et spirituelles afin qu’il puisse remplir cette fonction.
 
@@ -26,6 +26,3 @@ Il y a toujours des occasions de communiquer. Cela peut ne pas être aussi clair
 Puissiez-vous arriver à cet endroit, âmes bien-aimées. Mais vous devez venir à la table préparés et assez forts pour résister à ce que vous voyez, à ce que vous apprenez à connaître, la vraie réalité qui est la création de l’homme et la vraie réalité qui est la Création de Dieu, pour être capable de séparer les deux, de discerner avec sagesse et de choisir d’être dans le flux de la réalité de Dieu. Lorsque vous serez prêts pour cela, pleinement prêts pour cela, alors cela sera et cela viendra en vous comme la vérité et le fondement de votre existence.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis André. Mon amour est avec vous et je suis toujours avec cet instrument, son compagnon dans la vie que j’aime profondément et que je ne quitterai jamais. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

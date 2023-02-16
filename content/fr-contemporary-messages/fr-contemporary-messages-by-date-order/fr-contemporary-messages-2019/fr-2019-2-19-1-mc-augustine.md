@@ -9,7 +9,7 @@ weight:
 ---
 ### Le mental crée l'agitation mais l'amour divin est la clé de l'harmonie
 
-Augustin - reçu par Maureen Cardoso le 19 Février 2019, Abbotsford, Colombie-Britannique, Canada
+Augustin - reçu par Maureen Cardoso le 19 Février 2019, Abbotsford, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. Vos prières sont entendues et elles parviennent à Dieu dans leur sincérité. Sache, mon cher fils, que ta prière pour la chère âme qui est entrée dans le voyage terrestre, ta prière pour que l’Amour Divin bénisse cette chère âme est entendue et réalisée. Et oui, s’il vous plaît, continuez à prier pour cette chère âme car c’est une façon pour vous d’aider à apporter de l’amour à ce nouveau-né.
 
@@ -26,6 +26,3 @@ Votre monde matériel a beaucoup de distractions. Nous le comprenons, mais faite
 Il est bon que vous vous réunissiez ainsi pour prier, car cela vous aide à vous renforcer en tant que travailleurs de la lumière ici sur Terre. Nous sommes très heureux de voir comment ces Cercles de Lumière s’étendent et touchent de nombreuses personnes.
 
 Que Dieu bénisse chacun de vous, mes bien-aimés. Je suis Augustin votre enseignant et je me tiens à vos côtés, je vous guide, vous influence et vous enseigne. Mon amour est avec vous toujours plus, Dieu vous bénisse.
-
-
-

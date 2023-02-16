@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la lumière pour surmonter les ténèbres
 
-Marc - reçu par Al Fike le 4 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 4 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Voyez-vous comment les choses se mettent en place, que votre objectif et vos efforts ne sont pas compliqués et ne nécessitent pas beaucoup de planification et de discussions ? Les éléments du service de Dieu sont simples : amour, compassion, intention, humilité. Ce sont là des attributs simples que chaque être humain peut exprimer dans le monde s’il en a le choix et le désir. Lorsque vos âmes sont touchées par l’Amour suprême, la belle Essence de Dieu, alors vous pouvez ajouter la sagesse et les facultés et perceptions de l’âme dans vos efforts pour servir l’humanité.
 
@@ -44,6 +44,3 @@ Soyez ces phares de lumière, âmes bien-aimées. Choisissez toujours la lumièr
 Âmes bien-aimées, je vous remercie de vos efforts pour être dans la lumière et pour vaincre les ténèbres, pour servir Dieu de ces manières simples mais profondes, et pour être toujours une lumière partout où vous allez, qui que vous rencontriez.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Marc et je vous aime tous, de si belles âmes, des lumières dans le ciel de Dieu, des fleurs dans Son jardin. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### Questions et réponses sur la période de sommeil
 
-St Jean - reçu par Al Fike le 27 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 27 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/Période de Sommeil.png)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-période-de-sommeil.png)
 
 Que Dieu vous bénisse, je suis Jean le Bien-Aimé. Oui, vous vous interrogez sur le voyage de vos âmes lorsque vous dormez la nuit. Où allez-vous ? A qui parlez-vous ? Avez-vous un but et une mission pendant ces périodes de sommeil ? Dieu utilise Ses instruments de bien des façons. Lorsque vous êtes dans cet état de sommeil, l’esprit est plus détendu et capable de libérer son contrôle, il y a donc plus de possibilités, de flexibilité dans le mouvement de l’âme dans votre monde et dans le nôtre. Car le voile entre les deux est vraiment très mince.
 
@@ -35,53 +35,46 @@ Il y a ceux qui, doués, sont conscients de ces expériences, de sorte que certa
 
 J’espère avoir répondu à vos questions. Je vais rester un moment pour répondre à vos questions à ce sujet si vous le souhaitez.
 
-*J : Y a-t-il des cliniques, des lieux éducatifs à visiter ? Est-ce que nos guides, est-ce que nous établissons un rapport plus profond avec nos guides pour le développement personnel ?*
+*[J : Y a-t-il des cliniques, des lieux éducatifs à visiter ? Est-ce que nos guides, est-ce que nous établissons un rapport plus profond avec nos guides pour le développement personnel ?]*
 
 Oui, cet état dans le corps spirituel réplique ce que serait l’expérience si vous étiez désincarné et dans votre corps spirituel quelle que soit la condition spirituelle avec laquelle vous pourriez transiter. Par conséquent, il y a une liberté d’errer et d’expérimenter ces différents lieux dans le monde de l’esprit, limitée par le développement de votre propre âme. Mais néanmoins, il y a beaucoup de lieux et beaucoup d’expériences que vous pouvez avoir dans la période de sommeil. Oui, vous communiquez avec vos guides et enseignants dans cet état. Il y a beaucoup de conversations et d’occasions de converser avec vos guides.
 
-*J : Serait-il utile d’énoncer nos intentions avant de nous endormir ou de demander ?*
+*[J : Serait-il utile d’énoncer nos intentions avant de nous endormir ou de demander ?]*
 
 Vos âmes savent, mes bien-aimés, mais en déclarant ces choses, vous pourrez être plus conscients lors de votre réveil, ce qui vous aidera à être pleinement conscients de ces expériences. Pourtant, dans cette condition d’âme avec le corps spirituel, il y a beaucoup de choses dont vous êtes conscients, beaucoup d’expériences que vous anticipez et dont vous vous souvenez dans l’âme. Ces expériences et souvenirs vous viendront une fois que vous aurez transité dans la vie spirituelle. Vous verrez combien votre vie a été riche alors que vous avez connu les bénédictions de la chair, de la condition terrestre et les bénédictions du monde spirituel que vous expérimentez chaque fois que vous êtes dans votre phase du sommeil. Comme nous vous l’avons souvent dit, il y a beaucoup de couches de votre existence et beaucoup de compréhensions qui, bien qu’elles ne remontent pas pleinement à la surface de votre conscience, sont néanmoins réelles et ont leur répercussion sur votre expérience de vie et votre progression de l’âme. De grandes bénédictions vous viennent de cette façon alors que Dieu continue à vous conduire sur votre chemin d’éveil et d’expansion d’âme dans l’Amour, une telle bénédiction en effet.
 
-*J : Donc lors de notre transition, la corde argentée est rompue. Y a-t-il, des restrictions dans le monde des esprits qui sont imposées par la corde d’argent ?*
+*[J : Donc lors de notre transition, la corde argentée est rompue. Y a-t-il, des restrictions dans le monde des esprits qui sont imposées par la corde d’argent ?]*
 
 Oui, c’est exact. Il y a des limites et vous êtes toujours protégé et guidé dans cet état. Par conséquent, la corde d’argent ne peut pas être rompue alors que vous voyagez de cette façon, mais nous ne pouvons pas vous emmener trop loin dans les domaines de l’esprit car cela serait stressant pour votre état physique et votre état spirituel. Par conséquent, vous êtes donc limité à une certaine strate et à un certain niveau d’expérience, bien que ceux-ci ne soient en aucun cas limités à votre croissance, à votre expérience et à votre disponibilité. Il y a beaucoup de choses à l’intérieur de ces strates que vous pouvez expérimenter, travailler et voyager à travers. Il y a là beaucoup de bénédictions, mes bien-aimés, beaucoup de bénédictions en effet.
 
-*L : Planifions-nous à l’état de sommeil ce qui va se passer dans notre vie physique sur le plan terrestre ?*
+*[L : Planifions-nous à l’état de sommeil ce qui va se passer dans notre vie physique sur le plan terrestre ?]*
 
 Oui, vous êtes souvent conscient de ce qui vous attend et cette perception s’infiltre dans votre conscience, vous donnant un sens de votre avenir, de vos expériences de vie et des circonstances. Il est vrai en effet que de nombreuses solutions à vos problèmes et dilemmes peuvent venir de cette façon. Ils peuvent venir clairement et à cet égard, il est important de prier pour obtenir une réponse à vos questions ou dilemmes.
 
-*L : Rencontrons-nous d’autres personnes durant notre phase de sommeil avec lesquelles nous avons des problèmes à résoudre ?*
+*[L : Rencontrons-nous d’autres personnes durant notre phase de sommeil avec lesquelles nous avons des problèmes à résoudre ?]*
 
 Bien sûr, si l’autre partie est prête à la rencontre. Ces occasions sont saisies pour résoudre et apporter l’harmonie dans le monde de l’esprit. La fluidité des possibilités et le mouvement et les connexions entre les âmes sont très enrichis et avec un grand degré de possibilités.
 
-*M : Serait-ce la même chose pour une personne qui a un fuseau horaire différent ? Si une personne est éveillée et une autre est dans la phase de sommeil, comment peuvent-ils se rencontrer ?*
+*[M : Serait-ce la même chose pour une personne qui a un fuseau horaire différent ? Si une personne est éveillée et une autre est dans la phase de sommeil, comment peuvent-ils se rencontrer ?]*
 
 C’est une situation plus complexe, mais il y a des moments où ce lien est établi. Cela exige une approche plus sophistiquée et comme vous l’avez tous expérimenté avec vos amis dans d’autres parties du monde, lorsque vous priez ensemble, vous avez senti leur présence et ils ont senti votre présence. C’est donc une manifestation de cette façon particulière d’être ensemble. Mais pour avoir une longue période de communication et de rapport l’un avec l’autre, il est beaucoup plus facile lorsque les deux parties sont dans la phase de sommeil et guidées ensemble de cette façon.
 
-*L : Durant notre de sommeil, sommes-nous plus conscients de notre âme ?*
+*[L : Durant notre de sommeil, sommes-nous plus conscients de notre âme ?]*
 
 Oui, il vous est plus facile d’être conscients à votre état d’âme durant votre sommeil parce que vous n’êtes pas aussi inhibé par votre état mental et vos préjugés. Il y a encore une certaine influence du mental, du mental matériel, mais elle n’est pas si restrictive et il y a donc pour chacun de vous un grand sentiment de liberté et d’expansion lorsque vous êtes dans cet état de voyage de l’âme.
 
 Avons-nous terminé avec nos questions, mes bien-aimés ?
 
-*(J : Jamais)*
+*[J : Jamais]*
 
-*L : Eh bien, merci. Vous avez répondu à notre question sur la période de sommeil et à nos autres questions pendant que vous étiez ici. Je vous remercie.*
+*[L : Eh bien, merci. Vous avez répondu à notre question sur la période de sommeil et à nos autres questions pendant que vous étiez ici. Je vous remercie.]*
 
 Je suis très heureux de vous soutenir de cette façon, d’être avec vous. Bien que je ne vienne pas souvent pour parler, sachez que je suis connecté avec vous de bien des façons et qu’en effet, je vous donne des cours particuliers, comme beaucoup d’entre nous, durant votre période de sommeil. Nous portons chacun une certaine responsabilité envers votre progrès spirituel et nous le faisons avec beaucoup de soin, d’amour et d’attention quant à la progression de votre âme et le réveil de toutes vos facultés, âmes bien-aimées. Et ainsi vous voyez que cet état unique de conscience et d’expérience n’est qu’une partie du flux entier de votre vie spirituelle et physique. Dieu vous a donné un grand don pour pouvoir communiquer à tous les niveaux et de toutes les manières, ensemble et avec nous, avec Dieu. Souvent, vous vous réunissez dans la prière alors que vous êtes dans votre période de sommeil et d’expériences, de profondes et sincères prises de conscience de l’Amour de Dieu, et de nombreuses autres choses et bénédictions, de nombreuses bénédictions.
 
-*J : J’aimerais avoir une leçon, plus d’échanges, sur les profondeurs de nos âmes et l’éveil de l’âme et comment cela se passe mais ce n’est peut-être pas le bon moment ?*
+*[J : J’aimerais avoir une leçon, plus d’échanges, sur les profondeurs de nos âmes et l’éveil de l’âme et comment cela se passe mais ce n’est peut-être pas le bon moment ?]*
 
 Oui, il s’agit d’un sujet différent et nous essaierons de prendre les dispositions nécessaires pour parler de cette question, bien que nous en ayons déjà parlé à de très nombreuses reprises. Il est difficile de décrire ce qu’est l’âme. Vous désirez amener les choses à une compréhension physique, une image, quelque chose de matériel afin de connaître et de vous relier à ces vérités. Mais pour l’âme, c’est en effet très difficile car il n’y a pas de mots ni de concepts précis pour décrire la nature même de l’âme. Mais nous essaierons de vous aider dans ce voyage d’éveil et de connaissance de ces questions.
 
 Mais pour l’instant, je dirai : Que Dieu vous bénisse, mes âmes bien-aimées. Puissiez-vous continuer à chercher et à rechercher la Vérité la plus haute, la plus grande des bénédictions, afin que l’Amour de Dieu continue à couler dans vos âmes, cette bénédiction sans fin qui continue à nourrir et à éveiller et à vous apporter une grande perspicacité et la Vérité, cet Amour. Que cet Amour vous embrasse et vous apporte paix et joie profondes, sagesse et vérité. Que Dieu vous bénisse. Je suis Jean et mon amour est avec vous.
 
 Que Dieu vous bénisse.
-
-
-
-
-
-
-

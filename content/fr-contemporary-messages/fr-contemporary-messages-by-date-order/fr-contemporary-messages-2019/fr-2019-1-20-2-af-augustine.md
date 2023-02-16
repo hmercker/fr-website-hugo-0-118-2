@@ -9,7 +9,7 @@ weight:
 ---
 ### Dire les vérités de Dieu en termes simples et aimants
 
-Augustin - reçu par Al Fike le 20 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 20 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes bien-aimées, je suis Augustin, votre enseignant. J’ai vécu il y a de nombreuses années dans un pays (l’Algérie) en Afrique du Nord. J’étais l’évêque d’Hippone. Chères âmes bien-aimées, nous avons connecté chacun d’entre vous au sein de ce cercle de lumière, bien que vous soyez en effet dispersés à travers ce globe. Vos âmes et les désirs de vos âmes vous ont réunis. Ainsi, vous créez un cercle de lumière dans le monde, un puissant cercle de lumière qui émane effectivement l’amour et la lumière, les bénédictions et la paix. Ainsi, nous sommes en mesure d’utiliser vos efforts au profit de l’humanité. De cette façon, les bénédictions de Dieu circulent à travers ce grand cercle et augmentent la force de ce réseau de lumière que nous essayons de tisser à travers votre monde.
 
@@ -22,8 +22,3 @@ Oui, il est important de dire la vérité et d’avoir les mots de la vérité d
 Que Dieu vous bénisse chaque jour, âmes bien-aimées. Que Son Amour se déverse dans votre âme. Que vos désirs soient intenses. Que l’ouverture en vous soit large et réceptive au toucher de Dieu et vous en viendrez à connaître une joie si profonde, un tel émerveillement dans vos prières et vos moments avec Dieu que cela sera le centre et le cœur de votre vie et donnera un sens à tout ce que vous faites.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin et mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Augustin vous aime et Dieu vous aime au-delà de toute mesure. Que Dieu vous bénisse.
-
-
-
-
-

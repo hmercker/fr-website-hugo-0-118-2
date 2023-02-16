@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez toujours le plus haut
 
-Moïse - reçu par Al Fike le 27 Février 2019, Gibsons, Colombie-Britannique, Canada
+Moïse - reçu par Al Fike le 27 Février 2019, Homosassa Springs, FL, USA.
 
 Cherchez toujours le plus haut, pour le plus grand bien, pour les plus grandes bénédictions. Les résultats les plus gracieux et les plus beaux de tout effort spirituel proviennent de vos propres inclinations, prières, désirs et intentions de rechercher le plus haut. Lorsque vous marchez sur ce chemin, le chemin de l’Amour Divin, le chemin du service, le chemin qui consiste à être un canal d’amour pour Dieu, vous devez toujours fixer vos intentions au plus haut. De cette façon, tout ce que vous faites viendra dans le flux de l’amour. Tout ce qui est possible viendra avec le flux de l’amour et tout ce qui sera guéri, nettoyé, élevé et éveillé viendra avec le pouvoir de l’amour.
 
@@ -34,6 +34,3 @@ Que Dieu vous bénisse, âmes bien-aimées, qu’il vous garde dans Sa Lumière,
 Que Dieu vous bénisse, mes bien-aimés. Je suis Moïse. J’ai fait un long chemin pour vous parler et pourtant vous êtes dans ma conscience et dans la conscience des anges car il y en a si peu qui souhaitent suivre le chemin de l’Amour de Dieu d’une manière si consciente et si belle. Vous êtes honorés par les anges pour votre force et votre courage, votre ténacité et vos efforts. Vous verrez, lorsque vous arriverez de notre côté de la vie, combien de personnes vous connaissent, combien ont prié pour vous, combien travaillent avec vous. C’est un grand effort concentré sur très peu de personnes dans votre monde.
 
 Pourtant, dans ce petit nombre que vous êtes, et dans ceux qui sont avec vous, et dans ceux que vous allez rencontrer, se trouve l’espoir du monde de tourner ce grand tournant vers Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous.
-
-
-

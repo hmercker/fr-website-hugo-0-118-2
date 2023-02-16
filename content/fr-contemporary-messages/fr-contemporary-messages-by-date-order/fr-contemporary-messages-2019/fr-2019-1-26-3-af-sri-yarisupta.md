@@ -9,7 +9,7 @@ weight:
 ---
 ### Réponses aux questions sur la guérison par l'Amour Divin
 
-Sri Yarisupta - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Sri Yarisupta - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que la lumière brille sur chacun de vous et sur votre monde. Je suis Sri Yarisupta et je suis venu pour répondre à ta question fille bien-aimée. Il y a beaucoup d’énergies de guérison dans l’univers et chaque objet physique dans l’univers a une lumière – une énergie à son sujet. Cette lumière de la terre et tout ce qui émane de cette terre est la force de guérison à laquelle tu te réfères dans ta pratique de guérison.
 

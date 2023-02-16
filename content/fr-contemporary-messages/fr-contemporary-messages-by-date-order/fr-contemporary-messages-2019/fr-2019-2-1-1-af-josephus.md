@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Facultés de l'âme 
+### Facultés de l'âme
 
-Josephus - reçu par Al Fike le 1 Février 2019, Gibsons, Colombie-Britannique, Canada
+Josephus - reçu par Al Fike le 1 Février 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que Son Amour trouve un grand afflux dans votre âme. Mon nom est Flavius Josèphe, je n’ai jamais parlé antérieurement à travers cet instrument, mais il m’a été demandé de parler des facultés de l’âme. Je fus un philosophe et un enseignant de la foi Juive et j’ai aidé à formuler les écritures de cette religion. Maintenant, je réside dans le Royaume Céleste. J’ai suivi les enseignements du Messie d’Israël, notre Jésus bien-aimé.
 
@@ -66,6 +66,3 @@ Cette boussole morale en vous est celle de l’âme, et c’est une autre facult
 Je pense que j’ai couvert beaucoup d’aspects des facultés de l’âme aujourd’hui. Je reviendrai peut-être un autre jour pour en dire davantage à ce sujet, mais je suis très satisfait de ce que j’ai partagé aujourd’hui comme j’espère que vous l’êtes, mes bien-aimés. Cela peut ajouter de la clarté et de l’inspiration au voyage de chacun pour connaître l’âme. Je souhaite sincèrement que vous poursuiviez vos efforts pour recevoir ce glorieux don de l’Amour Divin, pour éveiller vos facultés et les transformer en Amour. Car c’est le chemin le plus haut que l’on puisse parcourir et qui débouche sur les plus hautes expressions de vos facultés, éveillées dans l’Amour, éveillées par cette touche impressionnante et merveilleuse de l’Essence de Dieu.
 
 Je vous remercie, mes chers amis, de m’avoir écouté. Je suis heureux d’être venu pour vous parler car il n’y a pas assez d’opportunités pour que nous, dans le Royaume Céleste, nous puissions vous parler de ces questions sur Terre et c’est un grand cadeau et je vous en remercie. Que l’Amour de Dieu continue à vous élever, mes amis, à vous protéger, à vous informer et à vous transformer pour que vous puissiez vraiment vous connaître vous-mêmes comme enfants de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse. Je suis Flavius Josèphe.
-
-
-

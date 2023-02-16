@@ -89,6 +89,7 @@ William Howard Taft | [Les politiciens dans le monde des esprits](/fr-contempora
 William Howard Taft | [Les politiciens dans le monde des esprits - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-2-fab-william-howard-taft/) | 18 Juin 2008
 William Howard Taft | [Les politiciens dans le monde des esprits - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-3-fab-william-howard-taft/) | 18 Juin 2008
 William Howard Taft | [Les politiciens dans le monde des esprits - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-4-fab-william-howard-taft/) | 18 Juin 2008
+Jésus | [Une confirmation de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-23-1-na-jesus/) | 23 Juin 2008
 Jésus | [Démontrer l'amour dans le corps et dans l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-29-1-dl-jesus/) | 29 Juin 2008
 Marie-Madeleine | [Portez la lumière de l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-2-1-dl-mary-magdalene/) | 2 Juillet 2008
 George Washington | [La culpabilité de George Washington](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-23-1-fab-george-washington/) | 23 Juillet 2008

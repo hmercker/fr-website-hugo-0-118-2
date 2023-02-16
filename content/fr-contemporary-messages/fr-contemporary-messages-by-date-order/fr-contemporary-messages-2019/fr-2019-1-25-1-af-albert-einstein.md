@@ -9,7 +9,7 @@ weight:
 ---
 ### De nombreux scientifiques en esprit travaillent à l'établissement de meilleures communications entre les mondes
 
-Albert Einstein - reçu par Al Fike le 25 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Albert Einstein - reçu par Al Fike le 25 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je vous bénis mes amis. Je suis Albert Einstein. Moi aussi je suis impliqué dans ce travail pour forger des communications plus profondes entre le monde de l’esprit et le monde physique car votre monde a grand besoin de notre soutien et de notre sagesse. Il y a un grand effort pour apporter ce que nous pouvons à travers votre côté de la vie et de le faire avec sagesse, clarté et précision. Nous travaillerons avec vous dans les temps à venir pour apporter ce que nous pouvons qui sera utile et important pour faire face aux changements à venir dans le monde.
 
@@ -20,6 +20,3 @@ Chacun d’entre vous grandit dans son âme et son esprit, affinant qui il est e
 Je suis venu pour vous encourager et vous informer de nos intentions afin que vous puissiez être utilisés, chacun d’entre vous, alors que vous formez un seul conduit de communication, afin que vous puissiez être utilisés pour apporter des vérités plus profondes et de plus grands aperçus et une pleine compréhension des voies de l’univers. Nous nous réunissons mes amis avec l’espoir qu’un nouveau seuil sera atteint, avec de plus grandes possibilités pour la Vérité, pour la Lumière et pour l’harmonie.
 
 Que Dieu vous bénisse mes amis. Je suis à votre service. Je suis Albert Einstein et je suis heureux de m’adresser à vous aujourd’hui, un cadeau que vous avez apporté, mes amis, par votre présence et vos intentions et je vous en remercie. Puissiez-vous continuer à vous efforcer et à chercher à servir l’humanité dans l’Amour, dans la Vérité, dans la Lumière, et que Dieu vous bénisse dans vos âmes avec Son Amour. Merci. Merci mes amis.
-
-
-

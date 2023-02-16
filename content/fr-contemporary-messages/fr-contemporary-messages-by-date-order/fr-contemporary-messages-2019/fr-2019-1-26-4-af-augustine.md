@@ -9,7 +9,7 @@ weight:
 ---
 ### Questions concernant les directives sur les changements terrestres
 
-Augustin - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 C’est votre enseignant Augustin. Puisse l’Amour du Père continuer à se déverser dans vos âmes en une toujours plus grande abondance, allumant les dons et les perceptions à l’intérieur, afin que vous puissiez être en mesure de discerner la Vérité à tout moment, de connaître la Volonté et la guidance de Dieu à tout moment, d’être dans le flux de la Volonté de Dieu à tout moment. C’est notre désir pour vous, âmes bien-aimées, de connaître depuis ce lieu profond en vous tous les aspects et les invitations guidées et les connaissances qui informeront votre journée alors que vous cherchez à être les instruments d’Amour du Père dans votre monde.
 
@@ -50,6 +50,3 @@ Bien que nous ne puissions pas, et que personne ne puisse, garantir la réalisat
 Ainsi, mes âmes bien-aimées, je terminerai ma réflexion en espérant que vous avez été encouragés et assurés que tout ce qui est dans le flux et que la Volonté de Dieu sera réalisée au temps de Dieu, à la manière de Dieu. Pour vous, bien-aimés, pour écouter et marcher avec la connaissance et la vérité et le sens de l’harmonie qui vient avec chaque goutte de guidance, chaque désir de servir, chaque effort pour être dans l’amour, le flux de l’Amour de Dieu.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées. Je suis votre enseignant, Augustin, et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

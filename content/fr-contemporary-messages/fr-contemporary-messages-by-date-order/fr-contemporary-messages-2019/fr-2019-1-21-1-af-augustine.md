@@ -9,7 +9,7 @@ weight:
 ---
 ### Chemin de l’Amour Divin et Chemin de l’Amour Naturel
 
-Augustin - reçu par Al Fike le 21 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 21 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis votre enseignant Augustin. Le manteau de paix de Dieu est descendu sur vous, mes bien-aimés. Comme les ailes des colombes qui se déploient, vous enveloppent de Lumière, ainsi vous êtes élevés et bénis de la grâce de Dieu sur vous. La grande paix qui dépasse toute compréhension est avec vous, âmes bien-aimées. Lorsque vous sentez cette présence de paix, sachez que Dieu est proche et que vous êtes effectivement enveloppés de la Lumière de la Présence de Dieu. Dans cette belle Lumière, ouvrez vos âmes, ouvrez vos âmes, mes bien-aimés, et buvez profondément de ces eaux vives, car l’Esprit Saint vient transmettre l’Amour de Dieu et attend votre soif pour cette bénédiction.
 
@@ -24,6 +24,3 @@ Dieu vous guidera, mes bien-aimés. Dieu vous portera sur un chemin unique et be
 Dieu donne à l’humanité, à chaque individu créé dans votre monde, l’opportunité d’émerger des réalités de l’esprit vers la vérité de l’âme. De cette façon, beaucoup de choses peuvent être changées et guéries, éveillées et manifestées dans votre monde. C’est la prochaine étape pour l’humanité, mes bien-aimés. Afin de réduire toutes les perturbations, les harmonies et la douleur que l’homme a créées, cette prochaine étape doit être franchie. Cet éveil d’une sagesse et d’un potentiel plus profonds doit venir au premier plan.
 
 Pourtant, tout le monde ne participera pas à ce voyage, car Dieu donne à chacun le libre arbitre, la possibilité de choisir et ils peuvent choisir une autre voie, celle de l’homme naturel. En cela, Dieu les bénira et les guidera, mais la profondeur et l’acuité des connaissances de l’âme ne feront pas partie de cette réalité.
-
-
-

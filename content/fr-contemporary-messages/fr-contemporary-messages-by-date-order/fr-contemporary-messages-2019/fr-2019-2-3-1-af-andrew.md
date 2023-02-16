@@ -9,7 +9,7 @@ weight:
 ---
 ### La porte de la vérité s'ouvre avec l'Amour de Dieu
 
-André - reçu par Al Fike le 3 Février 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 3 Février 2019, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, c’est André. Amis bien-aimés, belles âmes, que Dieu bénisse votre âme avec un grand afflux de Son Amour. Que votre âme aspire toujours plus intensément à ce don. Puissiez-vous apprendre à connaître vos propres âmes comme des expressions vraies et puissantes de votre être. Car c’est dans cette ouverture de la conscience de l’âme que vous vous développez vraiment spirituellement, que les éveils et les compréhensions des lois et de la création que Dieu a créées viennent à votre conscience et que vous êtes guidés le long d’un Chemin de Lumière, sécurisés dans l’Amour, éveillés dans la joie toujours croissante qui vient avec une âme qui est guérie et éveillée dans l’Amour.
 
@@ -24,6 +24,3 @@ Mes bien-aimés, avec humilité et patience, avec un désir d’atteindre le plu
 Il y a beaucoup à venir pour chacun d’entre vous, mes bien-aimés, beaucoup de réveils, beaucoup d’expériences, beaucoup de bénédictions et un grand Amour. Continuez à prier et à être ouvert à ce que Dieu a à vous donner et en cela, tout se déroulera dans l’harmonie et le timing parfaits de Dieu. Chacun de vous a un ange qui le guide et le protège. En effet, vous êtes assurés de marcher dans la Lumière aussi longtemps que vous continuez à marcher dans la Vérité. De nombreuses bénédictions viendront en cela.
 
 Dieu vous bénisse, âmes bien-aimées. Je suis André et mon amour est avec vous. De nombreux anges prient pour votre éveil et votre croissance continus dans l’Amour et il en sera ainsi, comme Dieu le désire pour chacun d’entre vous de connaître ce grand cadeau dans toute sa beauté, ses complexités et ses bénédictions. Que Dieu vous bénisse. Je suis André. Que Dieu vous bénisse.
-
-
-

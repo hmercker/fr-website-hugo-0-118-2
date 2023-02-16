@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouvrir son âme au don de l'Amour Divin apporte l'expiation
 
-Seretta Kem - reçu par Maureen Cardoso le 17 Février 2019, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 17 Février 2019, First United Spiritualist Church, Burnaby, Colombie-Britannique, Canada.
 
 Je m’appelle Seretta Kem et je viens être avec vous pour soutenir les chères âmes qui ont partagé avec vous ce qu’est l’Amour Divin, et le sujet dont elles ont parlé, l’expiation. Âmes bien-aimées, en ouvrant de votre être même, l’essence de votre âme et en invitant le cadeau si facilement disponible – l’Amour Divin – dans votre âme, vous serez changés pour toujours de la manière la plus élevée. Cet Amour, mes chers amis, est gratuit. Il coule constamment vers vous et vous, de votre propre volonté, devez faire le choix de le recevoir. Notre Créateur bien-aimé a donné à chacun de nous le libre arbitre. Avec ce don, nous devons choisir, choisir de recevoir l’Essence de Dieu, l’agent de changement, ce qui apportera l’harmonie en vous et autour de vous.
 
@@ -22,6 +22,3 @@ Mes amis, lorsque je vivais sur votre terre, je vivais dans le pays que vous app
 C’est une bénédiction d’être avec vous dans ce cercle de prière maintenant. Il y a beaucoup d’anges parmi vous. Vous pouvez inviter l’ange qui se tient à vos côtés, l’inviter dans votre vie, dans votre maison, pour vous aider. C’est un plaisir pour nous de servir Dieu de cette manière et d’être proches de vous. Mais, avant tout, de vos âmes aimantes, tendez la main à Dieu, demandez à Dieu de vous bénir de la Grâce de Son Essence. Ouvrez-vous à recevoir cet Amour qui viendra par la Grâce de l’Esprit Saint, avec son messager d’Amour. Vous êtes bénis par l’Essence d’Amour dans votre âme en ce moment même et j’espère que vous pouvez le ressentir. Ceci est disponible à tout moment. Il vous suffit de vous arrêter, de prendre un moment, de tendre la main et de recevoir.
 
 Mon amour est avec vous, je suis Seretta Kem et je vous remercie d’avoir écouté mes paroles et d’avoir ouvert vos âmes à la Grâce de l’Amour de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Bonne nuit.
-
-
-

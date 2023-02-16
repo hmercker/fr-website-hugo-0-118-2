@@ -9,13 +9,13 @@ weight:
 ---
 ### Comment unifier des croyances diverses ?
 
-Augustin - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
-Que Dieu vous bénisse. Je suis Augustin, votre enseignant. Cette âme chère et bien-aimée est un membre du Royaume Céleste et un merveilleux enseignant et guérisseur et nous sommes heureux qu’il soit venu pour aider à clarifier vos questions. (Sri Yarisupta)
+Que Dieu vous bénisse. Je suis Augustin, votre enseignant. Cette âme chère et bien-aimée est un membre du Royaume Céleste et un merveilleux enseignant et guérisseur et nous sommes heureux qu’il soit venu pour aider à clarifier vos questions. ([Sri Yarisupta](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/))
 
 Maintenant, notre fille a une question concernant la façon dont les différents points de vue et individus dans notre monde, votre monde, vont se réunir en harmonie. Est-ce que c’est ce que vous avez demandé ma fille ?
 
-(D- Oui)
+*[D- Oui]*
 
 Et c’est une bonne question, absolument, une bonne question parce que comme vous voyez les variantes et les différences de perspectives dans le monde et comment, mentalement, les esprits de l’humanité continuent à prendre un grand plaisir et une grande fierté dans le désir de démarquer leur perspective d’une autre. Il y a tant de peur dans le monde, tant de désir de reconnaissance parce que si peu se sentent aimés et cherchent ceux qui les reconnaissent. Ils sont si nombreux à imposer leurs opinions et leurs idées à qui veut bien les écouter. Ils défient ceux qui, dans le monde, ne sont pas en harmonie avec la vérité. Et il en a été ainsi pendant des millénaires dans votre monde, cette terrible condition de peur et de jugement, de désir de pouvoir, de désir d’avoir raison, d’être rempli d’un sens de soi qui est basé sur les besoins de l’esprit plutôt que sur le doux amour de l’âme.
 
@@ -34,6 +34,3 @@ Cela ne ressemble à rien de ce que vous avez déjà vécu, âmes bien-aimées. 
 De nombreuses bénédictions sont à venir, âmes bien-aimées. Vous continuez à aspirer aux réponses, aux réveils, aux manifestations, à toutes les bénédictions de Dieu. Dieu connaît vos pensées, vos désirs et vos motivations et Il vous guidera en fonction de vos choix et de votre capacité à avancer dans l’Amour, la Lumière et la paix. Beaucoup de choses se produiront. Beaucoup vous sera accordé, âmes bien-aimées, car si peu comprennent vraiment les raisons de ce qui vient et l’acceptent et sont prêts à marcher dans la direction du changement sans peur, sans confusion et sans résistance. Soyez vos âmes, mes bien-aimés. Marchez dans la lumière de vos propres âmes et de cette façon, Dieu informera chaque pas et guidera chaque jour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et j’apprécie vos curiosités et vos questions exprimant les désirs de votre âme. Dieu répondra à tout en temps voulu, âmes bien-aimées, et nous vous fournirons toutes les réponses possibles en ce moment pour vous soutenir dans votre voyage d’éveil de l’âme. Que Dieu vous bénisse. Dieu vous bénisse, belles, belles âmes. Mon amour est avec vous. Augustin vous aime. Dieu vous aime.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez patient alors que l’Amour Divin grandit dans votre âme
 
-Seretta Kem - reçu par Al Fike le 20 Janvier 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 20 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 C’est Seretta Kem. Oui, nous continuons à étendre nos efforts et nos prières sur ce projet de Voix directe, afin de faire avancer ce don. Ces graines ont été plantées en chacun de vous et continuent de croître. Bien que vous ne puissiez pas en ressentir d’indications manifestes, elles grandissent en effet. Nous continuons à travailler avec chacun d’entre vous. Nous continuons à surveiller vos progrès, les progrès de vos âmes, les progrès de vos expressions dans la vie pour amener ces choses à un niveau plus élevé afin que vous puissiez être en plus grande harmonie avec Dieu alors que vous continuez à recevoir ce grand cadeau d’Amour.
 
@@ -30,6 +30,3 @@ Ces choses viennent et vous sentez la différence dans le temps, en rétrospecti
 Vous êtes vraiment les enfants de Dieu, réclamés dans l’amour. Chaque jour est une bénédiction et un cadeau, chaque jour est une opportunité de grandir, d’apprendre et d’être un canal d’amour. Cette prise de conscience est un cadeau. Cette compréhension vous apporte une grande force et une grande clarté. Comme vous grandissez dans l’amour, tout ce que vous touchez sera béni dans l’amour. Il doit en être ainsi et cela se déroule dans ta vie. Nous poursuivons ensemble ce grand voyage et nous voyons les progrès. Il s’accélérera au fur et à mesure que l’Amour grandira dans vos âmes et que les dons surgiront, émergeant des eaux vivantes de l’Amour de Dieu dans votre âme et se manifesteront dans toute leur beauté et leur merveille. Vous verrez, mes bien-aimés, vous verrez ce que Dieu a apporté à ce monde en créant chacun de vous, âmes précieuses. Vous vous réjouirez de votre propre conscience et compréhension de vous-mêmes et de votre relation avec Dieu. Cela vient, âmes bien-aimées, avec des vagues d’Amour se déversant en vous, éveillant l’émerveillement.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je suis avec vous dans votre voyage. Je suis avec vous chaque jour, alors que vous avancez sur votre chemin d’amour à la recherche d’une plus grande vérité et de l’éveil de votre âme. Puissiez-vous connaître Dieu avec une telle intensité et une telle clarté que la joie sera votre lot quotidien et que l’amour sera la signature de tout ce que vous êtes et faites dans vos vies. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et vous garde.
-
-
-
