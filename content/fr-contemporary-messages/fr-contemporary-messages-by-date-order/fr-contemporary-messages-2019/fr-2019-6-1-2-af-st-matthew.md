@@ -9,7 +9,7 @@ weight:
 ---
 ### Différences de perception entre le mental matériel et le mental de l'âme
 
-Matthieu - reçu par Al Fike le 1 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Matthieu - reçu par Al Fike le 1 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Matthieu et je souhaite parler des différences de perception entre le mental matériel et celui de l'âme. La plupart de ceux qui habitent votre monde et qui suivent un chemin particulier de progression dans leur compréhension spirituelle utiliseront leurs facultés mentales pour discerner la vérité. Le mental matériel désire l'ordre et la logique et ce qui a du sens du point de vue du monde matériel. Par conséquent, leurs concepts de spiritualité reflètent ces éléments dans le mental. Le mental est un outil puissant. Il peut aussi manifester des réalités puissantes, projetant depuis la source de l'individu certains idéaux et réalités qui confirment et renforcent une croyance particulière.
 
@@ -22,8 +22,3 @@ Plutôt que la puissance du mental et de la pensée qui informe tant de gens dan
 Le chemin de l'esprit aspirant à la perfection est un chemin long et ardu, mes bien-aimés. Il exige une attention fastidieuse à beaucoup, beaucoup de détails, fournissant la réalité du mental, exprimant cette réalité dans tout ce qui est dans les domaines de l'homme. Lorsque l'âme aspire à Dieu pour recevoir l'Essence de Dieu, la Vérité de l'âme s'enflamme. Le pouvoir de l'âme se réalise par l'afflux de cet Amour, ce processus continu de nettoyage, de guérison, d'éveil qui amène à une nouvelle réalité, une réalité dépourvue d'erreur, une réalité qui est de Dieu, parfaite et belle, remplie d'Amour et de joie. Cette lumière, plus brillante que toutes les lumières, au-delà de ce que tout individu peut créer pour lui-même, est cette réalité de Dieu. Donc nous vous encourageons, âmes bien-aimées, à marcher sur ce chemin de l'Amour, à absorber les bénédictions de Dieu qui est Amour, et tout ce qui vient avec ce grand cadeau qui éveille les grandes chambres de votre âme, les capacités et les aptitudes et les perceptions de votre âme.
 
 C'est la Vérité que nous enseignons. C'est la réalité que nous entretenons et que nous désirons, afin que toutes les âmes puissent renoncer à leur emprise sur ce qui est fait par l'homme, et adopter ce qui est de Dieu. De cette façon, tous les conflits et les problèmes, les déséquilibres et les inharmonies disparaîtront dans votre monde et dans tous les mondes. Car le pouvoir de l'amour est immense, le pouvoir de l'âme est fidèle à la Création de Dieu lorsqu'elle est bénie par cet Amour. Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et qu'il vous réveille, vous réveille profondément. Puissiez-vous en venir à connaître les désirs de vos âmes, les aspirations de vos âmes, la conscience de vos âmes, afin que ce dont je parle ait son pouvoir et sa vérité dans votre conscience. Car il y a beaucoup à savoir, mes bien-aimés, beaucoup à découvrir, beaucoup à réaliser sur ce chemin de l'amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-
-
-

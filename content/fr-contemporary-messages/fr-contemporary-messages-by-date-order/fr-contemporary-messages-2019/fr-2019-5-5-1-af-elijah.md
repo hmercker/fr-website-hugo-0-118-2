@@ -9,9 +9,9 @@ weight:
 ---
 ### Vous êtes appelés à vous réveiller
 
-Élie - reçu par Al Fike le 5 Mai 2019, Gibsons, Colombie-Britannique, Canada
+Élie - reçu par Al Fike le 5 Mai 2019, Gibsons, Colombie-Britannique, Canada.
 
-Que les grandes bénédictions de Dieu soient sur vous, âmes bien-aimées, je suis Isaïe<sup id="a1">[1](#f1)</sup>. La volonté de l'homme est grande. Dieu a doté chaque individu du libre arbitre. L'humanité a exercé ce don à tous égards dans votre monde, a appris à connaître son propre pouvoir, a reconnu ses propres capacités, a reconnu comment il est possible de manipuler le monde en conjonction avec sa volonté. Ce faisant, l'humanité a apporté bénédiction et destruction, lumière et obscurité, harmonie et disharmonie. Car les potentiels de chaque âme bien-aimée dans ce monde sont de deux natures et se sont exprimés plus pleinement dans ce qui n'est pas en harmonie avec les lois de Dieu.
+Que les grandes bénédictions de Dieu soient sur vous, âmes bien-aimées, je suis Isaïe <sup id="a1">[1](#f1)</sup>. La volonté de l'homme est grande. Dieu a doté chaque individu du libre arbitre. L'humanité a exercé ce don à tous égards dans votre monde, a appris à connaître son propre pouvoir, a reconnu ses propres capacités, a reconnu comment il est possible de manipuler le monde en conjonction avec sa volonté. Ce faisant, l'humanité a apporté bénédiction et destruction, lumière et obscurité, harmonie et disharmonie. Car les potentiels de chaque âme bien-aimée dans ce monde sont de deux natures et se sont exprimés plus pleinement dans ce qui n'est pas en harmonie avec les lois de Dieu.
 
 Vous trouvez donc votre place dans un monde qui n'est pas en harmonie avec les lois de Dieu. Il n'est pas l'expression de l'Amour de Dieu pour toute sa création. Il est devenu un lieu difficile à vivre qui a apporté beaucoup de destruction et où de nombreuses créatures de Dieu ont beaucoup souffert et l'humanité elle-même a beaucoup souffert. Pendant tous les éons de l'existence de l'humanité, les conditions de ténèbres se sont empilées les unes sur les autres, jour après jour, année après année, à cause du libre arbitre de l'homme. En effet, vos prières sont pour que l'humanité s'éveille et réalise le pouvoir de sa propre volonté, le pouvoir de ses propres êtres dans ce monde et comment, dans l'intention de Dieu, il devait y avoir une coopération entre le pouvoir de l'homme et le pouvoir de Dieu. De sorte que tout se déroule dans le cadre d'une évolution créée de l'âme dans ce monde.
 
@@ -32,12 +32,5 @@ Chacun d'entre vous est attiré. Chacun de vous ressent un but, un appel, un dé
 Bénédictions à vous, mes bien-aimés. Je suis Elie. Bénédictions de l'amour. Dieu vous bénit.
 <small>
 
-1. <large id=”f1”> Isaïe et Élie sont deux esprits très différents. On ne sait pas s'il s'agit d'une simple erreur d'identification par le médium, ou si deux esprits différents étaient impliqués.[↩](#a1) 
-
-
-
-
-
-
-
+1. <large id=”f1”> Isaïe et Élie sont deux esprits très différents. On ne sait pas s'il s'agit d'une simple erreur d'identification par le médium, ou si deux esprits différents étaient impliqués.[↩](#a1)
 

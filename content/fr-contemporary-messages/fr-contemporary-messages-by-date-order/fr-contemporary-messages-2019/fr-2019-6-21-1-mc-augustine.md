@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre dévouement est ce qui est nécessaire pour établir ce cercle de lumière
 
-Augustin - reçu par Maureen Cardoso le 21 Juin 2019, Abbotsford, Colombie-Britannique, Canada
+Augustin - reçu par Maureen Cardoso le 21 Juin 2019, Island of Guernsey, UK.
 
 C'est Augustin avec vous. Vous êtes donc réunis dans cette merveilleuse partie de la planète Terre de Dieu, dans la plus belle partie du monde à coup sûr. Nous avons déjà vu une partie de la grande beauté qui existe. Nous vous remercions d'avoir entendu l'appel à vous réunir pour soutenir ce cher fils qui a le désir de créer et d'établir un Cercle de Lumière dans cette chapelle de guérison. Nous souhaitons vous aider à renforcer la lumière qui existe ici. En vous réunissant tous les trois dans la prière, en apportant l'Amour de Dieu dans ce lieu, beaucoup peut être fait.
 
@@ -20,6 +20,3 @@ Ainsi, ton dévouement, cher fils, est ce qui est d'abord et avant tout requis. 
 Vous rendez un grand service à votre patrie. Nous serons avec vous pour vous aider de toutes les manières possibles. Vous savez toujours qu'il y a beaucoup plus de choses qui se passent dans les coulisses que vous n'êtes pas en mesure de reconnaître en ce moment. Soyez donc dans la joie et dans l'amour. Soyez de lumière. Soyez de paix. Permettez à l'harmonie de l'Amour de Dieu de renforcer le lien merveilleux entre vos âmes.
 
 Je suis votre enseignant, Augustin. Je suis ici avec vous. De nombreux Anges Célestes sont avec vous. Que Dieu vous bénisse. Mon amour est toujours avec vous. Que Dieu vous bénisse.
-
-
-

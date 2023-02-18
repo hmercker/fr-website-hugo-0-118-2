@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : L'éveil de l'âme et l'ego
 
-Augustin - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi votre enseignant, Augustin. J’ai le privilège aujourd’hui d’être avec vous, pour répondre aux questions que vous pourriez avoir. C’est notre engagement envers vous et nous vous promettons de le faire, à condition que ces questions soient pertinentes pour l’éveil de l’âme et les fonctions de l’âme en ce qui concerne la croissance de l’âme avec l’Amour de Dieu. Donc, je suis disponible en ce moment, pour répondre à vos questions, âmes bien-aimées. S’il vous plaît, n’hésitez pas à demander.
 
@@ -50,6 +50,3 @@ C’est notre enseignement, fille bien-aimée, que lorsque tu demandes vraiment 
 Oui, je dois y aller maintenant. Il est en effet difficile pour cet instrument de continuer à répondre à ces questions en ce moment, mais nous nous réunirons à nouveau et nous aurons ces conversations. Nous sommes heureux de pouvoir le faire et nous sommes heureux que cet instrument soit capable de maintenir cette condition pour que nous puissions le faire. Que Dieu vous bénisse dans Son Amour, âmes bien-aimées. Puissiez-vous arriver à connaître votre vrai moi. Que toutes ces conditions de la condition humaine se dissolvent dans cette Bénédiction d’Amour, afin que vous puissiez connaître la paix et la joie profondes, la sagesse et la Vérité profondes, l’Amour glorieux qui vient de Dieu. Toutes ces choses vous sont données avec cette seule Vérité de l’Amour de Dieu.
 
 Que Dieu vous bénisse, je suis votre maître Augustin. Que Dieu vous bénisse.
-
-
-

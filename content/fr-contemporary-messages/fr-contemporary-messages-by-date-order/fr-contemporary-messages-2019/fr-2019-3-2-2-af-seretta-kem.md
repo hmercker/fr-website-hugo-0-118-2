@@ -9,7 +9,7 @@ weight:
 ---
 ### Remplacer les ambitions de l'esprit par celles de l'âme
 
-Seretta Kem - reçu par Al Fike le 2 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 2 Mars 2019, Adria Hotel, Queens, NY, USA.
 
 Ah, voir ces jeunes âmes réunies en prière, comme ce spectacle est beau ! Comme vos âmes sont belles, mes bien-aimés. Vous continuez à atteindre, à chercher la vérité. Comme vous portez encore les ambitions, les pensées pour votre avenir dans vos esprits et nourrissez ces pensées si soigneusement.
 
@@ -28,6 +28,3 @@ Ainsi, mes bien-aimées, belles âmes, faites preuve de sagesse lorsque vous pla
 Âmes bien-aimées, sachez que les anges de Dieu sont avec vous et que nous continuerons à vous guider sur vos chemins, si uniques, si alignés, à condition que vous soyez prêts à suivre la volonté de Dieu. Puissiez-vous entendre mes paroles, âmes bien-aimées, et savoir que je dis ces vérités pour votre bénéfice, pour votre guidance, pour le renforcement de votre lumière, et pour la beauté et l’émerveillement du travail qui vient et viendra de manière surprenante.
 
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans Son Amour. Je suis Seretta Kem et je continue à travailler avec vous tous alors que vous parcourez votre chemin jour après jour. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées, et je vous aime.
-
-
-

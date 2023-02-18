@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous créez un centre de lumière
 
-Marc - reçu par Al Fike le 6 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 6 Juin 2019, First United Spiritualist Church, Burnaby, Colombie-Britannique, Canada.
 
 Bienvenue, frères et sœurs bien-aimés. Que les bénédictions de Dieu se déversent dans vos âmes, je suis Marc. Je suis heureux de vous accueillir aujourd'hui, vous toutes les belles âmes qui sont à la fois dans la chair et dans l'esprit qui viennent se rassembler dans ce sanctuaire, alors que Dieu déverse Son Amour sur vous tous, bien-aimés et élève cet endroit, apportant les bénédictions de la paix et de la guérison et de l'Amour à tous ceux qui entrent dans ce sanctuaire. Les eaux vivantes de l'Amour de Dieu se déversent dans ce lieu en ce moment. Ouvrez vos âmes, ouvrez vos âmes et buvez profondément ces Eaux. Rafraîchissez vos âmes avec l'Essence de Dieu, Son Amour, vous éveillant et vous rapprochant toujours plus de Sa Présence.
 
@@ -22,6 +22,3 @@ Vous créez ici un Centre de Lumière, mes bien-aimés, un Centre de Lumière b�
 Rassemblez-vous, mes chers amis. Rassemblez-vous dans l'amour. Créez cette communauté d'amour. Mettez de côté toutes les différences et apportez les intentions les plus élevées, les désirs les plus profonds de l'âme et pour enjoindre tous ceux qui viennent avec amour, paix et joie. Car Dieu vous a donné un grand cadeau, mes bien-aimés. Dieu a ouvert une grande Lumière, un Portail de Lumière en ce lieu et il doit être utilisé continuellement pour le bénéfice de ceux qui viennent, pour le bénéfice de cette communauté, de ce lieu, de cette ville, de cette région dans votre monde. Ce portail peut être utilisé de nombreuses façons et peut être renforcé par vos prières et vos efforts pour éveiller les désirs de l'âme en de nombreuses personnes, car Dieu utilise Ses instruments pour apporter la Vérité et les bénédictions aux enfants de ce monde.
 
 Marchez dans la lumière, mes bien-aimés. Cherchez ce qui est le plus élevé. Cherchez à communier avec le Créateur. Soyez forts dans votre foi. Soyez joyeux dans vos efforts. Tout viendra pour vous élever et vous soutenir, âmes bien-aimées. Dieu vous a rassemblés et continuera à le faire, en vous apportant à tous la Lumière. Que Dieu vous bénisse, mes bien-aimés. Je suis Marc et mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

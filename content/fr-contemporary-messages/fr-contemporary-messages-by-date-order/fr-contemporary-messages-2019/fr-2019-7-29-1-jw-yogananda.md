@@ -9,7 +9,7 @@ weight:
 ---
 ### Le mental et l'âme
 
-Yogananda - reçu par Jimbeau Walsh le 29 Juillet 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 29 Juillet 2019, Schwenksville, PA, USA.
 
 Je suis ici, Yogananda. Je souhaite parler des questions relatives au mental et à l'âme pour ceux et à ceux qui trouvent difficile de calmer le mental. Ceux qui sentent que peut-être, même s'ils prient et sont calmes, ils ne reçoivent pas l'Amour de Dieu dans l'abondance qu'ils souhaitent recevoir, mais pas à cause d'un manque d'intention.
 
@@ -24,6 +24,3 @@ Donc, mes chers, quoi que vous ressentiez contre vous, sachez que vous pouvez al
 Oh mes amis, nous sommes fiers de vous. Nous continuerons à vous encourager et à être avec vous dans ce voyage, non seulement pour votre transformation, mais aussi pour la transformation du monde et la grande guérison qui est nécessaire et pour laquelle vous vous êtes tous engagés et embarqués ; embarqués dans ce voyage, pour le bien de tous. Comment nous vous aimons.
 
 Je suis avec vous, mon amour est avec vous. Que Dieu vous bénisse et vous embrasse dans Sa Lumière et Son Amour. Nous sommes tous unis en cela. Je suis Yogananda. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

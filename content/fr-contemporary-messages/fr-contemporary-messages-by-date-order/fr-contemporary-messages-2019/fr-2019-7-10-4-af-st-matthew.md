@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous avez tous le don d'enseigner
 
-St Matthieu - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénies, âmes bien-aimées, je suis Matthieu. Chacun de vous a la capacité et le don d’enseigner, de transmettre les paroles de la Vérité à ceux qui en ont faim. Ce don est le reflet de votre esprit, mais il peut être influencé et informé par votre âme. C’est dans cet accord entre l’esprit et l’âme que la sagesse se reflète dans vos paroles. Il est important pour chaque enseignant de comprendre la réceptivité de l’étudiant. En effet, utiliser des mots et des concepts qui ne peuvent être assimilés par ceux qui écoutent, c’est manquer la cible, c’est ne pas enseigner de manière efficace. Lorsque vos mots sont empreints d’amour, de compassion, d’humilité et qu’ils coulent avec la grâce qui est le résultat du toucher de Dieu sur vous, alors vos mots seront effectivement absorbés par l’esprit et parfois l’âme de cet individu. C’est un équilibre délicat, âmes bien-aimées, d’enseigner la Vérité de manière à ce que la Vérité puisse être comprise.
 
@@ -32,6 +32,3 @@ Non, mes bien-aimés, vous ne fuyez pas vos responsabilités d’enseigner la V�
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu. Je suis heureux de vous parler aujourd’hui d’un sujet qui est important et qui vous concerne tous : apporter la Vérité de l’Amour de Dieu à l’humanité. Je vous le dis, mes amis, chacun de vous continue à jouer son rôle dans ce domaine et continuera à le faire. Au fur et à mesure que vous écoutez votre guidance, au fur et à mesure que vos âmes grandissent dans Son Amour, ces opportunités vont s’amplifier et s’intensifier jusqu’à ce qu’un jour vous parliez à beaucoup et qu’ils écoutent. Mais c’est dans le timing de la volonté et du plan de Dieu pour l’humanité. Jusqu’à ce jour, chaque occasion que vous avez de le faire est un cadeau et une opportunité d’affiner vos compétences et vos capacités à transmettre véritablement cette Vérité aux autres.
 
 Puissiez-vous trouver votre voie sur ce chemin d’enseignement, de guérison et d’amour pour vos compagnons d’âme dans ce monde. De nombreuses bénédictions découlent de ce don. Beaucoup de choses découlent de vos efforts. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous dans l’amour de Dieu. Je suis Matthieu. Que Dieu vous bénisse.
-
-
-

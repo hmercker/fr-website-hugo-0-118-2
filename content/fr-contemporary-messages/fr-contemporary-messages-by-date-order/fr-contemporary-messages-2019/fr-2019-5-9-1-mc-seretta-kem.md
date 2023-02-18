@@ -9,7 +9,7 @@ weight:
 ---
 ### Engagement
 
-Seretta Kem - reçu par Maureen Cardoso le 9 Mai 2019, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 9 Mai 2019, First United Spiritualist Church, Burnaby, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Je réside dans le Royaume Céleste et je suis l'un des nombreux enseignants qui viennent rejoindre ces Cercles de Lumière² et partager les enseignements de l'Amour Divin et soutenir les âmes qui marchent sur ce chemin, priant pour que l'amour de Dieu afflue dans leurs âmes et les transforme.
 
@@ -26,6 +26,3 @@ Le voyage d'une âme qui s'éveille à l'Amour Divin exige que vous vous engagie
 Je vous remercie donc de m'avoir permis de venir partager mes mots d'encouragement. J'espère vous inspirer à vous engager dans l'éveil de votre âme, à vous engager à recevoir cette grande Essence de l'Amour de Dieu dans votre âme, et à vous permettre d'être transformé de nombreuses façons, des façons qui apporteront une grande paix, de la joie et de nombreuses bénédictions. Car tous les grands Cadeaux viennent de Dieu, mes bien-aimés.
 
 Je suis Seretta Kem et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

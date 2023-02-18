@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est maintenant temps de préparer vos âmes
 
-St Jean - reçu par Al Fike le 2 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 2 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Jean. Je viens vous exhorter à continuer à prier pour l’Amour du Père avec toujours plus d’intensité et de désir, car vos prières dirigées vers Dieu et informées par les désirs de votre âme sont l’acte le plus important que vous puissiez accomplir dans une journée. Car cela n’améliore pas seulement votre condition quotidienne dans la Lumière, mais contribuera à la Lumière que vous porterez dans le monde de l’esprit et vous amènera à un endroit de Lumière et de joie dans ce monde lorsque votre heure viendra.
 
@@ -22,6 +22,3 @@ Je sais que pour beaucoup d’entre vous, il est plus facile de rester dans votr
 Dieu a grand besoin de vous et de beaucoup d’autres comme vous qui ont un désir ardent, un attrait pour la Vérité, une recherche de la Lumière, de la Vérité et de l’Amour. Dans cet effort que vous faites pour vous-mêmes, vous apportez avec vous, alors que votre âme s’éveille et se renforce dans l’Amour, un grand potentiel pour influencer et enseigner et guérir et élever vos frères et sœurs. Dans ce désir et cette volonté de marcher sur ce chemin d’amour et de service, Dieu va en effet guider vos pas, protéger votre être, et informer votre moi conscient de ce qui est requis, de ce que Dieu désire de vous.
 
 Il y a beaucoup de travail à faire, âmes bien-aimées, et notre intention est de continuer à enseigner, à soutenir et à aider à votre renforcement afin que vous puissiez glaner avec une grande clarté la Vérité, à travers ces expériences et ces prières en direction de Dieu. Que Dieu vous bénisse dans vos voyages, mes bien-aimés. Puissiez-vous en venir à connaître les grands potentiels de vos âmes. Puissiez-vous en venir à voir le but qui réside dans chaque âme, qui est destiné à aider l’humanité, qui est une bénédiction de Dieu, qui est votre véritable moi. Vos âmes sont impatientes et vos âmes ont un grand désir d’être éveillées et exprimées dans l’Amour de Dieu. Puissiez-vous continuer à le faire et être dans le grand flux de Sa Volonté, de Son Amour et de Sa Lumière. Que Dieu vous bénisse, mes bien-aimés. Je suis Jean et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

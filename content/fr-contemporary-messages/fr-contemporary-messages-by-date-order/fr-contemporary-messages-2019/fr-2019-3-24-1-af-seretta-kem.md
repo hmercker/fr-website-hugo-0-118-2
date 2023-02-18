@@ -9,7 +9,7 @@ weight:
 ---
 ### Le changement est sur ce monde
 
-Seretta Kem - reçu par Al Fike le 24 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 24 Mars 2019, Gibsons, Colombie-Britannique, Canada.
 
 Le changement est sur ce monde qui est le vôtre, alors que la volonté de Dieu continue d’apporter des bénédictions, des énergies et des initiatives qui apporteront des changements dans votre monde. Alors que ces changements s’intensifient, que les conditions deviennent plus diverses, voire chaotiques, vous serez appelés, mes frères et sœurs de ce monde, à servir, à être des agents de changement, à être des enseignants et des guérisseurs, à apporter la Vérité, l’amour et le réconfort à beaucoup.
 

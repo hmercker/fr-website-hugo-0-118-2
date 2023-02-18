@@ -9,7 +9,7 @@ weight:
 ---
 ### L'aube d'une nouvelle réalité
 
-St Matthieu - reçu par Al Fike le 20 Mai 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 20 Mai 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je m'appelle Matthieu. Chaque âme de ce cercle a une relation avec Dieu. Vous avez appris à connaître Dieu à votre manière. Vous avez grandi dans la foi et la compréhension de ce don de l'âme, en relation avec votre Créateur. Vous continuerez à grandir dans cette compréhension, dans cette connaissance de Dieu, à mesure que vos âmes grandiront dans Son Amour, à mesure que vous deviendrez plus à l'écoute et plus réceptifs à votre Père bien-aimé, Dieu, Créateur et Source de Tout. Quelle que soit l'appellation que vous donnez à la Source de cet Amour, à l'Être qui a tout créé, il y a en vous la capacité de bien connaître Dieu, de comprendre son Être, si complexe, si différent de votre existence matérielle et pourtant capable de communiquer avec vous à un niveau si profond de l'âme.
 
@@ -34,6 +34,3 @@ Vous rencontrerez ces vérités, cette nouveauté de perception et de vérité, 
 Puissiez-vous continuer à rechercher l'Amour du Père, à accepter le voyage, car Dieu a tracé ce chemin pour chacun d'entre vous. Vous en viendrez à connaître Dieu comme votre ami bien-aimé et intime, votre Père, votre Source de toute joie, votre Source de tout amour. Cela vient. Cela vient.
 
 Que Dieu vous bénisse, mes bien-aimés, et vous garde sur ce chemin Divin, afin que vous puissiez vous éveiller pleinement et connaître les gloires de l'amour, du véritable et bel Amour qui est Divin. Que Dieu vous bénisse. Je suis Matthieu et je suis avec vous dans l'amour. Que Dieu vous bénisse.
-
-
-

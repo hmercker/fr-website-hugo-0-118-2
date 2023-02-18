@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez prêt à suivre les conseils reçus
 
-St Matthieu - reçu par Maureen Cardoso le 20 Mai 2019, Abbotsford, Colombie-Britannique, Canada
+St Matthieu - reçu par Maureen Cardoso le 20 Mai 2019, Abbotsford, Colombie-Britannique, Canada.
 
 Je suis Matthieu. Je me joins à vous en ce temps de prière, où vous ouvrez vos âmes, aspirant à ce que l'Amour Divin bénisse vos âmes, à ce que cette grande Essence vienne vous changer. Lorsque vous suivez votre chemin individuel pour vous rapprocher de votre Créateur bien-aimé, vous le faites dans la recherche et le désir ardent de votre âme. Car il y a une profonde curiosité, un profond désir de connaître votre Créateur bien-aimé, de connaître profondément cet Amour, cette communion et cette connexion au niveau de votre âme. Chacun d'entre vous, à sa manière, tend la main à Dieu et Dieu bénit chacun d'entre vous, vous aide sur votre chemin, vous aide à bien choisir, à être conscient de ce que vous choisissez et à réfléchir à ce que vous choisissez.
 
@@ -22,6 +22,3 @@ Au fur et à mesure que cet Amour continuera à nourrir vos âmes, vous verrez v
 C'est ce que Dieu désire de vous, mes bien-aimés, que votre amour soit exprimé envers Dieu, que votre essence aimante parvienne si profondément à comprendre et à connaître l'Essence de Dieu. C'est ce que Dieu désire et souhaite, pour cette communion profonde et riche avec chaque enfant.
 
 Je suis Matthieu et mon amour est avec vous. C'est merveilleux de venir vous parler, de vous encourager sur votre chemin, et de partager mon amour avec vous. Que Dieu vous bénisse. Je suis Matthieu. Que Dieu vous bénisse.
-
-
-

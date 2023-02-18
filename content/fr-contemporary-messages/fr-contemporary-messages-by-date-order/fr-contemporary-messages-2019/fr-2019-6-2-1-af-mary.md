@@ -9,7 +9,7 @@ weight:
 ---
 ### Les intentions de vos âmes apportent de nombreuses bénédictions
 
-Marie - reçu par Al Fike le 2 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 2 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes bien-aimées, je suis Marie. Oui il y a une grande beauté dans le monde, une grande beauté de la Création de Dieu, une grande beauté dans chaque âme qui aspire à la bonté et à la lumière et à l'amour. Ce à quoi une âme aspire, ce qu'une âme pense et est dans le monde, attire à elle, à travers les Lois, une réponse. Ainsi, si cette âme aspire à la beauté, à l'amour, à la bonté, voire à l'abondance, alors elle est bénie par Dieu. C'est le pouvoir du désir dans votre âme et les intentions dans votre esprit qui vous apportent de nombreuses bénédictions, mes bien-aimés. Alors que vous continuez à attirer l'Amour du Père dans vos âmes, ce que vous signalez à Dieu et suppliez Dieu de vous bénir, devient plus puissant. Vos intentions sont plus claires. Elles résonnent à travers le monde, à travers l'Univers de Dieu et touchent Dieu plus directement.
 
@@ -20,6 +20,3 @@ Vous êtes tous porteurs de grands potentiels, mes bien-aimés. Vous aspirez tou
 Que Dieu vous bénisse, mes chers enfants bien-aimés. Sachez que vous êtes dans la Lumière. Sachez que Dieu a sa main sur vous, mes bien-aimés, et que vous êtes dans nos pensées, les pensées de nos âmes. Car lorsque nous prions, nous prions pour vous. Nous cherchons à faire la volonté de Dieu en votre nom, à apporter les bénédictions, à apporter la lumière à vous et à votre monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Mon amour est avec vous. Je suis Marie et je suis avec vous. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### L'unité de la prière
 
-Luc - reçu par Al Fike le 4 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Luc - reçu par Al Fike le 4 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénies, âmes bien-aimées, je suis Luc. Vous cherchez l'unité et l'unité est vôtre dans la prière. Elle est vôtre lorsque vous recevez et reconnaissez la bénédiction de l'Amour de Dieu, lorsque vous marchez dans la Lumière de l'Amour de Dieu, lorsque vous êtes un enfant de Dieu dans le flux de Son Amour. Ce que chacun de vous construit dans son esprit comme étant la vérité est une situation temporaire. Car au fur et à mesure que vous grandissez dans l'Amour, que vos âmes s'éveillent et se développent dans l'Amour, vos idées et perceptions de la vérité changent, car l'âme commence à informer l'esprit. L'expérience de Dieu ouvre les canaux de la vérité et de la compréhension à votre conscience.
 
@@ -26,8 +26,3 @@ C'est ce voyage d'éveil et de connaissance de votre vrai moi qui apportera tout
 Il y a beaucoup de réveils, d'innombrables réveils qui arrivent, âmes bien-aimées. Chaque jour a le potentiel de faire évoluer votre conscience et votre compréhension de plus en plus loin des conditions obscures du monde vers ce lieu d'âmes éveillées, proches de Dieu, en harmonie avec tout ce que Dieu a créé, en harmonie avec vous-même et tout ce qui vous entoure. Ceci est en train de se produire. Il émerge toujours si lentement, mais les efforts que vous faites vous rapprochent de vos âmes bien-aimées, vous rapprochent de la Vérité, de l'unité et de l'Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis Luc et je vous aime, âmes bien-aimées.
-
-
-
-
-

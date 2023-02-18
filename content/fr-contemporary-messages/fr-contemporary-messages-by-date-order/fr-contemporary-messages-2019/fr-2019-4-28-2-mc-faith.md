@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment la foi s'obtient et change la vie d'une personne
 
-Faith - reçu par Maureen Cardoso le 28 Avril 2019, Abbotsford, Colombie-Britannique, Canada
+Faith - reçu par Maureen Cardoso le 28 Avril 2019, First United Spiritualist Church, Burnaby, Colombie-Britannique, Canada.
 
 Je m'appelle Faith. Je réside dans le Royaume Céleste et mon âme a été transformée en un Ange Divin par le don de l'Amour Divin de Dieu. J'aimerais vous parler de la foi, de la façon dont on l'obtient et de la façon dont le fait de vivre avec la foi change la vie d'une personne.
 
@@ -24,6 +24,3 @@ Vous aurez également le désir de partager cet amour, cette paix et cette joie 
 Vous n'êtes pas ces corps physiques. Vous n'êtes pas votre mental. Vous êtes votre âme. Votre voyage sur cette Terre vous donne la grande opportunité de commencer l'éveil de votre âme et de réaliser le cadeau que vous êtes, la bénédiction que vous êtes. Il faut donc avoir la foi, mes chers amis, la foi de comprendre que de grandes choses vous arriveront grâce à votre connexion profonde avec le Créateur. Cette foi grandit dans votre âme et l'obligera à continuer à retourner dans les bras aimants de votre Créateur pour être nourrie, réconfortée et soignée de la seule manière dont Dieu peut le faire. Je vous laisse donc avec cela, mes chers amis, et j'espère que vos âmes ont été enflammées par cet Amour. Car c'est l'Essence de Dieu qui vous réveillera et vous amènera à votre véritable moi.
 
 Mon nom est Faith et je vous remercie d'avoir écouté mes paroles. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

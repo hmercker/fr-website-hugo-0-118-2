@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre vérité est plus élevée et plus puissante
 
-Matthieu - reçu par Al Fike le 17 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Matthieu - reçu par Al Fike le 17 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je m'appelle Matthieu. Il y a beaucoup de mortels dans votre monde qui ont revêtu le manteau d'enseignant et qui ont confiance dans les mots qu'ils prononcent. Pourtant, pour beaucoup de ces individus qui prétendent parler de vérité spirituelle, ils en sont venus à créer dans leur tête, des croyances et des structures faites de mots et de compréhension intellectuelle. Mais cela ne va pas plus loin que la tête et néglige de s'harmoniser avec l'âme. Ainsi, ce qu'ils dépeignent comme la vérité est en fait, à bien des égards, une contre-vérité ; simplement les machinations d'un intellect à qui on a laissé le champ libre et la créativité, et qui donne donc à sa réalité la liberté de s'exprimer.
 
@@ -26,6 +26,3 @@ Vous devez croire en vous-mêmes, âmes bien-aimées. Marchez dans la foi et la 
 Même si certains vous rejetteront parce qu'ils ne voient pas au-delà de leurs attentes en matière d'acuité intellectuelle, beaucoup ressentiront en effet dans leur cœur la vérité dont vous parlez. Bien qu'ils puissent interpréter dans leur propre esprit et avec leurs propres mots ce que vous dites, c'est l'âme qui a reconnu la vérité. C'est ce qui est requis et important dans votre travail. Continuez à dire votre vérité. Exprimez votre vérité dans la lumière et l'amour. Apportez du réconfort. Apportez l'amour à tous ceux que vous rencontrez et Dieu ne vous en demandera pas plus. Vous faites le travail de Dieu lorsque vous apportez l'amour.
 
 Que Dieu vous bénisse dans votre travail, vos voyages et vos efforts dans les pays lointains. En effet, vous êtes bénis et les portes continueront à s'ouvrir pour vous, mes amis bien-aimés, et à vous apporter toutes les gloires et les merveilles et la lumière et l'amour que l'Âme de Dieu à votre âme, peut apporter et être déversée sur vous. Que Dieu vous bénisse, mes chers amis. Je suis Matthieu et mon amour est avec vous. Que Dieu vous bénisse tous les deux.
-
-
-

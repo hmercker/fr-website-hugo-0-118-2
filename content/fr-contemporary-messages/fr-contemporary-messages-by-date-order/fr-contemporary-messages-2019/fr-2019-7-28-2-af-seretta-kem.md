@@ -9,7 +9,7 @@ weight:
 ---
 ### Chacun de vous a de nombreux dons
 
-Seretta Kem - reçu par Al Fike le 28 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 28 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Laissez l’amour de Dieu se déverser sur vous, âmes bien-aimées, je suis Seretta Kem. En effet, c’est une préoccupation des mortels de connaître ce qui peut se manifester à travers eux, quels dons ils peuvent avoir et ce qui peut couler à travers ces dons au service de Dieu. Mes chers frères bien-aimés, chacun d’entre vous possède de nombreux dons. Chacun d’entre vous continue à découvrir ces dons. Au fur et à mesure que vous vous alignez davantage avec Dieu, vous ressentirez et connaîtrez notre présence comme une force forte et irrésistible dans vos vies. Pour que nous puissions travailler à travers chacun d’entre vous, mes bien-aimés, un rapport doit être établi, une connexion forte et fidèle entre nous de l’esprit et vous qui êtes sur le plan terrestre.
 
@@ -32,6 +32,3 @@ Tant de choses, mes bien-aimés, tant de choses vous attendent. Ne soyez pas sur
 Que Dieu vous bénisse, que Dieu vous bénisse. Nous continuons à travailler vers nos objectifs et vous continuez à grandir et à vous manifester de ces belles manières, vous rapprochant toujours plus du moment où les manifestations de l’esprit feront véritablement partie de votre mission et de vos efforts sur Terre. Toujours plus près, âmes bien-aimées, toujours plus près, la lumière grandit et vous êtes bénis.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous bénis également. Que Dieu vous bénisse.
-
-
-

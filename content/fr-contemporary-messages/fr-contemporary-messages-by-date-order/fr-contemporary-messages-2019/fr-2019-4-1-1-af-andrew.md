@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu prépare de nombreuses âmes à ce qui va arriver
 
-André - reçu par Al Fike le 1 Avril 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 1 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c'est André. Les impulsions et les vagues de l'Amour de Dieu continuent de frapper cette Terre, élevant l'humanité et apportant les conditions du changement dans ce monde. Je sais que vos prières pour être avec Dieu se sont intensifiées en raison de ces conditions qui se présentent et s'intensifieront avec le temps. Dieu prépare de nombreuses âmes à ce qui va arriver. Dieu ouvre de nombreuses portes pour chacun d'entre vous afin que vous puissiez vous réveiller dans vos âmes. Alors que vous êtes assis dans ces Portails de Lumière, les bénédictions qui viennent sont intenses et puissantes avec l'intention de réveiller vos âmes, à condition que vous vous ouvriez et receviez ce grand cadeau de l'Amour de Dieu.
 
@@ -33,6 +33,3 @@ Le plan de Dieu vous guidera. Sa Vérité sera votre point d'ancrage. Son amour 
 Que Dieu vous bénisse et vous renforce, mes amis bien-aimés. Puissiez-vous vraiment connaître l'émerveillement de vos propres âmes, l'émerveillement de ce que Dieu a créé, l'émerveillement de la Grande Sur-Âme qu'est Dieu. Ces choses sont données à chaque âme qui est prête à être ouverte et à recevoir. Puissiez-vous, mes amis bien-aimés, comprendre véritablement votre destinée alors que vous voyagez vers l'unification avec Dieu. Que les bénédictions de Dieu vous accompagnent sur votre chemin avec une telle abondance, une telle beauté, une telle puissance que vous brillerez d'une lumière éclatante, un beau visage de l'âme éveillée dans l'amour.
 
 Nous vous accompagnons, mes chers et bien-aimés amis. Nous sommes avec vous. Il en sera toujours ainsi et nous vous aimons. Que Dieu vous bénisse, mes bien-aimés. Je suis André et je vous aime. Que Dieu vous bénisse.
-
-
-

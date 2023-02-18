@@ -9,9 +9,9 @@ weight:
 ---
 ### Choisir de tout aimer
 
-Keea Atta Kem - reçu par Al Fike le 7 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 7 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
-Que Dieu vous bénisse, c’est Keea-atta Kem. Je souhaite parler de l’importance de l’harmonie dans vos Cercles de Lumière. Dieu rassemble de nombreux individus divers qui ont vécu des expériences uniques dans votre monde, créant ainsi pour eux-mêmes leurs perspectives et leurs idées réfléchies de la vérité et de la spiritualité. Parfois, ces idées ne correspondent pas aux vôtres. Parfois, vous pouvez vous sentir mal à l’aise avec ce que l’autre exprime comme sa vérité sincère. Le plus souvent, ces différences proviennent de l’esprit, l’esprit matériel, et l’esprit matériel persiste et s’accroche à différents concepts, constructions d’idées, apportant un certain confort à l’individu.
+Que Dieu vous bénisse, c’est Keea Atta Kem. Je souhaite parler de l’importance de l’harmonie dans vos Cercles de Lumière. Dieu rassemble de nombreux individus divers qui ont vécu des expériences uniques dans votre monde, créant ainsi pour eux-mêmes leurs perspectives et leurs idées réfléchies de la vérité et de la spiritualité. Parfois, ces idées ne correspondent pas aux vôtres. Parfois, vous pouvez vous sentir mal à l’aise avec ce que l’autre exprime comme sa vérité sincère. Le plus souvent, ces différences proviennent de l’esprit, l’esprit matériel, et l’esprit matériel persiste et s’accroche à différents concepts, constructions d’idées, apportant un certain confort à l’individu.
 
 Le mental souhaite concrétiser ces croyances, apporter sa version de la vérité aux expériences qui sont de nature spirituelle. Ainsi, le mental persiste et est fort dans ses croyances et il s’entête à rejeter ce qui peut être une erreur, ou même à écouter les perceptions et les idées d’un autre. Vous avez donc l’essentiel des raisons pour lesquelles il y a tant de conflits dans ce monde, n’est-ce pas ?
 
@@ -25,7 +25,7 @@ Maintenant, ce qui a été enseigné et incorporé dans le mental et cru avec ta
 
 Je vous invite à aimer et à accepter. Non pas dans le sens où vous seriez détachés et ne ressentiriez aucun jugement ni aucun amour, ni dans le sens où vous seriez neutres. Ce n’est pas ce que je veux dire. Au lieu de cela, aimez avec passion, aimez avec grâce, aimez avec authenticité, aimez puissamment. Exprimez votre âme sans craindre que cette expression et cette ouverture à l’autre soient accueillies par un rejet ou un jugement de sa part. Je vous le dis, âmes bien-aimées, même si c’est le cas, aimez quand même. Aimez, parce que c’est votre but, votre mandat de Dieu, d’aimer. Dans le flux et la puissance de cet Amour, il n’y a pas de blessure, il n’y a pas de sentiment de rejet, parce que d’âme à âme, il y a une compréhension et une acceptation quand il y a de la Lumière.
 
-Je vous le dis donc, mes chères âmes, vos esprits continuent à vous défier, à faire dérailler souvent le flux de l’amour. Pourtant, chaque jour est un nouveau départ, un nouveau défi à relever, une nouvelle façon d’exprimer et de renouveler l’amour qui apporte la guérison à tout ce qui n’est pas de l’amour. C’est votre défi, mes bien-aimés : Soyez l’amour. Vivez l’amour, désirez l’amour, exprimez l’amour de toutes les manières dont vous êtes capables et elles sont nombreuses. C’est une question de concentration, de désir et d’application. Ce n’est pas tout à fait difficile ou impossible. C’est simplement le pouvoir de votre choix, le pouvoir qui vient lorsque vous dites : « Je désire être une expression de la lumière, de l’amour et de la vérité de mon âme, et non celle de mon mental qui a été tellement infecté par la condition humaine.« 
+Je vous le dis donc, mes chères âmes, vos esprits continuent à vous défier, à faire dérailler souvent le flux de l’amour. Pourtant, chaque jour est un nouveau départ, un nouveau défi à relever, une nouvelle façon d’exprimer et de renouveler l’amour qui apporte la guérison à tout ce qui n’est pas de l’amour. C’est votre défi, mes bien-aimés : Soyez l’amour. Vivez l’amour, désirez l’amour, exprimez l’amour de toutes les manières dont vous êtes capables et elles sont nombreuses. C’est une question de concentration, de désir et d’application. Ce n’est pas tout à fait difficile ou impossible. C’est simplement le pouvoir de votre choix, le pouvoir qui vient lorsque vous dites : *« Je désire être une expression de la lumière, de l’amour et de la vérité de mon âme, et non celle de mon mental qui a été tellement infecté par la condition humaine. »*
 
 Alors que vous continuez à grandir dans l’Amour, vous commencez à voir la différence. Vous commencez à reconnaître cette dualité en vous. Avec cette reconnaissance, vient une compréhension et un besoin d’intégrer, de réunir ces deux parties de vous-même en harmonie, et de laisser aller toutes les conditions qui ne sont pas en harmonie avec l’amour, qui ne sont pas des Lois d’Amour de Dieu.
 
@@ -33,7 +33,4 @@ Marchez dans la lumière, mes amis bien-aimés. Soyez la Lumière. Exprimez la L
 
 Bien-aimés, vous êtes l’Amour en vous. Reconnaissez-le. Exprimez-le. Soyez l’amour que votre âme désire être et que Dieu souhaite que tous soient. De cette façon, vous enseignez la leçon la plus puissante. De cette façon, vous exprimez la Vérité la plus puissante. C’est ainsi que vous êtes vraiment un enfant de Dieu.
 
-Que Dieu vous bénisse, mes bien-aimés. Je suis Keea-atta Kem et je vous aime, belles âmes, belles âmes qui luttent dans un monde humain. Que Dieu vous bénisse, vous soutienne et vous aime, alors que vous avancez. Que Dieu vous bénisse.
-
-
-
+Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem et je vous aime, belles âmes, belles âmes qui luttent dans un monde humain. Que Dieu vous bénisse, vous soutienne et vous aime, alors que vous avancez. Que Dieu vous bénisse.

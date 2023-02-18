@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : La notion de mental intérieur n'est pas exacte
 
-Josephus - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Josephus - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Flavius Josèphe et je suis revenu comme promis. Je suis prêt à recevoir quelques questions de votre part, mes amis bien-aimés. Si la question est nécessaire et qu’elle est pertinente pour la croissance et le développement de votre âme, je suis prêt à répondre du mieux que je peux par le biais de cet instrument. J’attends donc votre réponse.
 
@@ -29,8 +29,4 @@ Vous souhaitez parvenir à ce lieu d’unité dont je parle parce que c’est le
 
 Je vous remercie, mes amis. Je vais maintenant vous quitter. Je pense que j’en ai dit assez pour que vous puissiez les digérer pour aujourd’hui. Que Dieu vous bénisse tous dans vos efforts pour comprendre véritablement vos âmes et comprendre votre relation avec Dieu et tout ce que Dieu a créé dans son univers beau et parfait. Que Dieu vous bénisse, mes amis. Je suis Flavius Joseph et je reviendrai. Que Dieu vous bénisse.
 
-**Note :** [Une question complémentaire a été posée ultérieurement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order\fr-contemporary-messages-2019/fr-2019-12-4-2-af-josephus/ 
-
-
-
-
+**Note :** [Une question complémentaire a été posée ultérieurement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order\fr-contemporary-messages-2019/fr-2019-12-4-2-af-josephus/)

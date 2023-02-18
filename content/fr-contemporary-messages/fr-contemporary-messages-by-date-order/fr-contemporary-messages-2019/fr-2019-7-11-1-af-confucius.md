@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Prière et vérité
 
-Confucius - reçu par Al Fike le 11 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 11 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Mes chers, bien-aimés frères et sœurs, je suis Confucius. Vous souhaitez savoir comment les anges du ciel prient ! Je vous le dis, mes bien-aimés, vous êtes des enfants à cet égard. Vous ne pourriez pas comprendre ce qu’est notre expérience de la prière à Dieu. Car cette expérience est celle de l’âme, entièrement et de manière expansive. Elle ne s’exprime pas par des mots, mes bien-aimés. Elle n’utilise pas le mental. C’est la conscience de la puissance du désir de notre âme de ne faire qu’un avec Dieu. Dans cette unité avec Dieu, nous nous engageons dans des communications qui sont au-delà des calculs de l’esprit.
 
@@ -48,6 +48,3 @@ Beaux enfants, vous savez instinctivement par vos âmes comment faire cela, cett
 Nous attendons avec impatience le jour où vous ne serez plus des enfants, mais imprégnés de la force, de la sagesse et de la connaissance qui accompagnent l’âme éveillée, qui accompagnent votre capacité à entrer dans ce lieu dont je parle. Ainsi, nous continuons à vous encourager sur ce chemin de l’Amour. Ressentez l’expansion de vos âmes. Reconnaissez son existence et entrez par la porte où toutes les réponses existent, où toute Vérité se trouve, où tout Amour règne en maître.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Confucius. Je suis vraiment votre frère sur ce chemin. Que Dieu vous bénisse, frères et sœurs. Que Dieu vous bénisse.
-
-
-

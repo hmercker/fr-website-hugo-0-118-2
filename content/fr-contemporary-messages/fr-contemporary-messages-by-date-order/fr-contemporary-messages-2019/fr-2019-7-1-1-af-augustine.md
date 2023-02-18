@@ -9,7 +9,7 @@ weight:
 ---
 ### Ces vérités doivent être partagées
 
-Augustin - reçu par Al Fike le 1 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 1 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Augustin. L’Amour de Dieu vous bénit, mes bien-aimés. Il repose sur vos âmes. Buvez profondément ce cadeau, buvez profondément. Vous avez raison de dire que lorsque vous vous réunissez et priez ensemble, il y a une puissante bénédiction d’Amour. Vous aidez à créer les conditions ici qui facilitent l’ouverture de vos âmes pour recevoir ce cadeau d’Amour. Alors que vous continuez à vous réunir dans ce Cercle de Lumière, sachez que nous vous accompagnerons chaque fois que vous prierez ensemble, que nous prierons avec vous, que nous vous entourerons de notre présence et que nous vous aiderons dans vos aspirations et vos efforts pour être avec Dieu.
 
@@ -34,6 +34,3 @@ Le pouvoir de l’Amour de Dieu, mes amis bien-aimés, est en effet le grand com
 Que Dieu vous bénisse dans ce voyage, et sachez que nous sommes avec vous. Nous continuons à vous soutenir et à vous aimer. Que Dieu vous bénisse et que Son Amour continue à se déverser dans vos âmes et vous apporte tout ce dont je parle dans sa gloire et sa beauté, la paix et la joie, l’amour, l’amour inimaginé, l’amour expansif, l’amour qui guérit, l’amour qui donne la vision de Dieu.
 
 Dieu vous bénisse, mes bien-aimés, votre enseignant Augustin. Je suis toujours heureux d’être avec vous et de vous soutenir sur ce chemin d’éveil. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

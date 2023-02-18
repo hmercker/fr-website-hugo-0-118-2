@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous avons besoin de vous et de vos dons pour répandre la vérité
 
-Yogananda - reçu par Maureen Cardoso le 15 Mars 2019, Abbotsford, Colombie-Britannique, Canada
+Yogananda - reçu par Maureen Cardoso le 15 Mars 2019, Blackpool, United Kingdom.
 
 Je prie avec vous. C’est Yogananda. Je n’ai pas parlé à travers cet instrument auparavant, mais je suis très heureux d’établir un rapport avec cet instrument et d’apporter un message continu de soutien à la chère âme avec laquelle je vais travailler ensemble pour apporter des écrits et des enseignements de vérité, car j’ai déjà partagé mon désir de le faire à travers lui (Jimbeau).
 
@@ -34,6 +34,3 @@ C’est une grande bénédiction d’être avec vous. C’est une grande bénéd
 Âmes bien-aimées, vous êtes grandement bénies. Je vous touche toutes les deux avec mon amour, avec mon encouragement pour tous ceux qui cherchent l’Amour de Dieu dans leurs âmes. Puissiez-vous être profondément bénis dans vos voyages et puissiez-vous continuer à aspirer à ce que l’Amour de votre Créateur vous bénisse grandement. Marchez avec vos yeux ouverts, permettant à la gloire de l’amour de couler de vous. Car mes chers amis, vous avez une abondance de cet Amour stocké dans vos âmes, attendant d’être déversé sur les autres. Donnez à vos âmes l’opportunité de couler et de toucher tous ceux qui sont parmi vous. Réveillez-vous dans vos âmes, mes chers amis, et marchez par la Grâce de Dieu.
 
 Je suis Yogananda et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

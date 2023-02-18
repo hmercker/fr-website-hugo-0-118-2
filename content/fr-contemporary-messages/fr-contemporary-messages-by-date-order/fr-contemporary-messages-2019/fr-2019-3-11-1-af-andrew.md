@@ -9,7 +9,7 @@ weight:
 ---
 ### Tendre la main aux autres, même s'ils n'épousent pas la même philosophie que vous
 
-André - reçu par Al Fike le 11 Mars 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 11 Mars 2019, Meyersdale, PA, USA.
 
 Nous vous remercions de vous être réunis, d’avoir créé ce Cercle de Lumière qui a apporté des bénédictions, de l’amour, des encouragements et la vérité à vos frères et sœurs. Bien que Dieu vous envoie sur vos routes individuelles sur le chemin de la vie, dans son amour pour vous tous, il vous réunit dans ces chambres cloîtrées d’amour dans l’espoir que vous vous lierez dans l’amour, que vous partagerez votre sagesse et votre amour les uns avec les autres, que vous pourrez vous aider les uns les autres sur ces voyages, ces routes singulières de la vie.
 
@@ -28,7 +28,3 @@ En priant pour ce don d’Amour Divin, vous renforcez votre propre lumière. Ain
 Merci, âmes bien-aimées, de faire l’effort de vous réunir de cette manière. Que les bénédictions de Dieu continuent à se déverser sur vous. Vous êtes toutes des âmes uniques et belles et vous êtes aimées tendrement par Dieu et par nous dans le Royaume Céleste. Puissiez-vous continuer à exprimer vos qualités uniques, la beauté de vos âmes, et tout ce que vous êtes dans ce monde. Que tout cela soit de l’amour, un reflet magnifique et scintillant de l’amour apportant une beauté et une lumière si uniques au monde.
 
 Merci, âmes bien-aimées. Que Dieu vous bénisse profondément. Je suis André. Je vous aime. Je vous aime. Que Dieu vous bénisse.
-
-
-
-

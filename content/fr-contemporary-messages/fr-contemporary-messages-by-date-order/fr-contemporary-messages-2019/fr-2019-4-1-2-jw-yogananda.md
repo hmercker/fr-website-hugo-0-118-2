@@ -9,11 +9,11 @@ weight:
 ---
 ### Nous ne sommes pas si différents
 
-Yogananda - reçu par Jimbeau Walsh le 1 Avril 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 1 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Mon cher garçon, mon cher ami, je souhaite commencer par le début car cela semble être le meilleur endroit pour commencer.
 
-Nous ne sommes pas si différents, toi et moi, bien que cette pensée ne te soit jamais venue à l'esprit jusqu'à maintenant car je la place dans ton cerveau. Mes parents souhaitaient que je devienne un homme spirituel, un enseignant, un gourou dans leur tradition et m'ont envoyé dans les écoles appropriées pour cette formation. Tes parents souhaitaient que tu deviennes prêtre et t'ont envoyé dans les écoles appropriées pour te former et t'inspirer, oui ? Nos mères étaient toutes deux des personnes profondément religieuses et cela a eu un effet sur nous deux très tôt dans nos vies de jeunes hommes. Tu es devenu un enfant de chœur et tu as souvent assisté à la messe quotidienne avec ta mère, oui ? Je priais, chantais et faisais des pujas<sup id="a1">[1](#f1)</sup> tous les jours à la maison ou au temple avec ma mère. J'avais accès à un système traditionnel très ancien qui pouvait me propulser sur la voie Hindoue en harmonie avec les désirs profonds de mon âme. J'ai développé mes dons et, bien sûr, tu connais assez bien mon histoire, en particulier depuis l'arrivée de Sri Yukteswar dans ma vie jusqu'à l'Amérique et le monde. Pour toi, qui as grandi en Occident et qui as des désirs spirituels profonds ainsi qu'une nature plutôt espiègle et très curieuse, les choses se sont passées un peu différemment.
+Nous ne sommes pas si différents, toi et moi, bien que cette pensée ne te soit jamais venue à l'esprit jusqu'à maintenant car je la place dans ton cerveau. Mes parents souhaitaient que je devienne un homme spirituel, un enseignant, un gourou dans leur tradition et m'ont envoyé dans les écoles appropriées pour cette formation. Tes parents souhaitaient que tu deviennes prêtre et t'ont envoyé dans les écoles appropriées pour te former et t'inspirer, oui ? Nos mères étaient toutes deux des personnes profondément religieuses et cela a eu un effet sur nous deux très tôt dans nos vies de jeunes hommes. Tu es devenu un enfant de chœur et tu as souvent assisté à la messe quotidienne avec ta mère, oui ? Je priais, chantais et faisais des pujas <sup id="a1">[1](#f1)</sup> tous les jours à la maison ou au temple avec ma mère. J'avais accès à un système traditionnel très ancien qui pouvait me propulser sur la voie Hindoue en harmonie avec les désirs profonds de mon âme. J'ai développé mes dons et, bien sûr, tu connais assez bien mon histoire, en particulier depuis l'arrivée de Sri Yukteswar dans ma vie jusqu'à l'Amérique et le monde. Pour toi, qui as grandi en Occident et qui as des désirs spirituels profonds ainsi qu'une nature plutôt espiègle et très curieuse, les choses se sont passées un peu différemment.
 
 Tu as simultanément souhaité une croissance spirituelle à partir de tes aspirations spirituelles et, en même temps, tu as poursuivi des désirs et des intérêts terrestres à la mesure de la révolution culturelle des années 1960 en Occident. La musique est devenue ta voie et ta passion, mais tu as également étudié de nombreux enseignements différents, du Christianisme ésotérique à la métaphysique, l'astrologie, les enseignements de Gurdjieff, les Soufis, la Gita, le Yoga, la Médiation et tu as suivi plusieurs gourous hindous et soufis, y compris l'étude de mes propres écrits. Tout cela, ainsi que ta nature quelque peu rebelle, t'a bien servi, mon cher fils, en te conduisant finalement à ta belle âme sœur et aux vérités de l'Amour de Dieu.
 
@@ -29,7 +29,3 @@ Il est temps maintenant pour moi de délivrer les enseignements plus larges à m
 <small>
 
 <large id=”f1”> La puja est un rite d'offrande et d'adoration de l'hindouisme, du bouddhisme et du jaïnisme. Sa signification et son déroulement sont différents dans ces trois traditions. (Source : Wikipédia).[↩](#a1)
-
-
-
-

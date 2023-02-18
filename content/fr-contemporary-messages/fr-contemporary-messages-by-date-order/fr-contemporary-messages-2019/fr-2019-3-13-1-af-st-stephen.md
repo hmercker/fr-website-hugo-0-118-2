@@ -9,7 +9,7 @@ weight:
 ---
 ### Il y a un pouvoir à ce don de perspicacité
 
-St Étienne - reçu par Al Fike le 13 Mars 2019, Gibsons, Colombie-Britannique, Canada
+St Étienne - reçu par Al Fike le 13 Mars 2019, Meyersdale, PA, USA.
 
 Dieu vous bénisse, âmes bien-aimées. Je m’appelle Étienne. Vous me connaissez, dans la Bible, sous le nom de Saint Étienne. Il y a beaucoup de changements dans votre monde et dans vos vies. Lorsque vous avez des rêves et des présages de ce qui est à venir, ne les rejetez pas, âmes bien-aimées, mais sachez que Dieu communique avec vous à travers votre âme et que dans cette communication viennent des idées, des visions et des choses à venir. Bien que votre esprit puisse interpréter ces choses de certaines manières, il y a un noyau de vérité.
 
@@ -30,6 +30,3 @@ Oui, Dieu vous a choisies, âmes bien-aimées, pour faire ce travail et vous le 
 Enfants bien-aimés, vous êtes profondément bénis. Je suis avec toi, mon fils. Je suis avec vous et je suis celui qui marche avec vous sur votre chemin. Il y a beaucoup de travail à faire, beaucoup de travail. Vous continuerez à être préparés, renforcés et guidés. Portez la vérité avec vous. Tenez-la bien haut et dites : *« Ceci est la Lumière de Dieu, la Vérité de Dieu, l’émerveillement du Toucher de Dieu. »* Faites-le dans la joie, la force et l’amour.
 
 Soyez en paix, âmes bien-aimées, et sachez que l’Amour de Dieu est le plus grand pouvoir de tout l’univers. Ce pouvoir de guérir et de transformer, de faire du neuf et du beau est avec vous. Que Dieu vous bénisse, âmes bien-aimées. Je suis Étienne. Je suis heureux de vous parler en ce jour, un nouveau jour, une nouvelle aube. Je serai avec toi, mon fils, lorsque tu parleras aux enfants. Sache-le et sois en paix. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous n'êtes jamais seul
 
-St Matthieu - reçu par Al Fike le 16 Avril 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 16 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que l'Amour soit sur vous, âmes bien-aimées et belles, frères et sœurs tous dans l'Amour du Père. Je suis Matthieu et je viens vous dire, âmes bien-aimées, que vous n'êtes jamais seules. Bien que vous puissiez vous sentir séparés et que les distances soient grandes entre vous, vous n'êtes jamais seuls. Dieu est toujours avec vous. Lorsque vous continuez à prier pour l'amour du Père, il envoie ses anges parmi vous pour que vous ne soyez jamais seuls. Lorsque vous avez besoin de réconfort, de guérison, d'élévation, d'amour, il vous suffit de prier et de demander cette bénédiction. Elle viendra d'une manière que vous reconnaîtrez, comprendrez et ressentirez comme une vérité. Car vous n'êtes jamais seul.
 
@@ -28,6 +28,3 @@ C'est votre choix, âmes bien-aimées. Dieu ne vous impose rien. Dieu attend que
 Puissiez-vous voir comment vos âmes se développent dans l'amour, comment vos âmes souhaitent influencer les préjugés et les pensées de votre esprit et les transformer en amour. Comme vous le faites, Dieu vous bénira et vous aidera dans cette transformation de l'être, de l'expression, en faisant émerger votre véritable moi. La vie est un grand cadeau, âmes bien-aimées, et la vie vous offre de nombreuses opportunités. Puissiez-vous saisir ce que Dieu vous a donné et puissiez-vous agir sur les perceptions et la compréhension qui viennent avec l'éveil de vos âmes et puissiez-vous toujours servir vos frères et sœurs dans l'amour. La Terre a besoin d'amour. Le monde a désespérément besoin de lumière, d'harmonie et de vérité. Puissiez-vous trouver votre chemin pour être un canal d'un certain degré pour apporter cela, pour faire passer le monde de l'obscurité à la lumière, pour aider à guérir et apporter la paix à votre monde. Dieu attend que chacun d'entre vous s'avance dans cette voie. Parfois, vous le faites et alors que vous le faites, cela deviendra plus facile et plus fluide, plus beau, comme vous exprimez les dons de vos âmes.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis Matthieu. Mon amour est avec vous. J'ai été avec chacun d'entre vous à différents moments, comme beaucoup de beaux Anges ont été avec vous dans votre jour et dans votre nuit. Que Dieu vous bénisse abondamment afin que vous reconnaissiez et sachiez que vous n'êtes jamais seuls. Que Dieu vous bénisse, âmes bien-aimées, mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

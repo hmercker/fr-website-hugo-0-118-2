@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne jugez pas les autres
 
-Matthieu - reçu par Al Fike le 3 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Matthieu - reçu par Al Fike le 3 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu bénisse vos âmes avec Son Grand Amour qui afflue dans vos âmes en grande abondance. Je suis Matthieu et je vous supplie de ne pas juger ceux qui ne sont pas d’accord avec votre perspective ou votre compréhension de la vérité, car il y a beaucoup, beaucoup d’idées et de pensées concernant la vérité dans votre monde. Ce qui est louable pour chacun de ces individus, c’est qu’ils s’efforcent de discerner la vérité et de servir, de servir souvent dans l’amour de l’humanité. Même s’ils ne suivent pas votre chemin, le Chemin de l’Amour Divin, il y a quelque chose en eux qui est de la lumière. Il y a un désir dans leur âme de donner de l’amour et d’aider leurs frères et sœurs dans ce monde, car il y en a tant qui sont perdus et effrayés, seuls et déconnectés en eux-mêmes.
 
@@ -32,10 +32,3 @@ Oui, le monde continuera à vous défier et vous continuerez à vous défier vou
 Que Dieu vous bénisse de Son Amour, âmes bien-aimées, et vous garde toujours dans Sa Lumière. Mon amour est avec vous et ma lumière que j’apporte afin que vous soyez bénis et élevés et que vous le fassiez pour vos frères et sœurs, car cette grande chaîne de Lumière continue à couler et à toucher beaucoup de gens. Que Dieu vous bénisse.
 
 Matthew vous aime. Que Dieu vous bénisse.
-
-
-
-
-
-
-

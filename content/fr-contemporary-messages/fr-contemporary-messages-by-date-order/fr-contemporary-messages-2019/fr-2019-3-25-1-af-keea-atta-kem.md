@@ -11,7 +11,7 @@ weight:
 
 Keea Atta Kem - reçu par Al Fike le 25 Mars 2019, Gibsons, Colombie-Britannique, Canada
 
-C’est Keea-atta Kem. Oui, vous avez des questions sur la guérison, la guérison de l’âme, la guérison du corps, la guérison de tout ce qui est en vous afin que vous puissiez connaître l’harmonie et la joie, la beauté d’une vie sans douleur ni restriction. Comment Dieu souhaite que chaque âme connaisse cette joie et cette liberté, qu’elle soit en harmonie et libérée de la condition humaine qui crée la disharmonie.
+C’est Keea Atta Kem. Oui, vous avez des questions sur la guérison, la guérison de l’âme, la guérison du corps, la guérison de tout ce qui est en vous afin que vous puissiez connaître l’harmonie et la joie, la beauté d’une vie sans douleur ni restriction. Comment Dieu souhaite que chaque âme connaisse cette joie et cette liberté, qu’elle soit en harmonie et libérée de la condition humaine qui crée la disharmonie.
 
 Mes âmes bien-aimées, mes chers amis, notre désir est que vous ayez aussi cette joie et cette liberté, que vous soyez élevés, que vous soyez toujours dans la lumière, que vous connaissiez la joie et la paix profondes lorsque l’harmonie est dans chaque cellule de votre corps, chaque partie de votre âme, chaque aspect de votre corps spirituel. C’est notre objectif et notre désir, et cela nous motive dans nos attentions et nos soins sur votre être. Alors que vous continuez à prier pour l’Amour du Père, vous vous rapprochez un peu plus de cette condition d’harmonie, mais le corps, l’esprit et l’âme sont des choses très complexes. Le corps contient des souvenirs dans chaque cellule. L’âme contient les souvenirs de chaque expérience.
 
@@ -48,6 +48,3 @@ Mes chers, très chers amis, sachez que nous sommes conscients de votre douleur 
 Dieu est toujours avec vous. Nous sommes toujours avec vous, et vous n’êtes jamais seuls. Demandez notre aide. Demandez les bénédictions de Dieu. Comme vous le savez bien, c’est la clé qui ouvrira la porte à ce que vous cherchez, à ce qui vous est promis et à ce qui viendra. Alors, mes chers et bien-aimés amis, que Dieu vous bénisse profondément, vous élève, vous guérisse et vous donne tout ce dont vous avez besoin pour vous guérir dans ce monde complexe et difficile. Que chaque cellule de votre être soit éclairée par l’Amour du Père, que chaque partie de votre être magnifique soit éveillée par l’Amour du Père, et que chaque vérité, chaque guérison, chaque don soit éveillé alors que vous continuez à grandir dans cet Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea. Je vous aime. Que Dieu vous bénisse.
-
-
-

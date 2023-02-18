@@ -9,7 +9,7 @@ weight:
 ---
 ### Se laisser utiliser par Dieu
 
-Augustin - reçu par Al Fike le 7 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 7 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes, je suis votre enseignant Augustin. Comme l'influence des Anges Célestes vous affecte tous, n'est-ce pas ? Il y a une touche du Divin qui s'infiltre sur la Terre, apportant la Lumière et la Vérité en utilisant de nombreux instruments pour faire avancer cela dans le monde. Qu'est-ce qui rend cela possible, âmes bien-aimées ? Qu'est-ce qui permet aux anges des Cieux Célestes de toucher, d'être avec et de parler aux mortels sur Terre ? C'est le pouvoir de l'Amour de Dieu dans vos âmes.
 
@@ -30,6 +30,3 @@ Ne soyez pas craintifs, enfants bien-aimés. Soyez joyeux. Soyez joyeux et antic
 Âmes bien-aimées, nous sommes avec vous et nous sommes heureux de ceux qui sont prêts à exprimer leurs dons dans toute leur beauté, tout leur potentiel. Je vous promets qu'à mesure que vous vous éveillerez, chères âmes, ces dons deviendront évidents et grandiront, se développeront et apporteront une grande lumière à votre monde.
 
 Que Dieu vous bénisse, chères âmes. Je suis votre enseignant Augustin et je continue à marcher avec vous tous sur ce merveilleux voyage de la vie. Mon amour est avec vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

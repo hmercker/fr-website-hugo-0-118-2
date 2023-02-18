@@ -9,7 +9,7 @@ weight:
 ---
 ### Qu’est-ce que l’âme ?
 
-Augustin - reçu par Al Fike le 9 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 9 Mars 2019, Meyersdale, PA, USA.
 
 Âmes bien-aimées, je suis Augustin et j’enseigne ces âmes bien-aimées qui sont venues partager avec vous la bénédiction de l’Amour Divin. Vous demandez, qu’est-ce que l’âme ? Quel est ce lieu profond en moi dont mes amis les anges ont dit qu’il était si vital et si important dans mon voyage spirituel ?
 
@@ -40,6 +40,3 @@ C’est donc le grand voyage, le grand éveil de votre être. Les trésors qui v
 Bien-aimés, Dieu place un festin devant vous. Il vous invite à recevoir tout ce qu’Il donne. Puissiez-vous aller de l’avant et puiser en vous tout ce qui vous est offert. Alors vous connaîtrez la joie profonde et durable d’une âme en harmonie avec Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je vous souhaite la bienvenue dans ce cercle, un cercle sur lequel se déverse beaucoup de lumière et où de nombreux anges sont avec vous, mes bien-aimés. Profitez de ces bénédictions. Ouvrez-vous aussi largement que vous le pouvez et avec votre foi, acceptez tout ce qui est donné et tout ce qui peut être. Que Dieu vous bénisse, mes bien-aimés. Augustin vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

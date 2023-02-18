@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Hommage à Barb<sup id=”a1”>[1](#f1)</sup>
+### Hommage à Barb <sup id=”a1”>[1](#f1)</sup>
 
-Augustin - reçu par Al Fike le 14 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 14 Avril 2019, West Vancouver, Colombie-Britannique, Canada
 
 C'est moi, Augustin. Je suis venu reconnaître notre cher et bien-aimé instrument qui a travaillé diligemment pendant de très nombreuses années sur votre Terre et a touché de nombreuses âmes avec amour. Grâce à ses efforts, chacun de vous a été touché par la vérité. Son héritage est ce cercle, ceux qui poursuivent cette Vérité de l'Amour de Dieu, et qui continueront à partager cette Vérité avec beaucoup. Pour toutes les âmes perdues qui ont trouvé du réconfort auprès de cet instrument cher et bien-aimé, qui a écouté sa guidance chaque jour et a mis en œuvre la volonté de Dieu dans sa vie. Âme bien-aimée (Barb), tu as construit un sacré héritage. Tu as apporté beaucoup de lumière dans le monde et ton âme est brillante d'amour. Lorsque ton heure viendra d'entrer dans le monde de l'esprit et de nous rejoindre dans la lumière et la joie de l'amour de Dieu, tu verras ce que tu as accompli par ta foi, par ta confiance en Dieu, par l'éclat de ton âme éveillée dans l'amour.
 
@@ -21,8 +21,3 @@ Que Dieu te bénisse, âme bien-aimée, et te garde dans Sa tendre attention, t'
 <small>
 
 1 <large id=”f1”> Barb fait référence à Barbara Davis.[↩](#a1)
-
-
-
-
-

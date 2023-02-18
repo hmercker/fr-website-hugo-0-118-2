@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour Divin de Dieu est donné gratuitement à toutes les âmes
 
-Augustin - reçu par Al Fike le 2 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 2 Mars 2019, Hollis Woods, Queens, NY, USA.
 
 Dieu vous bénisse, frères et sœurs bien-aimés, je suis votre enseignant Augustin. Oui, j’ai été avec cet instrument pendant de nombreuses années et son compagnon et d’autres qui ont été dans le cercle ensemble pendant de nombreuses années. Pendant de nombreuses années, j’ai enseigné les vérités de l’Amour Divin du Père et encouragé ces individus sur leur chemin. Je viens vous encourager, âmes bien-aimées, sur votre chemin, à rechercher le pouvoir de l’amour dans votre vie, à rechercher le Toucher de Dieu dans vos âmes. Car il y a beaucoup à apprendre pour chaque âme qui commence son voyage sur cette Terre, un voyage qui, en fait, se poursuivra pendant très longtemps. Construire un fondement ici sur votre Terre, marcher avec la vérité dans votre cœur, être un canal d’amour dans ce monde vous amènera plus haut et plus vite dans la lumière.
 
@@ -26,6 +26,3 @@ Ces deux âmes délicieuses viennent avec ce message ainsi que ceux qui les acco
 Réveillez-vous, mes bien-aimés, réveillez-vous à cette abondante bénédiction d’amour et vous vous trouverez dans des lieux élevés, dans la lumière, dans la joie, dans la sagesse et dans l’amour. Dieu donne à Ses enfants sans fin car l’Amour de Dieu pour Ses enfants est sans fin. Vous pouvez recevoir cette grande bénédiction goutte à goutte alors qu’elle entre dans votre âme et apporte la lumière, la guérison, la paix qui dépasse toute compréhension, elle vient à vous, vient à vous, âmes bien-aimées, afin que vous puissiez vous éveiller et connaître la vérité profonde.
 
 Que Dieu vous bénisse ainsi, belles, très belles âmes. Que Dieu vous bénisse profondément et réveille tout ce qui est à l’intérieur car il y a beaucoup de grands cadeaux et de bénédictions qui vous attendent et qui sont à vous si vous demandez. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je suis heureux de vous accompagner cet après-midi dans votre temps de prière. Que Dieu vous bénisse. Un ange est avec chacun d’entre vous. Sentez l’amour et l’élévation qui viennent avec le toucher de Dieu sur vous. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

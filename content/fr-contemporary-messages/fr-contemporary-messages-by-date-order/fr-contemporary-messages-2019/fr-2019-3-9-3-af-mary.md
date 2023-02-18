@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plan de Dieu est magnifique
 
-Marie - reçu par Al Fike le 9 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 9 Mars 2019, Meyersdale, PA, USA.
 
 Filles et fils bien-aimés, je suis Marie. Savez-vous combien Dieu vous aime ? Ne pouvez-vous pas sentir Son Amour pour vous ? Il se déverse sur votre âme en ouvrant les fentes et les fissures, la lumière se déverse, ajoutant à ce qui est là et éveillant ce qui peut être. Savez-vous combien Dieu a besoin que vous soyez en alignement avec Sa grande âme afin qu’Il puisse vous utiliser comme Ses canaux d’amour, qu’Il puisse vous utiliser pour toucher beaucoup d’autres âmes dans votre monde, un monde qui a tellement besoin d’amour ?
 
@@ -28,6 +28,3 @@ Vous êtes Ses enfants et Il prend soin de vous très tendrement et vous donne c
 Que Dieu vous bénisse profondément, mes bien-aimés, et sachez que je suis proche et que mes prières vont à Dieu pour votre bénéfice et vos bénédictions. Je fais partie de beaucoup, beaucoup de belles âmes, des anges dans le Ciel qui continuent à vous soutenir et à marcher avec vous et à enseigner et à guider et à guérir et à élever, à inspirer. Le plan de Dieu est magnifique, mes bien-aimés, et vous êtes tous dans le flux de sa volonté et de son plan. Sachez ceci. Il y a tellement de choses que vous pouvez savoir alors que vous continuez à vous éveiller dans vos âmes. Apprenez à connaître votre véritable moi et soyez avec Dieu à chaque respiration.
 
 Dieu vous bénit, mes bien-aimés, et je vous aime. Je suis avec vous. Je vous aime. Je suis Marie. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

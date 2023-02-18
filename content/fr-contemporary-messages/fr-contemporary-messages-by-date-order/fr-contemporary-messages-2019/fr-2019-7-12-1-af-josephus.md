@@ -9,17 +9,17 @@ weight:
 ---
 ### Se préparer spirituellement aux changements à venir dans le monde
 
-Flavius Joseph - reçu par Al Fike le 12 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Joseph - reçu par Al Fike le 12 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Flavius Josèphe. Je souhaite moi aussi vous remercier d’avoir écouté, d’avoir participé à ce Cercle de Lumière. Je souhaite également vous donner une dernière occasion à tous de poser une question qui pourrait recevoir une réponse appropriée à ce temps passé ensemble. Je vais vous donner cette opportunité maintenant, âmes bien-aimées, si vous souhaitez la poser.
 
-Puis-je poser une question ?
+*[Puis-je poser une question ?]*
 
 Je vous en prie, mon frère.
 
 *|Question : J’ai entendu tout à l’heure les propos de Jésus à propos des changements à venir qui exprimaient que, selon le plan de Dieu, il ne sera pas permis à l’humanité, à la perversion de l’humanité de stériliser ce monde et d’arriver à un point où la vie ne pourra plus exister. En pensant aux différentes périodes historiques, le temps d’Abraham, le temps de Moïse, le temps de Jésus il y a environ 2000 ans, chacune d’entre elles a été presque comme un catalyseur pour créer un changement. En ce moment, je vois comment l’humanité est dans l’énergie, l’énergie sombre, je sens qu’on atteint le point critique, un point de basculement créant un point d’inflexion, c’est vraiment causé par l’humanité, la destruction est causée par l’humanité et n’est pas causée par Dieu. Pouvez-vous partager, au sein de ce Cercle de Lumière, votre point de vue ? Nous avons des outils technologiques, des sites Web par exemple, pour partager la vérité, pour partager l’information ; nous voyons qu’il devrait y avoir une sorte de catalyseur pour tout rassembler. Pouvez-vous nous expliquer, comment le plan de Dieu peut nous aider à inverser la direction vers laquelle l’humanité se dirige ? Je vois que des millions de personnes peuvent périr dans ce processus de changement, de ré-équilibrage de la vie. C’est donc ma question, Flavius Josèphe.]*
 
-Réponsse : Je vois votre question comme une déclaration sur les conditions de votre monde et ce que vous exprimez est vrai.
+*[Réponsse :]* Je vois votre question comme une déclaration sur les conditions de votre monde et ce que vous exprimez est vrai.
 Quant à ce qui se manifestera dans les temps à venir en ce qui concerne ces changements, cela dépend dans une certaine mesure des choix que l’humanité fera et de la manière dont elle fera face à ces changements et choisira l’harmonie ou la destruction.
 
 Oui, je crains que des millions de personnes périssent, ami bien-aimé, que beaucoup choisissent la dernière solution plutôt que la première. Mais vous devez considérer que ce monde, ce plan d’existence, n’est qu’un parmi tant d’autres et que, par conséquent, ils n’ont pas perdu leur opportunité de grandir dans l’amour et la lumière, mais ils ont seulement renoncé à leur opportunité de grandir dans l’amour et la lumière dans ce monde. Car ce monde ne peut pas supporter le fardeau de ces nombreux choix destructeurs de l’humanité, cette grande soif de matérialisme qui continue à épuiser la vitalité de votre monde.
@@ -37,6 +37,3 @@ Nous vous donnons la clé, âmes bien-aimées, nous vous donnons les clés d’u
 S’il vous plaît, âmes bien-aimées, venez à cette réalisation et marchez dans la foi. N’essayez pas de vous isoler de ce qui vient, soyez plutôt joyeux et réalisez que Dieu vous guidera chaque jour et que chaque opportunité qui se présentera à vous sera bénie. Vous saurez, vous verrez, vous serez guidés au fur et à mesure des changements. Comme vous continuez à écouter, comme vous continuez à avoir foi dans le plan de Dieu, alors tout viendra en harmonie avec vos vies et les nombreuses vies qui seront affectées par ces âmes qui choisissent de faire partie de cette grande vague de changement, cette grande vague de lumière qui continue à couler et à toucher votre monde, ce cadeau de Dieu, ce cadeau de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Encore une fois, je vous remercie pour vos efforts, vos contributions, vos prières, votre amour les uns pour les autres. Puissiez-vous continuer à vous ouvrir à la vérité, à appliquer la vérité à tous les égards dans vos vies et vous trouverez que Dieu vous guidera chaque jour et vous amènera à ce lieu de vérité, d’harmonie, d’amour. Merci, mes bien-aimés. Merci, âmes bien-aimées. Je suis Flavius Josèphe. Que Dieu vous bénisse profondément. Que Dieu vous bénisse.
-
-
-

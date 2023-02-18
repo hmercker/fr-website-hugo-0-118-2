@@ -9,7 +9,7 @@ weight:
 ---
 ### La terre promise
 
-Moïse - reçu par Jimbeau Walsh le 10 Avril 2019, Punalu’u, Oahu, Hawaii, USA
+Moïse - reçu par Jimbeau Walsh le 10 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Moïse et je viens parler de l’attention soin que Dieu apporte à tous ses enfants. En mon temps, je suis passé des richesses du palais aux errances dans le désert. Je me suis demandé : *« Comment allons-nous nourrir ces gens ? Comment allons-nous prendre soin d’eux ? Où allons-nous dormir ? Que nous arrivera-t-il ? »* Alors j’ai prié et chaque besoin a été pris en charge.
 
@@ -20,6 +20,3 @@ Tout vous sera fourni. Comme je l’ai dit ici à mon petit-fils spirituel avec 
 Ayez donc la foi et ne soyez pas troublés. Nous sommes là pour vous. L’amour de Dieu vous a tous bénis et continuera à le faire. Je vous envoie mon amour et mes bénédictions. Nous sommes si nombreux ici à veiller sur vous, à vous aider. Nous continuerons à le faire. Que Dieu vous bénisse tous.
 
 Je suis votre frère dans l’Amour de Dieu, Moïse. Mon amour à tous.
-
-
-

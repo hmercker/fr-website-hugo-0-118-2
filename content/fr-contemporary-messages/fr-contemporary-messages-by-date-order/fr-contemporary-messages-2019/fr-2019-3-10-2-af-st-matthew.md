@@ -9,7 +9,7 @@ weight:
 ---
 ### Puissiez-vous tenir compte de l'appel
 
-St Matthieu - reçu par Al Fike le 10 Mars 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 10 Mars 2019, Meyersdale, PA, USA.
 
 Je suis Matthieu. Le printemps commence à poindre, n’est-ce pas ? Après la longue neige de l’hiver, il y a de la chaleur et de la bonté qui reviennent sur la Terre. Il en est de même pour vos âmes, mes bien-aimés. Une nouvelle vie émerge de la chaleur de l’Amour du Père. De nombreuses bénédictions viendront alors que vos âmes continuent à s’éveiller dans l’Amour. Il en sera ainsi, mes bien-aimés, il en sera ainsi. Le réveil de vos âmes s’annonce petit à petit. L’émergence de ces dons qui sont restés en sommeil dans votre âme viendra à la lumière et fleurira dans l’amour.
 
@@ -40,6 +40,3 @@ Vous verrez, mes bien-aimés. Vous verrez que le temps continue à vous faire av
 Âmes bénies et bien-aimées, puissiez-vous continuer à recevoir ces grands dons d’Amour. Puisse-t-il continuer à ouvrir les portails de votre âme, afin que la lumière puisse circuler et que la volonté de Dieu puisse se manifester dans vos vies. Âmes belles et bénies, vous vous tenez sur le seuil d’un jour nouveau, l’aube de la vérité de l’amour dans votre monde. Puissiez-vous vous tenir main dans la main dans ce grand service et ce grand événement du déploiement du plan de Dieu pour le salut de l’humanité.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse dans vos voyages et sachez que vous n’êtes jamais seuls et qu’à chaque instant vient le potentiel de servir l’humanité dans l’amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et j’ai un grand amour pour vous, pour tous ceux qui sont prêts à marcher dans la lumière et la vérité et à servir dans la lumière et la vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

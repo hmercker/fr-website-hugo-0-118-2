@@ -9,7 +9,7 @@ weight:
 ---
 ### La dualité de l'âme et de l'esprit
 
-Sri Yukteswar - reçu par Al Fike le 9 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Sri Yukteswar - reçu par Al Fike le 9 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que l'amour de Dieu trouve une place profonde dans votre cœur. Je suis Sri Yukteswar. Je suis venu pour être avec vous en tant que groupe d'âmes diverses sur des chemins individuels qui sont dédiés à la croissance de votre âme, à l'éveil de ces parties profondes en vous. Je souhaite vous dire que dans les Royaumes des Cieux Célestes, de nombreuses races et individus se rassemblent en harmonie, mais quelle que fut leur expérience sur Terre, quelles que furent leurs croyances au cours de leur voyage sur cette Terre qui est la vôtre, il y a une réconciliation de la vérité dans l'âme de chaque bel individu qui passe les portes du Ciel Céleste. Nous sommes unis dans notre message à ceux de votre monde, que le pouvoir de la grande source d'Amour, Dieu le Créateur, est le chemin qui mènera à l'illumination de l'âme.
 
@@ -19,7 +19,7 @@ Tant de gens s'éprennent de la purification du mortel et ne se rendent pas comp
 
 Pour beaucoup d'entre vous, vous éprouvez une lutte profonde pour trouver cet équilibre de vos deux moi. C'est une lutte noble, qui n'est pas souvent menée par les mortels, car ils sont trop distraits par les conditions de votre monde et trop impliqués dans les actions conscientes et attentives de la vie quotidienne. Aller plus loin et au-delà de cette réalité qui a été créée par l'homme est un chemin rarement emprunté dans votre monde. Pourtant, en effet, quelques âmes courageuses continuent à aller de l'avant pour chercher un sens plus profond et la vérité dans la vie.
 
-Mes chers et beaux amis, je salue vos efforts. Je vois parmi vous une sincérité, une ferveur dans votre vie spirituelle et vous recherchez effectivement la Source de Tout, cherchant à nourrir cette partie plus profonde qu'est votre âme. Puissiez-vous continuer à le faire et, alors que vous grandissez dans ce que vous appelez l'Amour Divin, puissiez-vous continuer à vous éveiller d'une manière qui vous étonnera et d'une manière qui pourrait être d'un grand bénéfice pour vos frères et sœurs dans ce monde. 
+Mes chers et beaux amis, je salue vos efforts. Je vois parmi vous une sincérité, une ferveur dans votre vie spirituelle et vous recherchez effectivement la Source de Tout, cherchant à nourrir cette partie plus profonde qu'est votre âme. Puissiez-vous continuer à le faire et, alors que vous grandissez dans ce que vous appelez l'Amour Divin, puissiez-vous continuer à vous éveiller d'une manière qui vous étonnera et d'une manière qui pourrait être d'un grand bénéfice pour vos frères et sœurs dans ce monde.
 
 Beaucoup peut être donné par un instrument éveillé dans l'Amour. Beaucoup de perspicacité et de Vérité sont disponibles pour une âme qui est intégrée à l'esprit de cette façon. Il est important que vous continuiez à rechercher l'équilibre, à vivre votre vie dans l'équilibre et l'amour. Ne surchargez aucune partie de votre être, car l'équilibre est important. Acceptez le don de l'esprit, encouragez le don de l'âme, rassemblez ces deux dons d'une manière consciente qui fera naître une vérité profonde, des idées puissantes, toutes animées par l'amour.
 
@@ -28,6 +28,3 @@ Vous êtes sur la bonne voie, mes amis. Nous, dans le Royaume Céleste, qui vivo
 Toutes les ressources que nous pouvons donner à ces âmes courageuses telles que vous, seront disponibles, vous soutiendront, vous élèveront et vous porteront en avant. Nous sommes avec vous et nous sommes nombreux, très nombreux ; certains dont vous avez entendu parler et d'autres non. Puissiez-vous continuer sur ce chemin d'éveil, de joie, de recherche du Dieu de toute vie et de tout amour, d'être à l'intérieur de votre âme et d'intégrer tout ce que vous êtes censés être et de vous éveiller à tous les potentiels qui sont à l'intérieur de chaque âme, chaque belle, unique, complexe et éblouissante âme.
 
 Que Dieu vous bénisse profondément mes amis. Sri Yukteswar est avec vous dans vos efforts. Dieu vous bénisse, Dieu vous bénisse.
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### N'ignorez pas le conseil de votre âme
 
-Keea Atta Kem - reçu par Maureen Cardoso le 3 Mars 2019, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 3 Mars 2019, Abbotsford, Colombie-Britannique, Canada.
 
-Âmes bien-aimées, je suis Keea, Keea-atta Kem et je me joins à vous dans votre temps de prière, dans votre cercle de lumière. Fils bien-aimé, quelle prière qui vient du cœur et de l’âme tu as partagée pour ouvrir ce cercle. Que Dieu vous bénisse pour avoir parlé depuis votre âme.
+Âmes bien-aimées, je suis Keea, Keea Atta Kem et je me joins à vous dans votre temps de prière, dans votre cercle de lumière. Fils bien-aimé, quelle prière qui vient du cœur et de l’âme tu as partagée pour ouvrir ce cercle. Que Dieu vous bénisse pour avoir parlé depuis votre âme.
 
 Mes amis, il m’a été demandé de venir partager un message avec vous. Car c’est moi qui ai été chargé de superviser ces Cercles de Lumière que vous faites à travers les fils, en rapprochant vos âmes de Dieu et en reconnaissant les possibilités de se sentir si proches les uns des autres, même si vous êtes éloignés. Chacun de vous, dans vos maisons respectives, aspire et prie ensemble.
 
@@ -35,7 +35,4 @@ Je vous encourage à en faire une pratique régulière, car cela vous aidera à 
 
 Vous avez en vous un conseiller très profond. Soyez amis avec votre âme, mes bien-aimés, et que la guérison profonde, la grande paix et l’amour, l’unité et l’harmonie soient à vous par ces efforts que vous vous disciplinez à faire.
 
-Je suis Keea-atta Kem. Vous êtes tous très chers pour moi. Mon amour est avec vous et j’envoie une bénédiction de guérison à chacun d’entre vous alors que vous êtes assis en prière pour recevoir l’Essence de l’Amour de Dieu dans vos âmes. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Je suis Keea.
-
-
-
+Je suis Keea Atta Kem. Vous êtes tous très chers pour moi. Mon amour est avec vous et j’envoie une bénédiction de guérison à chacun d’entre vous alors que vous êtes assis en prière pour recevoir l’Essence de l’Amour de Dieu dans vos âmes. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Je suis Keea.

@@ -9,11 +9,11 @@ weight:
 ---
 ### Q&R : Choisissez toujours la lumière et l'amour
 
-Flavius Josèphe - reçu par Al Fike le 15 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 15 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Flavius Josèphe et je suis de retour et quelque peu amusé que vous continuiez avec vos questions qui semblent être un flux sans fin de curiosité. Mais cela m'enchante, car l'un de mes dons est d'aider à articuler la Vérité de manière à ce que les autres puissent la comprendre, d'amener des sujets complexes à des explications simples. Je vais donc essayer de le faire, et je suis conscient de votre question car j'étais avec vous lorsque vous avez discuté de ce sujet et fait référence à ma présence.
 
-Malheureusement, la question n'a pas été notée à ce moment-là.
+*[Malheureusement, la question n'a pas été notée à ce moment-là.]*
 
 Votre existence dans ce monde apporte ses influences et ses énergies de nombreuses façons différentes. Comme vous le savez bien, chaque action entraîne une réaction, chaque pensée a un certain impact dans votre monde, chaque émotion a également son impact dans votre monde. Selon la gravité et l'intensité de ces éléments de votre être, exprimés à chaque instant dans votre monde, une condition est créée, quelque chose en résulte, car vous êtes des générateurs et des récepteurs d'énergies. Ainsi, lorsque vos expressions et vos pensées, vos actions et vos actes sont sombres et manquent d'amour, vous générez cela, le créant pour ainsi dire dans l'univers de votre existence. Et inversement, lorsque d'autres expriment des conditions qui sont sombres envers vous ou même s'expriment globalement en fonction de la condition dans laquelle vous vivez, alors vous pouvez recevoir et absorber dans une certaine mesure ces énergies et ces conditions. Comme pour la lumière, ces lois s'appliquent.
 
@@ -46,10 +46,3 @@ Vous devez continuer à parler de ces vérités, du pouvoir de l'amour de Dieu p
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément avec Son Amour. Puissiez-vous toujours choisir la Lumière. Quoi que vous fassiez, où que vous soyez, puissiez-vous toujours choisir la Lumière, car c'est la sagesse profonde, c'est la Vérité. Vous devez toujours la porter d'une manière consciente.
 
 Que Dieu vous bénisse, soyez aimés. Mes bénédictions sont avec vous. Je suis Flavius Josèphe. Que Dieu vous bénisse.
-
-
-
-
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### Les cercles de lumière apportent une grande valeur
 
-Keea Atta Kem - reçu par Al Fike le 9 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 9 Mars 2019, Meyersdale, PA, USA.
 
-Je suis Keea-atta Kem. Nous sommes très heureux lorsque vous vous réunissez de cette manière pour former ces Cercles de Lumière. Car lorsque vous êtes d’un même esprit et que vous partagez parmi vos âmes un profond désir d’être avec Dieu et de recevoir ce cadeau de l’Amour Divin, nous sommes capables de nous rapprocher de vous et de vous assister de nombreuses manières et de vous aider à connaître vos propres âmes. Nous vous aidons à éliminer les conditions et les barrières qui vous empêchent d’accéder à cette conscience, à cette expérience.
+Je suis Keea Atta Kem. Nous sommes très heureux lorsque vous vous réunissez de cette manière pour former ces Cercles de Lumière. Car lorsque vous êtes d’un même esprit et que vous partagez parmi vos âmes un profond désir d’être avec Dieu et de recevoir ce cadeau de l’Amour Divin, nous sommes capables de nous rapprocher de vous et de vous assister de nombreuses manières et de vous aider à connaître vos propres âmes. Nous vous aidons à éliminer les conditions et les barrières qui vous empêchent d’accéder à cette conscience, à cette expérience.
 
 Avec chaque âme précieuse ici, vous venez ajouter votre force spirituelle, votre lumière spirituelle. Cela peut être d’une grande valeur les uns pour les autres, car comme vous apportez vos dons, nous sommes en mesure de les mélanger et de les utiliser au profit de vos frères et sœurs, non seulement ici dans ce cercle, mais dans de nombreux endroits du monde. Il y a donc un grand bénéfice qui en découle. Il y a beaucoup de bénédictions qui peuvent venir de ce cercle pour bénéficier à beaucoup d’autres.
 
@@ -19,9 +19,4 @@ Avec chaque âme précieuse ici, vous venez ajouter votre force spirituelle, vot
 
 Nous sommes en effet très heureux et satisfaits d’être avec vous dans ce Cercle de Lumière et de travailler avec vous dans ces efforts pour vous élever et élever le monde. Gardez ces choses dans vos prières et vos pensées, car cela attire de nombreux anges vers vous et attire les bénédictions de Dieu sur vous. Puissiez-vous être profondément bénis, mes chers amis bien-aimés, et venir à connaître vos belles âmes. Je t’aime. Je vous aime tous et chacun, précieux, beaux, dans la lumière et l’amour.
 
-Que Dieu vous bénisse, mes bien-aimés. Je suis Keea-atta Kem et je sers dans le flux et la grâce de Dieu pour vous assister, vous aimer et vous élever. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-
-
-
+Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem et je sers dans le flux et la grâce de Dieu pour vous assister, vous aimer et vous élever. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.

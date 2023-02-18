@@ -9,9 +9,9 @@ weight:
 ---
 ### Alimentez ce treillis de lumière
 
-Augustin - reçu par Al Fike le 19 Mai 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 19 Mai 2019, Gibsons, Colombie-Britannique, Canada.
 
-C'est votre enseignant Augustin. Je souhaite continuer à vous encourager à alimenter ce treillis de lumière que nous construisons ensemble.<sup id=”a1”>[1](#f1)</sup> Ce treillis est très important pour élever l'humanité. Il fait partie du plan de Dieu qui va changer ce monde. Ces débuts d'efforts pour être ensemble de cette manière et pour prier pour que cette bénédiction de lumière enveloppe le monde sont importants. Je tiens à vous assurer que d'autres personnes continuent à prier et à s'associer à vos efforts. Nous en encouragerons beaucoup et il y a des esprits qui encourageront ceux que vous ne connaissez pas mais qui feront partie de cet effort.
+C'est votre enseignant Augustin. Je souhaite continuer à vous encourager à alimenter ce treillis de lumière que nous construisons ensemble <sup id=”a1”>[1](#f1)</sup>. Ce treillis est très important pour élever l'humanité. Il fait partie du plan de Dieu qui va changer ce monde. Ces débuts d'efforts pour être ensemble de cette manière et pour prier pour que cette bénédiction de lumière enveloppe le monde sont importants. Je tiens à vous assurer que d'autres personnes continuent à prier et à s'associer à vos efforts. Nous en encouragerons beaucoup et il y a des esprits qui encourageront ceux que vous ne connaissez pas mais qui feront partie de cet effort.
 
 De nombreuses âmes dans le monde, mes bien-aimés, en viennent à comprendre le pouvoir de la prière. Au sein de leurs âmes, elles tendent la main à Dieu. Dieu utilise leurs désirs, leurs efforts et leurs prières pour éveiller plus de bénédictions pour ce monde. Bien que vous ne soyez pas conscients de cet effort quelque peu coordonné pour réveiller l'humanité, il y a beaucoup de choses qui se passent sous la surface. De nombreux efforts sont déployés dans votre monde et vous en faites partie. Vous aidez à les alimenter, car en atteignant le plus haut, mes bien-aimés, en continuant à vous éveiller dans vos âmes, en continuant à mettre vos prières en avant pour le bénéfice et les bénédictions de l'humanité, vous êtes une influence puissante dans ce grand réseau de lumière et vous contribuerez et ferez votre part dans cet effort.
 
@@ -27,8 +27,3 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je
 <small>
 
 1 <large id=”f1”> Le treillis de lumière est créé par les divers participants aux cercles de prière simultanés « par-delà les fils (Internet) » dans le monde entier.[↩](#a1)
-
-
-
-
-

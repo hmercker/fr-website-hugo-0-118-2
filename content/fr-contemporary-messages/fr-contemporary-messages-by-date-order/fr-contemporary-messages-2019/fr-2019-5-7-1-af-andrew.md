@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour de Dieu apporte l'unité
 
-André - reçu par Al Fike le 7 Mai 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 7 Mai 2019, Gibsons, Colombie-Britannique, Canada.
 
 Chacun d'entre vous entreprend un voyage unique vers Dieu. Chacun de vous a un but unique que Dieu a placé dans son âme. Chacun de vous voit le monde avec ses propres yeux qui sont uniques dans leurs perceptions et leurs compréhensions du monde. C'est l'Amour de Dieu, les bénédictions de Son amour dans vos âmes qui apportent l'unité. Il apporte un sens de l'autre qui est profond et puissant et qui vient de l'âme lorsque l'âme est éveillée par l'Amour de Dieu. Vous serez capables de vous voir les uns les autres sous différentes lumières, différentes façons de connaître, d'une manière qui engendre la connexion, l'amour, l'acceptation et la compréhension.
 
@@ -20,6 +20,3 @@ Comment Dieu peut utiliser ceux d'entre vous qui sont prêts à tendre la main �
 Continuez à prier pour l'ouverture de votre âme afin de recevoir cette grande bénédiction. Continuez à vous ouvrir les uns aux autres dans l'amour. Permettez au toucher transformationnel de l'Amour de Dieu de s'étendre et de toucher les autres. Permettez à cette belle Lumière de vous lier pour toujours dans la progression éternelle vers l'unification avec Dieu. Dieu est avec vous, âmes bien-aimées. Dieu vous portera. Dieu vous montrera le chemin et vous amènera à ce lieu d'amour profond et d'acceptation de tous, rassemblant l'humanité en harmonie, afin que tout ce qui n'est pas de Dieu puisse tomber et que tout ce qui est en harmonie avec Dieu puisse s'épanouir.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis André et mon amour est avec vous, mes bien-aimés. Je suis toujours avec vous car je fais partie de votre famille et je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

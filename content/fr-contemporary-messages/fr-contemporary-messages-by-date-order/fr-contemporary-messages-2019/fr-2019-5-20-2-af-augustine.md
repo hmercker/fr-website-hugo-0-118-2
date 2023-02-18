@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est temps d'agir et d'être proactif dans l'éveil de votre âme
 
-Augustin - reçu par Al Fike le 20 Mai 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 20 Mai 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. N'oubliez pas les vœux que vous avez faits, chacun d'entre vous, envers cette entreprise. Vous vous êtes proclamés instruments et canaux de Dieu, vous avez dit que vous marcheriez sur la Terre guidés par Dieu, que votre but est de vous éveiller dans vos âmes, de connaître Dieu à chaque respiration, d'être en harmonie et en synchronicité avec votre Père Céleste, que vous aspirerez à Son Amour avec de grands efforts de prière, avec le désir d'être dans la Lumière.
 
@@ -56,6 +56,3 @@ Je sais que nous vous demandons beaucoup, mes bien-aimés. Je sais que ce n'est 
 Nous poursuivrons nos efforts et notre travail ensemble, pour marcher dans la Lumière de l'Amour de Dieu, pour marcher dans la Lumière de la Vérité, pour être Ses instruments et Ses canaux, pour être dans ce royaume de Grâce. Que Dieu continue à vous bénir, âmes bien-aimées. Puissiez-vous continuer à exercer votre volonté vers plus de lumière, de compréhension et de vérité, à être ouvertes à tout ce qui peut être donné, et à vous tourner toujours vers la lumière. Puissent vos âmes se développer et éveiller chaque partie de vous, chaque cellule de votre corps, chaque pensée de votre esprit, chaque énergie de votre esprit. Tout ce que vous êtes peut être réclamé par Dieu dans Son Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je continue à vous parler de la vérité, à vous encourager à vivre dans la vérité. Mon amour est toujours avec vous alors que les nombreux anges du Ciel continuent à prier pour vous et à faire des efforts au nom de Dieu pour éclairer votre chemin et vous guider. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Augustin vous aime. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Lâcher prise sur les illusions de la condition humaine (Collection générale 2019)
 
-Yogananda - reçu par Al Fike le 4 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 4 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 C’est un cadeau pour vous, en ce jour, mes amis. Je suis Yogananda. Je viens vous saluer en ce jour et vous rappeler, que chaque jour est un cadeau. Chaque jour, ce contact, ce doux nectar d’Amour est offert à votre âme. Je suis heureux d’être ici avec vous qui cherchez à connaître la vérité, qui cherchez Dieu dans vos vies, à connaître le sens et la vérité, à connaître l’amour et la joie.
 
@@ -38,6 +38,3 @@ C’est le désir de Dieu pour chacun d’entre vous et pour tous ceux qui sont 
 Je vous remercie, chers amis, d’avoir écouté mon exposé. Je reviendrai car je continue à servir Dieu avec le désir d’apporter la vérité au monde, comme le font beaucoup de mes collègues, les beaux anges des Cieux Célestes. Nous travaillons tous ensemble à ces fins, pour vous guider, pour continuer à parler de la vérité, et pour marcher avec vous alors que vous vous éveillez à la vérité.
 
 Que Dieu vous bénisse profondément, mes beaux amis. Que cet Amour de Dieu soit votre désir singulier de recevoir. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Yogananda, à votre service et je vous aime profondément. Que Dieu vous bénisse.
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### Reconnaître sa propre responsabilité et sa capacité à contribuer au salut de l'humanité
 
-Seretta Kem - reçu par Al Fike le 19 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 19 Mars 2019, St. Louis, Missouri, USA.
 
-Dieu vous bénisse, âmes bien-aimées, je suis Seretta Kem. Je suis venu pour vous soutenir dans vos efforts pour la poursuite de l’établissement de ce réseau de lumière, ce treillis de lumière dans le monde. (Re : Cercles de Prière En ligne). Ceux d’entre vous qui continuent à prier et à consacrer leur temps à l’établissement de ce mécanisme important pour apporter une plus grande lumière et des bénédictions à votre monde sont profondément bénis pour ces efforts. Il y a une grande appréciation de notre côté de la vie pour ceux d’entre vous qui sont prêts à prendre ce temps dans la prière, dans la connexion, dans la camaraderie et dans le dévouement à la vérité.
+Dieu vous bénisse, âmes bien-aimées, je suis Seretta Kem. Je suis venu pour vous soutenir dans vos efforts pour la poursuite de l’établissement de ce réseau de lumière, ce treillis de lumière dans le monde. *[Re : Cercles de Prière En ligne.]* Ceux d’entre vous qui continuent à prier et à consacrer leur temps à l’établissement de ce mécanisme important pour apporter une plus grande lumière et des bénédictions à votre monde sont profondément bénis pour ces efforts. Il y a une grande appréciation de notre côté de la vie pour ceux d’entre vous qui sont prêts à prendre ce temps dans la prière, dans la connexion, dans la camaraderie et dans le dévouement à la vérité.
 
 Âmes bien-aimées, avec le temps, ce réseau englobera le globe et sera utilisé pour de nombreux objectifs et bénédictions différents pour vos frères et sœurs dans votre monde. Car Dieu initie de nombreux et différents éléments et bénédictions pour aider à élever votre monde dans la lumière. Il y a un grand effort pour inspirer beaucoup de personnes à servir dans ces capacités, pour établir ces réseaux. Car avec l’inclusion de beaucoup d’autres dans ces efforts, quelle que soit la manière dont Dieu souhaite utiliser et exprimer ces bénédictions, il y a un grand déversement d’énergie qui donne du pouvoir à beaucoup de choses et de nombreuses bénédictions à l’humanité.
 
@@ -38,8 +38,3 @@ Ainsi, âmes bien-aimées, ceci peut être votre destin, étant donné votre cho
 Je vous dis donc, mes amis, que Dieu vous bénisse profondément de son amour. Puissiez-vous porter haut la flamme de la vérité en déclarant à l’humanité : « Voici l’avenir. C’est ce qui doit être dans notre monde. Le pouvoir de l’amour fera avancer l’humanité. » Puissiez-vous vraiment savoir cela au sein de vos âmes, mes amis, et en venir à reconnaître que vous êtes arrivés sur la plus haute et la plus puissante des vérités qui apportera des résultats qui sont difficiles à imaginer pour vous en ce moment, mais qui arrivent. Cela va vraiment venir. Cela doit venir. Car l’humanité en a grand besoin. L’humanité doit se tourner vers la lumière et tous les efforts du ciel sont dirigés vers ceux qui sont prêts à tourner leur visage vers la lumière et vers leur créateur.
 
 Vous êtes profondément bénis, mes amis, profondément bénis. Puissiez-vous continuer à être ouverts, à recevoir ces grandes bénédictions et ces cadeaux d’en haut. Que Dieu vous bénisse, mes amis. Je suis Seretta Kem. Que Dieu vous bénisse.
-
-
-
-
-

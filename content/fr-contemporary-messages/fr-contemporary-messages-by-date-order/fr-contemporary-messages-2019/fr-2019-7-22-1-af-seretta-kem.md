@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher dans le monde comme des instruments de Dieu
 
-Seretta Kem - reçu par Al Fike le 22 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 22 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem. Votre travail continue, n’est-ce pas, mes amis ? Votre travail se poursuit sur ce plan terrestre, pour apporter la Lumière et l’Amour, l’élévation et la paix, la Vérité et la joie. Beaucoup bénéficient de vos efforts. Beaucoup bénéficieront de vos efforts et il y a beaucoup à faire pour vous, âmes bien-aimées, comme nous l’avons dit si souvent. Tant de travail est nécessaire dans votre monde. Tant d’amour est nécessaire dans votre monde. Tant de vérité doit venir dans votre monde. Chacun de vous continue à s’avancer d’une certaine manière et à toucher les âmes qu’il rencontre dans son travail et sa vie quotidienne.
 
@@ -32,6 +32,3 @@ Marchez dans votre monde avec de la joie dans votre cœur et un grand amour pour
 Puissiez-vous écouter vos âmes. Écoutez la guidance que Dieu continue à déverser en vous. Soyez conscients. Ayez foi en cette compréhension qu’est votre âme qui connaît la volonté de Dieu et vous trouverez votre chemin. Vous serez ceux qui ouvrent la voie. Vous serez un instrument, un canal de Lumière, d’Amour, de guérison, de paix, de tout ce qui est bon, de tout ce qui élève, de tout ce qui aide à apporter une plus grande harmonie à vos frères et sœurs. L’Amour de Dieu est grand pour vous tous, mes bien-aimés. Vous êtes Ses enfants bénis. Vous trouverez votre chemin vers le sein de Dieu et vous connaîtrez le grand réconfort qui s’y trouve. Il est toujours là pour vous donner dans les moments de lutte et dans les moments de joie, toujours là, mes bien-aimés.
 
 Permettez à Dieu de vous embrasser et de vous tenir dans cette Lumière et de vous bénir dans Son Amour. Que Dieu vous bénisse. Je suis Seretta Kem. Que Dieu vous bénisse.
-
-
-

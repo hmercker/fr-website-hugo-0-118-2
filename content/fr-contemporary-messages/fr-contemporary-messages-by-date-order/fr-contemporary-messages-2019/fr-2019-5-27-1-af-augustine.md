@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisir de boire la subsistance de la vie de l'âme
 
-Augustin - reçu par Al Fike le 27 Mai 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 27 Mai 2019, Gibsons, Colombie-Britannique, Canada.
 
 Oui, c'est votre enseignant Augustin. Puisse l'Amour du Père continuer à se déverser dans vos âmes, bien-aimés, et éveiller tous les aspects et les merveilles et les dons à l'intérieur. Il y a tant de choses que vous devez apprendre à connaître, tant de choses que vous devez exprimer. Au fur et à mesure que vous grandissez dans l'Amour de Dieu, au fur et à mesure que vous vous éveillez dans cette Énergie bénie, cette Essence de la grande Âme de Dieu, les facultés et les capacités qui ne peuvent être éveillées que par cette Essence le feront et s'écouleront en harmonie avec les niveaux de compréhension de la Vérité, de l'Amour en vous qui s'élèvent avec la bénédiction de l'Amour de Dieu.
 
@@ -36,6 +36,3 @@ Vous êtes tous capables de cela. Vous avez tous en vous ce grand don de l'Amour
 C'est votre choix. Ni Dieu ni nous n'interférons dans votre choix. Nous pouvons vous encourager. Nous pouvons vous aider. Nous pouvons vous apporter des bénédictions et vous élever, mais nous ne pouvons pas vous faire boire les Eaux Vives de Dieu. C'est votre choix. Puissiez-vous bien choisir, car chaque âme ici et toutes les âmes dans le monde ont soif de ce don, mais souvent l'entêtement du mental se détourne du grand puits d'eau qu'est l'Amour de Dieu. Ne vous détournez pas, mais buvez et buvez la subsistance de la vie de l'âme. Elle est à votre disposition et ne vous sera jamais refusée. Elle vous attend. Elle est là pour vous. Puissiez-vous l'atteindre et boire à votre faim.
 
 Que Dieu vous bénisse. Votre enseignant Augustin vous aime tendrement et continue à vous encourager sur votre chemin. Que Dieu vous bénisse. Que Dieu vous bénisse, chers étudiants. Je suis toujours avec vous. Dieu vous aime.
-
-
-

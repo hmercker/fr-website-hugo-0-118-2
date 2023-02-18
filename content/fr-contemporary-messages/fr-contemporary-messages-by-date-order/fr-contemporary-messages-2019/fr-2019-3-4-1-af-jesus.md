@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous cherchez la paix qui dépasse toute compréhension
 
-Jésus - reçu par Al Fike le 4 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 4 Mars 2019, Manhattan, NY, USA.
 
 Je suis Jésus et je viens parce que je sens les aspirations de vos cœurs. Chacun d’entre vous a un désir profond de connaître son vrai moi, son âme. Chacun d’entre vous recherche le voyage vers ce lieu intérieur profond, où Dieu et vous pouvez communier dans l’harmonie et l’amour. Chacun d’entre vous continue à lutter à sa manière avec le monde matériel. Ces difficultés dans votre vie disparaîtront avec les bénédictions de Dieu sur vous. Vous n’êtes pas perdus, mes bien-aimés. Vous n’êtes pas perdus. Vous poursuivez simplement ce voyage d’éveil, de connaissance et de reconnaissance que Dieu est vraiment avec vous. Vous avez donc été attirés vers ce petit Cercle de Lumière. Vous cherchez des réponses. Vous cherchez à connaître le chemin au-delà de vos dilemmes, au-delà de vos défis, vers un lieu de guérison profonde, de connaissance profonde, de paix, la paix qui dépasse toute compréhension.
 
@@ -24,6 +24,3 @@ Je suis votre frère, votre ami. Je suis Jésus. J’ai un grand amour pour vous
 Bien-aimés, bien-aimées, puissiez-vous continuer votre recherche et vos voyages vers la lumière et Dieu vous bénira dans ce voyage, vous aidera à vous éveiller, apportera les clés de l’éveil à chacun d’entre vous si vous avez la foi et marchez avec une profonde confiance dans la volonté de Dieu. De cette façon, vous trouverez ce que vous cherchez. La vérité, la vérité viendra.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et que mon amour soit avec vous tous au cours de vos voyages. Que Dieu vous bénisse.
-
-
-

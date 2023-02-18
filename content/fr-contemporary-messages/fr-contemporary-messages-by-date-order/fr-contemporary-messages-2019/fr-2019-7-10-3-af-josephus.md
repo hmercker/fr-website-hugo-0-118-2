@@ -9,11 +9,11 @@ weight:
 ---
 ### Q/R La loi de la lumière : Pouvons-nous libérer les incrustations de nos âmes ?
 
-Flavius Joseph - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Joseph - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Maintenant que vous vous êtes rafraîchis, nous pouvons poursuivre notre discours et nos questions. Je suis donc là pour répondre à ce que vous souhaitez demander.
 
-*QG : J’ai une question au nom d’au moins l’un d’entre nous ici, mais franchement, nous sommes plusieurs ici à nous intéresser à ce sujet et à intéresser beaucoup de personnes en dehors de ce cercle. Nous savons que l’un des problèmes que nous avons avec la progression de l’âme est que nous devenons des obstacles à la progression. L’une des plus grandes barrières dont nous sommes conscients est le manque d’estime de soi. Voici donc la question : Même si une erreur peut être libérée de mon âme, elle semble parfois être retenue dans les cellules de mon corps. Si c’est le cas, quelle est la meilleure façon de la libérer ? Merci.*
+*[QG : J’ai une question au nom d’au moins l’un d’entre nous ici, mais franchement, nous sommes plusieurs ici à nous intéresser à ce sujet et à intéresser beaucoup de personnes en dehors de ce cercle. Nous savons que l’un des problèmes que nous avons avec la progression de l’âme est que nous devenons des obstacles à la progression. L’une des plus grandes barrières dont nous sommes conscients est le manque d’estime de soi. Voici donc la question : Même si une erreur peut être libérée de mon âme, elle semble parfois être retenue dans les cellules de mon corps. Si c’est le cas, quelle est la meilleure façon de la libérer ? Merci.]*
 
 Flavius Joseph : L’Amour de Dieu peut s’accumuler dans votre âme et pourtant autour de votre âme se trouvent les incrustations des conditions que vous avez obtenues au cours de votre vie. Mais pas seulement cela, il y a des énergies, des conditions et des mémoires qui sont à l’intérieur de chaque âme, de chaque cellule et de l’esprit, créant à nouveau une autre couche autour de l’âme, causant une grande constriction de l’expression de l’amour à l’intérieur. Ainsi, dans votre monde, il est évident pour nous que beaucoup d’entre vous marchent avec la Lumière de l’Amour dans leur âme et pourtant sont accablés par ces conditions. Parfois, vous pouvez même continuer à accumuler ces conditions à travers votre expérience de vie et vos pensées.
 
@@ -40,6 +40,3 @@ Vous vous serrez les coudes et vous vous soutenez mutuellement, n’est-ce pas ?
 Oui, parfois ces conditions persistent, mais je vous le dis, ce n’est pas un état permanent. Vous trouverez la résolution et la guérison de ces parties de vous qui continuent à être coincées dans la condition humaine. Je vous le dis, âmes bien-aimées, cherchez Dieu dans tout ce que vous faites. Cherchez à être dans Son Amour. Cherchez à être dans Sa Vérité et tout viendra à la résolution et à la guérison et à la paix.
 
 Que Dieu vous bénisse. Je suis Flavius Joseph et il est temps de partir jusqu’à notre prochaine rencontre. Que Dieu vous bénisse.
-
-
-

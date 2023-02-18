@@ -9,9 +9,9 @@ weight:
 ---
 ### Qu'est-ce que la vérité ?
 
-James Padgett - reçu par Al Fike le 15 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+James Padgett - reçu par Al Fike le 15 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/verite-et-reconciliation.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-verite-et-reconciliation.jpg)
 
 Je suis James Padgett. Je me suis rapproché de ce cher instrument car il a pensé à moi et à mon travail. Au cours des derniers jours, il y a eu des discussions sur les messages reçus par le biais de divers instruments qui sont valides et non valides en termes de vérités de l’Amour Divin. Ces questions ont été posées en mon temps également. Qu’est-ce qui est valable ? Quelles informations provenant de l’esprit sont pertinentes pour la Vérité spirituelle ? Ainsi, à votre époque, qui est très différente de la mienne, nombreux sont ceux qui apportent des enseignements des royaumes spirituels, ce qui soulève la question de savoir ce qu’est la Vérité.
 
@@ -21,7 +21,7 @@ Dans ce désir ardent, cette expérience et ce voyage vers la Vérité, l’espr
 
 Le bien-aimé Maître Jésus est venu et a utilisé mes dons pour apporter une explication, une ligne directrice, un moyen par lequel l’âme peut clairement atteindre Dieu et recevoir Son salut par l’Amour. Ces vérités sont aussi valables aujourd’hui qu’elles l’étaient à mon époque. Il y a beaucoup de Vérité dans ce qui a été écrit et rassemblé dans les volumes qui sont encore disponibles.
 
-Bien-aimées âmes, il y a beaucoup de choses qui peuvent être glanées dans ces Vérités, ces mots, bien qu’ils soient écrits à la manière et dans le style des messages de mon époque, il y a encore beaucoup de Vérité pour ceux qui sont prêts à prendre le temps et à faire l’effort de les étudier. Mais beaucoup dans votre monde en ce moment manquent d’engagement, d’énergie et de temps pour le faire et ils souhaitent un style plus contemporain et un effort des médiums pour apporter ces Vérités.<sup id="a1">[1](#f1)</sup>  Nous ne jugeons pas cela, ce désir de continuer à relayer les Vérités de l’Amour Divin dans des mots qui sont plus faciles à comprendre pour vos frères et sœurs, dans des voies et des avenues de Vérité qui s’ajoutent aux Vérités qui ont été données il y a tant d’années et enseignées il y a tant d’années par le Maître Jésus.
+Bien-aimées âmes, il y a beaucoup de choses qui peuvent être glanées dans ces Vérités, ces mots, bien qu’ils soient écrits à la manière et dans le style des messages de mon époque, il y a encore beaucoup de Vérité pour ceux qui sont prêts à prendre le temps et à faire l’effort de les étudier. Mais beaucoup dans votre monde en ce moment manquent d’engagement, d’énergie et de temps pour le faire et ils souhaitent un style plus contemporain et un effort des médiums pour apporter ces Vérités <sup id="a1">[1](#f1)</sup>. Nous ne jugeons pas cela, ce désir de continuer à relayer les Vérités de l’Amour Divin dans des mots qui sont plus faciles à comprendre pour vos frères et sœurs, dans des voies et des avenues de Vérité qui s’ajoutent aux Vérités qui ont été données il y a tant d’années et enseignées il y a tant d’années par le Maître Jésus.
 
 La Vérité continue à être donnée au monde sous une forme ou une autre. Dieu continue à déverser Son Amour, Sa Vérité sur Ses enfants. La source n’a pas d’importance. Ce qui compte, c’est que l’âme soit inspirée et ouverte pour recevoir la Vérité et pour illustrer et exercer sa compréhension de la Vérité. C’est cela qui importe. La Vérité en elle-même est très simple. Elle est facilement obtenue par l’âme, mais c’est la condition mentale de l’humanité qui continue à faire obstacle à ces questions et compréhensions spirituelles.
 
@@ -43,9 +43,3 @@ Que Dieu vous bénisse ainsi, mes amis. Je suis James et je suis souvent avec vo
 <small>
 
 1. <large id=”f1”> Ceci est maintenant arrivé et Jésus délivre à nouveau la Vérité mais [dans un style moderne](/fr-jesus-of-nazareth-messages/fr-messages-of-jesus-to-the-world/).[↩](#a1)
-
-
-
-
-
-

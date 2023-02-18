@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître les différences entre le mental de l'âme et le mental matériel
 
-St Matthieu - reçu par Al Fike le 18 Avril 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 18 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Mes bien-aimés, c'est Matthieu. J'ai été avec vous, durant votre conversation, écoutant vos pensées et vos idées relatives aux différences entre le mental de l'âme et le mental matériel. Vous êtes tous bénis, comme chaque âme, bénis avec ces facultés qui sont capables de beaucoup plus que ce que l'humanité a déjà découvert et reconnu comme une vérité dans votre culture et votre société. Il y a ceux qui se sont aventurés dans les domaines des possibilités et des facultés inhérentes à l'esprit. Ces facultés peuvent aider chaque âme à comprendre la création de Dieu et les nombreuses couches de vérité au sein de la création de Dieu. Mais ces facultés intellectuelles ne peuvent pénétrer les mystères de Dieu, la nature de Dieu. Pour connaître véritablement Dieu, il faut avoir une âme éveillée. Une fois qu'une âme est éveillée avec l'Essence Divine, les facultés nécessaires pour communiquer, pour comprendre et pour voir à l'intérieur de ces mystères des mystères viennent à vous.
 
@@ -28,6 +28,3 @@ Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Vous continuez à marche
 Que Dieu vous bénisse profondément, âmes bien-aimées. Que Son amour continue à se déverser en vous. Puissiez-vous continuer à vous éveiller à l'intérieur. Cet éveil s'épanouira dans votre esprit et infusera votre esprit de Vérité et d'Amour, de compréhension et de clarté, vous renforçant tous, mes bien-aimés, vous tous et mettant en alignement tout ce qui est de Vérité.
 
 Dieu vous bénisse, je suis votre ami et votre aide Matthieu. Mon amour est avec vous, je suis souvent avec vous, mes bien-aimés. Merci de me donner cette opportunité de parler. Soyez bénis dans vos prières, mes bien-aimés, soyez bénis dans vos prières. Que Dieu vous bénisse.
-
-
-

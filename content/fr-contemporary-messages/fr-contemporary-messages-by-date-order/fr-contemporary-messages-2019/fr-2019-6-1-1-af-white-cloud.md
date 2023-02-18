@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez vous lever et dire la vérité
 
-Nuage Blanc - reçu par Al Fike le 1 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Nuage Blanc - reçu par Al Fike le 1 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions du Créateur, je suis Nuage blanc. Vous m'avez attiré dans votre cercle avec vos chansons et vos histoires de ceux qui ont fait l'expérience des vérités des peuples de votre terre, la Grande Île de la Tortue, comme on l'appelle.
 
@@ -34,6 +34,3 @@ Je vous remercie de m'avoir écouté aujourd'hui. Je vous remercie tous pour vos
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis souvent avec vous, avec beaucoup d'entre vous. Je vous aide et je cherche à vous guider. De nombreuses bénédictions vous parviennent à travers nos prières. Ceux d'entre nous qui vivent dans les royaumes de lumière viennent aider les enfants qui cherchent l'Amour, la Lumière, la Vérité et de grandes bénédictions pour ce monde.
 
 Que Dieu vous bénisse. Je suis Nuage Blanc et je vous connais. Beaucoup d'entre vous me connaissent dans leur cœur car j'ai été avec vous en tant qu'ami. Que Dieu vous bénisse. Merci.
-
-
-

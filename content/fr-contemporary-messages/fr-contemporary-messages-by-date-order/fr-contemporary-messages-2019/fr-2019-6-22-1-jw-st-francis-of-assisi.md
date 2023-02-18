@@ -9,7 +9,7 @@ weight:
 ---
 ### Lorsque vous voyez avec vote âme
 
-St François d'Assise - reçu par Jimbeau Walsh le 22 Juin 2019, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 22 Juin 2019, Island of Guernsey, UK.
 
 Je suis celui qui a marché dans les collines d'Assise avec mes amis. De manière très simple, nous avons prié et joué dans la nature, qui a été notre première église. Nous avons finalement construit une petite église dans laquelle la présence de Dieu demeure à ce jour. Je suis le gardien de cette église où vous êtes assis et de cette île, cette belle île. Il y en a d'autres, mais je suis le gardien de cette église et je serai avec vous lorsque vous viendrez ici.
 
@@ -20,6 +20,3 @@ Nous vous demandons, lorsque vous avez une vision et que nous parlons à la chè
 C'est notre grand honneur et notre plaisir d'être avec vous tous aujourd'hui, dans la Présence de l'Amour de notre Créateur. Que ce lieu soit un sanctuaire, un refuge pour tous ceux qui viennent et très certainement un lieu de guérison. Nous vous remercions tous avec une profonde gratitude pour votre désir de recevoir l'Amour du Créateur et de marcher dans la Lumière avec nous. Comme nous vous aimons. Nous vous aimons vraiment, et Dieu vous aime.
 
 Je suis Francois, avec mon frère Yogananda. Merci de nous avoir permis de parler aujourd'hui. Que Dieu vous bénisse.
-
-
-

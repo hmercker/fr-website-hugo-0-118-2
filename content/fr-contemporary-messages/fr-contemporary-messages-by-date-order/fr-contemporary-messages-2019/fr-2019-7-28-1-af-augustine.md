@@ -9,7 +9,7 @@ weight:
 ---
 ### Le treillis de la lumière a de nombreuses fonctions
 
-Augustin - reçu par Al Fike le 28 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 28 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c'est votre maître Augustin qui est venu vous parler aujourd'hui, belles âmes réparties à travers ce monde qui se réunissent pour rechercher l'Amour du Père. Âmes brillantes que vous êtes, mes bien-aimés, belles âmes que vous êtes.
 
@@ -24,6 +24,3 @@ Oui, tout fonctionne en effet ensemble dans ce plan conçu pour vous aider tous,
 Les couches et les complexités de ce travail dont vous faites tous partie ne peuvent pas être vraiment comprises ou visualisées jusqu'à ce que vos âmes soient éveillées et capables de voir avec ces facultés. Je vous dis qu'il y a de nombreuses couches. Beaucoup de choses se passent à travers chacun d'entre vous dans ce flux magnifique et complexe de bénédictions pour le monde, une partie du plan de Dieu en effet et une grande bénédiction et une aubaine pour vous tous, âmes bien-aimées. Puissiez-vous continuer à grandir et à vous éveiller alors que vous priez pour que l'Amour du Père anime vos âmes. En retour, cela aide à animer ce grand réseau de Lumière. Continuez dans vos efforts, mes bien-aimés. Soyez bénis dans l'éveil de votre âme à Dieu.
 
 Dieu vous bénisse, je suis votre enseignant Augustin et je suis avec vous tous souvent et je continue à soutenir et à enseigner et à bénir et à être votre ange d'Amour pour vous aider dans ce monde. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

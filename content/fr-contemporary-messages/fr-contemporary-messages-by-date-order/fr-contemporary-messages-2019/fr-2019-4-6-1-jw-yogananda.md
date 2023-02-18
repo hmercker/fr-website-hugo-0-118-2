@@ -9,7 +9,7 @@ weight:
 ---
 ### Il vaut mieux être un fou de Dieu qu'un roi des hommes
 
-Yogananda - reçu par Jimbeau Walsh le 6 Avril 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 6 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Aloha, cher frère. Je suis Yogananda, l'ami de ton âme. Plus tôt dans la journée, j'ai établi un rapport avec toi alors que tu étais en prière. Tu as effectivement ressenti ma présence à tes côtés et mon désir de communiquer un message à travers toi au sujet des rituels, mais tu as refusé de parler à voix haute en mon nom, t'en remettant à la chère âme et à l'instrument dont tu visites la maison. Intérieurement, au même moment, tu me disais que si je parlais à travers cette autre chère âme, cet autre instrument, tu accepterais à l'avenir de le faire. Ainsi, à ta surprise et à l'insu total d'Al Fike, j'ai parlé, mais pas sur le sujet que tu souhaitais. En effet, cher frère, il serait préférable pour moi de transmettre ce message par ton intermédiaire, et c'est ce que je vais faire.
 
@@ -24,6 +24,3 @@ Tu as également composé des œuvres symphoniques dans ce sens et tu as senti l
 Je reviendrai bientôt pour transmettre davantage de ce que je souhaite dire non seulement à mes disciples sur terre, mais aussi à tous les enfants de Dieu. En attendant, mon cher ami, suis ton cœur, sache que je suis souvent avec toi, et prie. Priez pour l'amour de Dieu. Priez.
 
 Je t'aime avec tout l'amour d'un frère et d'un véritable ami en Dieu, Yogananda.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Faites du monde votre ashram, votre monastère
 
-Yogananda - reçu par Jimbeau Walsh le 30 Juillet 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 30 Juillet 2019, Schwenksville, PA, USA.
 
 Je suis votre frère et ami Yogananda. Je souhaite remercier chacun d’entre vous d’avoir pris le temps d’être en Sainte Communion avec le Père Céleste. Vous l’avez choisi, pour recevoir cette Bénédiction.
 
@@ -18,8 +18,3 @@ Vous savez, ceux qui vivent dans des monastères, des ashrams et d’autres lieu
 Cependant comme vous avez choisi ce moment pour être en prière avec vos amis bien-aimés, vous pouvez faire du monde votre monastère, votre ashram. Je vous demande, lorsque vous êtes occupés, lorsque votre esprit va vraiment à cent à l’heure, d’ouvrir simplement votre cœur, d’ouvrir votre âme à Dieu. Comme je l’ai déjà dit, si besoin est, parlez à Dieu. Lorsque vous envoyez cette prière à Dieu, pour ne faire qu’un avec Lui dans l’Amour, vous avez élevé vos pensées au niveau de l’âme. En cet instant, nous sommes tous un dans l’Amour de Dieu. Quelle que soit notre station, où que nous soyons sur notre chemin, nous avons permis à Dieu de toucher nos âmes. En ce moment, il y a beaucoup de Lumière dans ce Cercle. Ne pouvez-vous pas ressentir cette bénédiction ?
 
 Alors, mes chers amis, je vous encourage, faites du monde votre ashram, votre monastère. Soyez transformés dans l’Amour du Père. Soyez une bénédiction pour tous, partout. Je vous remercie. Je vous envoie tout mon amour et mon étreinte dans l’Amour de Dieu. Que vous soyez tous bénis. Je suis avec vous. Je vous aime tous. Je suis Yogananda.
-
-
-
-
-

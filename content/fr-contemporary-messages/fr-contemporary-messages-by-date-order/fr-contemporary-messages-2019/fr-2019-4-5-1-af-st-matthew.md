@@ -34,6 +34,3 @@ Oui, il y a des parties de vous qui sont craintives, des parties qui sont scepti
 Âmes bien-aimées, vous avez la chance d'avoir une vie, vous avez la chance d'avoir les possibilités de la vie. Ne gaspillez pas les opportunités qui s'offrent à vous. Permettez-vous de vous éveiller. Permettez-vous d'aimer. Âmes bien-aimées, que Dieu vous bénisse dans ce voyage et vous éveille plus pleinement, en vous apportant la force, la perspective, la douce compassion, la compréhension éveillée, l'humilité et la grâce qui vous feront avancer, pour toujours.
 
 Que Dieu vous bénisse, mes chers amis, je suis Matthieu, je vous aime. Que Dieu vous bénisse.
-
-
-

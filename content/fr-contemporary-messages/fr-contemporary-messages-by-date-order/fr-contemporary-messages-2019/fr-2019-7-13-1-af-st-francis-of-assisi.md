@@ -9,9 +9,9 @@ weight:
 ---
 ### L'importance de la beauté dans vos vies
 
-St François d'Assise - reçu par Al Fike le 13 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+St François d'Assise - reçu par Al Fike le 13 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/paysage-du-canada.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-paysage-du-canada.jpg)
 
 Je suis François et je souhaite vous parler de l’importance d’avoir de la beauté dans votre vie. Vous admirez le beau jardin de cet instrument, l’expression de son âme et de son esprit comme une consécration à Dieu. La joie qu’il reçoit en nourrissant et en créant avec les Créations de Dieu se rassemble dans ce magnifique tableau de couleur, de forme, de texture et de lumière. Quelle joie cela lui donne et quelle joie cela vous donne à vous, âmes bien-aimées, de créer et de renforcer la puissance, la beauté et les bénédictions de Dieu qui sont venues en ce lieu.
 
@@ -32,6 +32,3 @@ Considérez ce que vous pouvez apporter dans votre monde. Considérez ce qui est
 En vous approchant de Dieu, comme nous le faisons tous au cours de nos journées dans ce monde, vous apportez la beauté à vos âmes. Vous réveillez les potentiels intérieurs qui sont beaux et qui exprimeront la beauté, la grâce et la Lumière. Tant de choses viennent dans cet éveil de votre âme. Tant de choses sont disponibles pour vous alors que cet éveil entre plus complètement dans votre être et votre conscience et votre capacité à voir la beauté dans toute la simplicité des Créations de Dieu, dans une forme simple, une couleur, un mot, un acte d’amour d’un autre, de tant de façons. Avec ces sensibilités accrues, ainsi votre capacité à voir et à connaître et à apprécier la beauté de la vie vous vient plus intensément et en plus grande harmonie. Que Dieu vous donne la vision de voir tout ce qui est dans votre vie comme un beau cadeau, un beau cadeau déposé à vos pieds, donné dans l’Amour. En cela viendra une grande joie, une grande paix, une grande élévation de votre âme. Tout cela vient dans ce doux Toucher de Dieu, Son Amour se déversant en vous et apportant les dons de l’âme.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis François. Mon amour est avec vous. Et je continue à apporter à ce cher fils les cadeaux des animaux, les fleurs, les brises légères, la chaleur du soleil afin qu’il puisse voir et apprécier tout ce que Dieu a donné dans sa vie et la vôtre. Que vos perceptions s’approfondissent, mes amis. Que votre appréciation et votre joie profondes de tout ce qui est dans la Création de Dieu continuent à s’éveiller et à s’approfondir et à être une véritable expression de joie dans votre âme. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous plus souvent que vous ne le pensez et je vous aime tous. Que Dieu vous bénisse.
-
-
-

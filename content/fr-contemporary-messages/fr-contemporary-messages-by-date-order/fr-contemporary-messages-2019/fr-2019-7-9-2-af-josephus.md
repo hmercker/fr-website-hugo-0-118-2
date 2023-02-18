@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : S'éveiller grâce à l'Amour du Père permet d'accéder soi-même à la vérité
 
-Flavius Joseph - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Joseph - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Flavius Joseph. Je suis un habitant du Royaume Céleste. Je suis venu travailler avec ce groupe et j’espère apporter des informations et des conseils qui vous aideront tous dans votre voyage d’amour et d’éveil de l’âme. Je répondrai à vos questions, âmes bien-aimées. Je sais qu’il y en a un ici qui aime beaucoup poser des questions. Nous souhaitons donc faciliter son désir de le faire et pour ceux d’entre vous qui ont des questions pertinentes concernant l’éveil de l’âme et la compréhension.
 
@@ -32,6 +32,3 @@ Cela peut sembler complexe, mais en réalité cela ne l’est pas. Car c’est l
 Ainsi vos luttes pour comprendre, pour savoir, pour être un canal de Vérité et d’Amour sont guéries par le pouvoir de l’Amour. Cherchez cet Amour auprès de Dieu, qui est le plus élevé, la plus brillante des lumières, la plus profonde des vérités, et la plus grande des sagesses. C’est la clé de tout. C’est ce que vous cherchez dans vos âmes. Vous trouverez votre chemin. Cette fondation sera solide et ne s’effondrera pas pour l’éternité, mes amis, mais sera construite encore et encore. Au fur et à mesure que les capacités et les facultés de votre âme sont capables d’absorber plus de Vérité et de comprendre d’une manière qui peut vous être étrangère maintenant, mais qui est en fait en vous.
 
 Que Dieu vous bénisse dans ce voyage. Je suis très heureux d’être avec vous, mes amis. Je suis Flavius Joseph et je reviendrai pour parler et répondre à vos questions, mes amis. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

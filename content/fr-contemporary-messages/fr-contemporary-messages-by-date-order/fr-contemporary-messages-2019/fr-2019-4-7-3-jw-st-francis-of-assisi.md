@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce sanctuaire
 
-St François d'Assise - reçu par Jimbeau Walsh le 7 Avril 2019, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 7 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Francis et je viens à vous dans l'Amour de Dieu et avec un grand amour pour vous tous ici et pour ce bel endroit. Ce sanctuaire est un lieu de refuge pour beaucoup. Lorsque je marchais sur la terre avec mes amis dans les collines autour d'Assise, nous chantions et priions avec tant de joie d'être dans la création de Dieu. C'est pourquoi il était facile pour nous de nous ouvrir à l'Amour de Dieu à notre manière, malgré nos croyances très catholiques.
 
@@ -24,6 +24,3 @@ Et lorsqu'il y a un conflit dans ce lieu, un désaccord ou une dispute, je vous 
 Saint François rencontrait Jésus, dans les bois, presque chaque nuit. Alors que je visitais son tombeau vivant et que je posais ma tête sur la marche du sanctuaire, Saint François m'est apparu. Puis j'ai vu un tunnel d’Éternité dans lequel il a disparu. Toute la cave sous l'église était imprégnée de ses vibrations. Vous auriez eu beaucoup de plaisir à méditer ici. Saint François est l'un de mes saints préférés avec qui je communie et ai communié. Je vous écris ces choses sacrées car Dieu vous a rendu sacré par la méditation.
 
 **Source des notes de Yogananda :** Paramahansa Yogananda dans une lettre écrite à Rajarsi Janakananda, de Rajarsi Janakananda : Un grand yogi occidental
-
-
-

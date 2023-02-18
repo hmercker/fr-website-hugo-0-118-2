@@ -9,7 +9,7 @@ weight:
 ---
 ### Le don de l'Amour Divin est la plus grande vérité que vous puissiez connaître
 
-Joseph - reçu par Al Fike le 3 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 3 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Joseph, le père de Jésus. Je n'ai pas compris la mission de mon fils lorsqu'il était sur Terre. Je n'ai pas reconnu le pouvoir de l'amour, le pouvoir de l'Amour de Dieu pour transformer l'âme. Mais Jésus était le Messie tel qu'il avait été proclamé, mais pas seulement le Messie pour les Juifs, mais pour toute l'humanité. Il a fallu plusieurs milliers d'années pour que ce don de l'Amour Divin soit proclamé et soit disponible pour les mortels mais mon fils a ouvert les portes à ce don.
 
@@ -22,8 +22,3 @@ Tel est le don proclamé. C'est la bénédiction donnée. C'est la Source de Tou
 Mes amis bien-aimés, puissiez-vous continuer à rechercher cette bénédiction, vous éveiller à ses dons et connaître la merveille qu'est Dieu et Sa création. En cela, nous nous rapprocherons, car si vous priez avec ferveur, si vous cherchez sincèrement, si vous appelez Dieu du plus profond de votre âme, les anges doivent venir en réponse à votre appel. L'Esprit Saint touchera en effet vos âmes. Dieu vous donnera tout ce dont vous avez besoin pour être entiers, éveillés et bénis dans la lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Joseph et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-
-
-

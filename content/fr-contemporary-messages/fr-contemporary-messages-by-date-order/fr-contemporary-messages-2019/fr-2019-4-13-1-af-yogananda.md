@@ -9,7 +9,7 @@ weight:
 ---
 ### Être présent dans le calme apporte la guidance de Dieu
 
-Yogananda - reçu par Al Fike le 13 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 13 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Mes amis, je suis Yogananda. C'est en effet une grande bénédiction d'être dans le présent. Car dans le présent, vous pouvez expérimenter pleinement de nombreuses choses. Vous pouvez faire venir à vous de nombreuses choses dans toute leur richesse et leur beauté. À votre moi conscient, vous offrez l'ouverture de la réalité. Lorsque vous priez et méditez comme vous le faites, mes chers amis, c'est dans le présent que Dieu vous bénit. C'est dans cet état d'éveil et d'ouverture que vous êtes touchés profondément par Dieu et que vous n'êtes pas endormis.
 
@@ -26,6 +26,3 @@ Ne vous contentez pas de l'immobilité. Cherchez les endroits plus profonds où 
 Tout est là qui vous attend, mes amis bien-aimés. Il n'y a rien qui puisse vous retenir, à part vous-mêmes qui trouvez les distractions de ce monde plus importantes que le calme de votre âme. Écoutez, mes chers amis, mes beaux amis. Vous êtes dans le moment, nous sommes dans le moment, et nous pouvons venir à Dieu dans ce moment. Que Dieu atteigne vraiment votre âme, votre moi conscient, votre vrai moi en ce moment.
 
 Je vous bénis, mes amis, je suis Yogananda. Puissiez-vous continuer à atteindre la lumière, le plus haut degré d'amour, la plus belle connexion avec le Créateur. Que Dieu vous bénisse. Je vous aime.
-
-
-

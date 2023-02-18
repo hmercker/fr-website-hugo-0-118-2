@@ -9,7 +9,7 @@ weight:
 ---
 ### Retenez la vision de Dieu et ne vous laissez pas distraire
 
-Mahatma Gandhi - reçu par Maureen Cardoso le 28 Mars 2019, Abbotsford, Colombie-Britannique, Canada
+Mahatma Gandhi - reçu par Maureen Cardoso le 28 Mars 2019, Blackpool, England, United Kingdom.
 
 Ma chère sœur, je suis avec toi, c’est Gandhi. Cela a été un voyage, votre temps dans cette terre lointaine, jusqu’à ce centre de guérison. Tu es tombée sur un livre que je t’ai inspiré à prendre en main et à envisager de lire certaines de ces pages. Tu y as lu à l’instant une définition de ce mot qui signifie la non-violence et la pratique de l’amour. N’est-ce pas ce que les enseignements que toi et tes amis bien-aimés portez dans l’Amour Divin ?
 
@@ -28,6 +28,3 @@ Lorsque j’ai marché sur la Terre, guidé par Dieu, de nombreux défis se sont
 Apportez tout à Dieu et permettez à la main de Dieu de vous guider. En faisant cela, vous connaîtrez vos prochains pas. Vous marcherez avec une certitude connectée si profondément à votre Créateur bien-aimé, attirant parmi vous les magnifiques anges et enseignants qui sont ici pour vous servir, vous guider et vous aider à mettre en œuvre ce grand et merveilleux plan que Dieu a pour l’équilibre et l’harmonisation de la Terre.
 
 Je suis Mahatma Gandhi et je suis avec vous, mes chers amis, observant la transformation de vos âmes, servant de guide, d’influence et d’amour pour mes chers amis qui marchent sur Terre avec le désir de servir Dieu de manière profonde et satisfaisante. Que chacun de vous soit béni, mes chers amis, béni par la Grâce de l’Amour Divin au sein de vos âmes, s’alignant et s’harmonisant, éveillant les nombreux potentiels qui attendent, attendent votre monde. Que Dieu vous bénisse
-
-
-

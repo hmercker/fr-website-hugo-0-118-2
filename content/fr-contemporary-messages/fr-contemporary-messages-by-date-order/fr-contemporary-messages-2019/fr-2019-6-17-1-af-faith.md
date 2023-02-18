@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos efforts contribuent à soutenir les portails à Blackpool et ailleurs
 
-Faith - reçu par Al Fike le 17 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Faith - reçu par Al Fike le 17 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 C'est moi, Faith. Oui, je sais mes amis bien-aimés que vous n'êtes pas tellement conscients du travail qui est accompli dans votre mission. C'est comme si un écran, un rideau avait été tiré autour de vous et c'est pour une très bonne raison - pour vous protéger des conditions qui pourraient vous distraire et vous déranger parfois. Car il y a un grand nombre d'énergies et de conditions au Centre et dans vos mouvements dans ce pays qui pourraient être perturbatrices et difficiles pour vous. Ainsi, autour de vous se trouve une belle lumière, une bulle de protection qui vous maintient dans la condition de l'Amour de Dieu et vous aide à vous déplacer dans cette condition sans que d'autres influences ne l'empiètent. C'est ainsi que vous vous déplacerez tous dans vos voies et directions dans le monde. Dieu vous protège, âmes bien-aimées. Mais aussi, Dieu vous utilise comme un canal d'amour pour éveiller les autres, pour réconforter les autres, pour apporter la guérison et la paix et, lorsque cela est possible, pour apporter la bonne nouvelle de l'Amour de Dieu aux âmes qui sont réceptives à ce message.
 
@@ -32,6 +32,3 @@ Ne sous-estimez pas le pouvoir de ce Portail, son importance et sa place dans le
 Considérez-vous comme profondément bénis par cette mission et cette opportunité. Elle continuera à croître en Lumière alors que vous continuez à prier pour ce don et que vous continuez à grandir dans le don de l'Amour de Dieu. Tant de choses seront accomplies. Oui, vous êtes aux premières étapes de ce qui sera une danse très complexe, exprimant la volonté de Dieu dans le monde. Cela demande de la foi et de la force, de l'amour et dans tous les cas un sentiment de joie pour ce qui est dans l'Univers de Dieu, ce qui doit être dans le plan de Dieu, ce qui est profondément béni dans l'Amour de Dieu pour vous tous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Faith et je comprends vos luttes et ces difficultés que le plan terrestre apporte. Mais sachez qu'à un niveau plus profond, vous continuez à mettre en œuvre la Volonté de Dieu à travers vos âmes et la sagesse de vos âmes et l'amour dans vos âmes - que c'est le travail - c'est ce que Dieu souhaite que vous fassiez, et vous vous conformez et cherchez à exprimer la Lumière et la Volonté de Dieu. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous et je continue à vous escorter dans vos voyages. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

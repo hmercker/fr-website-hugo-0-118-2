@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre éveil ne fait que commencer
 
-St Matthieu - reçu par Al Fike le 20 Juin 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 20 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénies, âmes bien-aimées, je suis Matthieu. Je viens des Cieux Célestes vers ce lieu de lumière, en utilisant le Portail de Lumière qui est ici en ce lieu (F.U.S.C.) et en étant attiré par vos désirs et vos prières, âmes bien-aimées. Car la loi d'attraction et de communication joue son rôle et nous permet, depuis ces hautes sphères, d'être avec vous et de prier avec vous. Beaucoup d'entre vous ici comprennent ces lois et comprennent l'importance de nourrir vos âmes par la prière, de comprendre la Source de Lumière d'où elle vient, de notre Créateur. Il y a beaucoup de connaissances que vous comprenez clairement. Bien que je doive dire que pour chaque âme dans ce monde, il y a tellement plus à savoir ; que votre compréhension est quelque peu rudimentaire. Mais poser un fondement de Vérité comme vous l'avez fait, au début de votre existence en tant qu'âme individualisée, est un pas profond vers la Lumière et la Vérité.
 
@@ -26,6 +26,3 @@ Vous commencez donc votre voyage, âmes bien-aimées, et vous avez découvert de
 Chaque jour, il y a la possibilité de connaître un peu plus de Vérité. En vous comprenant vous-mêmes de manière plus profonde et en comprenant Dieu de telle manière, vous verrez votre vie dans ce monde et dans l'Univers avec des yeux différents ; différents, mais joyeux et pleins d'amour.
 
 Que Dieu vous bénisse dans votre voyage, âmes bien-aimées. Je m'appelle Matthieu et je suis heureux de pouvoir m'adresser à vous aujourd'hui. Que Dieu vous bénisse et que Son Amour continue à se déverser en vous, un flux constant, un voyage d'éveil qui ne se termine jamais. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Je suis Matthieu. Que Dieu vous bénisse.
-
-
-

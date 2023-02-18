@@ -9,11 +9,11 @@ weight:
 ---
 ### Q&R : Méditation guidée et prière
 
-Flavius Josèphe - reçu par Al Fike le 11 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 11 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Oui, je suis prêt à répondre aux questions. Je sais que notre frère Confucius souhaite que vous entriez dans votre âme pour trouver les réponses et c’est une vérité profonde. Mais en effet, vous êtes des mortels et il vous est difficile d’obéir à cette demande. Nous venons donc vous aider dans ce voyage afin que vous puissiez mieux comprendre l’importance de celui-ci et la façon de procéder. Donc s’il y a des questions à poser en ce moment, je suis prêt à y répondre.
 
-[Silence]
+*[Silence]*
 
 Il semble donc que notre cher Confucius vous ait rendu muets. C’est un ange de Dieu puissant et beau, l’un des plus élevés du Royaume Céleste. Il porte en lui la Vérité profonde et une puissante bénédiction de guérison car tous ceux qu’il rencontre sont profondément touchés par sa présence. Comme vous êtes bénis de l’avoir parmi ceux qui travaillent avec vous dans ce Cercle de Lumière. Comme il est beau que Dieu vous touche en recevant ces êtres Célestes élevés et magnifiques qui continuent à déployer leurs efforts en votre nom, pour aider à vous éduquer, vous élever et vous porter sur le chemin.
 
@@ -52,6 +52,3 @@ J’espère que cela vous rassure sur le fait que vous contrôlez la situation e
 Nous allons maintenant mettre fin à cette session et je vous remercie d’avoir à nouveau fait l’effort de vous réunir dans ce Cercle de Lumière et d’être ensemble dans ce désir de comprendre votre véritable moi et de comprendre Dieu.
 
 Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Que Dieu vous bénisse. Je suis Flavius Josèphe.
-
-
-

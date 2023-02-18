@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&A : Des hauteurs de lumière rares parmi les mortels
 
-Augustin - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Augustin et je vous souhaite la bienvenue dans ce cercle, ce Cercle de Lumière, ce cercle que Dieu a béni et dans lequel il a placé chacun d’entre vous ; une perle dans le collier de perles ; des lumières, vous tous, âmes bien-aimées, des lumières qui ont un but, qui seront utilisées dans ce temps ensemble pour s’aider les uns les autres à grandir dans l’Amour du Père, pour apporter des vérités de manière et par des moyens puissants pour vous harmoniser tous. Car chacun d’entre vous fait partie d’un plan que Dieu a élaboré et souhaite mettre en œuvre dans ce monde. C’est pour vous d’être ensemble, vous tenant par la main dans l’amour, reconnaissant de cet endroit profond en vous ce que Dieu souhaite que vous fassiez.
 
@@ -26,6 +26,3 @@ C’est le changement qui doit venir non seulement pour chacune de vos âmes bie
 Ainsi, mes chers et beaux amis, chacun d’entre vous est une lumière, chacun d’entre vous est une âme précieuse pour Dieu, puissiez-vous en effet utiliser ce temps pour l’élévation et l’édification de votre âme. Priez, mes bien-aimés. Soyez clairs sur vos intentions et vos désirs. Sachez que ces choses informent sur ce qui peut être dans ces jours à venir. Par-dessus tout, aspirez à Dieu. Permettez à Ses grandes bénédictions d’affluer dans vos âmes et vos êtres et nous vous amènerons à des hauteurs de Lumière qui sont généralement rarement atteintes par les mortels.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je vous remercie tous d’être réunis dans ce Cercle de Lumière, désireux d’être éveillés, désireux de vérité, désireux d’aimer. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

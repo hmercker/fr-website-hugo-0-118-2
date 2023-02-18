@@ -9,7 +9,7 @@ weight:
 ---
 ### Le sens de la vie se dévoile avec l'Amour de Dieu
 
-Augustin - reçu par Al Fike le 14 Juin 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 14 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Pour vraiment comprendre le sens de la vie, il faut aller dans la conscience de l'âme, les perceptions de l'âme et la compréhension de la vie. Cela, comme vous le savez bien, vient avec la bénédiction de l'Amour du Père qui éveille ces aspects de votre âme, ces belles parties de votre être qui ont une compréhension plus profonde, une plus grande capacité à voir au-delà du superficiel et du banal pour ce qui fait partie de la grande danse de la vie que Dieu a créée dans cet Univers. Lorsque l'on ouvre les facultés de l'âme et que l'on parvient véritablement à connaître son propre être, son propre moi dans ce grand flux de vie, dans cette grande communion avec Dieu qui permet une véritable appréciation et compréhension de la vie, alors il y a de la clarté. Alors il y a une compréhension profonde et un but à la vie. C'est comme une fleur, âmes bien-aimées. Pensez à l'âme comme au centre de la fleur.
 
@@ -24,6 +24,3 @@ Que Dieu vous bénisse avec Son grand afflux d'Amour, mes frères et sœurs bien
 Je vous dis, mes bien-aimés, que lorsque ces perceptions et ces prises de conscience, ces visions et ces compréhensions vous parviendront, vous connaîtrez une joie si profonde, une félicité si profonde dans l'éveil de votre âme que la vie prendra une teinte et une compréhension entièrement différentes. Cela vient avec l'âme éveillée et cela viendra à chacun d'entre vous, âmes bien-aimées.
 
 Que Dieu vous bénisse et vous garde dans son amour. Je suis Augustin, votre enseignant. Je suis heureux que vous vous réunissiez pour discuter de ces sujets plus profonds. Il est important d'explorer et d'arriver aux réalisations que Dieu est désireux de donner et votre âme attend ces bénédictions. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

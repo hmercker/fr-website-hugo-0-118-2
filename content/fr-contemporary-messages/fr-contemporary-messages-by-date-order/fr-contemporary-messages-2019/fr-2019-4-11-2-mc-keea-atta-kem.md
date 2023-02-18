@@ -9,9 +9,9 @@ weight:
 ---
 ### L'expérience de la réception de l'Amour Divin
 
-Keea Atta Kem - reçu par Maureen Cardoso le 11 Avril 2019, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 11 Avril 2019, First United Spiritualist Church, Burnaby, Colombie-Britannique, Canada.
 
-Bienvenue dans ce Cercle de Lumière, je suis Keea-atta Kem. Je réside dans les Cieux Célestes où je sers Dieu et l'humanité, aidant au service avec les enseignements de l'Amour Divin et comment ce grand cadeau, cet Amour, éveille votre âme et éveille la partie la plus vraie de qui vous êtes. Dans ce cercle se tient un bel Ange Céleste qui apporte la grande puissance de cet Amour et de cette Lumière au milieu de vous, servant chacun d'entre vous. Derrière chacun d'entre vous se tient un autre Ange Céleste, là pour vous aider, vous aider à ouvrir votre âme et la capacité de recevoir ce grand cadeau d'Amour Divin. Nous sommes tous ici pour vous servir.
+Bienvenue dans ce Cercle de Lumière, je suis Keea Atta Kem. Je réside dans les Cieux Célestes où je sers Dieu et l'humanité, aidant au service avec les enseignements de l'Amour Divin et comment ce grand cadeau, cet Amour, éveille votre âme et éveille la partie la plus vraie de qui vous êtes. Dans ce cercle se tient un bel Ange Céleste qui apporte la grande puissance de cet Amour et de cette Lumière au milieu de vous, servant chacun d'entre vous. Derrière chacun d'entre vous se tient un autre Ange Céleste, là pour vous aider, vous aider à ouvrir votre âme et la capacité de recevoir ce grand cadeau d'Amour Divin. Nous sommes tous ici pour vous servir.
 
 Mes amis bien-aimés, votre âme est une partie très unique de votre être. L'Amour Divin, ce grand cadeau, lorsqu'il coule dans votre âme et trouve un logement où il peut résider, commence un changement transformationnel de votre être. L'expérience de la réception de cet Amour est unique pour chaque âme individuelle. Comme l'a dit notre cher ami, il est parfois difficile de mettre des mots sur cette expérience. Car l'Amour de Dieu est un sentiment et votre âme fonctionne par le sentiment. Vous pouvez ressentir cet afflux d'Amour dans votre âme. Il peut y avoir des sensations de chaleur, des picotements, des visions de lumière qui viennent vers vous, une chaleur ou un manteau qui vous entoure. Les expressions sont nombreuses et uniques à chaque âme individuelle.
 
@@ -25,7 +25,4 @@ Au fur et à mesure que cet Amour s'accumule dans votre âme, mes chers amis, vo
 
 Ainsi, âmes bien-aimées, alors que vous êtes assises en train d'ouvrir vos cœurs et d'ouvrir vos âmes pour recevoir cette grande bénédiction de l'Amour Divin qui vous est délivrée par l'Esprit Saint, son messager d'Amour, nous, vos Anges Célestes enseignants et guides, nous tenons avec vous.
 
-Je vous remercie d'avoir écouté mes paroles. Que Dieu vous bénisse profondément et que vous ressentiez un profond afflux de cet Amour dans vos âmes. Alors que vous êtes assis dans le silence, allez au fond de votre âme et invitez Dieu à souffler son souffle d'Amour sur vous. Que Dieu vous bénisse, je suis Keea-atta Kem et mon amour est avec vous.
-
-
-
+Je vous remercie d'avoir écouté mes paroles. Que Dieu vous bénisse profondément et que vous ressentiez un profond afflux de cet Amour dans vos âmes. Alors que vous êtes assis dans le silence, allez au fond de votre âme et invitez Dieu à souffler son souffle d'Amour sur vous. Que Dieu vous bénisse, je suis Keea Atta Kem et mon amour est avec vous.

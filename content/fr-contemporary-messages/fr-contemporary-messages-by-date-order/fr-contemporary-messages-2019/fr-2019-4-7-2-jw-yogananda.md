@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez la prière pour l'Amour Divin devenir votre rituel
 
-Yogananda - reçu par Jimbeau Walsh le 7 Avril 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 7 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis très heureux de parler à travers mon cher frère. Bien qu'il soit réticent à recevoir dans son esprit, dans son âme, il est ouvert à ce cadeau. Comme il vit dans l'instant présent, il ne se souvient pas toujours qu'il a déjà reçu des messages. Il a également reçu de la musique.
 
@@ -20,6 +20,3 @@ Je souhaite donc dire aussi que le rituel peut devenir comme une dépendance. Lo
 Je remercie ce cher frère de s'être avancé et de m'avoir permis de parler. Je le ferai à l'avenir car j'ai beaucoup de choses à communiquer non seulement à mes disciples sur Terre, mais à tous. Du Royaume Céleste, nous vous envoyons notre amour et notre lumière. Je souhaite vous embrasser tous dans l'Amour de Dieu comme le fait cette chère âme.
 
 Je suis Yogananda et je vous aime.
-
-
-

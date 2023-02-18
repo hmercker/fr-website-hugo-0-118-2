@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez attentif aux désirs de votre cœur
 
-St François d'Assise - reçu par Jimbeau Walsh le 28 Juin 2019, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 28 Juin 2019, New Milton, UK.
 
 Il est tellement plus facile de voir le travail du Créateur dans la nature. Je veux vous encourager tous les deux à toujours savoir que vous pouvez vous retirer dans la nature, que vous soyez en ville ou à la campagne, pour trouver cet endroit tranquille pour communier avec Dieu. Vous savez que cette possibilité est toujours présente pour vous connecter où que vous soyez. Mais dans la nature, il y a un calme et une paix et une visibilité évidente de l'œuvre de Dieu. Je ne vous encourage pas seulement, dans vos voyages, à prier et à méditer dans la nature, mais à encourager les autres à se joindre à vous. Si vous vous trouvez dans un endroit très fréquenté, il vous suffit bien sûr de connecter votre âme et Dieu et les anges vous apporteront cette paix et ce calme.
 
@@ -20,6 +20,3 @@ Dieu veille sur vous et nous serons avec vous, comme vous le savez. En ce jour d
 Où que tu choisisses d'aller, si cela te semble juste dans ton cœur ou même si tu sens que c'est un endroit qui a besoin de ton cœur et de ton âme, nous t'encourageons à y aller. Prends le temps de te reposer. Réfléchis à ces choses. Prie à leur sujet. Nous ne te laisserons pas tomber. Le Père te protège.
 
 Dans le jardin de l'Amour de Dieu, puissiez-vous continuer à fleurir comme les roses, comme le lotus, comme les lumières que vous êtes. Que Dieu vous bénisse. Je vous promets mon amour et ma protection. Je suis votre frère dans les Cieux Célestes, François, et je vous aime.
-
-
-

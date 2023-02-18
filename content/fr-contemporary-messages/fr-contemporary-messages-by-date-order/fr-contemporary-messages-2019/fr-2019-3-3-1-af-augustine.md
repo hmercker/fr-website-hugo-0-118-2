@@ -9,9 +9,9 @@ weight:
 ---
 ### Vous avez ouvert un portail de lumière
 
-Augustin - reçu par Al Fike le 3 Mars 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 3 Mars 2019, Manhattan, NY, USA.
 
-Que Dieu vous bénisse, âmes bien-aimées. Chères et douces âmes qui venez chercher la vérité, le réconfort et l’amour. En vous réunissant, vous avez ouvert un Portail de Lumière<sup id=”a1”>[1](#f1)</sup> en ce lieu, un portail qui va très haut dans les royaumes du Ciel. De nombreuses bénédictions coulent à travers ce portail, et l’Amour du Créateur se déverse dans cette pièce. Que vos âmes capturent cet Amour car son énergie brûlante ne s’estompera jamais mais fera partie de vous pour toute l’éternité, ce cadeau d’Amour de Dieu. Ouvrez vos cœurs, âmes bien-aimées. Ouvrez-vous à cette Bénédiction Divine qui vous soutiendra et continuera à vous inspirer pour être en alignement avec le Divin, avec Dieu, avec tout ce qui est bon et harmonieux dans la nature, avec votre propre âme qui crie pour votre reconnaissance et pour être exprimée dans votre monde.
+Que Dieu vous bénisse, âmes bien-aimées. Chères et douces âmes qui venez chercher la vérité, le réconfort et l’amour. En vous réunissant, vous avez ouvert un Portail de Lumière <sup id=”a1”>[1](#f1)</sup> en ce lieu, un portail qui va très haut dans les royaumes du Ciel. De nombreuses bénédictions coulent à travers ce portail, et l’Amour du Créateur se déverse dans cette pièce. Que vos âmes capturent cet Amour car son énergie brûlante ne s’estompera jamais mais fera partie de vous pour toute l’éternité, ce cadeau d’Amour de Dieu. Ouvrez vos cœurs, âmes bien-aimées. Ouvrez-vous à cette Bénédiction Divine qui vous soutiendra et continuera à vous inspirer pour être en alignement avec le Divin, avec Dieu, avec tout ce qui est bon et harmonieux dans la nature, avec votre propre âme qui crie pour votre reconnaissance et pour être exprimée dans votre monde.
 
 Le monde a grand besoin de ceux qui sont prêts à suivre ce chemin d’amour, à être des canaux d’amour dans le monde et à dire la vérité au monde. Il y a beaucoup de changements à venir dans votre monde. Beaucoup de choses changent et il y a une grande opportunité maintenant pour chaque âme de se reposer dans le sein de Dieu, dans cette lumière d’Amour. Puissiez-vous aussi le faire. Puissiez-vous marcher dans la lumière et connaître la paix profonde qui dépasse toute compréhension, car Dieu continue à déverser son amour sur vous. Puissiez-vous en venir à connaître cet Amour comme réel et substantiel, comme transformateur et guérisseur afin que vous puissiez vivre le reste de vos jours sur cette Terre en harmonie, en paix et dans la joie. Que la vérité puisse être dans votre conscience, la force et la beauté de l’amour dans votre cœur.
 
@@ -25,7 +25,3 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin, jadis évêque d�
 <small>
 
 1. <large id=”f1”> Il s’agit d’un portail temporaire. Normalement, nous traitons des portails permanents, c’est donc une occasion à noter.[↩](#a1)
-
-
-
-

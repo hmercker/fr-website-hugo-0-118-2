@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos efforts sont nécessaires pour apporter le changement
 
-Albert Einstein - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Albert Einstein - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Albert Einstein et je veux que vous sachiez que je monte les escaliers vers le Royaume Céleste. Je le fais depuis un certain temps déjà et je suis proche. Je suis dans la septième sphère et je ferai bientôt partie de l’illustre famille des anges Célestes. Je veux que vous sachiez que je vous ai beaucoup observé, en cette période de progrès continu et de développement de mon âme. Car je suis une personne curieuse. Je veux savoir tout ce qui est de la Vérité. Je veux que vous sachiez que certains d’entre vous ici m’ont aidé dans mon progrès, comme vous avez aidé beaucoup de gens en esprit. Continuez à dire la Vérité à tous ceux qui veulent bien l’entendre. J’ai donc découvert la clé pour éveiller les grands potentiels de l’âme. C’est cet Amour Divin, cette Essence d’En Haut qui illumine toutes les facultés cachées dans l’âme.
 
@@ -36,6 +36,3 @@ C’est donc un voyage différent du mien lorsque j’étais sur Terre, mais les
 Cela fait partie de la volonté et du plan de Dieu et c’est puissant. Cela doit être fait. Car le monde a grand besoin d’être sauvé, mes amis. Tant de choses ont besoin d’être changées. Le monde ne peut plus être naïf et apathique, rempli de distractions et d’un besoin de satisfaire tous les appétits humains. Il est temps pour le monde de grandir, de devenir adulte, d’être responsable, de chercher quelque chose de mieux, de chercher l’amour.
 
 Puissiez-vous trouver votre chemin sur cette voie de la Vérité et être forts et droits dans vos efforts pour dire la Vérité et démontrer la Vérité. Que Dieu vous bénisse, âmes bien-aimées, je suis Albert Einstein. Je suis très heureux de vous parler ce soir. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous bénisse car vous vivez dans des temps fortuits et vous êtes bénis par une grande fortune de Vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

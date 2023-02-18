@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour Divin apporte les réponses que vous cherchez
 
-Seretta Kem - reçu par Maureen Cardoso le 22 Juin 2019, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 22 Juin 2019, Island of Guernsey, UK.
 
 Dieu vous bénisse, âmes bien-aimées, mon nom est Seretta Kem. Je vous accueille dans ce Cercle de Lumière, en ouvrant vos âmes et votre cœur pour recevoir le plus grand cadeau de tout l'univers, l'Amour Divin. Lorsque je marchais sur votre Terre, je résidais dans le pays que vous appelez l'Égypte. Je suis un chimiste et un guérisseur. Je réside maintenant dans les Cieux Célestes. Mon âme a été rachetée par l'Amour Divin. Je sers maintenant les enfants de la Terre, en guidant, en soutenant, en aimant et en influençant ceux qui sont sur le chemin divin.
 
@@ -26,6 +26,3 @@ Nous espérons que les deux d'entre vous qui résidez ici sur cette belle île s
 Celui qui se connecte à la véritable essence de l'amour de Dieu reçoit un cadeau éternel de la vie, des potentiels infinis, d'innombrables changements et miracles. Il y a beaucoup de bénédictions à recevoir par le toucher de l'Amour de Dieu. Je vous remercie de me permettre de venir partager des mots et une invitation à connaître et à comprendre la Vérité de la Création, la Vérité de l'Amour. Que votre temps ensemble soit béni et nous marcherons avec vous.
 
 Je suis Seretta Kem et je vous remercie de me permettre de venir partager ma lumière, mon amour et ma sagesse alors que vous priez. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-

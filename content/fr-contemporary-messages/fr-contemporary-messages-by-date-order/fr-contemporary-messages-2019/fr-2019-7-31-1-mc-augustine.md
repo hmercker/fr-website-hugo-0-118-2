@@ -9,7 +9,7 @@ weight:
 ---
 ### Partagez l'expérience de votre âme et de votre cœur lorsque vous enseignez l'Amour Divin
 
-Augustin - reçu par Maureen Cardoso le 31 Juillet 2019, Abbotsford, Colombie-Britannique, Canada
+Augustin - reçu par Maureen Cardoso le 31 Juillet 2019, Abbotsford, Colombie-Britannique, Canada.
 
 Bonjour, c’est votre enseignant Augustin qui est avec vous. Lorsque les âmes se rassemblent en Cercle, se réunissant pour faire l’expérience de ce que c’est que de recevoir dans leur âme et d’ouvrir leur âme au don de l’Amour Divin, c’est une belle chose. Pour ceux d’entre vous qui ont été inspirés de faciliter ces rassemblements et ces opportunités pour ces âmes qui sont attirées à se réunir dans cette expérience, l’Amour de Dieu est présent. Car l’aspiration et le désir ardent de vos âmes le rendent ainsi. La Présence de Dieu est constante. Ce n’est que votre expérience humaine, l’agitation de votre monde, et le monde matériel qui vous empêche de communier avec Dieu, d’avoir une expérience et une connexion avec votre âme. Pourtant, l’Essence de cet Amour ne se dissipe pas.
 
@@ -34,6 +34,3 @@ Marchez dans la grâce de votre âme. Vivez de la grâce de votre âme. Parlez e
 Je suis Augustin, votre enseignant. J’espère que j’ai pu apporter quelques conseils à ceux qui facilitent ces Cercles de Lumière qui attirent de nombreuses âmes porteuses de nombreuses croyances, qui aspirent et qui cherchent. Vous êtes tous en train de grandir, mes bien-aimés. Vous vous développez tous et vous cherchez tous, ce qui apporte une grande unité parmi vous. Nous continuerons à être avec vous alors que vous animez ces Cercles et que vous êtes envoyés dans le monde pour partager, pour parler, pour enseigner et pour exprimer à partir de votre expérience votre expérience de l’âme, ce qu’est l’Amour de Dieu, l’Essence de la Vérité pour tous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et mon amour reste avec vous. Mes chers élèves, que Dieu vous bénisse.
-
-
-

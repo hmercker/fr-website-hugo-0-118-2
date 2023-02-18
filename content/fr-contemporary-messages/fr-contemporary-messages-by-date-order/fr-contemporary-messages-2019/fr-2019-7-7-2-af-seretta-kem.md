@@ -9,7 +9,7 @@ weight:
 ---
 ### Prenez votre engagement très au sérieux
 
-Seretta Kem - reçu par Al Fike le 7 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 7 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénis pour vos efforts, mes bien-aimés. Soyez bénis pour vos prières. Soyez bénis pour vos dédicaces. Soyez bénis pour toutes ces expressions de votre âme alors que Dieu touche votre âme, réveillant petit à petit et aspect par aspect vos âmes, les rendant vivantes dans ce monde. Combien, dans votre monde, possèdent une âme qui est au moins partiellement éveillée ? Combien s’efforcent d’y parvenir ? Combien comprennent ce que c’est, même dans votre monde ? Nous vous encourageons à continuer à prendre très au sérieux votre engagement à le faire, à avancer de cette manière, à permettre à la merveille qu’est votre âme de s’éveiller et de s’exprimer dans ce monde, à travers l’Amour de Dieu.
 
@@ -32,6 +32,3 @@ Nous continuons à marcher avec vous, âmes bien-aimées, et vous devenez de plu
 Tant de choses sont à venir, âmes bien-aimées. Maintenant, il y a peu de choses sur votre chemin alors que vous avancez et beaucoup de choses à découvrir sur le Chemin Divin. Réveillez-vous, frères et sœurs ; réveillez-vous à vos destinées et soyez dans la puissante rivière de l’Amour de Dieu.
 
 Que Dieu vous bénisse profondément et pleinement, richement et magnifiquement de Son Amour. Je suis avec vousi, Seretta Kem. Je suis avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse. Je vous aime.
-
-
-

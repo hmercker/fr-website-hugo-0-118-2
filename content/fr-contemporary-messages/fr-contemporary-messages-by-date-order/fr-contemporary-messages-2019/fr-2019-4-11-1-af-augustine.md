@@ -9,7 +9,7 @@ weight:
 ---
 ### Destinée et libre arbitre - Partie 2
 
-Augustin - reçu par Al Fike le 11 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 11 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant, Augustin. Je souhaite poursuivre mon discours sur le libre arbitre par rapport au destin, car je souhaite ajouter quelques éléments à cet enseignement. Comme je l'ai dit, les eaux de la Grâce et de la Volonté de Dieu sont colorées et brouillées par le libre arbitre et les actions des mortels ; ainsi, la Volonté de Dieu est rarement comprise clairement. Il est rare qu'elle soit appliquée avec précision. Pourtant, le pouvoir de l'Amour et de la Volonté de Dieu continue à être un agent actif sur le plan terrestre et avec ceux qui sont en alignement avec Dieu. Même s'ils ne sont pas conscients de cet alignement, ils peuvent être utilisés et devenir des agents actifs de la Volonté de Dieu. Souvent, cet agent reflète un but qui est ancré dans l'âme d'un individu. L'accomplissement de ce but peut être éphémère ou se poursuivre tout au long de la vie. Cela aussi est déterminé par les conditions de votre monde et les choix de l'individu. Ainsi, Dieu utilise toutes les opportunités qui lui sont offertes pour mettre en œuvre le flux de sa volonté dans le monde, pour inspirer et guider ses enfants vers la lumière et l'harmonie.
 
@@ -34,6 +34,3 @@ Alors, mes chers et beaux amis, acceptez le chemin de l'individu, peu importe la
 Votre but commence, âmes bien-aimées, le réveil est en cours. L'amour au sein de votre âme insiste pour que l'âme soit reconnue, pour que l'âme ait sa place dans votre être, guidant et dirigeant vos vies. Écoutez, âmes bien-aimées, écoutez les battements de votre âme, les intuitions qui viennent de toutes ses myriades de façons, comme un kaléidoscope de couleurs qui atteignent votre moi conscient et s'expriment dans de nombreux, nombreux aspects de qui vous êtes. La vérité et la volonté de Dieu se manifesteront de plus en plus profondément à mesure que vous poursuivrez jour après jour vos prières et votre croissance spirituelle, vos efforts et votre être.
 
 Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage. Je suis votre enseignant Augustin et je continue à vous aider sur ce voyage d'amour et d'éveil, où mon amour pour vous est grand, mon dévouement à votre élévation et à l'éveil de votre âme est une partie sincère et volontaire de ma vie et de mon être. Je vous aime mes bien-aimés, je vous aime profondément. Que Dieu vous bénisse.
-
-
-

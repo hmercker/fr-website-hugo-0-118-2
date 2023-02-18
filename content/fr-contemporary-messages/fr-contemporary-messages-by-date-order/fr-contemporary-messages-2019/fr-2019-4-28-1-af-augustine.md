@@ -9,13 +9,13 @@ weight:
 ---
 ### Libérez tout ce qui n'est pas en harmonie avec l'amour
 
-Augustin - reçu par Al Fike le 28 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 28 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées. Des conditions difficiles risquent fort de survenir alors que les changements dans le monde continuent de s'accumuler et que les conditions tout autour de vous deviennent quelque peu chaotiques et difficiles. Vous devez être forts, mes bien-aimés. Vous devez être concentrés et connectés avec votre Créateur. Je vous exhorte à être plus fervents dans vos prières, plus cohérents dans vos pensées, afin qu'elles soient positives et constructives, afin que vous puissiez examiner plus profondément vos modèles de comportement et ces choses qui vous apportent des conditions difficiles. Ces choses en vous qui ne sont pas en harmonie avec les lois de Dieu doivent être prises en compte dans votre conscience afin que vous puissiez les changer. Vous pouvez demander à Dieu de vous aider en cela, ainsi qu'à vos anges amis qui continuent à vous soutenir et à vous épauler sur le chemin de votre vie.
 
 Le pouvoir de l'Amour de Dieu est fort en chacun de vous, vous tous qui faites partie de ce groupe de sept. Ce n'est pas un problème, âmes bien-aimées. Ce n'est pas quelque chose à propos duquel je souhaite vous réprimander, car vos âmes sont fortes dans l'amour. Vous continuez à grandir dans l'amour alors que vous recevez cette bénédiction goutte à goutte, incrément par incrément. Non, mes chers, très chers protégés, c'est la condition humaine qui me préoccupe. C'est votre sensibilité à cette condition humaine qui compromet votre lumière et vous amène souvent à un endroit qui est moins qu'idéal avec votre propre condition spirituelle.
 
-Ce n'est pas parce que vous le désirez. Il s'agit plutôt d'une erreur d'omission où vous ne prenez pas de précautions. Vous ne vous disciplinez pas. Vous ne faites pas d'effort pour surveiller votre propre comportement et la façon dont vous vous joignez à ces conditions si facilement. C'est l'habitude, mes âmes bien-aimées, et l'habitude, comme vous le savez bien, est difficile à briser et à changer. Pourtant, vous avez tout en vous pour le faire. Vous pouvez dire : "Je ne peux pas, je suis trop faible."
+Ce n'est pas parce que vous le désirez. Il s'agit plutôt d'une erreur d'omission où vous ne prenez pas de précautions. Vous ne vous disciplinez pas. Vous ne faites pas d'effort pour surveiller votre propre comportement et la façon dont vous vous joignez à ces conditions si facilement. C'est l'habitude, mes âmes bien-aimées, et l'habitude, comme vous le savez bien, est difficile à briser et à changer. Pourtant, vous avez tout en vous pour le faire. Vous pouvez dire : *« Je ne peux pas, je suis trop faible. »*
 
 Pourtant, ce n'est pas vrai. Vous êtes fort. Vous avez la puissance de l'Amour de Dieu dans vos âmes. Vous commencez à vous éveiller de nombreuses manières différentes et les nombreuses facettes de votre âme sont infusées de l'Amour de Dieu. C'est un puissant générateur de lumière, de vérité, de perspicacité et de force en vous. Cependant, c'est à vous de choisir si vous êtes en harmonie avec votre propre âme à chaque respiration ou non. Pourtant, Dieu vous invite à vous éveiller pleinement, à vivre pleinement dans la Lumière, à être un canal clair et magnifique de Son Amour dans le monde, à exprimer la sagesse de votre âme, l'amour au sein de votre âme, les nombreuses capacités et dons de votre âme.
 
@@ -36,6 +36,3 @@ Ne gaspillez pas votre temps, mais faites des efforts dans la prière et la réf
 Sachez que toutes les ressources, toutes les capacités, le pouvoir et la beauté de la touche de guérison de Dieu sont avec vous. Un grand effort est fait et vous devez répondre à cet effort vous-mêmes sur le chemin que vous avez choisi et sur lequel vous marchez. C'est à vous d'être dans la lumière, de marcher dans la vérité, de vous libérer de tout ce qui n'est pas de ce beau cadeau de la vie que Dieu vous a donné dans les voies de la lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant, Augustin, continue à vous assister dans votre éducation, à vous aider lorsque vous luttez dans la vie. Sachez que je suis toujours avec vous et que je continuerai avec vous ce grand voyage vers Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Augustin vous aime. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Une explication de l’âme
 
-St Luc - reçu par Al Fike le 13 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 13 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Luc et je suis venu vous parler de l’âme puisque c’est le point central de votre rassemblement, de vos questions et de vos efforts pour clarifier votre compréhension de qui et de ce que vous êtes vraiment. Quelle est votre essence ? Votre essence est votre âme. L’âme est un être, une entité créée par Dieu qui a résidé pendant la plus grande partie de son existence en Dieu, dans un lieu totalement différent du monde matériel. Dans ce lieu, l’âme fait l’expérience d’elle-même dans une certaine mesure et fait l’expérience de Dieu de manière plus complète parce que tous les obstacles matériels ne restreignent pas l’âme dans sa connexion avec Dieu.
 
@@ -48,6 +48,3 @@ L’état de votre âme, la lumière de votre âme influence et affecte toutes l
 Âmes bien-aimées, vous en saurez plus au fur et à mesure que le temps passe. Vous comprendrez davantage à mesure que l’Amour s’accumule dans vos âmes. Vous en viendrez à connaître Dieu avec une telle profondeur, une telle sagesse et une telle joie alors que cet Amour continue à intégrer tout ce que vous êtes en un tout qui est l’âme éveillée.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Que Dieu vous bénisse. Je suis Luc. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

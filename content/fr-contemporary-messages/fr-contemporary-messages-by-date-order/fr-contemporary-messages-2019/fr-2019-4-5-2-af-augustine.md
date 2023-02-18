@@ -10,9 +10,10 @@ hidden: True
 weight:
 ---
 ### Médiumnité, dons et être un canal d'amour
-Et comment traiter les différences d'approche entre les adeptes de l'Amour Divin
 
-Augustin - reçu par Al Fike le 5 Avril 2019, Gibsons, Colombie-Britannique, Canada
+**Et comment traiter les différences d'approche entre les adeptes de l'Amour Divin**
+
+Augustin - reçu par Al Fike le 5 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Cet instrument n'a pas à s'inquiéter de l'exactitude des messages qui sont reçus par son intermédiaire. Car le rapport que nous avons créé avec cet instrument est fort. Il est protégé, comme il l'a souhaité, de toute influence qui n'est pas d'origine Céleste. Ainsi, parler à travers n'importe quel canal, comme un médium, a ses restrictions. Pour la plupart, ses bénédictions sont grandes et il n'y a pas besoin de s'inquiéter pour ce canal qui sert dans l'amour.
 
@@ -28,7 +29,7 @@ Dans chaque âme se trouve la capacité de connaître la vérité et l'âme allu
 
 Bien qu'en essence la Vérité de Dieu soit simple, comprendre et mettre en œuvre ces vérités peut être un long voyage. Car vous luttez tous avec le monde matériel, le mental matériel, les conditions de ce monde qui vous influencent quotidiennement et causent une grande consternation à votre mental et à vos désirs de grandir dans l'Amour. Avec chaque jour, avec chaque prière, vous éliminez certaines de ces conditions à un certain degré et arrivez à comprendre la vérité un peu plus clairement et profondément. Soyez patients avec vous-mêmes et soyez patients avec vos frères et sœurs. Car construire une telle fondation de vérité dans l'âme prend du temps, prend de la patience, prend une volonté d'avancer dans la lumière et d'absorber vraiment la vérité. Vous êtes tous, à un certain degré, parvenus à ce lieu de compréhension.
 
-Certains, dans votre monde, ont une compréhension aiguë des principes et des vérités de différentes manières, tandis que d'autres sont orientés dans d'autres directions. C'est la façon de faire du monde. Cela provoque quelques schismes au sein du corps des individus qui ont l'intention de vivre l'Amour Divin. Mais cela ne signifie pas que vos frères et sœurs ont tort ou sont mal orientés. Cela signifie simplement que leur approche est différente. Ils doivent être respectés en cela. Car chaque âme a son propre parcours, n'est-ce pas ? Chaque chemin est béni par Dieu. Et ce qui est clair et confortable pour vous peut ne pas l'être pour un autre. 
+Certains, dans votre monde, ont une compréhension aiguë des principes et des vérités de différentes manières, tandis que d'autres sont orientés dans d'autres directions. C'est la façon de faire du monde. Cela provoque quelques schismes au sein du corps des individus qui ont l'intention de vivre l'Amour Divin. Mais cela ne signifie pas que vos frères et sœurs ont tort ou sont mal orientés. Cela signifie simplement que leur approche est différente. Ils doivent être respectés en cela. Car chaque âme a son propre parcours, n'est-ce pas ? Chaque chemin est béni par Dieu. Et ce qui est clair et confortable pour vous peut ne pas l'être pour un autre.
 
 Idéalement, vous devriez tous partager vos expériences et vos perceptions avec respect et en honorant le chemin de chacun vers Dieu. Dans la plupart des cas, c'est le cas. Vous faites des efforts pour vous aimer et vous accepter les uns les autres. Bien qu'il puisse y avoir quelques désaccords mineurs, vos âmes se reconnaissent mutuellement dans la lumière. Vous partagez cette expérience de la transformation de l'âme et de la bénédiction de l'Amour de Dieu. C'est l'interaction de la condition humaine parmi vous qui provoque une certaine consternation. Pour ceux d'entre vous qui sont plus forts dans l'amour, dans l'âme, dans l'humilité et dans la grâce, vous devez être l'exemple et ne pas laisser les différences constituer des barrières dans votre amour de l'autre, dans votre acceptation et votre encouragement. Ceci est la vraie sagesse, âmes bien-aimées, et l'humilité. Lorsqu'un autre vous rejette parce qu'il ne comprend pas, ne laissez pas cela vous blesser et vous faire reculer devant lui. C'est l'occasion de lui apporter un plus grand amour, de l'embrasser, de l'accepter. Car souvent ces choses sont un appel à l'amour, à une plus grande compréhension.
 
@@ -43,6 +44,3 @@ Mes chers et beaux étudiants, sachez que vous êtes aimés et que ce que vous f
 Puissiez-vous en venir à exprimer ces dons dans toute leur beauté et leur créativité, l'émerveillement de l'âme unique que vous êtes dans le monde. Puissiez-vous avoir les perceptions et l'inclination à voir les âmes uniques et belles qui vous entourent et qui sont dans le monde partageant cette vie. De cette façon, vous connaîtrez une joie profonde et trouverez une grande satisfaction dans les expériences de votre vie.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées. Je suis votre enseignant Augustin et je vous aime, je vous aime tous. Je vois vos lumières et elles sont belles. Que Dieu vous bénisse.
-
-
-

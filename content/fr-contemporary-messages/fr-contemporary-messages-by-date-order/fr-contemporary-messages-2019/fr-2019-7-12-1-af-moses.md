@@ -9,7 +9,7 @@ weight:
 ---
 ### Le vent du changement continue de souffler
 
-Moïse - reçu par Al Fike le 12 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Moïse - reçu par Al Fike le 12 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Le vent du changement continue de souffler sur votre monde et beaucoup de choses qui ont été comprises dans le passé, beaucoup de choses qui ont été données comme sagesse par les prophètes des temps anciens et les voyants des temps passés, sont maintenant enfouies dans les circonstances et les points de vue et les perspectives de votre monde moderne, et tant de sagesse se perd, âmes bien-aimées. Car il n’y a ni temps ni intérêt à vivre une vie en harmonie avec des comportements qui se respectent et s’honorent mutuellement, qui apportent amour et lumière. Au lieu de cela, beaucoup sont nourris de mensonges, beaucoup de contre-vérités et de tromperies qui conduisent à des âmes qui sont plus faites de pierre que de lumière.
 
@@ -38,8 +38,3 @@ Oui, tant de choses vont arriver. Chacun d’entre vous, qui veut être un canal
 Soyez forts, mes bien-aimés. Soyez forts dans vos cœurs et vos âmes et marchez dans la lumière. C’est ainsi que vous connaîtrez vraiment Dieu et que vous connaîtrez la Volonté de Dieu pour vous et pour ce monde. De cette façon, vous serez utilisés pour aider beaucoup de gens dans les changements à venir.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Moïse et je viens à vous dans tout mon amour et toute ma sollicitude pour les enfants du monde et pour tout ce qui est dans le mo
-
-
-
-
-

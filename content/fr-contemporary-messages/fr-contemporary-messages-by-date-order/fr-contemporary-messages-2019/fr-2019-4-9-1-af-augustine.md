@@ -9,7 +9,7 @@ weight:
 ---
 ### Le changement, c'est maintenant
 
-Augustin - reçu par Al Fike le 9 Avril 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 9 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 C'est votre enseignant, Augustin. Quand les changements arriveront-ils ? Vous vous posez tous cette question et vous y réfléchissez souvent. Mais ce qui est important dans vos vies en ce moment, âmes bien-aimées, ce sont les changements qui peuvent venir à vous, en vous et dans votre vie. Ces changements intérieurs sont déterminés par vos efforts et la ferveur de vos prières, votre volonté d'accepter les bénédictions que Dieu a à vous donner et attend de vous donner, et votre capacité à libérer ce qui vous retient de ces bénédictions et de ces réveils.
 
@@ -30,6 +30,3 @@ Lorsque vous demandez quand viendront les changements ? Je réponds que les chan
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde sur le chemin prévu. Que vos yeux s'ouvrent, que les écailles se détachent afin que la vérité et la réalité, le changement et les bénédictions viennent conformément au plan de Dieu pour vous, âmes bien-aimées. Et ainsi je continue à marcher avec vous, mes amis. Je continue à observer vos luttes, vos efforts, vos prières et vos triomphes. Soyez assurés que moi, ainsi que beaucoup d'autres, nous continuons à vous soutenir et à vous guider sur le chemin du changement profond, du changement puissant, du changement merveilleux qui vient avec cette sainte bénédiction de l'Amour.
 
 Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Votre enseignant Augustin vous aime tendrement. Je suis toujours avec vous, mes amis, âmes bien-aimées, enfants de Dieu. Je suis avec vous. Que Dieu vous bénisse.
-
-
-

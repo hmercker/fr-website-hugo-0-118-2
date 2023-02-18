@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouvrez-vous à ce don de Dieu
 
-Jésus - reçu par Al Fike le 6 Mai 2019, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 6 Mai 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je viens, je suis Jésus. Je viens parce que vous m’avez appelé, mes bien-aimés, dans vos cœurs, vous m’avez appelé. Je viens parce que Dieu est dans cette pièce avec vous, âmes bien-aimées, et l’Esprit Saint qui transmet Son Amour travaille activement parmi vous alors que vos âmes s’ouvrent à ce don d’Amour, cette Essence Divine qui est le don de transformation dont vous parlez. Alors je vous en conjure, mes bien-aimés, ouvrez-vous. Ouvrez-vous à ce grand cadeau, à cette bénédiction d’en haut qui unifie vos âmes, les unes aux autres. Dans ce Cercle de Lumière, vous êtes bénis. Donnez-vous à cette bénédiction. Mettez de côté les préjugés de vos esprits. Laissez tomber vos peurs. Permettez à ce don profond et spirituel d’entrer en vous, vous changeant à jamais.
 
@@ -24,6 +24,3 @@ C’est mon invitation, âmes bien-aimées. Venez vous joindre à cela afin que 
 Vous êtes assis dans ce cercle sacré, un cercle dans lequel les Anges du Ciel sont venus pour être et partager avec vous sa Lumière. Vos âmes sont attirées, mes bien-aimés. Vos âmes cherchent la Vérité. Vous parviendrez à connaître la Vérité et à trouver une grande joie et un grand épanouissement dans cette Vérité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément en vous, en éveillant les vrais désirs de votre âme. Je suis avec vous. Je conduis le chemin pour que vous le suiviez et je vous rassemble dans mon Amour et vous montre le chemin de l’Amour du Père. Que Dieu vous. Je suis avec vous. Que Dieu vous bénisse.
-
-
-

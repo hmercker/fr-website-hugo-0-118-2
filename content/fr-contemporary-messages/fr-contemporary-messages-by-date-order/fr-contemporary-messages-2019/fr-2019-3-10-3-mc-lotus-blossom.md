@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuer à renforcer vos liens pour accomplir vos missions
 
-Fleur de Lotus - reçu par Maureen Cardoso le 10 Mars 2019, Abbotsford, Colombie-Britannique, Canada
+Fleur de Lotus - reçu par Maureen Cardoso le 10 Mars 2019, Blackpool, England.
 
 Je suis avec vous. C’est Fleur de Lotus. Nous rassemblons toutes les belles âmes qui prient en ce moment. Celles qui se sont rassemblées en retraite et cette chère âme qui est de l’autre côté de l’océan, priant ensemble avec vous en ce moment. La lumière de vos âmes se lie ensemble. Bien qu’il y ait une distance physique, le lien de votre âme ne ressent aucune distance. Lorsque vous priez ensemble de cette manière, les liens s’approfondissent et vous pouvez sentir la présence de l’autre.
 
@@ -26,8 +26,3 @@ Ainsi, alors que cette chère âme franchit le seuil de ce bâtiment, très cons
 Que Dieu vous bénisse car votre but et vos missions sont grandement nécessaires et profondément bénis par Dieu. Nous, vos amis Célestes, sommes venus pour vous servir, pour vous aimer, pour vous guider et pour vous nourrir sur vos chemins uniques.
 
 Je suis Fleur de Lotus et mon amour est avec vous. N’oubliez pas de faire appel à moi car j’apporte le don de la guérison à chacun d’entre vous. Je désire servir chacun d’entre vous. Que Dieu vous bénisse. Je vous aime. Je suis Fleur de Lotus.
-
-
-
-
-

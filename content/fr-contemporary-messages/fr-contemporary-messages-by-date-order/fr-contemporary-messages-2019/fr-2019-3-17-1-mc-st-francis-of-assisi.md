@@ -9,7 +9,7 @@ weight:
 ---
 ### Le printemps de l'âme
 
-St François d'Assise - reçu par Maureen Cardoso le 17 Mars 2019, Abbotsford, Colombie-Britannique, Canada
+St François d'Assise - reçu par Maureen Cardoso le 17 Mars 2019, Blackpool, United Kingdom.
 
 Gracieux et chers amis, je suis François. Je fus connu sous le nom de Saint François lors de ma vie terrestre. Oui, il y a beaucoup de choses dans l’air qui s’épanouissent en ce moment dans chacune de vos vies, alors que vous entamez cette nouvelle saison du printemps. Beaucoup d’entre vous ont été attirés ensemble dans des Cercles de Lumière, pour prier, communier et se joindre à des événements joyeux.
 
@@ -24,6 +24,3 @@ e viens donc vous dire qu’il y a beaucoup de choses sur le point de naître da
 C’est un plaisir d’être avec vous et de vous voir tous en prière, attirant près de vous les Anges et recevant un profond afflux de l’Amour de Dieu dans vos âmes. C’est ma grande joie et mon privilège d’être avec vous et de partager quelques mots, quelques mots qui, je l’espère, vous inspireront dans la nouvelle vie qui jaillira de vous.
 
 Que Dieu vous bénisse. Je suis François et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-
