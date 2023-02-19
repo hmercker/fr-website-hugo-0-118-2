@@ -9,13 +9,13 @@ weight:
 ---
 ### Les défis de vivre l'amour sur la voie Divine
 
-Simon - reçu par Al Fike le 24 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Simon - reçu par Al Fike le 24 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Dieu n’a pas l’intention de voir Ses instruments souffrir, aussi Dieu veillera-t-il à ce que vos besoins soient satisfaits. Plus vous continuerez à faire Sa volonté, plus les moyens de le faire se manifesteront dans vos vies. Il y a toujours une tendance à douter et à craindre que ces choses ne soient pas en place dans votre vie, que d’une certaine manière Dieu oublie sa promesse à Ses instruments. Ce n’est pas vrai. Sa promesse est toujours accomplie. Les voies et moyens sont toujours fournis à Ses enfants. Même si ces moyens ne sont pas ceux que vous avez prévus ou attendus, ils sont toujours en harmonie, souvent de manière humble mais belle.
 
 Vivre une vie dans la foi est un défi. Chercher à faire la volonté de Dieu peut parfois être un défi. Oui, la résistance que vous pouvez rencontrer en le faisant peut être grande. Mais si vous vivez dans la foi, si vous marchez dans la foi et si vous vous exprimez comme de purs canaux de l’Amour de Dieu, rien ne vous fera du mal. Il n’y a rien dans ce monde qui soit plus puissant que l’Amour de Dieu et son expression à travers vous. Vous êtes protégés et vous êtes pris en charge. Même dans ce monde matériel, même dans des circonstances désastreuses, il sera pourvu à vos besoins.
 
-Ne sous-estimez pas la Volonté de Dieu ni la puissance de Ses anges pour provoquer des circonstances qui ouvriront des portes pour chacun d’entre vous. Il existe une expression familière selon laquelle vous dites parfois *« penser en dehors de la boîte. »*<sup id="a1">[1](#f1)</sup> En effet, la sagesse et la créativité de votre propre âme vous permettront de le faire, de trouver des moyens qui ne sont pas tout à fait habituels ou communs. Et pourtant, Dieu trouvera un moyen de contourner tout problème. Comme Il vous a été dit, la volonté de Dieu est comme une rivière qui coule et trouve son chemin vers sa destination en temps voulu. Oui, vous, les mortels, avez souvent des doutes. Votre esprit continue de spéculer et est parfois craintif et sceptique. Votre âme sait que la route que vous parcourez est celle que Dieu a tracée devant vous, à condition que vous soyez prêts à écouter Ses conseils, ils vous parviendront. Vous verrez les portes s’ouvrir pour vous, les possibilités se manifester, la puissance de Sa volonté continuer à orchestrer la lumière, apportant une plus grande lumière, une plus grande vérité, un plus grand amour.
+Ne sous-estimez pas la Volonté de Dieu ni la puissance de Ses anges pour provoquer des circonstances qui ouvriront des portes pour chacun d’entre vous. Il existe une expression familière selon laquelle vous dites parfois *« penser en dehors de la boîte. »* <sup id="a1">[1](#f1)</sup> En effet, la sagesse et la créativité de votre propre âme vous permettront de le faire, de trouver des moyens qui ne sont pas tout à fait habituels ou communs. Et pourtant, Dieu trouvera un moyen de contourner tout problème. Comme Il vous a été dit, la volonté de Dieu est comme une rivière qui coule et trouve son chemin vers sa destination en temps voulu. Oui, vous, les mortels, avez souvent des doutes. Votre esprit continue de spéculer et est parfois craintif et sceptique. Votre âme sait que la route que vous parcourez est celle que Dieu a tracée devant vous, à condition que vous soyez prêts à écouter Ses conseils, ils vous parviendront. Vous verrez les portes s’ouvrir pour vous, les possibilités se manifester, la puissance de Sa volonté continuer à orchestrer la lumière, apportant une plus grande lumière, une plus grande vérité, un plus grand amour.
 
 Oui, vous avez tous des besoins physiques. Beaucoup d’entre vous décrient le fait que vous n’êtes pas riches et insouciants en ce qui concerne les préoccupations matérielles. Pourtant, la richesse que vous portez en votre âme, la richesse qu’est votre vie, la lumière qui vous entoure, est bien plus grande que n’importe quel homme en ce monde qui possède de grandes richesses matérielles. Que choisissez-vous, mes bien-aimés ? Quel est votre désir ? Quelles sont vos priorités ? Quelle est l’étendue de votre engagement envers Dieu ?
 
@@ -35,7 +35,3 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis Simon. J’espère avoir apa
 <small>
 
 1. <large id=”f1”> « sortir du cadre pour penser différemment » .[↩](#a1)
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### C'est à vous de choisir si vous apportez la lumière ou l'obscurité à ce monde
 
-St François d'Assise - reçu par Al Fike le 3 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+St François d'Assise - reçu par Al Fike le 3 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis François. Je prie pour vous tous, tous les enfants de votre monde, toutes les créatures de votre monde, tout ce que Dieu a créé dans votre monde, afin qu’ils soient libérés du joug des conditions de l’obscurité dans votre monde, afin que l’harmonie puisse venir une fois de plus dans votre monde et apporter la paix et la Lumière. Je prie pour que toutes les créatures, toute l’humanité puisse vivre dans un monde de paix, de joie et d’harmonie. Car telle est la volonté de Dieu, mes amis bien-aimés.
 
@@ -26,8 +26,3 @@ C’est le prochain niveau d’évolution de l’humanité, pour rechercher les 
 Que Dieu vous bénisse, âmes bien-aimées, avec cette grande puissance, avec ce doux souffle de Dieu, avec tout ce qu’est l’Amour de Dieu. Puisse-t-il venir à vos âmes et éveiller tous les beaux potentiels et dons qui sont en vous. Vous êtes destinés à être des créatures de Lumière, des créatures de Dieu et cela peut être et sera alors que vous continuez à grandir dans ce merveilleux flux d’Amour du Père.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis François. Mon amour est avec vous, mes prières sont avec vous et je marche souvent avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-
-
-

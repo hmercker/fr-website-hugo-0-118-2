@@ -9,7 +9,7 @@ weight:
 ---
 ### Importance du Portail de Lumière au Centre Mondial de Guérison
 
-Faith - reçu par Maureen Cardoso le 15 Août 2019, Abbotsford, Colombie-Britannique, Canada
+Faith - reçu par Maureen Cardoso le 15 Août 2019, Burnaby, Colombie-Britannique, Canada.
 
 Je suis ici avec vous, je suis Faith. Bénissez chacun de vous avec vos efforts continus pour être proche du Père Céleste permettant à cet Amour de changer votre âme, travaillant votre chemin vers les Cieux Célestes. Que Dieu vous bénisse, mes bien-aimés. Le temps approche où ce cher instrument va une fois de plus traverser les eaux jusqu’au lieu de guérison. Comme à chaque fois auparavant, elle sera entourée d’une foule d’anges Célestes qui la guideront, l’inciteront, l’aideront à soutenir et renforcer sa condition physique pour ces voyages continus afin d’aider à revitaliser son corps chaque jour.
 
@@ -27,6 +27,3 @@ Nous sommes très heureux du déroulement que nous voyons et nous anticipons bea
 Vous avez encore beaucoup à découvrir, mes bien-aimés. Notre plus grande appréciation et gratitude va à chacun d’entre vous car vos voyages sur le chemin Divin sont uniques mais ce qui les unit tous est l’Amour de Dieu et cet Amour est profond dans votre âme. La Lumière de votre âme s’étend et grandit. Vous ressentez cette Lumière, vous ressentez la révérence de l’Amour, et vous ressentez Dieu dans votre âme. C’est une chose magnifique, magnifique.
 
 Que Dieu vous bénisse, chacun d’entre vous. Mon amour est avec vous tous. Je suis Faith et j’apporte mes bénédictions d’amour, de joie et de lumière à chacun d’entre vous. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse. Je suis Faith.
-
-
-

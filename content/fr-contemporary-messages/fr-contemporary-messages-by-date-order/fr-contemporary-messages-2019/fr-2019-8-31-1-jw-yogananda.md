@@ -9,7 +9,7 @@ weight:
 ---
 ### Branchez-vous sur le canal Céleste
 
-Yogananda - reçu par Jimbeau Walsh le 31 Août 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 31 Août 2019, First United Spiritualist Church, Burnaby, Colombie-Britannique, Canada.
 
 Je suis ici votre frère et ami dans l’amour de Dieu, Yogananda. Mes chers amis, comme mon cher frère a parlé de la différence entre ne faire qu’un avec l’Univers, l’humanité, la Terre, les planètes et le désir ardent de ne faire qu’un avec le Créateur, j’espère que vous pouvez voir la distinction entre se sentir en harmonie avec la Création et aspirer à ne faire qu’un avec le Créateur même, la Source de tout Être.
 
@@ -20,6 +20,3 @@ Bien sûr, vous pouvez avoir votre propre version de ceci. Il n’y a même pas 
 Cet effort que vous faites ici a des ramifications dans le monde entier, dans le treillis de Lumière, dans la bulle d’Amour. Alors quand ces pensées arrivent, si vous ne pouvez pas les disperser, parlez à Dieu. Élevez vos pensées vers Dieu afin que vos pensées soient transformées en un lieu spirituel plus élevé où alors l’âme prend le dessus sur le mental et vous êtes avec nous ici dans la Grâce et l’Amour de Dieu. Permettez aux doutes qui persistent de se disperser dans l’amour. Où que vous soyez dans votre voyage, sachez que l’Amour est le plus élevé, et l’Amour de Dieu est certainement le summum. Ce n’est pas seulement votre privilège, mais si vous le souhaitez, votre destin si vous le choisissez.
 
 Nous sommes avec vous. Beaucoup d’entre nous sont ici aujourd’hui, avec chacun d’entre vous, alors que Dieu apporte l’Amour dans chaque âme. Vous avez notre guidance et notre amour. Nous sommes reconnaissants d’être avec vous et nous vous aimons tellement. Mon amour et mes bénédictions à tous. Que notre très gracieux Créateur bénisse ce lieu et chaque âme et guérisse chaque blessure, chaque mal dans l’Amour. Je vous aime et je suis votre ami, Yogananda.
-
-
-

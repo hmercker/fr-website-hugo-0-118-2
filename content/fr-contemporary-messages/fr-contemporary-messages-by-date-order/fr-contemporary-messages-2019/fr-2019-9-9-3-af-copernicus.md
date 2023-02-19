@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu
+### Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu <sup id="a1">[1](#f1)</sup>
 
 Copernic - reçu par Al Fike le 9 Septembre 2019, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/copernic-1.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-copernic-1.jpg)
 
 Âmes aimées, je suis Copernic. Les mystères de l’univers sont à la portée de toute âme qui cherche à se développer et à grandir dans l’Amour. Car c’est ce don de l’Amour Divin qui ouvrira les facultés que chacun de vous possède pour connaître la vérité de la Création de Dieu, pour connaître Dieu lui-même et tout ce qu’il est.
 
@@ -23,12 +23,7 @@ Car à mesure que vous grandissez dans cet Amour et que vos âmes s’éveillent
 
 Puissiez-vous continuer à marcher sur ce Chemin de l’Amour et découvrir les nombreux mystères que Dieu a créés. Car en grandissant dans l’Amour et en vous éveillant dans l’Amour, il n’y aura pas de mystères, mais de la compréhension, de la Vérité et de la joie.
 
-Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Copernic et je vous remercie de m’avoir accordé ce temps de parole et je reviendrai vous parler des mystères du monde, de l’univers et de Dieu. Merci, mes amis, et que Dieu vous bénisse. Que Dieu vous bénisse.<sup id="a1">[1](#f1)</sup>
+Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Copernic et je vous remercie de m’avoir accordé ce temps de parole et je reviendrai vous parler des mystères du monde, de l’univers et de Dieu. Merci, mes amis, et que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
+
 1. <large id=”f1”> Ce message est à rapprocher d'une communication faite par Galilée [le 21 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-21-2-jep-galileo/).[↩](#a1)
-
-
-
-
-
-

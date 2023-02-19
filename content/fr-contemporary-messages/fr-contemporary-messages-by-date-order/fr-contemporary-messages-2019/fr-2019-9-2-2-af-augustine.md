@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plan de Dieu sera mis en œuvre par nos actions
 
-Augustin - reçu par Al Fike le 2 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 2 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 C’est votre enseignant, Augustin. Vous voyez comment le monde va changer, mes bien-aimés, les uns envers les autres, une prière, un effort, un changement de pensée ou un acte d’amour. C’est ainsi que Dieu mettra en œuvre son plan de salut de l’humanité, à travers chacun de vous et à travers beaucoup d’autres. Les grands efforts du Toucher et de la bénédiction de Dieu sur cette planète continueront à croître et à se renforcer à travers chacun d’entre vous et à travers tous ceux qui continuent à s’efforcer d’apporter ces changements en eux-mêmes, dans leur vie, dans leur communauté, dans ce monde.
 
@@ -24,6 +24,3 @@ Nous vous remercions, âmes bien-aimées, et sachez que nous sommes toujours ave
 Que Dieu vous bénisse alors que vous avancez et Dieu vous gardera sûrement dans Sa Lumière et Sa protection et Son Amour. Merci, âmes bien-aimées. Merci pour vos efforts. Merci d’avoir tendu la main. Merci d’être et d’essayer d’être un enfant de l’Amour et de la Lumière. Vous êtes bénis. Vous serez bénis. Beaucoup vient à chacun de vous et beaucoup se manifestera à travers chacun de vous.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et mon engagement envers vos efforts et les efforts de ceux qui luttent pour la Lumière dans ce monde continue. Je serai là, aidant, soutenant, guidant, comme le feront beaucoup de mes compagnons anges, pour ce grand travail de guérison de ce monde et pour apporter l’harmonie, la paix et l’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

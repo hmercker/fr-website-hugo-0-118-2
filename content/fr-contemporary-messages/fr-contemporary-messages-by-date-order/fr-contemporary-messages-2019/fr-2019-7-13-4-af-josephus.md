@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : L'impact sur un mortel d'être pleinement transformé
 
-Flavius Joseph - reçu par Al Fike le 13 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 13 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Flavius Josèphe. Je continue à vous servir avec la possibilité d’élucider vos questions et vos émerveillements de la vie concernant l’éveil de votre âme, la bénédiction de vos perceptions éveillées de la vie, le don de la vie, le don de la Création de Dieu et je sais qu’il y a beaucoup de choses que vous pouvez contempler et sur lesquelles vous vous interrogez. J’ai l’espoir de pouvoir vous aider dans ces interrogations. Je suis donc ici et vous êtes donc avec nous dans vos questions. Veuillez poursuivre, âmes bien-aimées.
 

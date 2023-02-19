@@ -9,7 +9,7 @@ weight:
 ---
 ### Facultés de l'âme
 
-Josephus - reçu par Al Fike le 1 Février 2019, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 1 Février 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que Son Amour trouve un grand afflux dans votre âme. Mon nom est Flavius Josèphe, je n’ai jamais parlé antérieurement à travers cet instrument, mais il m’a été demandé de parler des facultés de l’âme. Je fus un philosophe et un enseignant de la foi Juive et j’ai aidé à formuler les écritures de cette religion. Maintenant, je réside dans le Royaume Céleste. J’ai suivi les enseignements du Messie d’Israël, notre Jésus bien-aimé.
 

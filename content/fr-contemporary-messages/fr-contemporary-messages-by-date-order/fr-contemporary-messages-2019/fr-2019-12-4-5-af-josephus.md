@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Comment aider les êtres spirituels ?
 
-Flavius Joseph - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
 
 *Question : Est-il possible pour nous d’aider ceux qui, dans le monde spirituel, sont encore dans la confusion, la peur et les fausses croyances, de sorte qu’ils ne demandent pas d’aide ou ne cherchent pas la lumière ? Quelles sont les façons dont nous pouvons les aider, en particulier nos ancêtres, lorsqu’ils n’exercent pas leur libre arbitre pour rechercher la lumière et l’amour ?*
 

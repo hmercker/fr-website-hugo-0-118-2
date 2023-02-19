@@ -9,7 +9,7 @@ weight:
 ---
 ### Se préparer spirituellement aux changements à venir dans le monde
 
-Flavius Joseph - reçu par Al Fike le 12 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 12 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Flavius Josèphe. Je souhaite moi aussi vous remercier d’avoir écouté, d’avoir participé à ce Cercle de Lumière. Je souhaite également vous donner une dernière occasion à tous de poser une question qui pourrait recevoir une réponse appropriée à ce temps passé ensemble. Je vais vous donner cette opportunité maintenant, âmes bien-aimées, si vous souhaitez la poser.
 

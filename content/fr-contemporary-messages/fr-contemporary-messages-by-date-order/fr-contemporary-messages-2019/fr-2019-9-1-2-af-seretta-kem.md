@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuez à construire le treillis de lumière grâce à vos voyages
 
-Seretta Kem - reçu par Al Fike le 1 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 1 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis heureux de vous parler ce soir et d’accueillir la chère fille de retour de ses voyages et de vous accueillir tous dans ce Cercle de Lumière. Ma fille (J), tu as donné d’une manière que tu n’avais jamais faite auparavant. Tu as découvert des dons en toi-même et tu as donné de toi-même avec amour, près du sein de Dieu, alors que tu as voyagé et que tu es allée dans de nombreux endroits, embrassant de nombreuses belles âmes qui ont grandement bénéficié de tes efforts.
 
@@ -28,6 +28,3 @@ Cherchez à poursuivre vos efforts pour grandir dans l’amour, pour développer
 Que Dieu vous bénisse, âmes bien-aimées, profondément dans vos âmes, puissamment dans vos vies, en donnant le don du bien-être physique et de l’harmonie. Ces choses, Dieu souhaite les donner à chacun d’entre vous. Ces choses sont disponibles pour vous, étant donné la bonne réponse à Dieu, le désir de l’âme, la foi et le travail vers ces objectifs qui vous apporteront les conditions dont je parle afin que vous soyez prêts et préparés pour ce que Dieu a en réserve pour vous en tant que Ses canaux et émissaires d’Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous garde dans Sa Lumière, Sa protection. Puissiez-vous vraiment parvenir à vous connaître vous-mêmes et à connaître toute la merveille qu’est votre âme et continuer à marcher sur le Chemin de la Lumière. Nous sommes avec vous. Nous sommes avec vous et notre amour est avec vous. Que Dieu vous bénisse. Je suis Seretta Kem. Que Dieu vous bénisse.
-
-
-

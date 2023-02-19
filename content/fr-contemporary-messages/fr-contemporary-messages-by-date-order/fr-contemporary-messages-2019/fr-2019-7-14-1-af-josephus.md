@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Les anges Célestes souhaitent encourager et aider l'humanité
 
-Flavius Joseph - reçu par Al Fike le 14 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 14 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Puisse l’amour de Dieu continuer à toucher vos âmes. Puissiez-vous parvenir à connaître la magnificence qu’est votre âme dans la grande création et l’univers de Dieu. Je suis Flavius Joseph et je vous remercie tous de m’avoir invité ici pour vous parler. Je réside en effet dans le Royaume Céleste. Je suis la vérité dont notre Maître Jésus a parlé il y a tant d’années et que je continue à exposer et à explorer avec l’éveil de ma propre âme, en recevant intérieurement le don de l’Amour du Père.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Comment enseigner l’Amour Divin aux enfants ?
 
-Flavius Joseph - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
 
 Question : Comment s’y prendre pour enseigner l’Amour Divin aux enfants.
 

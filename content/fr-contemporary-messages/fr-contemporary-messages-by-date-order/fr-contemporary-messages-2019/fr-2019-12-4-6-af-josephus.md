@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Comment se connecter à d’autres cultures et religions ?
 
-Flavius Joseph - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
 
 *Question : Comment l’Esprit va-t-il se connecter avec de nombreuses cultures différentes dans le monde Lorsque les messages de Padgett proviennent d’un tel contexte Chrétien ? Comment allons-nous briser les barrières des fausses croyances et des compréhensions dominantes pour apporter les vérités aux différentes cultures ?*
 

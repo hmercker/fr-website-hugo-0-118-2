@@ -9,7 +9,7 @@ weight:
 ---
 ### Les porteurs de lumière se réuniront
 
-André - reçu par Al Fike le 16 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 16 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Comme nous vous l’avons dit dans le passé, les porteurs de lumière vont se réunir. Comme nous l’avons dit, les pensées et les interprétations de leur travail et du travail de Dieu seront différentes. Il y aura les similitudes qui résident dans l’âme, mais les esprits des mortels ont une telle tendance à formuler en idées complexes les travaux de Dieu. Mais cela ne vous empêche pas, âmes bien-aimées, de vous réunir et de partager votre amour et votre lumière. Car lorsque vous le faites, les liens, comme l’ont dit les chers anges, s’intensifient et Dieu est capable de vous utiliser tous au sein de ce grand réseau de lumière. Ce treillis de lumière continue à se former dans le monde et c’est ce qui est important, que ces connexions et ces liens d’amour, ces expressions de lumière et ces expressions de dons continuent à être entrelacés et tissés dans cette grande tapisserie qui est le plan de Dieu pour le salut de l’humanité.
 
@@ -26,6 +26,3 @@ Oui, vous commencez de manière humble. Vous commencez à avancer et à chercher
 Puissiez-vous continuer à prier de cette manière, à chercher de cette manière, et tout le reste se mettra en place, toutes les compréhensions, perceptions et prises de conscience se mettront en place à mesure que l’âme s’éveillera et sera capable de comprendre et d’absorber le grand Univers de la Création de Dieu. L’esprit en viendra à réaliser la Vérité dans toute sa puissance, sa gloire et sa simplicité. Il n’y aura pas de malentendus, seulement des éveils et des réalisations de la Vérité.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis André. Je suis avec vous sur ce chemin, comme le sont de nombreux anges. Je continue à marcher avec vous, à vous aider, à vous encourager et à vous aimer. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité divine est l'Amour de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 7 Août 2019, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 7 Août 2019, Monroeville, PA, USA.
 
 J’ai été ici à l’écoute de votre conversation. Je veux remercier mon bien-aimé ici pour avoir partagé cette histoire sur les anges. Mais je veux corriger un peu son histoire car ce n’est pas que j’ai parlé aux anges, j’ai parlé à Dieu. Les anges m’ont parlé. Maintenant, je suis un esprit Céleste. Je suis dans les Cieux Célestes. J’ai donc le privilège de vous parler à tous.
 
@@ -22,6 +22,3 @@ Comme mon bien-aimé le sait, j’ai passé de nombreuses heures par jour en pri
 Alors restez dans la Lumière, mes amis et mes bien-aimés. Laissez vos soucis s’en aller. Permettez à Dieu de diriger vos vies afin que vous puissiez être dans le flux. Ne vous souciez pas des problèmes de ce monde. Permettez-vous simplement d’être une bénédiction pour tous. Aimez tout le monde. Cela apportera le changement que vous souhaitez tant, non seulement en vous-même mais dans ce monde.
 
 Que Dieu vous bénisse tous. Mon amour à vous tous. Et à mon bien-aimé, merci. Que Dieu vous bénisse tous. Je vous aime. Je suis Care.
-
-
-

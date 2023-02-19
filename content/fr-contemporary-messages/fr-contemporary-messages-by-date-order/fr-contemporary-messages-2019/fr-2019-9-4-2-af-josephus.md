@@ -9,9 +9,9 @@ weight:
 ---
 ### Les pensées sont des choses puissantes
 
-Flavius Josèphe - reçu par Al Fike le 4 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 4 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
-Je m’appelle Flavius Josèphe. Pour continuer sur la discussion de mon frère, je souhaite dire que votre monde est plein de courants croisés de pensées qui se faufilent d’avant en arrière parmi l’humanité, créant des conditions et des énergies puissantes qui vous influencent tous, influençant votre bien-être de nombreuses façons différentes. Les pensées sont donc des choses puissantes. Les pensées continuent à gouverner ce monde et ont une emprise de fer sur l’esprit de l’humanité. Chaque âme, chaque individu continue à alimenter cette grande condition de la pensée humaine et dans la plupart des cas, chaque âme croit que c’est la réalité, c’est la vérité de sa propre existence.
+Je m’appelle Flavius Josèphe. Pour continuer sur la [discussion de mon frère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-4-1-jw-yogananda/), je souhaite dire que votre monde est plein de courants croisés de pensées qui se faufilent d’avant en arrière parmi l’humanité, créant des conditions et des énergies puissantes qui vous influencent tous, influençant votre bien-être de nombreuses façons différentes. Les pensées sont donc des choses puissantes. Les pensées continuent à gouverner ce monde et ont une emprise de fer sur l’esprit de l’humanité. Chaque âme, chaque individu continue à alimenter cette grande condition de la pensée humaine et dans la plupart des cas, chaque âme croit que c’est la réalité, c’est la vérité de sa propre existence.
 
 Comme l’a dit le philosophe d’autrefois : *« Je pense, donc je suis »* et pourtant vous savez, mes chères âmes, qu’il y a quelque chose de plus profond que la pensée. Il y a quelque chose de plus vital que la pensée. C’est l’âme. Bien que l’âme ait son propre mental, ses fonctions sont très différentes de celles du mental matériel. L’âme traite, reçoit et exprime ses idées et ses perceptions de différentes manières. Les mots ne sont pas nécessairement la source de l’esprit de la conscience de l’âme. Les mots sont le résultat du mental matériel. Beaucoup reçoivent des informations, des perceptions de Dieu sans aucun mot. Ce peut être une série d’images, de visions, ce peut être des couleurs et des lumières, toutes remplies d’amour.
 
@@ -32,6 +32,3 @@ Vous serez toujours bénis et vous, sur votre chemin, continuez à aller de l’
 Puissiez-vous toujours choisir la Lumière. Puissiez-vous toujours marcher sur ce chemin d’intégrité, d’amour, d’humilité et de grâce. Vous vous rapprochez de nous chaque jour. Vous êtes touchés par la grâce de Dieu chaque jour. Que cette Grâce soit présente dans tout ce que vous faites et tout ce que vous êtes et ces dilemmes et défis s’estomperont avec la sagesse et la certitude de ce qui se trouve dans vos âmes.
 
 Que Dieu vous bénisse, mes amis. Je suis Flavius Josèphe et je suis heureux d’avoir commenté le message de notre cher frère. Car cette relation qui continue à se développer entre ces deux beaux médiums va effectivement contribuer à élargir le champ de la connaissance qui vient. Nous sommes heureux que tous deux soient en harmonie et s’aiment avec un profond respect et une grande joie. Quelle bénédiction Dieu a donné dans cette relation. Que Dieu vous bénisse et vous garde tous les deux et vous tous, dans cette grande harmonie d’amour. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Être vulnérable avec Dieu pour guérir les blessures de l'âme
 
-Lotus Blossom - reçu par Maureen Cardoso le 1 Août 2019, Abbotsford, Colombie-Britannique, Canada
+Lotus Blossom - reçu par Maureen Cardoso le 1 Août 2019, F.U.S.C. Burnaby, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis ici, c’est Fleur de Lotus. Je vous rejoins dans votre cercle alors que vous vous ouvrez à la Bénédiction de l’Amour Divin ; en vous ouvrant à recevoir cette Essence de Dieu la plus gracieuse, aimante et guérissante dans vos âmes, cette énergie qui guérit tout. Car lorsque quelqu’un désire guérir au niveau de son âme, la guérison est profonde et la guérison est constante. La guérison répare la blessure qui a été vécue à travers les expériences de votre vie.
 
@@ -24,6 +24,3 @@ C’est un très beau voyage, celui du Chemin Divin. Il ne vous demande pas de p
 Âmes bien-aimées, nourrissez-vous quotidiennement de ce plus beau cadeau d’amour et regardez votre guérison se dérouler. Votre vie sera pleine de grâce, attirant beaucoup de belles choses à vous, car votre lumière brillera et tout le bien sera attiré par votre lumière. Recevez cette bénédiction mes bien-aimés, recevez cette bénédiction d’Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées, alors que vous êtes assises pour recevoir cette grande Essence d’Amour. Je suis Fleur de Lotus et mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-

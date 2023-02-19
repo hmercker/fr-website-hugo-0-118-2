@@ -9,7 +9,7 @@ weight:
 ---
 ### Q/R La loi de la lumière : Pouvons-nous libérer les incrustations de nos âmes ?
 
-Flavius Joseph - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 10 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Maintenant que vous vous êtes rafraîchis, nous pouvons poursuivre notre discours et nos questions. Je suis donc là pour répondre à ce que vous souhaitez demander.
 

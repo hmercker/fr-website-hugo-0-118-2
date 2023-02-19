@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : S'éveiller grâce à l'Amour du Père permet d'accéder soi-même à la vérité
 
-Flavius Joseph - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Flavius Joseph. Je suis un habitant du Royaume Céleste. Je suis venu travailler avec ce groupe et j’espère apporter des informations et des conseils qui vous aideront tous dans votre voyage d’amour et d’éveil de l’âme. Je répondrai à vos questions, âmes bien-aimées. Je sais qu’il y en a un ici qui aime beaucoup poser des questions. Nous souhaitons donc faciliter son désir de le faire et pour ceux d’entre vous qui ont des questions pertinentes concernant l’éveil de l’âme et la compréhension.
 

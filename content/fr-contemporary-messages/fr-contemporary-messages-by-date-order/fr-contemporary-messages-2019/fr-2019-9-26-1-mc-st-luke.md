@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu et l'éveil de l'âme
 
-St Luc - reçu par Maureen Cardoso le 26 Septembre 2019, Abbotsford, Colombie-Britannique, Canada
+St Luc - reçu par Maureen Cardoso le 26 Septembre 2019, F.U.S.C. Aldergrove, Colombie-Britannique, Canada.
 
 Je suis Luc et je me joins à vous avec une bande d’anges Célestes qui sont descendus d’une très grande distance pour être avec vous dans votre Cercle de Lumière, apportant notre amour et notre lumière en condition dans votre Cercle et au milieu de vous. Car lorsque les âmes de la Terre se rassemblent comme vous l’avez fait, priant, aspirant et désirant ardemment, de leur cœur et de leur âme, une connexion avec le Créateur, avec leur Bien-aimé, pour construire une grande fondation dans une relation basée sur l’amour et la vérité, cela, chers amis, nous attire. Nous nous tenons avec vous, invitant cette grande Essence du Créateur bien-aimé dans nos âmes. Car nous aussi, mes chers amis, nous prions comme vous le faites pour que cette grande Essence de l’Amour de Dieu bénisse et élargisse nos âmes, pour favoriser l’éveil de la grande sagesse et des enseignements qui viennent à nous, car c’est un voyage éternel.
 
@@ -22,6 +22,3 @@ Pourtant, mes bien-aimés, c’est l’âme qui reste pour toute l’éternité.
 Amis bien-aimés, alors que vous êtes assis en cercle, vous ouvrant à Dieu et aspirant à ce que cette bénédiction d’Amour vous touche, nous sommes à vos côtés. Nous sommes là pour vous aider, vous assister et vous servir. Tendez toujours la main vers Dieu, mes bien-aimés. Nous, vos amis anges, sommes les agents que Dieu envoie en réponse à vos prières d’aide car nous venons vous influencer par la pensée et vous aider à vous guider. Nous sommes ici pour vous servir alors que vous vous adressez à Dieu pour obtenir cette grande bénédiction de Son Amour éternel.
 
 Je vous remercie d’avoir écouté mes paroles et d’avoir partagé votre temps de cette manière entre vous, avec Dieu et avec vos amis célestes. Que Dieu vous bénisse, âmes bien-aimées, je suis Luc. L’amour des anges Célestes est avec vous tous comme l’est l’Amour de Dieu. Que Dieu vous bénisse.
-
-
-

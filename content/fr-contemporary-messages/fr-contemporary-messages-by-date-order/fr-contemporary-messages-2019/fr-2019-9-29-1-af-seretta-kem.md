@@ -9,7 +9,7 @@ weight:
 ---
 ### Réveiller nos âmes pour faire face aux changements à venir sur la Terre
 
-Seretta Kem - reçu par Al Fike le 29 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 29 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Chères âmes précieuses et bien-aimées qui continuent à se réunir de manière cohérente dans ce Cercle de Lumière et de but, vous grandissez. Vos âmes s’éveillent. Bien que souvent, dans votre mental, vous n’en voyez pas les résultats, nous, en esprit, le voyons clairement. Nous sommes heureux de vos efforts et de ces résultats. Vous continuez à prier pour que l’Amour du Père enflamme l’éveil de votre âme, pour qu’il apporte la vérité et la compréhension, de sorte que les dons surgissent de votre âme, remontant dans votre esprit, dans votre conscience.
 
@@ -46,6 +46,3 @@ Cela ne peut-il pas profiter à tout ce que vous aimez, à tout ce qui est dans 
 Vous trouverez tous votre chemin, âmes bien-aimées. Vous verrez tous votre chemin à travers le grand labyrinthe des possibilités, des conditions et de l’agitation qu’est votre monde. Vous trouverez votre chemin. Dieu vous bénira puissamment au cours de votre voyage. Puissiez-vous être bénis au plus profond de vos âmes, en éveillant une telle force et une telle profondeur de perception et une telle capacité d’amour et de compassion pour vos frères et sœurs qu’en avançant, vous apportez avec vous une telle lumière, une telle beauté d’âme, une telle expression de l’Amour de Dieu pour l’humanité, que, où que vous soyez et où que vous alliez, vous toucherez les âmes. Vous serez Ses instruments et Ses canaux d’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Clarification du don de médiumnité
 
-Flavius Joseph - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
 
 *Question : Nous avons reçu de nombreux enseignements sur le processus pour devenir un médium. La question est revenue : comment devient-on un médium ?*
 

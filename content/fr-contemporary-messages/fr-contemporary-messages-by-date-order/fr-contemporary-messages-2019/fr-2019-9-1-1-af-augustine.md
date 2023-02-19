@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez travailler ensemble
 
-Augustin - reçu par Al Fike le 1 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 1 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant, Augustin. Lors de votre rencontre, vous avez beaucoup parlé de l’activation des dons et des possibilités de vos âmes et de vos êtres d’être au service de Dieu, en apportant la Vérité de l’Amour de Dieu à l’humanité. Chacun d’entre vous a son point de vue. Chacun d’entre vous a ses dons et ses possibilités. Je tiens à vous dire, mes frères et sœurs, qu’au cours des nombreuses années où les âmes ont souhaité apporter des réformes et des changements dans le monde, très peu d’entre elles ont eu un impact qui a vraiment changé le monde. Ce sont les prophètes, les saints, les hommes saints, les enseignants et les guérisseurs. Beaucoup ont essayé et certains ont réussi.
 
@@ -42,10 +42,3 @@ Dieu ne vous imposera rien, mais il continue à sonner le glas pour passer à l�
 Il existe de nombreuses façons de servir et cela ouvre de nombreuses portes pour vos propres bénédictions et fortifications, en exprimant vos propres potentiels et dons. Tout cela est possible grâce à la puissance de l’Amour, la puissance de l’Amour de Dieu qui transforme et réveille et bénit chaque âme.
 
 Que les portes s’ouvrent pour vous, âmes bien-aimées. Puissiez-vous avoir la sagesse et la perception, le discernement et la force de voir ce qui se présente à vous. Puissiez-vous utiliser chaque jour et chaque opportunité pour réaliser le potentiel que chaque jour vous apporte. Qu’il y ait une floraison et un épanouissement de quelque chose de lumineux pour chacun de vous, afin que vous puissiez progresser plus loin et plus près de Dieu. Que Dieu vous bénisse sur ce chemin, âmes bien-aimées. Je suis votre enseignant Augustin et j’espère que mes paroles ont apporté de la nourriture pour la pensée et pour votre âme. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-
-
-
-
-

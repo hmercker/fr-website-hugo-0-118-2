@@ -9,7 +9,7 @@ weight:
 ---
 ### Consacrer votre temps à la voie spirituelle
 
-Augustin - reçu par Al Fike le 22 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 22 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Vous continuez à vous embarquer dans vos voyages, âmes bien-aimées. Vous avez le désir et l’inclination de le faire dans le monde, de profiter des opportunités qui se présentent à vous pour vous placer dans divers endroits de votre monde. Rappelez-vous que nous jouons également un rôle en vous guidant de cette façon, quel que soit le but de ce voyage qui peut parfois être banal et parfois avoir un grand but, il y a une composante spirituelle à ces efforts pour se déplacer dans le monde, pour se connecter avec les autres, pour être un canal d’amour où que vous soyez. N’oubliez pas que Dieu se sert de vous à chaque moment de la journée.
 
@@ -30,6 +30,3 @@ Vous n’avez aucun moyen de connaître les véritables capacités de votre âme
 Âmes bien-aimées, vous êtes vraiment dans la Lumière. Vous continuez à servir. Dans ce service, il y a la joie et il y a aussi l’équilibre. Dieu ne vous taxe pas excessivement. Il vous donne la possibilité de vous reposer, de récupérer votre énergie, d’être en harmonie avec votre corps, votre esprit et votre être. Vous allez continuer à grandir et à vous éveiller à ces choses que je vous ai exprimées aujourd’hui. Ces dons nobles auxquels vous aspirez tant viendront au fur et à mesure que vous grandirez dans l’Amour du Père. Il n’y a rien que vous puissiez faire d’autre que d’être en alignement, d’autre que de désirer servir, d’être les instruments et les canaux de Dieu dans ce monde. Avec cela, tout le reste se mettra en place et s’ouvrira si progressivement, et en effet, en avançant et en se réalisant avec le temps.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre maître Augustin vous aime tant, il continue à marcher avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : La notion de mental intérieur n'est pas exacte
 
-Josephus - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Flavius Josèphe et je suis revenu comme promis. Je suis prêt à recevoir quelques questions de votre part, mes amis bien-aimés. Si la question est nécessaire et qu’elle est pertinente pour la croissance et le développement de votre âme, je suis prêt à répondre du mieux que je peux par le biais de cet instrument. J’attends donc votre réponse.
 

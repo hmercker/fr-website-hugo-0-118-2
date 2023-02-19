@@ -9,7 +9,7 @@ weight:
 ---
 ### Élevez vos pensées vers le plus haut
 
-Yogananda - reçu par Jimbeau Walsh le 7 Août 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 7 Août 2019, Monroeville, PA, USA.
 
 C’est moi, Yogananda. Mes chers amis, on a beaucoup parlé dans le monde du pouvoir de la pensée, de devenir des choses, d’être capable de visualiser et ensuite de construire sur cette vision. Bien sûr, c’est vrai. Vous en voyez des manifestations partout. Il est également vrai que lorsque vous nous envoyez des pensées, nous les ressentons. Lorsque vous envoyez des pensées à une autre personne, elle ne ressent peut-être pas les mots, mais elle ressent vos intentions. C’est pourquoi nous vous disons toujours que vous êtes des récepteurs et que vous êtes des émetteurs.
 
@@ -22,6 +22,3 @@ Encore une fois, comme je l’ai déjà dit, que votre âme soit au-dessus de vo
 Cela est donc également évident dans la musique, lorsque quelqu’un chante profondément à partir de son cœur, nous appelons souvent cela « la musique de l’âme ». Les chansons que je chantais quand j’étais sur Terre, je les chantais à partir de mon âme. Je n’étais pas un grand chanteur, un genre de chanteur d’opéra, mais mes intentions de mon âme étaient si profondes, que je ressentais une telle joie en chantant. C’est ce que je vous donne. Laissez vos cœurs s’ouvrir pour que vos âmes soient bénies, pour que vos esprits soient à l’aise dans la Paix qui dépasse l’entendement. Permettez cela tout au long de votre journée. Chaque fois que vous êtes distraits, allez dans votre cœur pour que Dieu et les anges puissent toucher votre âme.
 
 Je prie pour que vous restiez tous dans la Lumière et l’Amour de Dieu. Chaque fois que vous appellerez, nous serons là car notre amour est toujours avec vous et nous sommes aussi sur ce chemin ensemble, unis dans l’Amour de Dieu. Mon amour à vous tous. L’amour de Dieu à vous tous. Puissiez-vous rester dans Son étreinte chaleureuse, toujours. Que Dieu vous bénisse. Je suis Yogananda.
-
-
-

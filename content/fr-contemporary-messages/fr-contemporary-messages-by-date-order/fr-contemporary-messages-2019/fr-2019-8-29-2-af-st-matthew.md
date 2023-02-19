@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre travail est le travail de l'enfant humble
 
-St Matthieu - reçu par Al Fike le 29 Août 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 29 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Matthieu. Vous avez spéculé et parlé de votre avenir, de votre instrumentalité et du temps à venir où vos espoirs et vos rêves sont que vous puissiez accomplir la Volonté de Dieu et apporter l’Amour de Dieu à l’humanité. En effet, vos âmes se languissent et aspirent à apporter la Vérité, non seulement à vous-mêmes mais à tous. Ce Don de la Vérité, ce Don de l’Amour de Dieu, est une expression importante dans votre vie et votre désir est de vivre pleinement ce Don, cette Vérité. Vous avez une grande ambition de crier cette Vérité sur les toits, de répandre cette Vérité au loin, d’apporter cette Vérité à l’humanité.
 
@@ -28,6 +28,3 @@ Que cette ouverture et cet éveil soient réalisés par vous et ceux que vous to
 Votre travail, âmes bien-aimées, est le travail de l’humble enfant qui porte la Grande Bénédiction d’Amour dans le monde, l’enfant de Dieu, connu par Dieu, touché par Dieu, béni et béni encore. Telle est votre vie. Ce sera votre vie et elle vous apportera la joie. Elle vous apportera la plénitude dans votre relation avec votre Créateur. Dans cette joie et cet épanouissement, vous exprimerez la profondeur, la beauté et la puissance de l’Amour de Dieu pour tous ceux qui peuvent voir, qui désirent et sont attirés par cela. Ils vous connaîtront. Ils vous connaîtront, mes bien-aimés. Puissiez-vous continuer à grandir dans l’Amour du Père, à marcher dans la Lumière de l’Amour et de la Volonté de Dieu, à être Ses canaux d’Amour et beaucoup sera accompli alors que vous continuez à marcher humblement dans la foi et l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément dans vos âmes. Je suis Matthieu et je marche avec vous, comme beaucoup. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous pouvez avoir un cercle de lumière n'importe où
 
-St François d'Assise - reçu par Jimbeau Walsh le 6 Août 2019, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 6 Août 2019, Monroeville, PA, USA.
 
 C’est moi, François. Quel beau Cercle de Lumière vous avez ici. Nous venons ici lorsque nous sentons le désir ardent de chaque âme de rejoindre le Père Céleste, cela nous attire vers vous et nous venons pour être en prière avec vous, chacun d’entre vous s’ouvrant comme une rose à l’Amour du Créateur. Je viens non seulement vous souhaiter une grande bénédiction dans cet Amour mais vous dire que c’est tout ce dont vous avez besoin, ce simple cadeau de l’Amour de Dieu vous dirigeant toujours sur le chemin de la Lumière et de la Vérité et de l’Amour.
 
@@ -18,6 +18,3 @@ Soyez dans cet état de Grâce, cet état de Sainte Communion avec le Père Cél
 Mes amis, vous pouvez faire cela n’importe où. Je dirais que c’est plus facile dans la nature mais, cdans ce lieu, il y a beaucoup de lumière. De nombreuses prières ont été dites ici. Nous pouvons le sentir. Nous sommes donc ici pour vous soutenir et je vous dis de ne pas penser au doute, à la négativité, à peser ceci ou cela. Laissez votre âme être véritablement le centre de vos vies, afin que Dieu puisse ouvrir votre âme à un flux rayonnant de Son Amour. Voici le cadeau.
 
 Je suis reconnaissant d’être ici avec vous tous et que celui-ci me permette de passer, même s’il est réticent. Je suis François. Je vous aime tous. Que l’amour de Dieu soit avec vous tous et que ce Cercle de Lumière s’étende sur toute la Terre. Vous avez attiré beaucoup de personnes dans ce Cercle, visibles et invisibles. Nous sommes ici. Nous vous aimons. Dieu vous aime. Je suis François.
-
-
-

@@ -9,9 +9,9 @@ weight:
 ---
 ### Que voulez-vous construire ?
 
-Eileen Caddy - reçu par Jimbeau Walsh le 31 Août 2019, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 31 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
-Je suis Eileen Caddy. Je suis la fondatrice spirituelle de la communauté de Findhorn. J’étais à un carrefour de ma vie et j’avais besoin de faire des choix, mais je ne savais pas comment. J’ai donc prié de tout mon cœur et de toute mon âme pour être guidée. Oh, et en effet, je l’ai reçue, tous les jours.<sup id="a1">[1](#f1)</sup>  De cette petite voix tranquille qui me parlait d’en haut s’est construite toute une communauté qui s’est développée et élargie au fil des ans. Bien que le centre d’intérêt se soit quelque peu déplacé de la guidance spirituelle vers l’écologie, c’est toujours un endroit merveilleux et il a été construit sur les conseils de Dieu et des anges.
+Je suis Eileen Caddy. Je suis la fondatrice spirituelle de la communauté de Findhorn. J’étais à un carrefour de ma vie et j’avais besoin de faire des choix, mais je ne savais pas comment. J’ai donc prié de tout mon cœur et de toute mon âme pour être guidée. Oh, et en effet, je l’ai reçue, tous les jours <sup id="a1">[1](#f1)</sup>. De cette petite voix tranquille qui me parlait d’en haut s’est construite toute une communauté qui s’est développée et élargie au fil des ans. Bien que le centre d’intérêt se soit quelque peu déplacé de la guidance spirituelle vers l’écologie, c’est toujours un endroit merveilleux et il a été construit sur les conseils de Dieu et des anges.
 
 Je vous demande donc à tous de réfléchir : que voulez-vous construire ? Que voulez-vous laisser ? Que voulez-vous faire ? Vous avez une communauté et vous avez des existences séparées pour ainsi dire, mais vous vous réunissez comme un seul homme dans la prière, dans le chant, dans le partage de la nourriture, des idées, des voyages et de beaucoup de choses. Il y a tant de désir ici de ressentir l’amour, de partager l’amour, de servir. C’est une chose merveilleuse.
 
@@ -19,13 +19,9 @@ Nous avons connu cela à Findhorn. Les gens sont venus de loin avec toutes sorte
 
 Alors oui, nous avions un monde physique à gérer. Nous avons construit des choses physiques, mais nous les avons faites avec une guidance spirituelle, ainsi nos âmes ont été bénies alors que nous avons créé une communauté physique, un jardin. Nous avions beaucoup de musique et nous en avons encore. Je vous offre donc à tous ceci comme un modèle. Vous avez construit une communauté merveilleuse et vous pouvez faire plus si c’est votre souhait. Vous êtes un dans l’Amour de Dieu. Nous sommes tous un. Vous avez un si grand soutien angélique d’en haut, tant d’anges. Nous vous soutenons. Choisissez donc ce que vous voulez et sachez que vous n’êtes pas seuls. Vous êtes les uns avec les autres et avec Dieu et tous les anges Célestes à votre disposition et à votre appel.
 
-Merci de m’avoir permis de venir et de partager avec vous. Je suis ravie d’être dans ce Portail de Lumière<sup id="a2">[2](#f2)</sup>  avec tant de merveilleuses âmes. Je vous remercie. Que Dieu vous bénisse tous. Mon amour et mes bénédictions à tous. Je suis votre sœur et amie dans l’Amour de Dieu, Eileen Caddy. Que Dieu vous bénisse.
+Merci de m’avoir permis de venir et de partager avec vous. Je suis ravie d’être dans ce Portail de Lumière <sup id="a2">[2](#f2)</sup> avec tant de merveilleuses âmes. Je vous remercie. Que Dieu vous bénisse tous. Mon amour et mes bénédictions à tous. Je suis votre sœur et amie dans l’Amour de Dieu, Eileen Caddy. Que Dieu vous bénisse.
 <small>
 
 1. <large id=”f1”> Son autobiographie « Flight into Freedom » est une fabuleuse explication à la fois de son voyage et de sa guidance, aussi étonnante qu’elle ait pu être. Je recommande ce livre à tout chercheur sérieux. (Geoff Cutler).[↩](#a1)
+
 2. <large id=”f2”> Il y avait un portail de lumière à Findhorn, et il existe encore aujourd’hui.[↩](#a21)
-
-
-
-
-

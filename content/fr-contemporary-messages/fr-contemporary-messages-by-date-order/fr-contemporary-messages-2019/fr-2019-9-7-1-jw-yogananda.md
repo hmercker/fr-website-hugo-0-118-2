@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouvrez votre cœur à l'amour de Dieu
 
-Yogananda - reçu par Jimbeau Walsh le 7 Septembre 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 7 Septembre 2019, F.U.S.C., Burnaby, Colombie-Britannique, Canada.
 
 Je suis ici votre frère et ami, Yogananda. Je viens ici pour vous rappeler et vous encourager. C’est un Portail de Lumière, ce sanctuaire avec la lumière qui s’étend jusqu’aux Cieux Célestes, ce qui rend assez facile pour les anges Célestes d’être avec vous aujourd’hui et chaque fois que vous venez ici et que vous vous ouvrez à recevoir notre guidance et l’Amour de Dieu.
 
@@ -20,6 +20,3 @@ Cette Lumière qui entre, qui guérit les afflictions, qui dissout les blessures
 L’Amour de Dieu n’attend que votre ouverture, la transformation de votre âme de la simple image à la Substance et l’Essence même du Créateur, pour ne faire qu’un, pour ressentir cette Lumière et cet Amour. Je vous encourage et vous invite à ce voyage, que vous soyez nouveau ou que vous voyagiez ici depuis longtemps. Nous sommes ensemble, tant d’anges célestes sont ici avec vous en ce moment, dans ce portail de lumière, dans le treillis de l’amour. Dieu vous embrasse, chaque cœur, chaque âme. Soyons tous dans la Lumière et l’Amour du Créateur.
 
 Mon amour et mes bénédictions à tous. Que l’Amour du Créateur nous transforme et bénisse chacun d’entre nous dans ce voyage. Merci de me laisser être ici avec vous, c’est un honneur et un privilège pour moi. Et celui qui reçoit le message, je le remercie également. Que Dieu vous bénisse. Je vous aime. Je suis Yogananda.
-
-
-

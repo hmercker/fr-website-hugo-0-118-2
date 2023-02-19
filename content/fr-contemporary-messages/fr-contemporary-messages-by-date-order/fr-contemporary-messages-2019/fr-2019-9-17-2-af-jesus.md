@@ -9,7 +9,7 @@ weight:
 ---
 ### Au sein de vos âmes se trouve un Autre Mental
 
-Jésus - reçu par Al Fike le 17 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 17 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, je viens. Je viens pour aider à alimenter les feux de votre âme afin que vous puissiez continuer à vous éveiller, que vous puissiez continuer à comprendre et à connaître véritablement cet endroit en vous qui est votre âme, que vous puissiez arriver à la Vérité de cette façon et que vous puissiez arriver à connaître Dieu de cette façon. Toutes les machinations de votre mental ne peuvent pas vraiment parvenir à la compréhension et à la Vérité qui se trouvent dans vos âmes. Dans votre âme se trouve un autre mental, un mental qui peut comprendre l’univers, un mental qui est capable de comprendre beaucoup de choses bien au-delà des capacités de votre mental matériel. Concentrez-vous sur ces dons, mes bien-aimés. Concentrez-vous sur l’éveil de vos âmes afin qu’en temps voulu, tout puisse vous être révélé et que Dieu soit proche, qu’il se sente proche et qu’il vous soit connu.
 
@@ -24,6 +24,3 @@ Soyez mes disciples, mes bien-aimés. Marchez avec moi et je vous montrerai le c
 Vous êtes mes frères et sœurs et mon amour pour vous est grand. Puissiez-vous continuer à servir Dieu et à servir l’humanité de toutes les manières, de tous les moyens, de tous les dons et de tous les potentiels dont Dieu vous a bénis. Nous serons tous dans la Lumière, main dans la main, dans la Lumière.
 
 Que Dieu vous bénisse. Je suis Jésus. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

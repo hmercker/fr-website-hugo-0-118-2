@@ -9,7 +9,7 @@ weight:
 ---
 ### La puissance du toucher de Dieu est le fondement de l'exploration spirituelle
 
-Augustin - reçu par Al Fike le 7 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 7 Septembre 2019, F.U.S.C., Burnaby, Colombie-Britannique, Canada.
 
 Je m’appelle Augustin. Je suis dans le Royaume Céleste depuis plusieurs centaines d’années et je continue à grandir dans cette Lumière de l’Amour de Dieu. Âmes bien-aimées, installez-vous dans la paix de la Présence de Dieu qui est avec vous. Respirez le Souffle de Dieu, qui est Son Amour. Permettez-vous d’être enveloppés dans cette Lumière. C’est le pouvoir du Toucher de Dieu qui doit être le fondement et le début de toute exploration spirituelle. Car sans la Lumière et la Grâce de Dieu, beaucoup de choses peuvent être mal interprétées et mal comprises au cours de ce voyage vers la Vérité.
 
@@ -30,6 +30,3 @@ Cela ne changera pas les conditions du monde et les défis qui sont de ce monde,
 Puissiez-vous trouver votre chemin, âmes bien-aimées, vers ce lieu de connaissance et de compréhension réelles de ce dont je parle et sachez que nous serons avec vous et que vous ne serez jamais seuls. Lorsque vous êtes avec Dieu, vous n’êtes jamais seuls, mais vous connaîtrez la Grâce, l’émerveillement, la joie de Son Amour. Puissiez-vous recevoir ce Don et apprendre à le connaître comme faisant partie de votre vie, et apprendre à nous connaître comme des amis et des aides qui vous aideront à ouvrir la voie et à mettre votre vie en harmonie. Que Dieu vous bénisse de Son Amour. Puissiez-vous ressentir cette Bénédiction, l’absorber et la connaître. Nous sommes avec vous et notre amour et notre soutien sont avec vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin et je viens comme un enseignant pour vos âmes. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

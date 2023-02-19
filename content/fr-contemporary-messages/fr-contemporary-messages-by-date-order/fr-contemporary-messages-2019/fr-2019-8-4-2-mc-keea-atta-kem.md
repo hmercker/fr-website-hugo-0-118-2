@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Nourrir cette partie spirituelle de qui vous êtes 
+### Nourrir cette partie spirituelle de qui vous êtes
 
-Keea Atta Kem - reçu par Maureen Cardoso le 4 Août 2019, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 4 Août 2019, Ouest de Vancouver, Colombie-Britannique, Canada.
 
-Dieu vous bénisse, âmes bien-aimées, mon nom est Keea-Atta Kem. Je me joins à vous depuis les Cieux Célestes. Il y a d’autres Anges Célestes qui sont rassemblés ici avec vous, alors que vous vous réunissez dans ce Cercle de Lumière pour accueillir la présence de l’Amour de votre Créateur bien-aimé pour toucher votre âme, pour la nourrir, pour la transformer en la pureté de l’Amour Divin. C’est un Amour, ce don d’Amour, qui est le plus haut cadeau disponible pour tous. C’est une Essence donnée gratuitement par votre Créateur à votre âme, qui ne demande qu’à être désirée, aspirée et reçue.
+Dieu vous bénisse, âmes bien-aimées, mon nom est Keea Atta Kem. Je me joins à vous depuis les Cieux Célestes. Il y a d’autres Anges Célestes qui sont rassemblés ici avec vous, alors que vous vous réunissez dans ce Cercle de Lumière pour accueillir la présence de l’Amour de votre Créateur bien-aimé pour toucher votre âme, pour la nourrir, pour la transformer en la pureté de l’Amour Divin. C’est un Amour, ce don d’Amour, qui est le plus haut cadeau disponible pour tous. C’est une Essence donnée gratuitement par votre Créateur à votre âme, qui ne demande qu’à être désirée, aspirée et reçue.
 
 Lorsque vous vous adressez à votre Créateur bien-aimé de cette manière, avec une intention claire, une réponse est toujours donnée. Cette Essence s’écoulera dans votre âme et apportera une grande paix et un sentiment de bien-être. Elle nettoiera ce qui est hors d’harmonie, hors d’harmonie avec les Lois de la Création, hors d’harmonie avec tout ce qui est bon. Lorsque cet Amour travaille sur votre âme et commence à transformer l’essence même de ce que vous êtes, vous êtes changé pour toujours.
 
@@ -24,7 +24,4 @@ Nous allons reconnaître la chère âme qui a ouvert sa maison, pour offrir son 
 
 Vous êtes puissamment béni, cher fils, pour l’ouverture que vous partagez avec beaucoup. Alors que vous êtes assis en silence maintenant, il y a un Ange Céleste avec chacun d’entre vous qui est là pour vous apporter son amour et sa lumière. Je vais donc conclure maintenant et en le faisant, je laisse mon amour et ma lumière briller sur vous tous, vous aidant ainsi à vous assister.
 
-Je suis Keea-Atta Kem et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-
+Je suis Keea Atta Kem et mon amour est avec vous. Que Dieu vous bénisse.

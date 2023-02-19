@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez la vérité
 
-Jésus - reçu par Al Fike le 8 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 8 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Jésus. N'est-il pas devenu évident pour vous que les forces du ciel sont concentrées sur vous et sur tous ceux qui souhaitent porter la lumière et l'amour dans ce monde ? Car il est temps que tous puissent être transformés, bénis et éveillés dans l'Amour. Vous portez cette Vérité dans votre âme, mes bien-aimés. Vous portez le désir et la connaissance que l'amour sera en effet le pouvoir qui sauvera toute l'humanité de toutes les grandes calamités que l'humanité crée à sa place.
 
@@ -18,6 +18,3 @@ Cherchez la vérité. Cherchez-la de tout votre cœur, de toute votre âme et de
 Réveillez-vous, mes frères et sœurs bien-aimés. Réclamez la Vérité et marchez dans la Vérité à chaque instant et à chaque respiration et vous connaîtrez vraiment les grandes bénédictions et la Main de Dieu sur vous qui continuera à vous éveiller et à vous donner du pouvoir dans l'Amour et la Vérité.
 
 Je marche avec vous, âmes bien-aimées. Je suis Jésus et mon amour pour vous est grand. Je marche avec vous dans l'amour. Que Dieu vous bénisse.
-
-
-

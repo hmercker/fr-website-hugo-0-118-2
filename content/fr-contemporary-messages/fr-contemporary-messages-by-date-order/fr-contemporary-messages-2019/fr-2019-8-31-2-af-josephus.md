@@ -9,7 +9,7 @@ weight:
 ---
 ### Qui et qu’est-ce que Dieu ?
 
-Flavius Josèphe - reçu par Al Fike le 31 Août 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 31 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Flavius Josèphe. Je suis venu vous parler de Dieu. Qui et qu’est-ce que Dieu ? Puisque notre cher instrument vous a encouragé à tendre la main à Dieu, la source de tout, vers qui et vers quoi tendez-vous la main, mes amis ? Qu’imaginez-vous, quelle est votre compréhension de Dieu ? À travers les âges, Dieu a été dépeint de nombreuses façons, un grand homme imposant avec une barbe abondante, des cheveux bouclés tout en blanc, un comportement autoritaire et officiel, déterminant votre destin, déterminant tout ce qui fonctionne dans l'Univers. Mais ce n’est pas du tout Dieu, mais la simple imagination des hommes qui souhaitent créer Dieu à leur propre image, qui souhaitent voir Dieu comme l’autorité ultime, commandant tout.
 
@@ -30,6 +30,3 @@ Je vous encourage donc, mes amis, à rechercher le plus élevé. Cherchez la bé
 Que Dieu vous bénisse au cours de ce voyage, mes amis, et vous garde près de la Source de Tout, vous bénisse profondément et vous réveille, vous réveille pour que vos yeux soient ouverts, que vos âmes aspirent à plus, et que tous ces merveilleux dons et capacités en vous commencent à bouger et à se déplacer et viennent à voir la Vérité.
 
 Que Dieu vous bénisse sur ce voyage, mes amis, je suis Flavius Josèphe et je suis avec vous sur ce voyage comme le sont tous les anges et tous les esprits brillants de l’Univers qui cherchent la Vérité, qui cherchent Dieu, qui cherchent les merveilles de l’Univers. Que Dieu vous bénisse. Je suis avec vous. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

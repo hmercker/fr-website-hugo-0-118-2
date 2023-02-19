@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Les adeptes du Livre d’Urantia sont-ils à l’écoute de leur âme ?
 
-Flavius Joseph - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
 
 *Question : C’est plus une clarification, une demande de clarification d’un message récent que vous avez partagé avec nous, essentiellement que les adeptes d’Urantia ne font qu’étiqueter une partie de l’âme comme un fragment du Père ou peut-être un ajusteur de pensée. Est-ce l’Esprit Saint ? Nous demandons si les adeptes du Livre d’Urantia parlent à leur âme et l’écoutent. (Cette question n’a pas été posée par Geoff Cutler, aussi a-t-elle été éditée avec quelques difficultés pour refléter la façon dont les adeptes du Livre d’Urantia pourraient poser la question).*
 

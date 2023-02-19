@@ -9,9 +9,9 @@ weight:
 ---
 ### Mes paroles montrent que j'ai toujours pointé vers Dieu
 
-Yogananda - reçu par Jimbeau Walsh le 29 Septembre 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 29 Septembre 2019, Punalu’u, Oahu, Hawaii, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/le-soutien-de-dieu.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-le-soutien-de-dieu.jpg)
 
 Mes chers amis, je voudrais vous parler du contrôle et du fait d’être dans le flux de l’Amour de Dieu. Lorsque j’étais sur Terre, j’avais de nombreux étudiants qui m’étaient dévoués et qui l’étaient à l’égard de mon enseignement du Kriya yoga. Et vous savez, j’ai été tellement humilié par ma relation, non seulement avec mon enseignant Sri Yukteswar, mais aussi par ma proximité avec Jésus, mes désirs et ma connexion avec Dieu et Son Amour, que très honnêtement, je n’étais pas un chercheur d’attention et j’ai été accablé par la demande de mon enseignant de venir en Amérique et d’apporter ce yoga.
 
@@ -21,11 +21,8 @@ Ceux qui examinent mes paroles lorsque j’étais sur Terre verront que j’ai t
 
 Nous sommes là, en cet instant, avec vous. Ne sentez-vous pas l’Amour du Père, Sa main sur nous, Son étreinte ? Qu’est-ce qui pourrait encore compter ? C’est bien sûr un choix que vous pouvez faire à tout moment. Et je suggère, je n’exige jamais. Je vous embrasse avec mon amour et mes bénédictions et je vous remercie de m’avoir accordé ce message. Nous sommes nombreux ici et nous vous embrassons dans l’amour de Dieu. Je vous aime et je suis votre frère et ami dans les cieux célestes. Que Dieu vous bénisse. Je suis Yogananda.
 
-(longue pause)
+*[longue pause]*
 
 Je souhaite ajouter quelque chose, car je suis encore avec cet instrument et il souhaite que je le dise. Une chose que je souhaite que vous considériez. Les scientifiques examinent l’univers et son immensité et ils découvrent, année après année, qu’il est plus grand et plus merveilleux qu’ils n’auraient pu l’imaginer. Pourtant, ils découvrent aussi que dans le plus petit composant de l’atome, il y a la même merveille – la même vie miraculeuse.
 
 Ce voyage conduit à l’émerveillement et à la crainte et, espérons-le, pour ceux qui ont un esprit intellectuel, à l’ouverture de leur cœur et de leur âme dans la réalisation de la grandeur du Créateur et, en effet, Dieu est grand ! Je dis cela parce que si vous essayez de comprendre la merveille de l’immensité de l’univers ou simplement ce que vous devez faire en ce moment, comprenez, mes chers amis, que tout est un miracle. C’est une merveille. Tout est glorieux. Merci. Que Dieu vous bénisse. Je vous laisse maintenant dans l’amour et la paix.
-
-
-

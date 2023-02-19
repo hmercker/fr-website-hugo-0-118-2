@@ -9,7 +9,7 @@ weight:
 ---
 ### S'efforcer de se libérer dans la lumière
 
-Flavius Joseph - reçu par Al Fike le 22 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 22 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Flavius Josèphe. Vous vivez dans un monde difficile, un monde rempli de nombreuses conditions égarées qui ne sont pas d’amour, ces courants et flux d’énergies, d’énergies de pensée, de conditions qui sont faites par l’humanité qui couvrent votre monde d’un voile sombre, polluant la Création de Dieu avec des pensées et des actions qui ne sont pas en harmonie avec les Lois de Dieu. Lorsque vous vous réunissez pour atteindre le plus haut, vous devez lutter à travers ces conditions et aller au-delà et au-dessus d’elles.
 
@@ -34,6 +34,3 @@ Continuez dans ces efforts et soyez forts dans la lumière. Marchez avec la vér
 Vous sentirez la différence. Si ce n’est déjà fait, vous sentirez la différence entre ceux qui continuent à souffrir de ces conditions et vous-même, qui vous êtes libéré. Vous vous reconnaîtrez comme différents, mais vous ressentirez de l’amour pour tous et vous vous efforcerez d’établir cette connexion de lumière avec tous ceux que vous rencontrerez. Ce sont les Lois en action. L’Amour en action, la Vérité en action et la Lumière en action, apportant à chacun d’entre vous un grand changement intérieur qui précipitera un grand changement dans votre vie.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et qu’il vous garde près de votre Père céleste, la Source de tout amour et de toute lumière. Nous sommes avec vous, chacun d’entre vous, et vous n’êtes jamais seuls. Nous continuerons à vous escorter tout au long de votre vie. Pourvu que vous désiriez atteindre le plus haut niveau, vous serez bénis en conséquence. Dieu vous bénisse mes bien-aimés, je suis Flavius Josèphe et je suis avec vous. Que Dieu vous bénisse.
-
-
-

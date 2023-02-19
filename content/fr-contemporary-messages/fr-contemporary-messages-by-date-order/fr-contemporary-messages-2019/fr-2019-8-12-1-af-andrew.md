@@ -9,7 +9,7 @@ weight:
 ---
 ### Avez-vous libéré votre besoin de contrôle ?
 
-André - reçu par Al Fike le 12 Août 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 12 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je m’appelle André. Êtes-vous des enfants de Dieu ? Avez-vous abandonné votre besoin d’avoir le contrôle, d’être indépendant de Dieu ? C’est une question que vous devez vous poser si vous voulez vraiment être avec votre Créateur, en permettant au don de Son Amour de couler dans vos âmes.
 
@@ -27,6 +27,3 @@ Dieu vous connaît, mes bien-aimés, il vous connaît plus que vous ne vous conn
 L’humilité, bien-aimés, la simplicité, le vrai désir, être fidèle à soi-même, rechercher tout ce qui est le plus élevé, désirer être éveillé et être guéri, ces choses vous amèneront à Dieu. Il n’y a pas de formule complexe, pas de grand livre, pas de dogme ou de credo. Tout est simple. C’est tellement simple. Soyez avec Dieu dans vos cœurs, dans vos pensées, dans les désirs de votre âme, et tout le reste viendra dans cet humble lieu de désir d’une connexion, d’une connaissance de Dieu.
 
 Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Je suis André, et je suis très heureux d’être avec vous, de partager avec vous ces prières, de vous parler du grand Amour de Dieu qui attend chaque âme qui désire ce don. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

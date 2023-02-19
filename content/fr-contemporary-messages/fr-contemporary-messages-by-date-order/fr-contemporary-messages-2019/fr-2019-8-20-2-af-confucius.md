@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouvrez-vous à la bénédiction de l'Amour de Dieu
 
-Confucius - reçu par Al Fike le 20 Août 2019, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 20 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions pour vous, âmes bien-aimées, je suis Confucius et je suis un habitant du Royaume Céleste. Je vais à Dieu dans mon cœur et dans mon âme avec le désir ardent de l’expiation. Je me suis consacré à vous servir, à aider à apporter les conditions de la Lumière à chacun de vous qui êtes désireux de la grande bénédiction de l’Amour de Dieu.
 
@@ -20,6 +20,3 @@ Portez-vous dans la Lumière, âmes bien-aimées, cherchez le plus haut. Cherche
 Je bénis chacune de vous, âmes bien-aimées. Sentez la puissance de la Présence de Dieu au milieu de vous. Sentez que Dieu vous a rassemblés dans un Cercle de Lumière qui vous porte vers le ciel, qui vous porte dans la grâce, la paix et l’Amour qui est la Présence et l’Être de Dieu dans l’univers. Sentez vos âmes s’ouvrir à ce cadeau. Sachez que vous êtes guidés et qu’on vous montre le chemin.
 
 Bénédictions à vous, âmes bien-aimées. Confucius vous aime tendrement. Je suis avec vous dans l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

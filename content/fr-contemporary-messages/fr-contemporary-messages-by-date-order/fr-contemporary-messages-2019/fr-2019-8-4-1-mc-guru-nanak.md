@@ -9,9 +9,9 @@ weight:
 ---
 ### Chaque âme parcourt son propre chemin
 
-Guru Nanak - reçu par Maureen Cardoso le 4 Août 2019, Abbotsford, Colombie-Britannique, Canada
+Guru Nanak <sup id="a1">[1](#f1)</sup> - reçu par Maureen Cardoso le 4 Août 2019, Abbotsford, Colombie-Britannique, Canada.
 
-Je suis Guru Nanak.<sup id="a1">[1](#f1)</sup> Oui ma fille, merci de partager l’expérience de la chère âme qui a trouvé le jardin qui porte mon nom. Beaucoup de guérisons se produisent dans ce lieu pour ceux qui le visitent et cela m’apporte une grande joie de voir ces âmes venir à cet endroit et être touchées par l’Essence d’Amour guérisseur qui s’y trouve. Mes chers amis, ces religions qui vous séparent sur cette Terre sont, dans une certaine mesure, regrettables, mais chaque âme a la possibilité d’apprendre et de grandir, et c’est ainsi que l’Amour, l’Essence de l’Amour de Dieu sur une âme, unit tous les êtres.
+Je suis Guru Nanak. Oui ma fille, merci de partager l’expérience de la chère âme qui a trouvé le jardin qui porte mon nom. Beaucoup de guérisons se produisent dans ce lieu pour ceux qui le visitent et cela m’apporte une grande joie de voir ces âmes venir à cet endroit et être touchées par l’Essence d’Amour guérisseur qui s’y trouve. Mes chers amis, ces religions qui vous séparent sur cette Terre sont, dans une certaine mesure, regrettables, mais chaque âme a la possibilité d’apprendre et de grandir, et c’est ainsi que l’Amour, l’Essence de l’Amour de Dieu sur une âme, unit tous les êtres.
 
 Si vous marchez sur cette Terre en connaissant cette grande Essence du Divin, vous êtes en effet puissamment bénis. Et nous, de ce côté de la vie, utilisons chacun de vous de nombreuses façons. Comme vous êtes devant ces belles personnes qui suivent diverses religions, il y a des bénédictions sur l’âme données dont vous n’êtes pas conscients. C’est grâce à votre instrumentalité que Dieu peut bénir beaucoup de gens et planter des graines dans leurs âmes. Lorsque ces âmes viennent de ce côté de l’esprit et entendent cette grande nouvelle de l’Amour Divin, elles se souviennent. Bien qu’elles ne puissent pas comprendre d’où, mais d’une manière ou d’une autre, cette vérité est bien ancrée dans leur âme. Bien que le voyage vers la vérité du chemin de l’Amour Divin soit lent, c’est un début pour cette âme.
 
@@ -27,10 +27,5 @@ Mon message pour vous, bien-aimés, est un message de grande appréciation et de
 
 Je suis le Guru Nanak et ma grande bénédiction d’amour vient à vous, belles âmes qui êtes remplies de l’Amour de Dieu, dont les lumières s’étendent, qui émanent la vérité et touchent beaucoup. Que Dieu bénisse chacun d’entre vous. Je suis Guru Nanak, le fondateur de la tradition Sikh. Que Dieu vous bénisse tous.
 <small>
-1. <large id=”f1”> **Guru Nanak (1469 – 1539)** est le fondateur de la religion sikh. Il aurait voyagé dans toute l’Asie pour enseigner aux gens le message de ik onkar (« un seul Dieu »), qui habite chacune de ses créations et constitue la Vérité éternelle. Grâce à ce concept, il a établi une plate-forme spirituelle, sociale et politique unique fondée sur l’égalité, l’amour fraternel, la bonté et la vertu..[↩](#a1)
 
-
-
-
-
-
+1. <large id=”f1”> **Guru Nanak (1469 – 1539)** est le fondateur de la religion sikh. Il aurait voyagé dans toute l’Asie pour enseigner aux gens le message de ik onkar (« un seul Dieu »), qui habite chacune de ses créations et constitue la Vérité éternelle. Grâce à ce concept, il a établi une plate-forme spirituelle, sociale et politique unique fondée sur l’égalité, l’amour fraternel, la bonté et la vertu.[↩](#a1)

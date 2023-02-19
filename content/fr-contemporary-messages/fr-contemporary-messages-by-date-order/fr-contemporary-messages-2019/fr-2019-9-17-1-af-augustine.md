@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu utilisera de nombreux instruments pour réveiller les âmes
 
-Augustin - reçu par Al Fike le 17 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 17 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Votre enseignant Augustin est ici. Merci chère fille bien-aimée pour tes efforts dans le chant et la prière et pour apporter la lumière au monde. Vous constaterez, mes frères et sœurs bien-aimés, que la grande Lumière arrive dans le monde par de nombreux canaux différents et de nombreuses manières différentes, car c’est le moment pour les âmes de se réveiller. Dieu utilisera de nombreux instruments afin d’éveiller les âmes, afin d’enseigner aux âmes la Vérité, la Lumière et la compréhension.
 
@@ -20,6 +20,3 @@ Donc, mes âmes bien-aimées, continuez à être ouvertes et réceptives à tout
 Le grand désir de Dieu est que vous vous éveilliez à la Lumière, à l’Amour, que vous connaissiez la paix et la joie, que vous connaissiez la Vérité et la Lumière. Dieu vous y portera, âmes bien-aimées. Chacun de vous est dans la poigne ferme de Dieu qui vous élève, vous soutient, et vous porte dans la Lumière. Que Dieu vous bénisse dans ce voyage, le voyage que nous faisons tous, en nous tenant la main, en nous soutenant mutuellement sur cette route et en arrivant à ce lieu de Lumière par nos prières, nos désirs et nos efforts pour être dans la Lumière.
 
 Que Dieu vous bénisse. Je suis votre enseignant Augustin et je marche avec vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

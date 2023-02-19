@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R : Questions diverses
 
-Flavius Joseph - reçu par Al Fike le 12 Juillet 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 12 Juillet 2019, Gibsons, Colombie-Britannique, Canada
 
 Les conditions de lumière, les bénédictions de Dieu qui ont été données pour ces moments de prière ensemble continuent de persister dans cette salle et parmi vous, âmes bien-aimées. Je suis donc très heureux de répondre à vos éventuelles questions. Je continuerai à le faire alors que vous êtes réunis en prière pendant ces quelques jours. Les bénédictions de Dieu continuent de couler sur vous, mes bien-aimés, et s’il y a des enseignements que vous souhaitez voir présentés, alors ils seront donnés, une profonde bénédiction pour vous tous, mes bien-aimés, une profonde bénédiction d’amour.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les portails de lumière sont de puissants instruments de Dieu
 
-Flavius Joseph - reçu par Al Fike le 5 Août 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 5 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
 Frères et sœurs, je suis Flavius Josèphe. Je souhaite parler de l'importance de ces Portails de Lumière qui ont été établis dans votre monde et comment nous souhaitons faire proliférer de tels Portails, afin d'amener leur existence dans de nombreux endroits de votre monde. Ils remplissent une fonction très profonde et puissante dans le plan de Dieu pour ramener votre monde en harmonie.
 
@@ -40,8 +40,3 @@ Puissiez-vous continuer à grandir dans Son Amour, à vous éveiller à la réal
 C'est l'Amour de Dieu pour lequel vous priez chaque jour, pour lequel vous devez prier sérieusement et sincèrement avec un grand désir, avec un grand désir afin que le pouvoir de l'Amour transformationnel de Dieu puisse résider en vous en grande abondance, réveillant, réveillant tout ce qui est en vous, vous transformant jusqu'à l'atome même de votre être afin que tout résonne dans l'harmonie de l'Amour.
 
 Que Dieu vous bénisse dans ce grand voyage d'éveil. Puissions-nous continuer à voyager ensemble, à nous éveiller ensemble dans ce grand voyage de l'âme, de l'âme avec Dieu et de l'âme de Dieu avec vous. Que Dieu vous bénisse, mes bien-aimés. Je suis Flavius Josèphe et je continuerai à venir et à enseigner ces choses. Comme cet instrument grandit dans l'Amour, beaucoup plus d'enseignements et de bénédictions viendront et vous seront délivrés et c'est une bénédiction pour ce monde d'avoir un canal qui est en effet en alignement avec l'Amour et la Vérité. Que Dieu vous bénisse tous, mes bien-aimés, car sans votre soutien et vos lumières aimantes réunies dans ce cercle, ceci ne peut être accompli. Cela nécessite votre soutien et votre amour, votre empressement, votre présence, votre rôle à jouer dans ce grand effort pour éduquer l'âme, pour apporter la Vérité de l'Amour de Dieu à ce monde, pour aider tout le monde à voir la puissance, la gloire et la merveille qu'est l'Amour de Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-
-
-

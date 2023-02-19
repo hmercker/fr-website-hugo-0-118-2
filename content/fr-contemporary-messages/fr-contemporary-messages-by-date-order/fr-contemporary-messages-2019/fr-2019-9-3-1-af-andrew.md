@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne pas juger les autres mais les accepter et les embrasser
 
-André - reçu par Al Fike le 3 Septembre 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 3 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Vous avez tous été richement bénis au cours de cette dernière période sur votre chemin, richement bénis en effet. Sachez que Dieu a mis une Lumière spéciale autour de chacun d’entre vous car Il continue à s’assurer que vous grandissez et que vous êtes bénis sur votre chemin. Il y a beaucoup de travail qui attend chacun d’entre vous et les opportunités et les portes s’ouvriront et cette Lumière que Dieu a placée sur vous a de nombreuses façons et moyens d’accomplir le plan qu’Il a pour chacun d’entre vous, le plan qui assurera que de nombreuses âmes soient bénies et aient l’opportunité de s’éveiller à l’Amour du Père. Vous ressentirez l’intensité et la beauté de cette Lumière. Vous connaîtrez sa protection et sa capacité à attirer les anges près de vous et à vous renforcer à tous égards.
 
@@ -30,6 +30,3 @@ En effet, vous avez une grande responsabilité, mes amis, une grande responsabil
 Que Dieu vous bénisse profondément, mes amis. Que vous puissiez toujours marcher dans la Lumière. Cette Lumière que Dieu vous a donnée est une Lumière qui guide et qui vous montrera en effet le chemin et informera votre âme de beaucoup de choses. Vous êtes bénis, mes amis, profondément bénis. Que l’Amour de Dieu continue à se déverser dans vos âmes.
 
 Que Dieu vous bénisse. Je suis André et je marche avec vous. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

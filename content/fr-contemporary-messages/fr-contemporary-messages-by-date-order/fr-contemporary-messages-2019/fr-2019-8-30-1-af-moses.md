@@ -9,7 +9,7 @@ weight:
 ---
 ### L'humanité devra choisir
 
-Moïse - reçu par Al Fike le 30 Août 2019, Gibsons, Colombie-Britannique, Canada
+Moïse - reçu par Al Fike le 30 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
 Les vents du changement continuent de souffler sur votre monde et beaucoup de ce qui a été compris par le passé, beaucoup de ce qui a été donné comme sagesse par les prophètes d’autrefois et les voyants des temps passés, est maintenant enterré dans les conditions, les attitudes et les perspectives de votre monde moderne et tant de sagesse est perdue, âmes bien-aimées. Il n’y a pas de temps ni d’intérêt à vivre une vie qui soit en harmonie avec des comportements qui respectent et honorent l’autre, qui apportent l’amour et qui apportent la lumière. Au lieu de cela, beaucoup sont nourris de mensonges, beaucoup sont nourris de contre-vérités et de tromperies qui conduisent à des âmes qui sont de pierre plutôt que de lumière.
 
@@ -39,6 +39,3 @@ Oui, tant de choses se préparent. Chacun d’entre vous qui désire être un ca
 Soyez forts, mes bien-aimés. Soyez forts dans vos cœurs et vos âmes et marchez dans la Lumière. De cette façon, vous arriverez vraiment à connaître Dieu et à connaître la volonté de Dieu pour vous et ce monde. De cette façon, vous serez utilisés pour accompagner beaucoup de personnes dans les changements qui arrivent.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Moïse et je viens à vous avec tout mon amour et toute ma préoccupation pour les enfants du monde et pour tout ce qui est dans le monde. Que Dieu vous bénisse, mes frères et mes sœurs. Que vous soyez bénis profondément. Que Dieu vous bénisse.
-
-
-

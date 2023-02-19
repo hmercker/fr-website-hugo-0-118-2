@@ -9,7 +9,7 @@ weight:
 ---
 ### Toute âme a faim de l'Amour de Dieu
 
-Augustin - reçu par Al Fike le 25 Août 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 25 Août 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Que vos âmes s’ouvrent largement à ce grand cadeau de l’Amour de Dieu, éveillant les nombreuses chambres intérieures, apportant la perspicacité et la vérité, la joie et l’amour à vos vies. Chaque âme dans votre monde a faim de cela à un degré ou à un autre. Chaque âme dans votre monde se sent seule parce qu’elle n’a pas vraiment découvert son propre potentiel et les possibilités d’être avec Dieu. Même vos âmes, mes bien-aimés, qui ne sont pas entièrement transformées par l’Amour du Père, ressentent ce sentiment de manque et cela vous motive à désirer recevoir davantage de ce Don. Cela vous motive à tendre vers Dieu. Jusqu’à ce que la grande transformation de votre âme soit complète, ce désir continuera. Lorsque vous serez plus à l’écoute de votre propre âme, ce désir s’intensifiera. Vous chercherez l’achèvement, la guérison de votre âme alors qu’elle forge une relation avec la Grande Âme de Dieu. Tenez compte des désirs de vos âmes.
 
@@ -20,6 +20,3 @@ C’est un cadeau qui vient et vous apporte une connaissance complète et vraie.
 Vous devez aller de l’avant, âmes bien-aimées. Allez de l’avant avec vos efforts, vos désirs et vos prières afin que ces avenues puissent être ouvertes, afin que vous puissiez comprendre les complexités de la Création de Dieu et être guidées par la Sagesse et la Volonté de Dieu. De cette façon, Dieu pourra vous utiliser de nombreuses façons pour bénir l’humanité, pour être une vraie et belle Lumière dans ce monde. Recherchez ce don d’Amour et tout suivra à sa place et vous serez profondément béni. Vous ressentirez une grande joie. Vous saurez au-delà de la connaissance. Vous verrez au-delà de la vision et vous aimerez énormément. Comme un grand océan, cet amour se déversera et coulera à travers vous.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Puissiez-vous en venir à réaliser ces choses que je vous implore de faire et d’être comme Dieu nous bénit tous dans ce voyage d’éveil de l’âme. Que Dieu vous bénisse. Je suis votre professeur Augustin et mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-
