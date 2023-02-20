@@ -1,13 +1,13 @@
 ---
-title: "Concentrez vos pensées sur Dieu, pas tant sur nous, les ange."
+title: "Concentrez vos pensées sur Dieu, pas tant sur nous, les ange"
 menu_title: ""
-description: "Concentrez vos pensées sur Dieu, pas tant sur nous, les ange."
+description: "Concentrez vos pensées sur Dieu, pas tant sur nous, les ange"
 date: 2022-06-01 06:00:01+00:1228
 draft: False
 hidden: True
 weight:
 ---
-### Concentrez vos pensées sur Dieu, pas tant sur nous, les ange.
+### Concentrez vos pensées sur Dieu, pas tant sur nous, les ange
 
 Jésus - reçu par Al Fike le 23 Août 2020, Gibsons, Colombie-Britannique, Canada
 
@@ -28,6 +28,3 @@ Nous sommes heureux que vous nous connaissiez. Nous sommes heureux que parfois v
 Je sais que vous êtes curieux, que vous souhaitez connaître tous les détails, l’émerveillement que représente cette grande bénédiction pour vous. Mais je souhaite vous encourager à vous occuper de votre âme plutôt que de votre raison à cet égard et à soumettre le désir de votre âme par la prière à Dieu et tout le reste viendra car Son Amour apporte beaucoup à chaque âme et apportera à la conscience la vérité ou la connaissance à mesure de la progression et de l’éveil à l’Amour Divin.
 
 Que Dieu vous bénisse dans vos voyages. Sachez que nous prions pour vous et que nous sommes présents avec vous. Nous aidons à maintenir la lumière autour de vous afin que vous puissiez aller vers Dieu plus facilement, que vous puissiez connaître ce que nous connaissons, c’est-à-dire la profondeur et l’étendue de l’Amour de Dieu pour vous et le pouvoir de ce don pour transformer votre âme de mortelle à immortelle, d’humaine à divine. Ce don est donné gratuitement et dans le grand Amour de Dieu pour chacun de vous. Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et votre ami. Je suis avec chacun de vous qui cherchez sincèrement cette vérité de l’Amour. Que Dieu vous bénisse, âmes bien-aimées. Je suis Jésus et mon amour est toujours avec vous. Que Dieu vous bénisse.
-
-
-

@@ -18,6 +18,3 @@ Je vous ai demandé de vous rendre à mon cher Findhorn et de présenter le pont
 Oui, la communauté est importante, tellement importante pour nous permettre de traverser ces changements terrestres. Mais la communion des âmes dans l’Amour de Dieu est encore plus importante. Car la véritable destination est au-delà de ce monde, comme vous le savez. Parlez avec amour, écrivez avec amour, chantez avec amour, marchez dans l’amour. Vous ne pouvez pas échouer. Je suis avec vous dans l’amour. Que Dieu continue à vous bénir et que vous sachiez tous que vous avez le soutien des Cieux Célestes dans le travail que vous faites. Je vous aime.
 
 Je suis votre amie et votre sœur dans les Cieux célestes, Eileen Caddy. Que Dieu vous bénisse.
-
-
-

@@ -1,13 +1,13 @@
 ---
-title: "Réalisation de soi et réalisation de Dieu "
+title: "Réalisation de soi et réalisation de Dieu"
 menu_title: ""
-description: "Réalisation de soi et réalisation de Dieu "
+description: "Réalisation de soi et réalisation de Dieu"
 date: 2022-06-01 06:00:01+00:1106
 draft: False
 hidden: True
 weight:
 ---
-### Réalisation de soi et réalisation de Dieu 
+### Réalisation de soi et réalisation de Dieu
 
 Care Derby Walsh - reçu par Jimbeau Walsh le 16 Mai 2020, Punalu’u, Oahu, Hawaii, USA
 
@@ -18,6 +18,3 @@ Il y a une réalisation de soi qui consiste à découvrir la beauté de votre â
 Il vous a été donné les Vérités qui vous transporteront sur l’océan de l’Amour de Dieu vers les réalités du Royaume Céleste et les rivages d’où nous parlons. Nous sommes avec vous dans la prière. Nous apportons l’Amour de Dieu dans nos âmes et la guidance que nous percevons est nécessaire à tout moment. Ceux qui sont ici avec moi souhaitent parler et partager cette union et ils reviendront pour le faire. Nous vous honorons, nous vous remercions et nous vous sommes très reconnaissants pour votre travail. Nous poursuivrons ce voyage avec vous en marchant dans l’Amour de Dieu qui vous portera tous vers son Royaume.
 
 Nous vous remercions. Je vous aime. Je suis Care.
-
-
-

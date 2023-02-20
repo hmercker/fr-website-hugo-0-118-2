@@ -10,6 +10,3 @@ weight:
 ### Dieu parle à chaque âme
 
 Seretta Kem - reçu par Al Fike le 1 Juillet 2020, Gibsons, Colombie-Britannique, Canada.
-
-
-

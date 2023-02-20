@@ -38,6 +38,3 @@ Pour chacun de vous, il vous appartient d’aimer vos frères et sœurs et de le
 Que Dieu vous bénisse au cours de ce voyage et sache que vous êtes vraiment aimés, que chacun de vous a la capacité de connaître sa propre âme et les merveilles de son âme. Cela viendra au fur et à mesure que les jours se transformeront en semaines, en mois et en années. Elle viendra, s’ouvrant lentement mais s’ouvrant néanmoins.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre professeur Augustin et je viens vous rassurer que vous êtes sur le bon chemin, que vous ne vous êtes pas détournés de Dieu mais que vous avez fait face à Dieu dans la joie, la reconnaissance et l’amour. Vous êtes aimés. Que Dieu vous bénisse, âmes bien-aimées, aimées de Dieu. Que Dieu vous bénisse.
-
-
-

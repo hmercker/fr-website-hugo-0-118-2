@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 8 Octobre 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/caleb-jones-131206-unsplash-min.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-caleb-jones-131206-unsplash-min.jpg)
 
 Que vos âmes soient bénies par l’Amour du Père, mes enfants bien-aimés. Je suis Jésus et je viens encore une fois pour parler au monde. Je viens parce qu’il y a une grande préoccupation au sein du Royaume Céleste et des esprits qui appartiennent au monde spirituel pour votre Terre. Car votre Terre est malade. Elle décline lentement dans ses fonctions naturelles et sa vitalité et elle continuera à décliner si l’humanité ne renonce pas à ses voies et à ses désirs et intentions de satisfaire ses besoins et ses désirs en puisant dans le monde. Une sorte de gloutonnerie de stimuli et de désirs est en train de prendre le dessus sur la conscience de l’humanité. Ainsi, une grande vague de désirs et d’expressions de ces désirs apporte une grande dysharmonie et de l’obscurité dans votre monde.
 
@@ -54,9 +54,3 @@ Ces réalités peuvent se produire à condition que l’humanité choisisse de p
 Mettez de côté vos doutes, chers et beaux enfants du monde, et marchez dans la Lumière du Toucher de Dieu sur vous. Connaissez la liberté et la joie de l’Amour de Dieu pour vous. Sachez que vous êtes vraiment une création bénie de Dieu et qu’il en sera ainsi bien au-delà de cette époque terrestre. Vous continuerez à grandir dans l’amour et la lumière en progressant à travers les différentes sphères spirituelles et, si vous prenez la décision de recevoir les qualités rédemptrices de l’Amour Divin, vous entrerez dans le Royaume Céleste des Cieux. C’est à vous de choisir. Toute l’humanité a le choix. Puissiez-vous considérer la puissance qui est votre choix dans le monde.
 
 Que Dieu vous bénisse. Je suis votre frère, votre ami, votre enseignant. Je suis Jésus. Mon amour pour vous est grand, pour toute l’humanité. J’ai un grand amour pour tous. Que Dieu vous bénisse.
-
-
-
-
-
-

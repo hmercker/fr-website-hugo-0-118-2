@@ -20,8 +20,3 @@ Alors que vous vivez sur terre, rappelez-vous d’être doux, gentils et nourris
 Comme l’a dit mon cher frère, ayez la foi, laissez tomber le doute. Laissez l’Amour remplacer la peur. Marchez debout dans l’Amour.
 
 Que Dieu vous bénisse tous. Je suis votre frère dans le Royaume Céleste, François. Que Dieu vous bénisse.
-
-
-
-
-

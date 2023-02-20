@@ -18,8 +18,3 @@ Vous êtes en effet les nourrices de la Terre. Vous donnez naissance, vous embra
 Au fur et à mesure que vous priez et que l’Amour de Dieu entre dans vos âmes, en chacun de vous, toutes ces réalités qui semblent vous séparer trouvent l’équanimité, l’équilibre et l’Unité. C’est là que le chemin de l’Amour de Dieu vous conduira dans la joie, la gloire et le bonheur. C’est difficile à concevoir, mais je vous le dis, nous sommes heureux de ce rassemblement de si belles âmes, de femmes et hommes. Que le don de l’Amour de Dieu vous amène à l’Unité, vous change, vous bénisse sur la Terre et sur votre voyage ici au Royaume de l’Amour de Dieu. Je suis votre sœur et votre amie, une disciple du Maître, et une avec vous dans l’Amour de Dieu.
 
 Je suis Élizabeth.
-
-
-
-
-

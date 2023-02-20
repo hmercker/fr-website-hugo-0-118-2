@@ -28,6 +28,3 @@ Comme vous en venez à voir le monde à partir de ces deux lieux de compréhensi
 Je vous demande instamment de ne pas vous inquiéter ou vous angoisser, mais d’avoir de la patience et de réaliser que l’image va s’éclaircir, que tout va se mettre en place comme il se doit. Vous verrez que Dieu vous utilisera de nombreuses manières différentes, avec des opportunités, des circonstances, des situations et même des lieux différents. Soyez assurés que vos perceptions, vos connaissances de l’âme vous apporteront la guidance dont vous avez besoin.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis André. Mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
-
-
-

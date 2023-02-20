@@ -1,13 +1,13 @@
 ---
-title: "Dieu veut que vous sachiez ce qu'est une relation avec Lui "
+title: "Dieu veut que vous sachiez ce qu'est une relation avec Lui"
 menu_title: ""
-description: "Dieu veut que vous sachiez ce qu'est une relation avec Lui "
+description: "Dieu veut que vous sachiez ce qu'est une relation avec Lui"
 date: 2022-06-01 06:00:01+00:1004
 draft: False
 hidden: True
 weight:
 ---
-### Dieu veut que vous sachiez ce qu'est une relation avec Lui 
+### Dieu veut que vous sachiez ce qu'est une relation avec Lui
 
 André - reçu par Al Fike le 24 Février 2020, Gibsons, Colombie-Britannique, Canada
 
@@ -20,6 +20,3 @@ Les portes s’ouvriront, vos âmes s’ouvriront au grand flot d’Amour qui vo
 Tant de choses vous attendent, mes bien-aimés, tant de choses, et souvent vous ne recevez qu’un aperçu de ce qui est vraiment en vous. Cependant, à mesure que vous poursuivez ce séjour entre votre mental et votre âme et entre votre âme et Dieu, d’autres choses s’éveillent, vos yeux s’ouvrent largement et clairement, réceptifs à tout ce qui doit être donné. Vous connaîtrez Dieu avec une telle clarté et une telle profondeur, une telle joie et un tel amour que tout ce que vous voyez dans votre vie, tout ce que vous avez vécu, tout ce qui est possible se fondra en perceptions claires et merveilleuses, reliant les facultés de l’âme aux facultés du mental en une seule grande et merveilleuse capacité de connaître la vérité et de savoir que celle-ci se trouve dans l’univers de Dieu.
 
 Chères âmes bien-aimées, buvez profondément les bénédictions de Dieu. En ce moment, Ses eaux vivantes se déversent sur vous. Buvez profondément et sachez que vous continuez à vous élever dans la Lumière et à vous réveiller de ces endroits profonds de l’âme. Que Dieu vous bénisse au cours de ce voyage. Que Dieu continue à vous bénir profondément, à vous réveiller pleinement, à vous apporter tout ce qui est censé être donné, béni et infusé dans votre âme. Que Dieu vous bénisse. Je suis André. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

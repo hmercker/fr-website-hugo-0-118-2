@@ -34,6 +34,3 @@ En tant que l’un de vos enseignants, guides et serviteur de Dieu, je me tiens 
 Merci de désirer savoir qui vous êtes, de servir et de grandir dans la vérité, de vous soutenir et de vous aimer les uns les autres et d’exercer la vérité, l’amour, la paix, la joie, la compassion les uns envers les autres et envers vous-même. Le voyage le plus profond est de savoir qui vous êtes en vérité.
 
 Que Dieu vous bénisse, je suis Keea-Atta Kem. Mon amour est avec chacun de vous, marchant et se tenant à vos côtés. Je suis ici pour vous servir. Que Dieu vous bénisse.
-
-
-

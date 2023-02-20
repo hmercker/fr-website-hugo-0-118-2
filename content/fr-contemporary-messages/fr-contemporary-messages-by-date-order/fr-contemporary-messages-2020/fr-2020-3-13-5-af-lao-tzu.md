@@ -38,10 +38,3 @@ Je vous encourage donc, mes amis. Je vous encourage dans votre voyage, afin que 
 Je suis Lao Tseu. Je vous donne mes bénédictions et ma prière est que vous continuiez à grandir dans l’Amour et la Lumière, que vous puissiez vous éveiller aux possibilités et à la puissance de l’Amour de Dieu, cette grande Essence qui est avec vous mais qui cherche à ce que vous l’invitiez, à ce que vous l’apportiez dans votre âme. Puissiez-vous connaître la prière comme la clé qui ouvrira cette porte. Puissiez-vous apprendre à connaître votre vrai moi, ces aspects cachés de vous que nous appelons âme. Car il y a en vous un profond désir, un désir ardent d’être éveillé, d’être libéré des contraintes de votre esprit et de venir dans ce lieu de grand éveil et de joie. Que vous puissiez trouver en vous un bonheur qui dépasse toute description, que vous puissiez connaître une Vérité de premier ordre, que vous puissiez venir à Dieu et réaliser les grands avantages et les bénédictions qui découlent de cette relation.
 
 Que vous soyez bénis, mes amis, ouverts et éveillés, qu’on vous montre le chemin de la Lumière. Je suis votre humble serviteur et votre enseignant. Je viens pour être avec mes amis sur cette Terre. Je suis Lao Tseu. Soyez tous bénis, vraiment bénis. Mon amour est avec vous.
-
-
-
-
-
-
-

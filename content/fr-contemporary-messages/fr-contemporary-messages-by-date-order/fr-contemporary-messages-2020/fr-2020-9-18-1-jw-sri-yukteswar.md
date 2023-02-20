@@ -20,6 +20,3 @@ Vous savez, à l’époque où j’étais en Inde, il y avait tellement de pauvr
 Je vous remercie. Que Dieu vous bénisse au cours de ce glorieux voyage.
 
 Je suis Yukteswar.
-
-
-

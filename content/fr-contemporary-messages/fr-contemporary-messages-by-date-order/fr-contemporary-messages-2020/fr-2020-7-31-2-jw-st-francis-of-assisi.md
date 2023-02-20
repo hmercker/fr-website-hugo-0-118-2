@@ -18,4 +18,3 @@ Si vous avez le choix entre voir vos défauts et vous reposer dans la grâce de 
 Alors, en ce jour sur Terre, soyez reconnaissants et humbles, sachant que vous êtes dignes de permettre à l’Amour de Dieu de briller de vos âmes sans vous plaindre. En louant notre glorieux Créateur, nous apportons une bénédiction à tous. Puissiez-vous marcher avec les anges.
 
 Puissiez-vous parler avec amour et que vos mots soient une bénédiction, élevant tout le monde dans la douce musique de la louange et le parfum des fleurs. Puissiez-vous vous ouvrir comme une rose dans l’amour de Dieu. Je suis votre frère en Christ et je vous aime. Je suis François.
-

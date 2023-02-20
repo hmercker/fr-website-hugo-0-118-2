@@ -20,6 +20,3 @@ Le désir de servir les autres naît lorsqu’il y a de l’amour dans le cœur.
 Que vos journées soient bénies à chaque instant par l’Amour de Dieu. Que vous puissiez répandre la joie et le bonheur à tous et le réconfort. Il est si important d’apporter du réconfort à toutes les âmes. Je suis votre sœur dans le Christ, et je vous aime. Mes chers.
 
 Je suis Claire d’Assise. Allez avec Dieu.
-
-
-

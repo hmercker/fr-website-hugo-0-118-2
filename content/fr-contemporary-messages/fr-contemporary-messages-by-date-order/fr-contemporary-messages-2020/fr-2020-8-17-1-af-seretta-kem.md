@@ -50,6 +50,3 @@ J’espère que cela a clarifié certaines questions et problèmes soulevés par
 Que Dieu vous bénisse dans vos voyages, âmes bien-aimées. Sachez que nous sommes toujours disponibles pour être avec vous, à condition que vous soyez sincères et que vous priiez pour un tel rapport et une telle proximité avec nous. Au fur et à mesure que vous priez pour le don de l’Amour Divin, ce rapport se renforcera. Une conscience de notre présence viendra au fur et à mesure que vous vous ouvrirez à Dieu pour recevoir Son Amour et éveiller les facultés de votre âme.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Oui, il est important que nous nous identifions afin que vous compreniez qui communique avec vous. Sinon, il y a souvent de la confusion et un manque de reconnaissance de votre part sur le plan terrestre qui est tellement captivé par les mots et les noms et beaucoup de choses matérielles. Nous venons donc pour répondre à vos besoins, à votre désir d’identification, et pour vous aider à discerner entre un esprit et un autre. Nous donnons donc notre identité au médium. Nous pensons que c’est un aspect productif et utile de cette forme de communication. Que Dieu vous bénisse, âmes bien-aimées. C’est ma bénédiction, mon honneur, ma joie de communiquer de cette manière. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

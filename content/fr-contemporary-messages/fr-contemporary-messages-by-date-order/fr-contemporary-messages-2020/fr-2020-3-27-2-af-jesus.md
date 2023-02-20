@@ -1,13 +1,13 @@
 ---
-title: "Permettez à Dieu de vous élever "
+title: "Permettez à Dieu de vous élever"
 menu_title: ""
-description: "Permettez à Dieu de vous élever "
+description: "Permettez à Dieu de vous élever"
 date: 2022-06-01 06:00:01+00:1043
 draft: False
 hidden: True
 weight:
 ---
-### Permettez à Dieu de vous élever 
+### Permettez à Dieu de vous élever
 
 Jésus - reçu par Al Fike le 27 Mars 2020, Gibsons, Colombie-Britannique, Canada
 
@@ -20,6 +20,3 @@ Toutes les réalités de Dieu affluent vers vous en ce moment. Ouvrez-vous à ce
 Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. Sachez que je suis avec vous. Je suis avec beaucoup de personnes dans votre monde en ce moment de grande difficulté. Les anges de Dieu travaillent sans cesse pour élever l’humanité, pour aider chaque âme à venir dans la Lumière, la Lumière de Dieu. Heureux êtes-vous, vous qui marchez dans cette Lumière, qui aspirez à cette Lumière, qui vous rassemblez pour apporter la Lumière au monde et à vos propres âmes. Vous êtes bénis. La paix soit avec vous, mes frères, mes sœurs, la paix soit avec vous. Que Son Amour trouve un grand afflux dans vos âmes, réveillant, guérissant et apportant une grande paix.
 
 Que Dieu vous bénisse. Je suis votre frère et ami, Maître des Cieux Célestes. Je suis Jésus. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Je ne vous quitterai jamais. Que Dieu vous bénisse.
-
-
-

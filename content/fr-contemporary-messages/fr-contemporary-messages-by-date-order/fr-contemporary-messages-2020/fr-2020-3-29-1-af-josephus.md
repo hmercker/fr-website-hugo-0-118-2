@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment faire face aux conditions changeantes de cette Terre en ce moment
 
-Flavius Joseph - reçu par Al Fike le 29 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 29 Mars 2020, Gibsons, Colombie-Britannique, Canada
 
 Âmes bien-aimées, je suis Flavius Josèphe et je suis venu pour parler des conditions changeantes de votre monde. En ce moment même, chacun de vous est béni par la Lumière. Chacun d’entre vous peut être un partenaire du Père Céleste pour être un canal de Lumière dans le monde, car chacun d’entre vous ici est une âme sérieuse, une âme en quête, une âme qui est prête à aller au-delà de sa propre vision, de son propre besoin et de sa propre perspective pour atteindre quelque chose de plus grand, de plus élevé et en alignement avec Dieu.
 
@@ -52,6 +52,3 @@ C’est l’amour qui guérira le monde, âmes bien-aimées. Ce n’est pas la v
 Vous êtes tous bénis, mes bien-aimés. Dieu bénit votre âme. Dieu continuera à déverser Ses puissantes bénédictions sur vous. Vous êtes touchés par Dieu. Avec ce toucher vient l’éveil, la connaissance, la paix et le sentiment et la véritable compréhension que vous êtes aimés.
 
 Dieu vous bénisse, mes amis, et je vous remercie de m’avoir écouté aujourd’hui. Merci de vous être réunis dans ce Cercle de Lumière. Puissiez-vous trouver la nourriture que votre âme désire vraiment. Puissiez-vous parvenir à connaître votre véritable relation avec votre Créateur. Puisse l’amour abonder entre vous tous et vous lier ensemble dans la lumière. Que Dieu vous bénisse. Je suis Flavius Josèphe. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous.
-
-
-

@@ -26,6 +26,3 @@ Je suis votre frère et ami dans le Christ,
 Judas de Kerioth
 
 Que Dieu vous bénisse !
-
-
-

@@ -1,13 +1,13 @@
 ---
-title: "Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit "
+title: "Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit"
 menu_title: ""
-description: "Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit "
+description: "Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit"
 date: 2022-06-01 06:00:01+00:1050
 draft: False
 hidden: True
 weight:
 ---
-### Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit 
+### Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit
 
 Yogananda - reçu par Jimbeau Walsh le 3 Avril 2020, Punalu’u, Oahu, Hawaii, USA
 
@@ -24,6 +24,3 @@ Mais si vous êtes sur le chemin de l’Amour de Dieu et que vous souhaitez êtr
 Lorsque votre cœur est brisé et que ce chakra et cet « ajna », ou le sixième chakra est ouvert entre les yeux, il y a une lumière qui descend. Nous l’appelons le chakra de la couronne, le septième, mais il vient de la couronne et d’en haut car il reçoit des cieux, donc « sahasrara ». Je vous dis donc tout cela et j’espère avoir été clair, car mon souhait pour vous tous est d’être en contact avec vos âmes, de recevoir une guidance qui soit Céleste. Je souhaite donc que vos cœurs soient ouverts, que vos âmes soient bénies, que le troisième œil soit ouvert à la communication et que Dieu, notre Créateur le plus aimant et le plus glorieux, vous comble tous de son Amour Divin.
 
 Mes frères reviendront et parleront. Que les Eaux Vives coulent en vous et à travers vous. Que vous puissiez boire l’Amour de Dieu. Je suis votre frère et votre ami et je vous aime. Je suis Yogananda.
-
-
-

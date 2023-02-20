@@ -1,17 +1,17 @@
 ---
-title: "L’Amour."
+title: "L’Amour"
 menu_title: ""
-description: "L’Amour."
+description: "L’Amour"
 date: 2022-06-01 06:00:01+00:1222
 draft: False
 hidden: True
 weight:
 ---
-### L’Amour.
+### L’Amour
 
 Jésus - reçu par Jane Gartshore le 18 Août 2020
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/Lotus.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-lotus.jpg)
 
 Je suis venu. Yeshua. Notre sujet ce soir est l’Amour. Il y a beaucoup de choses que je peux dire à ce sujet, mais je commencerai par ce que vous devez savoir: cette vérité dans sa forme la plus simple c’est l’Amour, et cet Amour est la vérité la plus élevée. Qu’est-ce que je veux dire par là, que l’Amour est la plus haute vérité? On en revient toujours à Dieu, n’est-ce pas, le créateur de toutes choses? Dieu est amour. Le définir autrement c’est blasphémer.
 
@@ -30,6 +30,3 @@ Au fil du temps, avec les bénédictions répétées de ce don, l’âme humaine
 Je terminerai par un avertissement à ceux d’entre vous dont les croyances dictent que l’Essence de Dieu est déjà à l’intérieur: la Chute de l’homme a été provoquée par une telle croyance, et se perpétue par celle-ci. Cherchez Dieu. Demandez et vous recevrez.
 
 Je continuerai ce sujet plus tard. Mon amour est avec vous. Je suis Yeshua, Maître du Royaume Céleste, le premier à ne faire qu’Un avec le Créateur.
-
-
-

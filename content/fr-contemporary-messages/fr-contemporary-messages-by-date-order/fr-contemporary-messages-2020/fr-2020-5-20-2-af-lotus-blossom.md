@@ -44,6 +44,3 @@ Vous découvrirez, en progressant sur le chemin de la vie, que ces blessures de 
 J’espère, mes chers et magnifiques protégés, que mon explication vous aidera à comprendre et à reconnaître les différences entre ces deux processus si vitaux et importants pour le progrès spirituel. Sur la voie divine, on commence par l’âme. Sur le chemin naturel, on commence souvent par l’esprit. Mais l’âme est toujours affectée et obtiendra une certaine guérison, quel que soit le chemin emprunté. Vous constaterez que beaucoup préfèrent le chemin qui leur donne un sentiment de sécurité et de contrôle de la situation. Alors que vous, âmes bien-aimées, avez la foi que Dieu vous guide à travers. C’est donc différent. Pourtant, chacun apporte sa propre guérison et son propre lieu de réconciliation.
 
 Merci, âmes bien-aimées, de m’avoir écouté aujourd’hui. Je vous aime tendrement. Vous êtes tous chers à mon cœur. Je suis souvent avec vous. Je viens souvent pour aider à soutenir, à guérir, à m’engager dans votre progression continue vers la Lumière. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse tendrement. Je suis Fleur de Lotus et je vous aime. Que Dieu vous bénisse.
-
-
-

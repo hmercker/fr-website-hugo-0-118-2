@@ -20,8 +20,3 @@ Vous savez que lorsque Dieu et les anges viennent, ils passent par votre âme qu
 Si vous souhaitez savoir ce qui est digne de votre attention, de votre concentration, ce qui vous apportera le vrai bonheur et vous changera pour toujours, c’est de vous ouvrir à l’Amour de Dieu. Cela vous le savez, et je le sais aussi. Je viens me joindre à vous pour vous encourager à rechercher ce qu’il y a de plus élevé, à utiliser la joie comme mesure et le vrai bonheur dans votre âme et le plaisir de votre cœur lors de votre voyage vers le royaume de l’Amour de Dieu et pour tous vos jours sur la terre. Qu’ils soient bénis de bonheur et de joie et que vous fassiez tous une petite danse de temps en temps, je ne le dirai pas.
 
 Je vous aime et je suis votre frère sur le chemin de l’Amour Divin. Beaucoup de joie pour chacun d’entre vous. Que Dieu vous bénisse. Je suis Charles.
-
-
-
-
-

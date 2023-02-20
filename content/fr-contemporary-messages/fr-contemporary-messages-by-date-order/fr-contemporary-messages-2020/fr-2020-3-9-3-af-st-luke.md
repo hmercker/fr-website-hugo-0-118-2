@@ -1,13 +1,13 @@
 ---
-title: "Les pensées exercent une puissante influence sur votre monde "
+title: "Les pensées exercent une puissante influence sur votre monde"
 menu_title: ""
-description: "Les pensées exercent une puissante influence sur votre monde "
+description: "Les pensées exercent une puissante influence sur votre monde"
 date: 2022-06-01 06:00:01+00:1024
 draft: False
 hidden: True
 weight:
 ---
-### Les pensées exercent une puissante influence sur votre monde 
+### Les pensées exercent une puissante influence sur votre monde
 
 St Luc - reçu par Al Fike le 9 Mars 2020, Gibsons, Colombie-Britannique, Canada
 
@@ -28,6 +28,3 @@ Vous devez exprimer dans le monde la devise de l’amour, être cet exemple, ce 
 Que Dieu vous bénisse alors que vous continuez à vous trouver, à vous éveiller à ce véritable moi qu’est votre âme, et à être béni par l’Esprit Saint de Dieu qui transmet son amour à votre âme. Vous trouverez votre chemin et connaîtrez votre véritable moi dans toute sa merveille et sa gloire, sa beauté et son amour. Ceci est destiné à chacun d’entre vous. Continuez à considérer ce que j’ai dit. Continuez à reconnaître la véritable beauté de votre âme. Continuez à prier Dieu pour recevoir ces dons d’amour et ces bénédictions. Continuez à prier pour vos familles, vos proches, tous ceux qui font partie de votre vie. Vous verrez comment Dieu répond à vos prières et vous bénit abondamment dans la puissance et la gloire de son grand amour pour vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Luc et je vous remercie de m’avoir permis de parler aujourd’hui. Mon amour est avec vous. Mes prières sont avec vous. Les prières du Royaume Céleste sont avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

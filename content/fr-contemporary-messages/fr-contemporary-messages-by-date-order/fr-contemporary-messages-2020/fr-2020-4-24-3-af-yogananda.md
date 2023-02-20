@@ -38,6 +38,3 @@ Elles doivent être votre dévotion à vos frères et sœurs et à Dieu reconnai
 Que Dieu continue à vous toucher profondément dans votre âme et à éclairer votre chemin qui est entièrement et complètement le vôtre, offert comme un don de Dieu. Tout comme chaque flocon de neige est unique, chaque âme est unique dans ses motifs et ses expressions. Puissiez-vous trouver tout ce qui est unique en vous, tout ce qui est merveilleux et joyeux et plein d’Amour, plein d’Amour pour vous-même, pour les autres, pour ce monde et pour Dieu.
 
 Que Dieu vous bénisse profondément et vous garde dans cette Lumière. Je suis Yogananda et c’est ma joie de parler à travers cet instrument en ce moment. Que sa voix exprime mes pensées et j’utiliserai d’autres instruments pour le faire au fur et à mesure que le temps passe. Il n’y a pas d’exclusivité dans cet effort de communication, mais simplement je profite du canal qui m’est offert, afin de vous atteindre et d’être avec vous dans la Vérité. Que Dieu vous bénisse tous. Mon Amour continue à briller envers vous tous, l’Amour de Dieu nous embrasse tous dans ce grand voyage de Lumière. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
-
-
-

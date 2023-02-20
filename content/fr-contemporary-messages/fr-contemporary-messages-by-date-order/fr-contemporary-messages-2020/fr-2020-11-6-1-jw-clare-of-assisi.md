@@ -18,6 +18,3 @@ Vous êtes dans un beau cercle de lumière et de nombreux anges sont avec vous e
 Permettez à vos cœurs de s’ouvrir largement pour que Dieu comble vos âmes d’Amour Divin, le cadeau le plus précieux de l’Univers. Toute la gloire de Dieu en haut !
 
 Je vous laisse avec mon amour et mes bénédictions pour toujours. Je suis votre sœur dans le Christ qui, un jour, a marché sur les collines d’Assise. Je suis Claire. Allez avec Dieu.
-
-
-

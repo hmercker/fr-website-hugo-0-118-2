@@ -22,8 +22,3 @@ C’est ce que nous a appris notre cher frère François lorsqu’il nous a expl
 Que Ses bénédictions soient répandues sur chacun de vous afin que vous puissiez vivre et marcher dans ce monde dans la Grâce.
 
 Que Dieu vous bénisse. Je suis Claire.
-
-
-
-
-

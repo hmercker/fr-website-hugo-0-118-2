@@ -24,5 +24,3 @@ Tant de choses peuvent être données, mes amis, et tant de choses attendent vos
 Puissiez-vous poursuivre votre voyage de l’âme en relation avec votre Père Céleste, en vous éveillant à l’Amour de Dieu. Car c’est ce cadeau, le plus grand cadeau de tous, le cadeau le plus élevé qui apportera tout ce que vous désirez et tout ce dont vous avez besoin pour réaliser ces cadeaux de communication. Que Dieu vous bénisse dans ce voyage, qu’il vous protège toujours, et qu’il vous inspire à rechercher ce qu’il y a de plus élevé, à être en alignement avec Dieu.
 
 Que Dieu vous bénisse. Je suis Seretta Kem et je continuerai à vous parler et à vous assister alors que vous apprenez, grandissez et vous éveillez à ces grands potentiels de l’âme. Que Dieu vous bénisse. Que Son Amour continue de couler dans vos âmes. Puissiez-vous en venir à voir les merveilles de votre propre âme et les merveilles de la Grande Âme de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour est avec vous.
-
-

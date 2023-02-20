@@ -21,6 +21,3 @@ Je suis Celui qui répond à votre demande spirituelle en activant Ma réponse.
 Je suis Celui qui s’approchera de vous afin que vous puissiez entendre Ma voix en vous et savoir que c’est Moi, car chaque enfant bien-aimé de Moi qui aspire à être avec Moi M’entendra. Je vous entends Mes enfants, Je vous vois Mes enfants et Je vous aime Mes enfants.
 Vous me plaisez lorsque vous désirez connaître la profondeur de qui vous êtes et m’invitez dans cette expérience d’amour et votre réveil. Il me plaît que vous désiriez aider l’humanité à s’éveiller. Il Me plaît que vous entendiez Mon appel. Nous nous éveillons dans l’Amour et dans l’union ensemble, alors que vous vous ouvrez pour recevoir cette bénédiction de l’Amour dans votre âme, vous me connaîtrez pleinement et complètement.
 Je suis l’Unique.
-
-
-

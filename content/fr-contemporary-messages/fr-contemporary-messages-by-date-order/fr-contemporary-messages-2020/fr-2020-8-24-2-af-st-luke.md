@@ -38,8 +38,3 @@ Je vous exhorte, âmes bien-aimées, à rechercher un équilibre dans votre vie 
 Âmes bien-aimées, puissiez-vous choisir de réveiller vos âmes, de connaître vos propres âmes, de connaître Dieu au cours de ce merveilleux voyage spirituel. Puissiez-vous faire de grands efforts pour vous libérer des fardeaux du monde matériel afin de vous sentir libres d’être dans la Grâce de Dieu, l’Amour de Dieu, la beauté et la Vérité de Dieu. C’est un objectif auquel il vaut la peine d’aspirer. Chacun d’entre vous continue ce voyage en cherchant à s’éveiller, en cherchant à entendre les désirs et à connaître les pensées de sa propre âme. Puissiez-vous continuer à avancer, mes bien-aimés. Continuez à vous éveiller. Continuez à être dans la Grâce et la Lumière.
 
 Que Dieu vous bénisse, je suis Luc. J’espère que je vous ai aidé à comprendre clairement ce qui est important dans la vie, ce qui a une valeur durable, ce qui peut vous amener à une plus grande lumière. Que Dieu vous bénisse et vous garde dans sa lumière. Que Dieu vous bénisse.
-
-
-
-
-

@@ -26,6 +26,3 @@ Les facultés et les intuitions de l’âme vous amèneront à ce lieu de compr�
 Vous êtes tous des enfants de Dieu et, en tant que tels, vous êtes profondément aimés de Dieu. Cherchez Son Amour. Cherchez ce qui vous apportera la perspicacité, le confort et la force. Ensuite, lorsque chaque âme arrivera à ce lieu de compréhension, se réconciliera avec son Créateur, alors commencera la véritable guérison de votre monde et de chaque âme qui s’y trouve et de tout ce qui y réside.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis votre enseignant, Augustin. Je vous aiderai à comprendre ce qui se passe dans votre monde et ce qui se passe en vous. Dieu vous lance une invitation sérieuse et profonde à regarder en vous, à chercher la Vérité en vous et à chercher Dieu dans votre vie. Que Dieu vous bénisse, âmes bien-aimées, et que Son Amour se déverse en grande abondance dans vos âmes en ouvrant ces portails de compréhension et de Vérité, d’Amour et de paix. Que Dieu vous bénisse. Je suis avec vous et je suis votre ami qui cherche à vous réconforter, à vous aider et à vous assister dans votre voyage. Que Dieu vous bénisse. Je suis Augustin, évêque d’Hippone lors de ma vie sur Terre, maintenant un ange céleste dans le Royaume
-
-
-

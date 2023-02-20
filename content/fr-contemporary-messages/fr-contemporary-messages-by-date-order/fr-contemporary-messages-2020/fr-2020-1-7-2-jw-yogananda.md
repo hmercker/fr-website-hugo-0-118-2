@@ -22,6 +22,3 @@ Nombreux sont ceux qui sont ici avec vous et qui embrassent chacun d’entre vou
 Ainsi, avec tout mon amour et mes bénédictions et l’Amour de Dieu, je vous laisse avec une dernière pensée. Priez, au-delà de votre esprit, du plus profond de vos âmes de tout votre cœur et le Royaume sera à vous.
 
 Puissiez-vous y aller dans la Grâce de Dieu. Je suis votre frère et votre ami, Yogananda.
-
-
-

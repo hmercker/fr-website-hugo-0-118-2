@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Guide pour la retraite de la voix directe 
+### Guide pour la retraite de la voix directe
 
 Seretta Kem - reçu par Al Fike le 5 Janvier 2020, Gibsons, Colombie-Britannique, Canada
 
@@ -22,6 +22,3 @@ Soyez dans la Grâce de Dieu, mes amis, et sachez que chaque moment que vous pas
 Vous ne pouvez pas rester assis sans rien faire et penser que Dieu et les anges feront tout le travail, vous prépareront une marche facile vers la lumière. En effet, vous avez vos responsabilités. Vous devez les prendre au sérieux et chercher à vous aligner avec Dieu. C’est votre préparation, âmes bien-aimées, ainsi que le renforcement de vos corps et la purification de vos pensées afin que tout soit dans la lumière, tout soit en harmonie, tout soit puissamment aligné afin que vous et nous puissions faire notre travail ensemble et marcher sur ce grand chemin. Cette destinée que Dieu a mise devant nous continue à nous encourager à aller de l’avant. Vous savez que nous sommes avec vous et nous désirons profondément que vous soyez avec nous. Ensemble, nous marcherons sur cette route.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Mon amour est avec vous. Mes désirs de grand succès dans nos entreprises continuent à être ma prière fervente et mon effort en votre nom. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis Seretta Kem.
-
-
-

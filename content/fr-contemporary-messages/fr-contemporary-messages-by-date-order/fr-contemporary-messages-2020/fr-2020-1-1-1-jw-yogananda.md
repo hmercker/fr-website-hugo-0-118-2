@@ -9,9 +9,9 @@ weight:
 ---
 ### Le chemin de la transformation et de l’illumination
 
-Yogananda - reçu par Jimbeau Walsh le 1 Janvier 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 1 Janvier 2020, Punalu’u, Oahu, Hawaii, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/landscape-3628992_1280.png)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-landscape-3628992_1280.png)
 
 Je suis Yogananda.
 
@@ -26,4 +26,3 @@ Il y en a beaucoup ici avec vous qui embrassent chacun d'entre vous dans ce beau
 Puissiez-vous y aller dans la Grâce de Dieu.
 
 Je suis votre frère et ami, Yogananda.
-

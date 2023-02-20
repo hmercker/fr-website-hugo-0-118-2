@@ -20,8 +20,3 @@ Tant de vérités vont venir. Tant de choses seront mises à votre disposition. 
 C’est donc un voyage que je vous encourage tous à entreprendre, c’est le voyage dans lequel nous sommes ici pour vous élever et vous encourager à avancer. Et ce voyage est éternel.
 
 Puissiez-vous trouver votre chemin sur la voie divine, comme nous aimons à l’appeler, la voie vers l’union avec Dieu. De cette façon, vous connaîtrez une joie, un aspect de l’amour qui est profond et gratifiant et qui ne cesse de croître à mesure que vos âmes s’éveillent à l’Amour de Dieu. Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin, votre enseignant. Mon amour est avec vous. Que Dieu vous bénisse tous.
-
-
-
-
-

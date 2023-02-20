@@ -22,6 +22,3 @@ Car, tout va vers une plus grande harmonie et pourtant, il y a un ajustement, un
 Mes amis bien-aimés, sachez que nous sommes avec vous, que vous n’êtes jamais seuls, que vous vous embarquez tous dans un grand voyage d’éveil de l’âme, d’harmonie, d’existence dans votre monde en harmonie avec les Lois de la Création de Dieu ; les manifestations de la Création de Dieu apportant une plus grande Lumière et un grand bonheur à vous tous. Il y a de la joie dans tout cela, mes amis. Regardez la nature et voyez les manifestations montantes de l’Amour de Dieu pour sa Création prendre vie, devenir plus belles, venir vous saluer et vous dire : Oui, Dieu est là. Dieu vous aime. Dieu aime votre monde. Puissiez-vous voir à travers les yeux de votre moi spirituel ce qui est si beau dans la Création de Dieu et si beau en vous ; tout un jardin qui est votre âme prenant vie avec les bénédictions de Dieu, Son Toucher sur vous tous.
 
 Que Dieu vous bénisse, mes amis, vous garde dans Sa Lumière, vous garde enveloppés d’Amour et de paix. Mon amour est avec vous, beaucoup sont avec vous dans leur amour. Que Dieu vous bénisse et vous garde. Je suis François. Que Dieu vous bénisse.
-
-
-

@@ -16,6 +16,3 @@ Je suis ici Hafiz le poète et vous êtes dans votre galaxie – un point dans l
 Le Créateur dans Sa sagesse rend cela possible. Comment tout est possible ? Comment respirons-nous ? Nous vivons dans un monde plein de ténèbres et pourtant plein de lumière. Plein de mort et plein de vie. Vous qui avez découvert la majesté de l’Amour Divin. Vous avez découvert le grand trésor que notre glorieux Créateur a donné. Personne ne s’éloignerait d’une telle richesse.
 
 Dans l’amour de Dieu, je suis votre ami, Hafiz.
-
-
-

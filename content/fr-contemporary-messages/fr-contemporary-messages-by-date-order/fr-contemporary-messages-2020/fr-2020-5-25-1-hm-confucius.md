@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L'Amour de Dieu est le catalyseur 
+### L'Amour de Dieu est le catalyseur
 
 Confucius - reçu par Helge Mercker le 25 Mai 2020, Elim, Namibie
 
@@ -28,6 +28,3 @@ Mon enfant, la guérison est en train de se produire. Chaque jour, tu t’efforc
 Fais naître le fort désir, l’appel, la demande active à Dieu de vous aider dans ce processus d’éveil, dans ce déploiement transformateur de vous-même. Sois doux et bienveillante, aimante et gracieuse envers toi-même, et le chemin de la transition vers l’Amour éternel t’apportera une grande harmonie, la paix et la joie.
 
 Que Dieu te bénisse, mon cher enfant. Confucius est avec toi, t’apportant guérison et réconfort, sagesse et amour. Que Dieu te bénisse et repose en paix, car nous sommes proches. Bonne nuit, cher enfant. Que Dieu te bénisse.
-
-
-

@@ -22,11 +22,4 @@ Le monde, le monde matériel, dirigé par l’esprit matériel, est souvent dans
 Il y a une grande attraction à être dans l’Amour de Dieu. Il y a un magnétisme qui attire non seulement ceux d’entre nous dans les Cieux Célestes, mais l’harmonie sur terre et les effets de ces âmes dans l’obscurité où elles sont capables de recevoir une bénédiction pour la moindre inclinaison. Donc, en marchant dans la joie, en marchant dans le bonheur, la paix, la lumière de l’Amour dans vos âmes, vous apportez ce cadeau que Dieu vous a donné, à tous. N’est-ce pas merveilleux ? Nous sommes tous ici avec vous, et nous vous apportons notre amour, nos conseils et notre soutien, et oui, même notre gratitude, pour avoir choisi le chemin de l’amour de Dieu. Que Dieu continue à vous bénir, et que son amour vous attire toujours plus près de lui. Je suis votre sœur dans l’amour de Dieu, et votre sœur dans le Christ, je suis Claire d’Assise, et je vous aime.
 <small>
 
-1. <large id=”f1”> Se référant probablement à ce message lu de [Jésus sur l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/) .[↩](#a1)
-
-
-
-
-
-
-
+1. <large id=”f1”> Se référant probablement à ce message lu de [Jésus sur l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/).[↩](#a1)

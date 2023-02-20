@@ -20,6 +20,3 @@ Je vous dis ces choses parce que, d’une certaine façon, c’est ce qui se pas
 Mon souhait pour chacun d’entre vous est le grand cadeau de l’amour de Dieu pour vous élever tous et vous réveiller pour toujours. Nous sommes avec vous ici et vous serez avec nous ici en temps voulu.
 
 Avec tout mon amour et ma bénédiction, que Dieu bénisse chacun d’entre vous. Je suis votre frère et ami Francis. Que Dieu vous bénisse.
-
-
-

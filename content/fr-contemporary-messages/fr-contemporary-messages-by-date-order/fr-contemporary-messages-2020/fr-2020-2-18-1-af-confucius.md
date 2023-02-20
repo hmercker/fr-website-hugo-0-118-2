@@ -16,6 +16,3 @@ Je vous bénis, mes petits oiseaux, je suis Confucius. Je viens vous apporter un
 Petits oiseaux, volez vers les royaumes les plus élevés de Ses bénédictions. Cherchez les grands dons de Son âme, qui vous sont donnés sous la forme d’Amour, qui s’écoule dans votre âme, transformant et guérissant tout ce qui fait partie de vous, mes chers. Tant de choses peuvent être données lorsque vous êtes ouverts, lorsque vous le désirez, lorsque vous priez pour les dons de Dieu sur vous.
 
 Que Dieu vous bénisse. Je suis Confucius et je suis venu pour bénir chacun d’entre vous. En vérité, vous êtes précieux et vous êtes des âmes bien-aimées et bénies, vraiment bénies. Que Dieu vous bénisse. Tant de bonnes âmes, tant d’âmes brillantes. Soyez bénis, mes bien-aimés, vraiment bénis.
-
-
-

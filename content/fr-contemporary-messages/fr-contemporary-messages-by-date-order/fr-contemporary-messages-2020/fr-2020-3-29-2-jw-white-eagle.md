@@ -22,6 +22,3 @@ Je viens vous apporter cette énergie et l’Amour de Dieu. Je souhaite tous vou
 N’ayez pas peur, ayez la foi, marchez dans la foi… respirez l’Amour de Dieu et expirez l’obscurité, la peur, tout ce qui vous sépare. Gardez vos cœurs ouverts afin que vos âmes puissent être touchées. Je suis si heureux que cette personne se soit avancée et m’ait permis de vous parler. Notre amour et nos cœurs sont avec vous tous. Vous êtes les enfants bénis du Créateur sur terre.
 
 Je vous embrasse dans l’amour comme votre frère… Je suis Aigle Blanc et un disciple du Maître. Que Dieu vous bénisse.
-
-
-

@@ -1,13 +1,13 @@
 ---
-title: "Devenez une étoile "
+title: "Devenez une étoile"
 menu_title: ""
-description: "Devenez une étoile "
+description: "Devenez une étoile"
 date: 2022-06-01 06:00:01+00:1194
 draft: False
 hidden: True
 weight:
 ---
-### Devenez une étoile 
+### Devenez une étoile
 
 Judas - reçu par Jimbeau Walsh le 21 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
 
@@ -18,7 +18,3 @@ Pour vous dont les âmes souhaitent recevoir l’Amour et avoir cet Amour de Die
 Parfois, on plante des graines et selon l’endroit où elles tombent, les résultats peuvent varier. Mais vous savez que lorsqu’elles tombent sur un sol fertile et qu’elles sont soignées et arrosées, dans ce cas dans l’Amour de Dieu, dans les eaux vives, ces graines vont pousser. Il n’y a donc pas lieu de s’inquiéter au-delà du fait d’être une lumière et un amour dans ce monde dans la grâce de Dieu.
 
 Je suis content de celui-là pour avoir pris ce message et comment il l’a reçu et je reviendrai. Avec tout mon amour, je suis votre frère et ami dans le Christ. Je suis Judas de Kerioth.
-
-
-
-

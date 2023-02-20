@@ -11,7 +11,7 @@ weight:
 
 André - reçu par Jimbeau Walsh le 29 Août 2020, Punalu’u, Oahu, Hawaii, USA
 
-C’est moi, André, un disciple du Maître et un ami cher de mon frère Judas. Comme vous le savez peut-être, je suis venu [vers Judas ](/fr-contemporary-messages/8fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-6-1-hr-judas/) lorsqu’il était dans les enfers pour lui donner de l’espoir, pour lui faire savoir qu’il était pardonné, pour le conduire à nouveau vers la Lumière et l’Amour de Dieu qui était son aspiration initiale. Tout cela est bien documenté dans les écrits de James Padgett, et aussi dans ce merveilleux livre<sup id=”a1”>[1](#f1)</sup>  que vous étudiez.
+C’est moi, André, un disciple du Maître et un ami cher de mon frère Judas. Comme vous le savez peut-être, je suis venu [vers Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-6-1-hr-judas/) lorsqu’il était dans les enfers pour lui donner de l’espoir, pour lui faire savoir qu’il était pardonné, pour le conduire à nouveau vers la Lumière et l’Amour de Dieu qui était son aspiration initiale. Tout cela est bien documenté dans les écrits de James Padgett, et aussi dans ce merveilleux livre <sup id=”a1”>[1](#f1)</sup>  que vous étudiez.
 
 Le but de ma venue est donc d’utiliser mon expérience avec Judas comme un modèle de la manière dont les choses fonctionnent entre les âmes, qu’elles soient en esprit ou sur terre. Laissez-moi vous donner un exemple. Vous parlez à quelqu’un de l’Amour Divin, du chemin de la prière, de la transformation des âmes et des vérités telles que vous les comprenez, à partir de ce que vous avez lu et de votre propre expérience. Et bien que leur âme puisse comprendre cela, leur esprit le rejette. Soit ils ne sont tout simplement pas intéressés, soit, en fait, ils sont tout à fait opposés à ces idées peu orthodoxes.
 
@@ -23,7 +23,3 @@ Donc, nous vous encourageons à partager vos histoires, à partager votre parcou
 <small>
 
 1. <large id=”f1”> Voir le livre « Judas de Kérioth » (https://lanouvellenaissance.files.wordpress.com/2017/08/conversations-avec-judas-iscariote.pdf).[↩](#a1)
-
-
-
-

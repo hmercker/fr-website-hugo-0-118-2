@@ -18,6 +18,3 @@ Et pourtant, lorsque vous voyez des gens se réunir pour apprécier la nourritur
 La prière est un pont qui relie le plan terrestre au plan Céleste. Vos prières qui aspirent à l’Essence du Créateur, au grand amour de Dieu, sont un pont de lumière qui relie les cieux Célestes… toutes les sphères intermédiaires et le plan terrestre. C’est une merveille à contempler, même depuis ce royaume Céleste où les merveilles ne cessent jamais. Les désirs dans vos âmes ont vraiment créé un pont de lumière et d’amour. Je souhaite pour chacun d’entre vous une transformation dans le grand amour de Dieu. Et bien que je vienne d’une culture différente, ne sommes-nous pas Un dans la Grâce de Dieu ? Mes beaux amis… quel cadeau !
 
 Que Dieu vous bénisse et vous transforme chacun. Je suis votre frère et ami, Yogananda.
-
-
-

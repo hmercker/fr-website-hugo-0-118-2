@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Pardon
 
-Jésus - reçu par Jane Gartshore le 5 Juillet 2020
+Jésus - reçu par Jane Gartshore le 5 Juillet 2020.
 
 C’est moi, Yeshua. La leçon d’aujourd’hui porte sur le pardon.
 
@@ -27,11 +27,7 @@ Soyez en paix, car Dieu est avec vous. Marchez dans la lumière, car c’est là
 
 Avec amour, et une bénédiction pour tous ceux qui liront ceci,
 
-Je suis Yeshua bar Yosef<sup id="a1">[1](#f1)</sup>, le Chemin, la Vérité et la Vie.
+Je suis Yeshua bar Yosef <sup id="a1">[1](#f1)</sup>, le Chemin, la Vérité et la Vie.
 <small>
 
 1. <large id=”f1”> Pour une raison quelconque, Yeshua a aujourd’hui utilisé, dans son nom, le terme araméen « bar » plutôt que le terme hébreu « ben ». Veuillez également remarquer, en référence au contenu de ce message, que je (le médium) réside en Amérique du Nord.[↩](#a1) 
-
-
-
-

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu 
+### Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu
 
 White Eagle - reçu par Jimbeau Walsh le 19 Avril 2020, Punalu’u, Oahu, Hawaii, USA
 
@@ -22,6 +22,3 @@ Sur cette Terre bien-aimée, beaucoup se réveillent pour réaliser à quel poin
 Ainsi, où que vous soyez, en vous rapprochant de Dieu, de la Lumière et de l’Amour du Créateur, vous recevrez et ne ferez qu’un car il n’y a qu’une seule tribu et un seul Dieu. Que chacun dans ce Cercle, cette roue de médecine, frappe le tambour de la vie pour que vos esprits soient élevés, chaque âme bénie dans l’unité avec le Créateur. Nous sommes vraiment avec vous en cette période de guérison et de transition, car vous êtes vraiment un comme nous le sommes dans l’Amour du Créateur.
 
 Que Dieu vous bénisse, vous soutienne, vous protège. Je suis votre frère. Je suis Aigle Blanc.
-
-
-

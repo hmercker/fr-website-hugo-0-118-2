@@ -26,8 +26,3 @@ Marchez avec amour dans vos cœurs, mes amis. Marchez avec une connaissance et u
 Tant que votre engagement sera fort, les bienfaits et les effets des bénédictions de Dieu sur vous et sur les anges qui vous entourent continueront à être avec vous à chaque instant ; à chaque instant, mes amis. Il n’y a rien qui puisse vous arrêter. Il n’y a rien qui ne soit pas fait. Il n’y a que la marche en avant qui est motivée par votre désir profond de grandir dans vos âmes, d’être fidèle à Dieu, fidèle à votre propre identité1 et d’être dans ce flux et cette harmonie qui est le contact de Dieu avec vous, vous guidant, vous protégeant, vous aimant et nourrissant vos âmes.
 
 Que Dieu vous bénisse au cours de ce voyage, mes amis. Je suis Seretta Kem. Mon amour est avec vous, et sachez que je continue à être celle qui vous aide à sauvegarder ce don et à le faire fructifier. Je continue à vous guider et à vous soutenir, à vous aimer et à vous nourrir. Je suis votre amie. Je suis avec vous, je ne vous quitterai jamais, je serai toujours à vos côtés. Que Dieu vous bénisse et vous garde près de Son sein dans l’Amour et la Lumière. Que Dieu vous bénisse. Seretta Kem vous aime.
-
-
-
-
-

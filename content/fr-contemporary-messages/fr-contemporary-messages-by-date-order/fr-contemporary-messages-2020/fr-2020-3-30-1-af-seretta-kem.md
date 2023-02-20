@@ -40,6 +40,3 @@ Beaucoup d’entre vous se sentent très interpellés, mais je vous dis que ce n
 Que Dieu vous bénisse dans cet effort pour connaître votre propre âme et connaître la grande âme de Dieu. Tant de choses viendront de cette façon. Vous êtes en train de donner naissance à un nouveau paradigme de compréhension. L’âme vous montrera le chemin et vous apportera un par un les dons qu’elle possède, bénissant votre esprit de toutes sortes d’expériences. Ouvrez-vous à ce lieu de reconnaissance où l’âme et l’esprit sont connectés et communiquent ensemble dans la prière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je vous remercie pour tous vos efforts, vos désirs de rechercher l’âme et donc de rechercher votre relation avec Dieu. Dieu est toujours avec vous. Nous sommes toujours avec vous. Sachez que cela est vrai et vous serez grandement bénis. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous.
-
-
-

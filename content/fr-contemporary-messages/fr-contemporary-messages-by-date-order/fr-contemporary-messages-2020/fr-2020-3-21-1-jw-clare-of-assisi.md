@@ -17,8 +17,3 @@ Je suis la fondatrice de l’ordre des Clarisses et bien que vous puissiez vous 
 Oui, l’univers est vaste et le Royaume est au-delà de l’imagination humaine, mais vous avez établi une connexion dans la Lumière et dans l’Amour. Cela ne peut être brisé. C’est le pont entre le ciel et la terre et vous êtes dessus.
 
 Je reviendrai encore et je vous guiderai et serai votre sœur dans ce voyage vers la Fontaine de l’Amour de Dieu. Que Dieu vous bénisse. Je suis votre sœur dans les royaumes Célestes, Claire.
-
-
-
-
-

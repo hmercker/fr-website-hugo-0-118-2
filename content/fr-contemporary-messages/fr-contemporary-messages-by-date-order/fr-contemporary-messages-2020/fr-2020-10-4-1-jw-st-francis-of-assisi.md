@@ -22,6 +22,3 @@ Au-delà de tout le dogme, du catéchisme et de l’ordre de l’église de mon 
 Ce secret que vous avez dans vos cœurs et cet amour que vous avez dans vos âmes et la Présence de Dieu et la lumière sur votre chemin vous porteront vers l’immortalité et les Cieux Célestes. J’ai déjà dit que l’Amour Divin est le pont entre le ciel et la terre et vous marchez sur ce pont. Nous marchons avec vous. Encore une fois, je vous remercie d’honorer mon travail, mais je vous dis qu’il y en a beaucoup qui bien qu’inconnus dans le monde sont honorés ici dans ce royaume et aident à ce travail. Nous sommes ici à vos côtés. Que la paix de l’amour de Dieu soit avec vous tous sur votre chemin vers son royaume.
 
 Je suis votre frère et votre ami dans l’amour de Dieu. Je suis François. Que l’amour de Dieu soit avec vous tous.
-
-
-

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La voie, la lumière, la vérité 
+### La voie, la lumière, la vérité
 
 Judas - reçu par Jimbeau Walsh le 23 Juin 2020, Punalu’u, Oahu, Hawaii, USA
 
@@ -20,7 +20,3 @@ Alors, sachant que je voulais faire comprendre à mon cher frère ici présent, 
 Ainsi, lorsque nous avons entendu les paroles de Jésus, nos âmes ont su qu’il possédait la Vérité et que ce qui émanait de lui était une Lumière, éclairant le monde, éclairant notre monde. Il nous a montré le chemin du Royaume de l’Amour de Dieu, le Chemin, la Lumière, la Vérité. Son souhait pour tous est de porter dans vos âmes cet Amour dont le cher frère Élie a parlé. Portez cette Lumière à tous. Imaginez que vos paroles, qu’elles soient sérieuses, humoristiques ou plaisantes, soient comme une prière à chacun. Il est si important, si nécessaire, de transmettre des paroles de Vérité, des paroles d’Amour, des paroles de pardon, des paroles d’encouragement et d’espoir à tous, particulièrement pendant cette période sur Terre.
 
 Vous qui êtes si bénis par ce grand Amour de Dieu que vous nous attirez dans votre cercle alors que vous êtes touchés par l’Amour de Dieu. Nous sommes touchés par vos cœurs et sommes heureux de vous servir. Que l’Amour et la Lumière du Père Céleste, le Très Saint soit vôtre. Puissiez-vous faire briller cette Lumière et donner à tous cet Amour et cette espérance dans la foi. Je suis votre frère et votre ami dans l’Amour de Dieu. Je suis Judas de Kerioth.
-
-
-
-

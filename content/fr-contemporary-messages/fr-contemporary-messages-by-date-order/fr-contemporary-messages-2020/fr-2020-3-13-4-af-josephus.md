@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité s'étendra à mesure que votre âme s'éveillera
 
-Flavius Joseph - reçu par Al Fike le 13 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 13 Mars 2020, Gibsons, Colombie-Britannique, Canada
 
 J’entends ta question, cher frère. Je comprends que tu ais un profond désir d’obtenir des informations plus complexes et de comprendre les Lois de l’Esprit et les Lois de l’Amour de Dieu afin de pouvoir enseigner et partager des informations vitales à vos interlocuteurs qui les aideront dans leur développement de l’âme.
 
@@ -51,7 +51,7 @@ Puissiez-vous trouver toutes les réponses que vous cherchez à travers les facu
 
 Mon cher ami, as-tu d’autres questions ? Je sais que j’ai répondu à celle-ci de manière détournée, mais je ne vois pas d’autre façon de dire la Vérité que ce que j’ai dit.
 
-*Question : « Eh bien, tout d’abord, je tiens à beaucoup vous remercier. Je comprends la difficulté de la chose. Et je comprends que lorsque vous dites que vous devez commencer par la dénomination la plus basse. J’ai une question, qui m’est venue à l’esprit tout à l’heure, lorsque j’ai parlé d’une personne née dans ce monde avec une certaine énergie endommagée dans son âme et son corps. Et l’une des choses dont je me suis rendu compte, c’est que nous n’honorons pas toujours ceux que nous ressentons comme étant plus basiques par rapport à ceux que nous voyons comme étant plus intellectuels ou ayant une compassion plus sincère. De votre point de vue, suis-je sur la bonne voie de compréhension ? »*
+*[Question : Eh bien, tout d’abord, je tiens à beaucoup vous remercier. Je comprends la difficulté de la chose. Et je comprends que lorsque vous dites que vous devez commencer par la dénomination la plus basse. J’ai une question, qui m’est venue à l’esprit tout à l’heure, lorsque j’ai parlé d’une personne née dans ce monde avec une certaine énergie endommagée dans son âme et son corps. Et l’une des choses dont je me suis rendu compte, c’est que nous n’honorons pas toujours ceux que nous ressentons comme étant plus basiques par rapport à ceux que nous voyons comme étant plus intellectuels ou ayant une compassion plus sincère. De votre point de vue, suis-je sur la bonne voie de compréhension ?]*
 
 Ton âme commence à s’ouvrir, fils bien-aimé, et tu vois les choses de ce point de vue. Comme tu le fais, tu dois interpréter ce que tu perçois avec ton esprit, donner un sens, comme tu veux, à ce que tu perçois. Je dois dire que le noyau de ta perception est la Vérité. Vous entourez ce noyau de Vérité d’une reconnaissance attentive, puis vous souhaitez extrapoler sur cette Vérité avec votre esprit. C’est un processus très précaire, car il est facile de mal interpréter ce noyau de vérité dans votre esprit et de voir sa vérité démontrée dans le monde. Dans une certaine mesure, tu as raison, mon fils, mais dans une certaine mesure, tu n’as pas raison. Mais tu dois avoir la foi qu’en continuant à grandir dans cette voie et cette perception, la Vérité deviendra plus claire au fur et à mesure que tu continueras. L’esprit, cependant, peut contrôler et prendre cette décision, ce choix, d’ignorer la possibilité d’étendre la vérité qui est connue, et se sentir comme si ses conclusions sont correctes et pleinement en alignement avec la Vérité. Ainsi, vous, et tous ceux qui recherchent la Vérité, devez réaliser que vous n’en avez qu’une partie et que, avec le temps, la Vérité doit s’étendre, évoluer et grandir dans votre conscience afin que vous puissiez être en mesure d’enseigner plus complètement, plus largement la Vérité que vous connaissez.
 
@@ -61,9 +61,6 @@ Je te le dis donc, mon ami bien-aimé, tu es sur la bonne voie. Tu marches sur l
 
 Que Dieu vous bénisse dans ce voyage, mon ami.
 
-*« Merci. »*
+*[Merci.]*
 
 Et maintenant, je crois que nous allons conclure notre temps ensemble. J’espère que ceux qui se trouvent dans ce petit Cercle de Lumière ont pu glaner un peu de compréhension, d’inspiration et de perspicacité. Je sais que nous avons traité de sujets quelque peu complexes. Écoutez votre âme. Mon espoir est que ces paroles soient enregistrées, que vous puissiez les relire, et peut-être même plusieurs fois, pour glaner la compréhension des choses dont je parle. Dieu vous bénira tous avec la Vérité, mes amis. C’est la Volonté de Dieu. Car lorsqu’une âme est sincère dans sa recherche, Dieu bénira cette âme avec la Vérité et l’Amour. Puissiez-vous trouver tout ce que vous cherchez et parvenir à connaître votre véritable moi dans toute sa beauté et sa gloire. Et moi, à ma façon, je viendrai vous aider dans ce voyage. Que Dieu vous bénisse, bien-aimés, belles âmes, que Dieu vous bénisse profondément dans Son Amour. Je suis Flavius Josèphe et je vous aime tendrement. Que Dieu vous bénisse.
-
-
-

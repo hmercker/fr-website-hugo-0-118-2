@@ -26,6 +26,3 @@ Vous avez trouvé un puissant chemin de lumière, un chemin qui est directement 
 Vous êtes profondément bénis, âmes bien-aimées. Reconnaissez cette bénédiction. Permettez-vous de vous éveiller, de ressentir profondément votre propre âme, de connaître cet endroit doux et innocent mais vulnérable en vous qui ressent tant de choses, qui sait tant de choses, car il est nourri par Dieu. Vous trouverez votre chemin, et nous vous accompagnerons dans ce voyage. Notre amour est avec vous. L’Amour de Dieu est avec vous. Tout ce qui est amour est avec vous.
 
 Alignez-vous sur cela. Cherchez l’harmonie qui vient avec cela et soyez l’enfant de Dieu que vous êtes vraiment. Que Dieu vous bénisse, mes bien-aimés. Je suis Joseph et je marche avec vous sur votre chemin. Que Dieu vous bénisse.
-
-
-

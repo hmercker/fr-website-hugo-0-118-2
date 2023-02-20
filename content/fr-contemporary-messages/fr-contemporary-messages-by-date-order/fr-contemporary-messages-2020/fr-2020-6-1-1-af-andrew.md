@@ -28,7 +28,3 @@ Ayez de la compassion pour ces âmes qui commencent à s’éveiller et à voir 
 Continuez dans ces efforts. Continuez à prier ensemble et continuez à demander et à être ouverts à la guidance de Dieu, pour être Ses instruments, Ses serviteurs de l’Amour. Que Dieu vous bénisse sur ce chemin, âmes bien-aimées. Nous sommes avec vous, notre amour vous entoure. L’Amour de Dieu continue à se déverser dans vos âmes, éveil, éveil, âmes bien-aimées. C’est le début, et la floraison de votre âme continuera à émerger dans la Lumière de l’Amour de Dieu.
 
 Que Dieu vous bénisse. Je suis André et mon amour est avec vous tous. Dieu vous bénisse, âmes bien-aimées, Lumières du monde, détenteurs de la clé du salut des âmes et de la réconciliation avec Dieu. Que Dieu vous bénisse.
-
-
-
-

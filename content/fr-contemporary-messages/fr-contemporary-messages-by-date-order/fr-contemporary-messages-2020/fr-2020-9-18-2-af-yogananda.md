@@ -11,7 +11,7 @@ weight:
 
 Yogananda - reçu par Al Fike le 18 Septembre 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/yogananda.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-yogananda.jpg)
 
 Je vous souhaite, mes amis, un véritable réveil de l’amour et de la lumière, et une prise de conscience de toutes les réalités de Dieu. Je suis votre ami Yogananda et je suis venu parce que vous m’avez appelé avec les commentaires de notre frère bien-aimé qui a parlé avec tant d’éloquence de mon voyage en Amérique du Nord. Il a eu raison de dire que j’étais réticent à aller dans un endroit si différent de celui où j’ai grandi et où j’étais habitué. La culture de l’Inde est tellement différente de celle de l’Amérique du Nord. Pourtant, j’ai été contraint, contraint par Dieu, de marcher sur les rives de ce vaste continent, de parler à ses peuples et d’être un fournisseur de la vérité telle que je la connaissais à l’époque. Les gens étaient avides et affamés de mes paroles et voulaient qu’on leur enseigne comment aller vers Dieu, comment aller en eux-mêmes, comment cultiver la lumière en eux-mêmes et dans leur vie.
 
@@ -34,7 +34,3 @@ Si peu de gens souhaitent travailler dans ces domaines, mettre leurs efforts en 
 Cherchez le Royaume, comme l’a dit notre frère Jésus, et toutes les réalités viendront. Soyez dans la Grâce de Dieu et toutes les réalités deviendront faciles et couleront à flots. Cherchez à vous aimer et cela renforcera tous vos dons, toute la vérité en vous. Cherchez à aimer Dieu et vous serez dans la béatitude de Son Amour.
 
 Que Dieu vous bénisse, mes amis. Je suis en effet Yogananda, votre frère, votre ami, votre serviteur, celui qui aime Dieu. Je suis avec vous dans vos luttes. Je m’efforcerai de vous aider et de vous enseigner. Que Dieu vous bénisse, mes amis, belles âmes, frères et sœurs, tous dans ce grand voyage. Mon amour est avec vous. Ma joie est avec vous. Que Dieu vous bénisse.
-
-
-
-

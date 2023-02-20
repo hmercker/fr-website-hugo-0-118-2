@@ -19,14 +19,9 @@ Parfois dans la vie, vous avez une épiphanie où ce qui n’était pas clair au
 
 Priez seulement pour être transformé dans l’Amour de Dieu, pour marcher dans la grâce, pour être dans le flux, et tout deviendra clair. Et beaucoup seront bénis par Dieu grâce à vos dons. Quelle merveilleuse chose !
 
-Cette veille, je serai auprès de la chère sœur<sup id=”a1”>[1](#f1)</sup> qui se rétablit et je l’entourerai de mon amour. J’espère vous avoir rendu service, et je suis ravi d’avoir eu l’occasion de m’exprimer à nouveau. Que Dieu vous bénisse et vous couvre d’amour.
+Cette veille, je serai auprès de la chère sœur <sup id=”a1”>[1](#f1)</sup> qui se rétablit et je l’entourerai de mon amour. J’espère vous avoir rendu service, et je suis ravi d’avoir eu l’occasion de m’exprimer à nouveau. Que Dieu vous bénisse et vous couvre d’amour.
 
 Je suis votre sœur et amie dans le Christ. Je suis Claire.
 <small>
 
 1. <large id=”f1”> Se référant à Ruth D.[↩](#a1)
-
-
-
-
-

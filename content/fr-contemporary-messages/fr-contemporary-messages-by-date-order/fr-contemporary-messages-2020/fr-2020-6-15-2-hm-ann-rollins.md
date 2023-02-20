@@ -22,6 +22,3 @@ Comme nous sommes heureux de voir les ouvertures et les nouvelles possibilités 
 Notre venue vers vous qui êtes sur la Terre est également déterminée par les âmes de la Terre qui désirent notre aide et notre amour. Nous sommes attirés par vos prières et vos désirs de recevoir l’Amour de Dieu et de suivre sa volonté. Nous venons en reconnaissance pour aider nos frères et sœurs bien-aimés dans ce monde, ceux qui semblent être perdus et sans direction, se sentant sans but, seuls et mal aimés. Oh, chères âmes, tant d’amour et d’aide vous attendent. Les bras d’Amour de Dieu attendent de vous embrasser.
 
 Exprime tes prières, chère fille, car tes prières seront exaucées. Dieu enverra ses anges pour venir t’aider à apporter sa touche bienveillante à ton monde. Nous sommes proches. Je suis avec toi dans la prière. Je reviendrai pour manifester ma présence de façon plus évidente, pour partager des vérités et pour te faire connaître mon amour et faire connaître ton travail. Ma fille, nous te saluons ce matin. Je suis avec toi. Que Dieu continue à te bénir, mon âme bien-aimée. Ton cher ange ami est proche, je suis ton aide et ton amie, Anne Rollins.
-
-
-

@@ -28,6 +28,3 @@ Tant de choses en vous sont encore peu comprises ou exprimées et tant de choses
 Soyez en paix, âmes bien-aimées et sachez que chacun d’entre vous a un Ange à ses côtés en permanence, guidant et protégeant, les instruments de lumière et d’amour de Dieu. Pour ceux qui sont ouverts et réceptifs pour avoir cette grande bénédiction sur eux, cherchez toujours le Dieu Amour. Aspirez à ce cadeau qui ouvre la porte à de nombreux cadeaux et vous serez en sécurité et protégés, forts, perspicaces, et capables de tendre la main à beaucoup d’autres et de les aider à s’élever vers la lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Adriana. Je suis heureuse d’être ici avec ce petit groupe d’âmes si sérieuses et si brillantes. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

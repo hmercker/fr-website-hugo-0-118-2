@@ -17,7 +17,7 @@ Comme vous le savez tous, le monde change et se transforme. Les attitudes change
 
 Vous n'avez pas besoin d'être présent auprès de nombreuses personnes pour être un serviteur de Dieu. La prière est un véhicule puissant pour le service. Lorsque vous pensez à une autre personne avec amour et que vous demandez à Dieu de la bénir dans la prière, vous établissez une connexion profonde d'âme à âme avec cette personne ou ce groupe de personnes. Vous entrez dans un état d'esprit et une présence particuliers dans le monde par cette porte ouverte qu'est la prière. En franchissant le seuil et en regardant vers le ciel, en demandant à Dieu de bénir ceux que vous aimez et ceux qui sont dans le besoin, de bénir le monde qui en a grand besoin, vous activez les Lois et apportez une réponse de Dieu.
 
-Cela donne également un élan à notre travail en tant qu'anges de Dieu. Cela nous permet de passer plus facilement dans votre monde. Cela nous permet, grâce à votre instrumentalité, d'atteindre de nombreuses autres âmes, que vous le fassiez dans ce Cercle de Lumière ou que vous le fassiez individuellement au cours de votre journée. Rappelez-vous que chaque prière honnête et sincère que vous faites pour le bien d'autrui, vous utilisez cette Loi, la Loi d'Activation.<sup id=”a1”>[1](#f1)</sup> Vous êtes ainsi un instrument de Dieu, un canal permettant à Dieu de se rapprocher de votre monde.
+Cela donne également un élan à notre travail en tant qu'anges de Dieu. Cela nous permet de passer plus facilement dans votre monde. Cela nous permet, grâce à votre instrumentalité, d'atteindre de nombreuses autres âmes, que vous le fassiez dans ce Cercle de Lumière ou que vous le fassiez individuellement au cours de votre journée. Rappelez-vous que chaque prière honnête et sincère que vous faites pour le bien d'autrui, vous utilisez cette Loi, la Loi d'Activation <sup id=”a1”>[1](#f1)</sup>. Vous êtes ainsi un instrument de Dieu, un canal permettant à Dieu de se rapprocher de votre monde.
 
 Vous voyez que tant d'âmes dans votre monde sont très éloignées de Dieu. Les pensées de Dieu ne sont pas cultivées ou acceptées. C'est un état d'esprit très précaire, n'est-ce pas, lorsque l'âme, dont la nature est d'être avec Dieu, n'a pas la possibilité de le faire parce que l'esprit a résolu de ne pas atteindre Dieu parce que la croyance de l'esprit rejette Dieu.
 
@@ -45,7 +45,3 @@ Que Dieu vous bénisse, mes amis. Je suis Michaël Collier et je vous remercie d
 <small>
 
 1. <large id=”f1”> La Loi d'Activation a été décrite pour la première fois par Jésus il y a de nombreuses années. Ce message est accessible par [ce lien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-20-1-dl-jesus/).[↩](#a1)
-
-
-
-

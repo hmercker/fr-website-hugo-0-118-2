@@ -22,6 +22,3 @@ Vous serez tous guidés, mes bien-aimés. Ne sentez-vous pas en vous une excitat
 Vos âmes dansent de joie et nous, dans le royaume Céleste, célébrons ensemble vos grands efforts, votre acceptation de la volonté de Dieu, ce voyage qui se déroule dans le service et l’amour.
 
 Que Dieu continue à vous bénir avec un plus grand éveil, avec une plus grande capacité et compréhension de la Vérité avec une âme qui résonne avec l’amour, exprime l’amour et est motivée par l’amour. Que Dieu vous bénisse, chers amis, votre professeur Salyards continue à travailler avec vous et à superviser ces grands efforts. Que Dieu vous bénisse, chers amis, chers amis. Que Dieu vous bénisse.
-
-
-

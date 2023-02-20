@@ -22,6 +22,3 @@ J’ai vécu une époque troublée, une guerre et la pauvreté, et j’ai réali
 Je progresse en tant qu’esprit et je prie avec vous pour recevoir l’amour de Dieu et c’est ce que je souhaite pour tous et pour moi-même. Que vous soyez une merveilleuse bénédiction pour le monde. Apportez la joie, soyez ouverts à l’Amour, trouvez le bonheur au-delà de la tristesse. Voyez la lumière à travers l’obscurité !
 
 Que Dieu bénisse chacun avec un grand afflux de cet Amour Divin. Merci de m’avoir permis de venir. Mon amour à tous. Que Dieu vous bénisse, je suis Charles.
-
-
-

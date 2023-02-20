@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 5 Novembre 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/argentine.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-argentine.jpg)
 
 Je suis votre frère et votre ami, Jésus. Je viens une fois de plus pour parler comme je l’ai promis. Avant de commencer, je tiens à assurer mon cher frère et ma chère sœur que leur amie bien-aimée (B) a bien été transportée dans le monde des esprits par ma main et qu’elle a été bénie par de nombreuses présences d’esprits et d’anges qui l’ont saluée et reconnue lors de son décès, car c’était une âme chère et aimée qui continue à trouver sa voie dans le monde des esprits et à servir Dieu par des moyens plus adaptés à la vie des esprits. Oui, elle est passée dans la cinquième sphère, ce qui est remarquable, car très, très peu d’âmes de votre plan terrestre sont passées directement dans cette sphère. Sa joie est grande. Son amour pour vous tous est grand. Elle continuera à servir Dieu et à profiter à tous ceux d’entre vous qui sont connectés et qui aiment cette chère âme, cette chère et belle âme qui est aimée par Dieu et qui aime Dieu.
 
@@ -76,7 +76,3 @@ Je vous laisse avec ces pensées, mes chers et beaux frères et sœurs. Sachez q
 Que Dieu continue à vous bénir profondément, âmes bien-aimées, et à vous réveiller pleinement avec Son Amour afin que vous et moi, ainsi que tous les anges du Ciel et les esprits brillants qui cherchent à servir Dieu de cette façon, marchions ensemble dans l’unité, servions Dieu de façon remarquable et amenions beaucoup de gens à la Vérité de Son Amour. Cela a toujours été ma mission et je vous encourage à vous joindre à moi dans ce grand effort pour éveiller le monde à l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère, votre enseignant, votre ami. Je suis Jésus, Maître des Cieux Célestes et je suis heureux d’être venu aujourd’hui pour vous parler à tous. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous.
-
-
-
-

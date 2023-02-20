@@ -24,6 +24,3 @@ Mais vous savez que le secret de l’âme est d’être humble devant votre Cré
 Je vous le dis, peu importe à travers quelle lentille vous voyez le monde ou la vie spirituelle, à travers quelle philosophie ou quelle science, car lorsque vous ouvrez votre cœur, que vous avez confiance en une foi sincère et que vous appelez du fond de votre âme ce trésor qui dépasse tous les trésors terrestres, vous le recevez. C’est simple. Cest Divin. C’est l’amour de Dieu. Son souhait pour vous.
 
 Mes chers frères et sœurs, vous êtes bénis et vous avez votre place ici. Ne craignez rien, Dieu est miséricordieux. Je suis votre frère et ami dans le Christ. Je suis François. Allez avec Dieu.
-
-
-

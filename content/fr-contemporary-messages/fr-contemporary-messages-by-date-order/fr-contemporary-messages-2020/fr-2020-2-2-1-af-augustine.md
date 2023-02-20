@@ -40,6 +40,3 @@ Mes bien-aimés, chers étudiants, sachez que vous êtes sur le bon chemin. Vous
 La Volonté de Dieu sera là. La Volonté de Dieu apportera tout à vous et vous apporterez tout à beaucoup. Vous êtes plus proches. Chaque jour vous vous rapprochez et cela nous apporte une grande joie de voir vos progrès, de voir que vous continuez avec un profond désir dans vos âmes d’être dans le flux de la Volonté de Dieu, Sa grande rivière d’Amour vous porte en avant, toujours en avant sur ce voyage de service, de Vérité, d’éveil et de partage de votre amour.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis votre maître, Augustin. Mon amour est avec vous. Puissiez-vous ressentir cet amour que les anges ont pour chacun de vous et connaître et réaliser dans vos cœurs le grand Amour que Dieu a pour vous et le faire vôtre, mes bien-aimés. Faites-en une partie véritable et vivante de vous-mêmes à chaque respiration que vous prenez. Que Dieu vous bénisse. Votre maître Augustin, je suis avec vous et je vous aime. Que Dieu vous bénisse.
-
-
-

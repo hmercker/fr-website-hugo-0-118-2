@@ -20,6 +20,3 @@ C’est une conscience, et ainsi, avec votre grande conscience de l’âme, vous
 Avec tout mon amour et mes bénédictions et la protection du Royaume Céleste, que l’Amour de Dieu soit sur vous et transforme vos âmes.
 
 Dans Son Amour, je vous dis adieu pour l’instant, je suis Yogananda.
-
-
-

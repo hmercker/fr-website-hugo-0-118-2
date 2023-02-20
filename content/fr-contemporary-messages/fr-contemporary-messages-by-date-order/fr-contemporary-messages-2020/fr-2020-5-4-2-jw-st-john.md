@@ -23,10 +23,3 @@ Je suis votre frère dans l’Amour de Dieu et un disciple du Maître comme vous
 <small>
 
 1. <large id=”f1”> En référence à l’apparition de deux anges à ce médium en 1987.[↩](#a1)
-
-
-
-
-
-
-

@@ -18,8 +18,3 @@ Lorsque j’ai prononcé les mots *« Soyez le changement que vous souhaitez voi
 Apportez cela au monde. Apportez avec vous ce que vous voulez dans la bonté et la charité et tout ce que vous pouvez donner sur le plan matériel mais surtout soyez présents avec l’Amour que vous avez dans vos âmes. Partagez ce don, soyez ce changement. Comme vous le savez, c’est tout ce qui compte vraiment et cet Amour, cet Amour Divin, changera tout. Il attirera vers vous tout cadeau bon et parfait. Il apportera la paix partout où vous marcherez. Il vous apportera la protection et la joie dans vos cœurs.
 
 Oh comme nous souhaitons voir cela dans le monde. Soyez la lumière parce que vous êtes les enfants de Dieu comme nous le sommes. Que la Lumière et l’Amour de notre glorieux Créateur soient dans vos âmes et brillent de vous à chacun. Que Dieu vous bénisse tous. Je suis votre frère et ami, une âme rachetée et un habitant des Cieux Célestes. Je suis Gandhi.
-
-
-
-
-

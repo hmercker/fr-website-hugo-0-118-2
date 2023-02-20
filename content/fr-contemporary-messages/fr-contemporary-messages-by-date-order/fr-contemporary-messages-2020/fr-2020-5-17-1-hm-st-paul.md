@@ -1,13 +1,13 @@
 ---
-title: "Sur la prière "
+title: "Sur la prière"
 menu_title: ""
-description: "Sur la prière "
+description: "Sur la prière"
 date: 2022-06-01 06:00:01+00:1107
 draft: False
 hidden: True
 weight:
 ---
-### Sur la prière 
+### Sur la prière
 
 St Paul - reçu par Helge Mercker le 17 Mai 2020, Elim, Namibie
 
@@ -26,6 +26,3 @@ Les âmes affamées et les âmes nostalgiques cherchent un moyen de se connecter
 Le sujet de la prière a de nombreuses facettes, car les prières sont aussi variées que les âmes, et pourtant c’est l’un des aspects les plus importants de votre voyage dans la vie. Vous connaissez la prière, alors priez avec les autres, enseignez l’Amour de Dieu et comment l’obtenir et le vivre.
 
 Mon amour est avec vous. Dieu vous bénisse, je suis Paul et je souhaite continuer mon discours sur la prière. Que Dieu vous bénisse de son amour alors que je prie avec vous. Que Dieu vous bénisse.
-
-
-

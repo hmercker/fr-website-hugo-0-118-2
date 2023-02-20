@@ -22,6 +22,3 @@ Finalement, les ordres spirituels qui ont été fondés en mon nom et au nom de 
 Que votre sainte communauté prospère et bénisse ce monde dans l’Amour de Dieu et dans la simplicité et la durabilité dont la terre a besoin. Je célèbre avec vous aujourd’hui la réalité de la vie éternelle dans l’Amour de Dieu et j’embrasse chacune de vos précieuses âmes. Tout mon amour et mes bénédictions à chacun d’entre vous. Que Dieu continue à vous bénir.
 
 Je suis votre frère et ami François.
-
-
-

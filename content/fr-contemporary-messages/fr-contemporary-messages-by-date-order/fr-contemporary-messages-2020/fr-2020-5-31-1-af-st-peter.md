@@ -11,7 +11,7 @@ weight:
 
 St Pierre - reçu par Al Fike le 31 Mai 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/spiritualite-12-1.jpg) 
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-spiritualite-12-1.jpg)
 
 Âmes bien-aimées, c’est moi, Pierre. J’ai bénéficié du don de la Pentecôte, cette grande pluie d’Amour de Dieu dans mon âme et dans les âmes de mes frères, alors que nous nous réunissions dans cette pièce, nous rassemblant secrètement, nous interrogeant sur notre sort et notre avenir, sous le choc de ce qui s’était passé et de la façon dont les pouvoirs en place avaient en effet cherché à nous disperser et à nous abattre, comme ils l’avaient fait pour notre Maître bien-aimé.
 
@@ -30,7 +30,3 @@ Il y a de nombreuses façons de servir Dieu, mes amis. Il y a beaucoup d’oppor
 Dans votre profond désir d’être avec Dieu, puissiez-vous aussi expérimenter les grandes flammes de la Pentecôte intérieure qui brûleront tout ce qui est résistant, craintif, ignorant et perdu dans les ténèbres. Vous serez reconquis dans l’Amour comme vous êtes profondément aimé par Dieu. Nous continuons à vous accompagner dans vos voyages dans ce grand et vaste monde de l’humanité. Puissiez-vous le savoir et vous réconforter en cela, que nous sommes avec vous et que Dieu est avec vous et que nous ne vous quitterons jamais.
 
 Que Dieu vous bénisse, mes beaux amis, je suis Pierre. Je viens à vous pour vous encourager, pour vous inspirer, pour que vous puissiez avancer dans le grand travail qui consiste à délivrer la Vérité de l’Amour à l’humanité pour l’éveiller à Dieu et à tout ce qui vient avec cet éveil. Dieu vous bénit, âmes bien-aimées, Dieu vous bénit tendrement. Mon amour est avec vous. Je suis Pierre. Que Dieu vous bénisse.
-
-
-
-

@@ -18,4 +18,3 @@ Lorsque j'ai considéré, alors que j'étais très malade, que si je devais quit
 Cette communauté connectée à travers le monde dont vous bénéficiez, quel cadeau pour chacun et quelle bénédiction. Vous vous réunissez dans cette prière, dans ce cercle avec les désirs dans vos cœurs, dans vos âmes de recevoir le plus grand cadeau de l'Amour de Dieu. Et dans la mesure où vous le permettez, croyez-moi, vous le recevrez. Qu'il vous élève, vous soutienne, vous transforme. C'est la Grâce du Don. Que chaque prière vous relie au royaume céleste et à l'amour de Dieu. Qu'elle soit vôtre. Et c'est ainsi.
 
 Je suis votre frère et ami dans l'amour de Dieu. Je suis François.
-

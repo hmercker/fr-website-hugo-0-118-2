@@ -48,6 +48,3 @@ Il y a un choix à faire. Chacun de vous le sait. Chacun d’entre vous est inte
 Puissiez-vous trouver votre chemin vers votre propre âme. C’est votre voyage. C’est votre défi. C’est ce qui vous a réunis dans l’amour. Que Dieu vous bénisse, âmes bien-aimées. Je partage ces propos pour vous élever, pour vous aider à voir plus clairement la lutte qu’est la vie sur votre Terre, les défis qui accompagnent cette vie, les possibilités qui font partie d’une vie spirituelle, une vie consacrée à la croissance de l’âme, au développement de l’âme, à l’éveil de l’âme, à l’éveil de votre propre relation avec Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. Mon Amour est avec Vous. Que Dieu vous bénisse.
-
-
-

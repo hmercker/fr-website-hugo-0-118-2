@@ -11,7 +11,7 @@ weight:
 
 Leytergus - reçu par Al Fike le 23 Juillet 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/spiritualite4-1.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-spiritualite4-1.jpg)
 
 Les vents du changement sont tout autour de vous et le Souffle de Dieu, Son Amour, est sur vous, chacun de vous. Je suis Leytergus. Je ne parle pas souvent à travers cet instrument, mais je suis proche de ces chères âmes qui continuent à voir la Vérité et à l’exprimer par divers moyens et manières afin d’apporter une plus grande lumière au monde et à ceux qui cherchent à être guidés et aidés dans leur vie quotidienne.
 
@@ -30,8 +30,3 @@ C’est ainsi que Dieu a voulu la vie, cette grande variété d’expression, de
 Puissiez-vous tous faire l’expérience et apprendre à connaître avec une conscience accrue et un grand Amour dans l’âme, un voyage de vie rempli de joie et d’émerveillement. Cherchez ce grand don, cette Essence de Dieu car c’est ce qui enflammera ces sensibilités, perceptions et appréciations plus fines de la vie. Alors que l’Amour de Dieu, l’Essence de son âme, se déverse sur vous tous, continue à grandir et à éveiller votre nature véritable, vous trouverez cette grande joie et cette appréciation. Elle grandira et grandira à mesure que votre vision s’approfondira. Quelle sera la profondeur de vos intuitions, de votre reconnaissance et de votre joie de vivre.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Leytergus. Je viens à vous en amour. Je suis un résident du Royaume Céleste où il y a une grande diversité. Il y a une grande beauté, un amour et une joie qui dépassent votre compréhension, mes beaux amis. Nous vous indiquons donc ce chemin car c’est ce que vos âmes recherchent. C’est ce que vous désirez vraiment et cela vous ouvrira les portes de la grande Vérité. Que Dieu vous bénisse. Mon amour vous embrasse tous. L’Amour de Dieu nous embrasse tous dans le grand firmament de cet Univers. Que Dieu vous bénisse, chers amis. Que Dieu vous bénisse.
-
-
-
-
-

@@ -44,8 +44,3 @@ Ces changements sont un grand cadeau. Je vous invite donc, lorsque vous êtes au
 Maintenant je vais vous donner notre ami bien-aimé, Flavius Joseph, qui répondra aux questions que vous lui poserez après mon intervention, ma sérieuse intervention, mais je crois qu’il a répondu à certaines de vos questions dans le déversement de ces mots et vérités.
 
 Que Dieu vous bénisse, je suis Keea Atta Kem et je suis heureux de vous parler aujourd’hui. Que Dieu vous bénisse tous, Dieu est avec vous. Rappelez-vous ceci, mes frères et sœurs bien-aimés, Dieu sera toujours avec vous et vous ne serez jamais seuls. Cherchez les bénédictions de Dieu, cherchez les ressources de Dieu qui sont ses anges, ses bénédictions et son amour. Cherchez ces choses, mes amis bien-aimés, et vous arriverez à connaître une mesure de paix en ces temps de grand tumulte. Que Dieu vous bénisse, merci et mon amour est avec vous.
-
-
-
-
-

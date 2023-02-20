@@ -18,7 +18,3 @@ Je vous (vais) donner un exemple évident : Pensez aux énormes sommes d’argen
 Vous n’avez pas besoin d’être préoccupé par les ténèbres, par les problèmes de ce monde. Je sais que vos cœurs sont touchés par les souffrances des autres. Je vous dis d’envisager de rester dans l’amour de Dieu afin de pouvoir vraiment toucher chaque âme, afin de devenir un aimant attirant ceux qui souhaitent ressentir cet amour pour être guéris, pour être dans la joie. Ils vous demanderont et vous pourrez leur répondre en vérité *« Que votre âme soit touchée par l’amour de Dieu. »* Chacun d’entre vous vient avec ce désir, alors exprimez-le. Mes chers amis, vous êtes si bénis. Je vous laisse avec mon amour, mes bénédictions et nous tous ici présents, nous vous embrassons dans l’amour du Créateur.
 
 Que Dieu vous bénisse et vous transforme. Paix. Je suis Yogananda.
-
-
-
-

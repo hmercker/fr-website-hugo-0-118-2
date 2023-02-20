@@ -16,6 +16,3 @@ Jésus - reçu par Al Fike le 17 Janvier 2020, Gibsons, Colombie-Britannique, Ca
 Vous êtes tous précieux pour moi et je serai avec vous alors que nous poursuivrons nos voyages ensemble vers l’union avec notre Père Céleste, en cherchant sa bénédiction d’Amour, en marchant dans cette lumière.
 
 Que Dieu vous bénisse. Mon amour, mon amour pour vous est grand et je marche avec vous tous. Que Dieu vous bénisse.
-
-
-

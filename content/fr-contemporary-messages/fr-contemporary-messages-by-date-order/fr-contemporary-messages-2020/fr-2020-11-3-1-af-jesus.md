@@ -30,6 +30,3 @@ Laissez-vous guider par les anges de Dieu. Laissez-vous guider par la lumière, 
 Que Dieu vous bénisse dans vos voyages, dans vos efforts, dans vos âmes. Je suis avec vous. Le pouvoir de mes prières est avec vous. Le pouvoir des prières du Royaume Céleste est avec vous. La Lumière du Toucher de Dieu continue à vous éveiller et à vous faire avancer sur ce chemin qui est si important et nécessaire dans votre monde.
 
 Bénédictions à vous tous, âmes bien-aimées. Je suis votre frère, votre maître, votre ami. Je suis Jésus et mon amour pour vous est grand. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

@@ -11,9 +11,9 @@ weight:
 
 Jacques - reçu par Al Fike le 25 Août 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/positive-thinking-3805169_1280.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-positive-thinking-3805169_1280.jpg)
 
-Âmes aimées, je suis Jacques<sup id=”a1”>[1](#f1)</sup>. L’humanité a une faim insatiable, un désir profond de connaître les curiosités du mental, d’être aimée, de chercher la vérité, de chercher à être souvent puissante, et de savoir comment se fortifier contre les dangers du monde. L’humanité est donc motivée par de nombreux désirs, ambitions et craintes créant autour d’elle une condition que nous appelons souvent la condition humaine. Dans cette quête sans fin au sein du monde matériel, à la recherche de compréhension et de connaissance, l’humanité néglige souvent de construire en son sein une base solide qui soit spirituelle.
+Âmes aimées, je suis Jacques <sup id=”a1”>[1](#f1)</sup>. L’humanité a une faim insatiable, un désir profond de connaître les curiosités du mental, d’être aimée, de chercher la vérité, de chercher à être souvent puissante, et de savoir comment se fortifier contre les dangers du monde. L’humanité est donc motivée par de nombreux désirs, ambitions et craintes créant autour d’elle une condition que nous appelons souvent la condition humaine. Dans cette quête sans fin au sein du monde matériel, à la recherche de compréhension et de connaissance, l’humanité néglige souvent de construire en son sein une base solide qui soit spirituelle.
 
 C’est pourquoi une si grande partie de ce qui a été construit dans le monde est vulnérable à de grands changements parce qu’elle n’a pas été construite avec sagesse et sensibilité spirituelle et en tenant compte des besoins de votre monde, de votre monde organique. Ces réalités sont inévitablement désynchronisées et en désaccord avec les lois de la création de Dieu. À cause de ces lois inexorables qui cherchent toujours à apporter l’harmonie à l’univers, les conditions dans votre monde sont en mutation. Le chaos règne dans votre monde à cause de sa condition spirituelle. Il est sombre. Il manque d’harmonie.
 
@@ -43,6 +43,3 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis James. Mon amour est avec vous.
 <small>
 
 1. <large id=”f1”> Il convient de rappeler que Jacques était un des frères de Jésus.[↩](#a1)
-
-
-

@@ -18,6 +18,3 @@ Beaucoup viendra à chacun de vous, mes amis. Je vous le dis, vous êtes profond
 Je suis avec vous. Je suis souvent avec vous. Cela donne à mon âme une grande joie de servir, cela donne à mon âme une grande joie que vous, chacun de vous, souhaitiez contribuer à l’éducation de l’humanité afin qu’elle puisse comprendre les potentialités de sa propre âme et qu’elle choisisse, dans cette compréhension, de suivre la voie de la communion avec Dieu par son Amour.
 
 Que Dieu vous bénisse alors que vous continuez à faire ces efforts. Nombreux sont ceux qui sont avec vous. Et nous continuerons ainsi dans cette grande quête pour accomplir le plan de Dieu pour le salut de l’humanité. Que Dieu vous bénisse, âmes bien-aimées, je suis le professeur Salyards. Je suis avec vous dans ce grand effort. Que Dieu vous bénisse.
-
-
-

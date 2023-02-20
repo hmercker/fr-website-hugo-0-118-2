@@ -11,7 +11,7 @@ weight:
 
 Abraham Lincoln - reçu par Al Fike le 28 Décembre 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/abraham-lincoln-1.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-abraham-lincoln-1.jpg)
 
 Je suis Abraham Lincoln. Depuis que ce médium a lu mes efforts en matière de spiritualisme, il m’a attiré à lui Comme vous le savez, je fais partie du Royaume Céleste et j’ai fait un grand et fulgurant voyage à travers les sphères de l’esprit jusqu’aux Cieux de Dieu. J’ai appris à connaître le pouvoir de l’Amour Divin pour me transformer et faire de moi un esprit de lumière et d’amour qui illustre les vérités du frère bien-aimé et Maître Jésus qui a enseigné ces vérités.
 
@@ -52,4 +52,3 @@ Continuez à vous préparer dans la Lumière de l’Amour de Dieu, à être en h
 Je vous remercie d’avoir écouté mes paroles. Je remercie cet instrument de m’avoir permis de prendre la parole aujourd’hui. J’espère revenir à un autre moment et parler des réalités qui sont de Dieu, des aspirations supérieures de l’homme et de toutes les choses qui sont un reflet de l’amour et de la vérité.
 
 Que Dieu vous bénisse. Je suis Abraham Lincoln. Je me joins à vos efforts, je continuerai à aller de l’avant dans cette grande bataille pour la lumière, pour l’amour et pour l’harmonie dans le monde. Que Dieu vous bénisse, chers amis. Que Dieu vous bénisse.
-

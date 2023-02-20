@@ -20,6 +20,3 @@ Jésus était notre guide et le frère François notre mentor. Ainsi, ce monde o
 Je suis si heureuse que vous ayez senti ma présence, car lorsque mes trois gentilles souris se réuniront, je vous verrai, et j’espère que vous trouverez mes conseils utiles. À tous ceux qui sont ici, je donne mon amour et mes bénédictions dans la grâce de Dieu.
 
 Je suis votre sœur dans le Christ, Claire d’Assise. Allez avec Dieu.
-
-
-

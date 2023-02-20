@@ -20,6 +20,3 @@ Il y a beaucoup de dons dans ce cercle, beaucoup qui restent à découvrir, beau
 Je reviendrai avec votre permission. Je remercie celui-ci de sa réception. Vous êtes tellement bénis d’avoir la guidance des esprits élevés qui vous aiment tant, qui vous informent tant, qui vous guident dans l’Amour de notre Créateur, dans l’unité, chaque âme unique rayonnant la Lumière dans ce monde.
 
 Que Dieu vous bénisse tous. Je suis votre frère et ami dans l’Amour Divin. Je suis Khalil Gibran.
-
-
-

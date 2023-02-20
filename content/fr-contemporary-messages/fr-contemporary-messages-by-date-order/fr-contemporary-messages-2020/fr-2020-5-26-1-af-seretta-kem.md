@@ -48,6 +48,3 @@ C’est à vous de déverrouiller cette porte, la porte de la résistance, la po
 S’il vous plaît, considérez ce qui est nécessaire, car le temps est court, mes bien-aimés. Nous souhaitons avoir des instruments forts et clairs dans le monde pour diriger, enseigner et aider les âmes perdues à trouver leur chemin. C’est quelque chose que vous vous êtes engagés à faire, non seulement à un certain moment de votre vie, mais avant même que vous ne soyez incarnés, vous avez assumé ce but. Il est temps d’embrasser pleinement cet engagement et d’être les belles âmes que vous êtes vraiment.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je souhaite vous dire à tous que vous êtes profondément aimés, que vous êtes beaux, et que vous avez un grand potentiel pour être véritablement les canaux d’Amour de Dieu dans le monde ; efficaces, puissants, merveilleux. Ce que vous avez accompli jusqu’à présent n’est que le signe avant-coureur de ce qui est à venir. Soyez préparés, soyez forts, soyez dans l’Amour de Dieu. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

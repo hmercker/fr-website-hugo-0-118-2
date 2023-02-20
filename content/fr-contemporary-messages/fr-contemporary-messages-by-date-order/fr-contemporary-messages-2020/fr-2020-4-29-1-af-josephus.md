@@ -9,7 +9,7 @@ weight:
 ---
 ### La créativité est la source de l'âme
 
-Flavius Joseph - reçu par Al Fike le 29 Avril 2020, Gibsons, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 29 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Fils et fille bien-aimés, je suis Flavius Josèphe. Je souhaite vous parler des capacités de l’âme en ce qui concerne sa créativité et ses expressions. Dieu a donné à chacun de Ses enfants de nombreuses capacités et facultés, tant de l’esprit que de l’âme. L’une des grandes capacités que possède l’humanité est une imagination qui peut s’exprimer de manière créative. La capacité de l’humanité à visualiser des objets et à les rendre réels dans le monde est un grand don. Cette créativité fait apparaître beaucoup de belles choses dans votre monde.
 
@@ -32,7 +32,3 @@ Ne doutez pas, âmes bien-aimées, que chacun a de grands dons. Chacun peut mett
 Comme je l’ai dit, lorsque l’âme et l’esprit sont de concert, la musique se déploie dans toute sa beauté. Puissiez-vous trouver votre chemin vers ces efforts créatifs qui apporteront de la joie à votre cœur, une compréhension plus profonde à votre âme et une plus grande expression de l’Amour de Dieu qui réside en vous et qui est une grande lumière qui motivera vos expressions. Chacun de vous est beau. Chacun d’entre vous est sur la route de la découverte de ce qu’est cette beauté et peut se manifester dans le monde.
 
 Bénédictions à vous, âmes bien-aimées. Puisse Dieu vous inspirer, vous élever avec son amour en vous apportant de nouvelles perspectives et capacités pour exprimer les merveilles de votre âme à travers l’instrument de votre esprit et de vos imaginations. Que Dieu vous bénisse, âmes bien-aimées. Je suis Flavius Josèphe. Je suis heureux de vous avoir parlé aujourd’hui des aspects magnifiques et édifiants de l’âme. Que Dieu vous bénisse. Mon amour est toujours avec vous. Je suis votre serviteur, Flavius Josèphe.
-
-
-
-

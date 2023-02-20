@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jane Gartshore le 6 Août 2020
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/paysage.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-paysage.jpg)
 
 Je viens de nouveau pour parler du pardon. C’est un sujet qu’il vaut la peine de répéter, pour ceux qui n’arrivent pas à accepter que cela reste une possibilité pour eux.
 
@@ -28,6 +28,3 @@ Il y a de l’amour qui attend chacun. Un amour sacré. Un amour du plus haut ni
 Venez à Dieu, vous tous. Tournez-vous vers la Lumière. Demandez Ses bénédictions. Demandez-lui de vous pardonner. Demandez à être montré le chemin de la rédemption de votre âme. Demandez et recevez. C’est la loi.
 
 Je suis Yeshua et je connais le chemin.
-
-
-

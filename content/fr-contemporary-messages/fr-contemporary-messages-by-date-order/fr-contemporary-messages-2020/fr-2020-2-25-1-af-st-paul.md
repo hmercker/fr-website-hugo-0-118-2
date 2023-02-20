@@ -22,6 +22,3 @@ Ne désirez-vous pas tous cela âmes bien-aimées, désirez-vous être en paix, 
 Dieu vous bénisse, âmes bien-aimées, vous garde dans Son Amour, vous garde dans cette Lumière, vous protège et vous guide, vous aime et vous nourrisse, en vous montrant le chemin au-delà de toutes les ténèbres et de la confusion, au-delà de toutes les inquiétudes, de la douleur et des conflits, au-delà de tout ce que la condition humaine peut apporter à ce lieu de clarté et de joie, de paix et d’amour. Puissiez-vous continuer à prier et à désirer marcher dans cette lumière. Et nous, les anges du Ciel, viendrons et marcherons avec vous et vous aiderons dans ce voyage.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées, enfants de Dieu. Réveillez-vous dans l’amour, réveillez-vous dans vos cœurs, réveillez-vous à la vérité, réveillez-vous à l’intérieur. Que Dieu vous bénisse. Je suis Paul.
-
-
-
