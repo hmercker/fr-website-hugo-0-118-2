@@ -9,7 +9,7 @@ weight:
 ---
 ### Buvez profondément ces eaux
 
-Confucius - reçu par Al Fike le 27 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 27 Novembre 2019, Sydney, Australie.
 
 Bénédictions à vous, âmes bien-aimées. Je suis Confucius. Les vents du changement et de l’opportunité continuent de souffler en votre sein, âmes bien-aimées, vous soufflant ici et là, vous amenant dans le giron de vos proches et de ceux qui souhaitent prier avec vous dans les Cercles de Lumière et d’Amour. Cherchez ces invitations, mes bien-aimés. Sachez que Dieu vous guidera sur les ailes de l’Amour.
 
@@ -22,6 +22,3 @@ Tant de choses sont données et continueront à couler, à vous éveiller et à 
 Les portails vont continuer à s’ouvrir. Les bénédictions continueront de couler. L’amour sera votre mantra, votre prière quotidienne. Il sera ce qui concerne votre esprit et votre âme et consumera tout dans l’harmonie et l’amour. Que les bénédictions de Dieu continuent à vous réveiller, âmes bien-aimées. Buvez profondément. Buvez profondément ces Eaux afin que vous puissiez vous élever et être toujours dans la Lumière.
 
 Que Dieu vous bénisse. Je suis avec vous, comme beaucoup, dans ce grand cadeau du toucher de Dieu sur vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

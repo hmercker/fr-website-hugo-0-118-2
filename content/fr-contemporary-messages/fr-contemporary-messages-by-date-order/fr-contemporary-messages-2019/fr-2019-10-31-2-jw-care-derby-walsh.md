@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre connexion est d'âme à âme en esprit
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 31 Octobre 2019, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 31 Octobre 2019, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici dans le grand amour de Dieu, Care.
 
@@ -20,6 +20,3 @@ La connexion que vous avez les uns avec les autres est d’âme à âme. C’est
 Je tiens à dire que vous serez une grande bénédiction pour le cher frère qui vous attend là-bas, et pour tous vraiment. Alors, ne craignez rien. Tout est entre les mains de Dieu. Nous serons là, et nous donnerons à chacun de vous un signe pour vous rappeler notre présence.
 
 Avec tout mon amour et mes bénédictions dans le Père, je suis Care.
-
-
-

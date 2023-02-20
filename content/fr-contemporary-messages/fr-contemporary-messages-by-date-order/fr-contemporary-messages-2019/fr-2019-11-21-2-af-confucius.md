@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité, la grâce et l'amour qui ont été promis seront donnés
 
-Confucius - reçu par Al Fike le 21 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 21 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
 C’est votre ami Confucius. Il semble que votre cher hôte (P) ne souhaite pas que vous vous reposiez mais que vous poursuiviez votre grand séjour pour voir son beau pays. Âmes bien-aimées, vous avez une mission que vous êtes sur le point d’entreprendre avec les âmes chères qui viennent pour la guérison, le confort et l’amour. Il est nécessaire pour vous d’apporter des énergies en vous pour vous soutenir et vous renforcer. Bénédictions de Dieu à chacun de vous afin que vous puissiez maintenir une condition élevée d’amour parmi vous dans ce Cercle dont vous ferez partie demain.
 
@@ -30,6 +30,3 @@ Nourrissez vos âmes, mes bien-aimés. C’est la clé, c’est la clé de tout.
 Puissiez-vous vous éveiller, âmes bien-aimées, vous éveiller à toute la gloire et l’émerveillement de la Lumière et de la joie et de l’Amour que Dieu a à vous donner. Je serai avec vous dans votre temps de prières dans les jours à venir. De nombreux anges seront avec vous, mes bien-aimés, au service des enfants perdus, au service de ceux qui ont faim et désirent la Vérité. Vous serez tous inspirés, élevés et dans la joie.
 
 Que Dieu vous bénisse, mes bien-aimés. Confucius vous aime. Je prends soin de mes petits oiseaux. Que leurs chants soient doux et que leur plumage soit brillant dans l’Amour et la Lumière. Que Dieu vous bénisse.
-
-
-

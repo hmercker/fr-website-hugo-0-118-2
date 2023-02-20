@@ -9,7 +9,7 @@ weight:
 ---
 ### Importance du désir et de l'intention pour recevoir l'Amour et la Vérité de Dieu
 
-St Matthieu - reçu par Al Fike le 25 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 25 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre frère Matthieu. En chacun de vous, il y a un désir profond de l’Amour de Dieu. Cela continue de vous amener à prier votre Père Céleste et continue également de vous réunir dans ce Cercle de Lumière afin que vous puissiez communier dans cette Lumière en présentant à Dieu les intentions et les désirs de votre âme. Vous le faites dans ces rassemblements. Ainsi, vous vous apportez une grande Lumière à vous-mêmes. Vous apportez ainsi une grande lumière au monde. En tant que canal d’amour et de lumière, vous vous réunissez et ouvrez ce portail, ce grand canal au monde. C’est puissant car vous continuez à vous dédier et à vous re dédier à la Vérité de l’Amour du Père, à recevoir cette grande bénédiction et à être un canal de lumière pour le monde.
 
@@ -20,6 +20,3 @@ Sachez que nous continuerons à orchestrer ces moments où nous sommes avec vous
 Tant de choses vous attendent, frères et sœurs bien-aimés. Tant de choses peuvent venir de vos efforts communs et de votre désir de servir et d’être dans le grand courant de la Volonté de Dieu. Ainsi, vous trouverez votre chemin sur cette voie qui ouvrira des portes, des portes surprenantes, des opportunités, imprévues et inconnues pour le moment. Pourtant, beaucoup de choses peuvent venir avec la simple foi et le désir dans votre âme d’être proche de Dieu et de recevoir Son Essence. Tant de choses vont venir et se manifester, apportant des changements, des opportunités, de plus grandes bénédictions, des guérisons, une grande paix et une grande joie.
 
 Que Dieu vous bénisse de toutes ces façons, âmes bien-aimées. Je suis votre frère Matthieu et je suis proche de vous tous. Sachez que je suis proche de vous tous. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

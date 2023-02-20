@@ -9,7 +9,7 @@ weight:
 ---
 ### De grands changements s'annoncent sur la Terre
 
-Augustin - reçu par Al Fike le 9 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 9 Novembre 2019, Fitzroy Falls, NSW, Australie.
 
 Frères et sœurs, belles âmes tous, je suis Augustin. J’ai été autrefois l’évêque d’Hippone, il y a de très nombreuses années. Je suis un habitant du Royaume Céleste et j’ai enseigné ces charges depuis de nombreuses années maintenant. Je viens vous rassurer, mes amis, que Dieu a en effet une solution pour ces dilemmes auxquels vous êtes confrontés dans ce monde. Oui, le monde dans lequel vous vivez continue de souffrir. De bien des façons, tous les habitants de cette planète continuent de souffrir. C’est la condition prédominante de votre monde. Là où l’amour est absent, la souffrance continue. Là où l’ignorance est absente, il y aura un sentiment de solution pour apporter une plus grande compréhension et une plus grande sensibilité à la façon dont vous devriez tous marcher sur cette Terre.
 
@@ -32,7 +32,3 @@ Vous vivez une époque très intéressante, âmes bien-aimées. Vous verrez de g
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Puissiez-vous vous réveiller, vous réveiller avec joie, vous réveiller avec des perceptions profondes, vous réveiller avec une plus grande capacité à aimer et à embrasser tous vos frères et sœurs. En vous efforçant d’atteindre ces objectifs, vous verrez que par vos actions, vous aurez marché sur le chemin de l’amour et de l’harmonie.
 
 Je vous bénis, âmes bien-aimées. Je suis votre enseignant Augustin et mon amour, mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-
-

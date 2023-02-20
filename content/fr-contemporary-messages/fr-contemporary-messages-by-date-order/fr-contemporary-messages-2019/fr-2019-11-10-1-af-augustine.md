@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne défiez pas ceux qui sont défiés par vos paroles
 
-Augustin - reçu par Al Fike le 10 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 10 Novembre 2019, Fitzroy Falls, NSW, Australie.
 
 C’est votre enseignant Augustin. J’étais avec vous dans vos conversations de ce matin. Vous avez quelques questions concernant l’efficacité de vos efforts dans ce groupe d’âmes difficiles et variables, le Cercle qui s’est réuni.
 
@@ -42,6 +42,3 @@ Lorsque votre heure sera venue de passer dans notre monde, vous réaliserez à q
 Soyez satisfaits de vos efforts, mes bien-aimés, car combien de Cercles comme celui-ci existent dans le monde ? Combien sont prêts à faire l’effort de se rendre disponibles pour être dans le flux de la volonté et de la grâce de Dieu ? Très peu en effet, âmes bien-aimées, très peu en effet. Le travail est grand et les travailleurs sont peu nombreux. Sachez que vous êtes aimés, que vous êtes profondément aimés et que chaque effort que vous faites pour apporter la Vérité de l’Amour de Dieu, pour l’apporter dans votre propre personne, pour l’apporter dans ce monde est un effort béni et un effort qui sera bien récompensé. Je vous assure, âmes bien-aimées, bien récompensées.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre maître Augustin est avec vous et reconnaît vos luttes, vos défis, mais ils sont petits comparés à l’émerveillement de vos efforts, à l’éclat de vos âmes, aux effets qui se répercutent non seulement dans ce petit Cercle, mais je vous le dis, ils se répercutent dans le monde entier, touchant les âmes de l’humanité. Que Dieu vous bénisse dans ces efforts dans lesquels nous sommes tous impliqués en harmonie avec la volonté de Dieu et Dieu bénira sûrement tout ce que nous faisons. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

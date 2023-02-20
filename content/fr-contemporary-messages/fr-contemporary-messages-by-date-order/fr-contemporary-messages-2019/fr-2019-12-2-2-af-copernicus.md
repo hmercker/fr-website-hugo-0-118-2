@@ -9,11 +9,11 @@ weight:
 ---
 ### La mesure du temps sur Terre est très différente de celle des Cieux Célestes
 
-Copernic - reçu par Al Fike le 2 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Copernic - reçu par Al Fike le 2 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Je suis Copernic. Je crois que vous connaissez tous mon histoire dans votre monde. Je suis venu vous parler de la mesure du temps. Car la mesure du temps dans votre monde est très différente de celle de notre monde. Dans votre monde, la mesure du temps est très précise. Il y a beaucoup d’aspects et d’éléments de votre existence dans le monde qui sont répartis par le flux du temps alors que la Terre fait ses révolutions. Le Soleil et la Lune apparaissent et tout est dans l’harmonie que Dieu a créée dans cet univers physique. Le temps est donc facilement reconnaissable et vous vivez tous dans le flux et le reflux de la nuit et du jour, d’année en année. Vous reconnaissez donc chaque année qui passe comme vous l’avez fait aujourd’hui.
 
-Mais dans notre monde, de tels repères n’existent pas. Il n’y a pas de nuit et pas de jour, si ce n’est pour ceux qui vivent très près du plan terrestre et qui vivent encore à ce rythme, mais qui, par essence, n’appartiennent pas à ce monde physique.<sup id="a1">[1](#f1)</sup> Pourtant, ils ne réalisent pas qu’ils ne sont plus des êtres physiques mais des êtres spirituels. Pour ceux d’entre nous qui ne sont pas pris dans cette illusion, le monde de l’esprit ne reconnaît pas vraiment le temps, même si notre existence est, à bien des égards, une réalité. Même si, à bien des égards, notre existence est linéaire, tout comme la vôtre. Il y a un progrès en avant comme dans votre monde et pourtant ce progrès ne peut pas être facilement délimité par des segments de temps. Au lieu de cela, il vient avec le sentiment de notre propre lumière, de notre propre être qui se dirige progressivement vers une plus grande lumière.
+Mais dans notre monde, de tels repères n’existent pas. Il n’y a pas de nuit et pas de jour, si ce n’est pour ceux qui vivent très près du plan terrestre et qui vivent encore à ce rythme, mais qui, par essence, n’appartiennent pas à ce monde physique <sup id="a1">[1](#f1)</sup>. Pourtant, ils ne réalisent pas qu’ils ne sont plus des êtres physiques mais des êtres spirituels. Pour ceux d’entre nous qui ne sont pas pris dans cette illusion, le monde de l’esprit ne reconnaît pas vraiment le temps, même si notre existence est, à bien des égards, une réalité. Même si, à bien des égards, notre existence est linéaire, tout comme la vôtre. Il y a un progrès en avant comme dans votre monde et pourtant ce progrès ne peut pas être facilement délimité par des segments de temps. Au lieu de cela, il vient avec le sentiment de notre propre lumière, de notre propre être qui se dirige progressivement vers une plus grande lumière.
 
 Même pour ceux qui sont dans les sphères sombres, il arrive un moment dans leur existence où ils entrent dans la Lumière. Cela peut prendre des éons de temps et pourtant, dans leur perception, cela ne semble pas être le cas. Bien que pour d’autres, cela peut sembler beaucoup. C’est une question de perception. Mais une fois qu’une âme a trouvé son chemin vers la Lumière et commence à apprendre la nature de son existence et la nature de qui elle est, le temps devient une partie fluide de son existence. Une personne peut passer de nombreuses heures de votre temps terrestre, voire des jours, à contempler une Vérité et pourtant, pour elle, cela peut sembler un instant, un temps très court en effet, car elle ne considère pas le temps. Elles considèrent l’existence comme le fait d’être dans le moment présent et de savoir dans tout leur être qu’elles existent pour ce moment précis et que l’existence est une partie naturelle de leur être dans la réalité dans laquelle elles existent. Ce sens de l’existence peut étirer ce que vous appelez le temps ou le raccourcir car il n’y a pas de marqueurs comme je l’ai dit.
 
@@ -29,9 +29,3 @@ Que Dieu vous bénisse, mes amis, et vous garde dans son amour. Je suis Copernic
 <small>
 
 1. <large id=”f1”> Nous appellerions cela des esprits « liés à la terre ». (G.C.).[↩](#a1)
-
-
-
-
-
-

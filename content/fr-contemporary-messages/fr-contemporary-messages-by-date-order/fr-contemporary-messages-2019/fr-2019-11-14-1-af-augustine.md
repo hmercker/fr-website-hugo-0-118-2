@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plus grand pouvoir de transformation est en vous
 
-Augustin - reçu par Al Fike le 14 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 14 Novembre 2019, Fitzroy Falls, NSW, Australie.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Alors que nous arrivons sur votre plan, ce plan terrestre, ce qui se présente à nous est une grande souffrance, de grands dilemmes et tous ceux que nous rencontrons, y compris vous-mêmes, ont tous leurs luttes, ces conditions dans lesquelles vous ne vous sentez pas proches de Dieu, mais qui semblent vous éloigner de votre Père Céleste. Que ce soit sur le plan physique, matériel, émotionnel, spirituel, chacun de vous lutte à sa manière. Et avec tous ceux que vous rencontrez, il y a de grandes luttes et de grandes difficultés.
 
@@ -30,6 +30,3 @@ Je vous encourage donc à tester ce que j’ai dit pour apporter à Dieu ces cho
 Âmes bien-aimées, c’est seulement cette attitude, cet état d’esprit que vous portez qui restreint le flux des bénédictions de Dieu sur vous. Il a construit une structure magnifique qui permettra de vous apporter, ainsi qu’à beaucoup d’autres, de nombreuses bénédictions. Ayez foi en cette grande bénédiction, quelque chose de rare sur votre monde, quelque chose de magnifique et de saint dans son être et son existence dans votre monde. Peu de gens sont bénis de manière aussi puissante. Sachez que vous en êtes digne. Vous avez, de bien des façons, mérité cette bénédiction par vos efforts d’amour, par votre engagement envers Dieu et par vos prières pour que Son Amour remplisse vos âmes. Vous êtes donc profondément, profondément bénis. Ainsi, la générosité de l’Amour de Dieu pour vous continue à couler et à vous envelopper. Venez à la Source du Tout en sachant que tous vos besoins seront satisfaits, que tous vos besoins, qu’ils soient matériels, spirituels ou émotionnels, seront satisfaits. Que la puissance de votre engagement pour Dieu et de votre amour pour Dieu éveille cette connaissance véritable que tout ce qui vous est destiné vous sera donné, que vous pouvez le recevoir dans l’amour et l’ouverture, que vous pouvez en effet continuer à vous éveiller et à marcher dans la grande Lumière avec chaque jour.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, sachant que nous sommes ici, que nous serons toujours avec vous, qu’en effet les plus grandes bénédictions ont été accordées, qu’en effet le plus grand pouvoir de changement et de transformation est en vous. Que vous trouverez en effet votre chemin au-delà du labyrinthe et des miasmes des conditions sombres de votre monde et que vous serez vraiment dans la Lumière. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément, magnifiquement et complètement. Que Dieu vous bénisse. Je suis votre enseignant Augustin et je suis avec vous dans l’amour. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### À la fin, il y aura la paix et l'harmonie
 
-Augustin - reçu par Al Fike le 20 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 20 Décembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant Augustin. Oui votre monde est en profonde détresse. Il l’est partout. Il y a des moments où il devient tout à fait évident que les conditions de votre monde naturel sont soumises à de grandes contraintes. Pourtant, cachés sous tous les cycles naturels et la matière évidente de votre monde, il y a des énergies et des conditions contradictoires. Celles-ci continuent à causer des tensions et des frictions dans votre monde alors que cette condition s’intensifie et que ces énergies continuent à être contradictoires les unes envers les autres – l’une est l’expression de Dieu et de Sa Création et l’autre est l’expression de l’homme et de sa création qui se battent pour dominer votre monde.
 
@@ -26,6 +26,3 @@ Continuez à prier. Je sais que cette souffrance est difficile à supporter, que
 Nous sommes avec vous. Nous ne vous avons jamais quittés. Nous continuerons à marcher avec vous tous. Nous continuerons à vous aider de toutes les manières possibles dans le cadre des lois de la création de Dieu et du pouvoir de l’Amour de Dieu dans votre âme. Nous vous bénirons donc et vous apporterons ce dont vous avez besoin pour être dans la Lumière, pour être enveloppés de protection et d’Amour.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées, et vous garde dans ce grand courant d’Amour. Paix profonde, paix profonde, mes bien-aimés. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. En effet, je suis avec vous.
-
-
-

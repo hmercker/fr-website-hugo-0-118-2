@@ -9,9 +9,9 @@ weight:
 ---
 ### Prions pour la bénédiction de l'amour de Dieu
 
-Michael Collier - reçu par Al Fike le 6 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+Michael Collier - reçu par Al Fike le 6 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
-Mes bien-aimées, je m’appelle Michael<sup id=”a1”>[1](#f1)</sup>. Je suis un habitant du Royaume Céleste et je prie, comme vous le faites, pour que l’Amour du Père entre dans mon âme, comme un afflux constant, transformant et éveillant sans cesse et faisant grandir mon âme dans Son Amour.
+Mes bien-aimées, je m’appelle Michael <sup id=”a1”>[1](#f1)</sup>. Je suis un habitant du Royaume Céleste et je prie, comme vous le faites, pour que l’Amour du Père entre dans mon âme, comme un afflux constant, transformant et éveillant sans cesse et faisant grandir mon âme dans Son Amour.
 
 J’étais avec ce cher instrument à son réveil, lui faisant comprendre combien il est important de continuer à répandre la parole de l’Amour de Dieu, la grande joie et la bénédiction qui accompagnent cette bénédiction de l’Amour de Dieu. Si peu connaissent ce don. Pourtant, vous, âmes bien-aimées, continuez à vous efforcer, à comprendre et à recevoir cette grande bénédiction de Dieu. Je vous dis, mes beaux amis, que c’est le début de quelque chose de très important et puissant dans votre monde. Dieu a en effet planté de nombreuses graines dans votre monde, espérant que ces graines prendront racine, grandiront et deviendront de puissants chênes de vérité. Chacun de vous a un grand potentiel, est rempli de nombreux dons, de possibilités d’expression de la vraie lumière spirituelle et de la vérité dans le monde.
 
@@ -29,8 +29,3 @@ Que Dieu vous bénisse, âmes bien-aimées, je suis Michel. Je suis heureux d’
 <small>
 
 1. <large id=”f1”> Bien que non enregistré, il s’agit probablement de Michael Collier.[↩](#a1)
-
-
-
-
-

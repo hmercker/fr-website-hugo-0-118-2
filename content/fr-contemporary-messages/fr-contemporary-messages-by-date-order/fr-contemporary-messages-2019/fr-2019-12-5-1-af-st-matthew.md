@@ -9,7 +9,7 @@ weight:
 ---
 ### Reconnaissez vos dons pour permettre à Dieu de travailler à travers vous
 
-St Matthieu - reçu par Al Fike le 5 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 5 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Âmes bien-aimées, je suis Matthieu. Je viens vous parler de vos dons. Alors que vous étiez assis en cercle dans ce Cercle de Lumière, nous avons été diligents dans nos efforts pour vous aider à développer ces dons qui émergent de votre âme et de vos aptitudes et capacités en tant que canal d’amour dans le monde. Je vous exhorte à reconnaître vos dons, mes bien-aimés, à ne pas vous dérober, à ne pas douter, à ne pas être dans un endroit où vous reconnaissez, mais ne pouvez pas accepter, ces choses en vous. En effet, il y a un certain élément de vulnérabilité lorsque ces choses, qui ne sont pas communément connues dans votre monde, émergent de vous, perceptions de l’âme, canaux de guérison et capacités pour l’esprit de parler ou d’imprimer sur vous des pensées, des idées et des bénédictions. C’est le monde de Dieu, âmes bien-aimées. Cela deviendra de plus en plus votre monde au fur et à mesure que vous passerez de la perception intellectuelle et mentale de la structure du monde et de votre place dans cette création de l’homme, à celle de la création de Dieu.
 
@@ -36,6 +36,3 @@ Je réalise que c’est beaucoup demander à ceux d’entre vous qui sont très 
 Puissiez-vous continuer à grandir dans Son Amour, à vous éveiller dans Son Amour, et à voir la voie de Son Amour dans vos vies, afin qu’il puisse être appliqué et exprimé en toute harmonie et bonté et Lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et mon amour pour vous est grand. Puissiez-vous continuer à trouver une grande paix et une grande joie dans vos vies. Dans le flux de l’Amour de Dieu, tout est possible et tout sera donné. Que Dieu vous bénisse. Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. Que Dieu vous bénisse.
-
-
-

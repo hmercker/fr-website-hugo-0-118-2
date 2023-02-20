@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettre aux âmes de venir sans se soucier de leurs croyances
 
-Michaël Collier - reçu par Al Fike le 27 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 27 Novembre 2019, Sydney, Australie.
 
 C'est moi, Michaël Collier. Votre travail a été accompli ici, mes amis. Comme vous avez parcouru les terres de ce pays vers les chères âmes qui vous ont attiré dans l’amour, cherchant vos conseils et votre sagesse, cherchant à prier avec vous, ainsi vous avez répondu à l’appel avec amour. Vous nous avez permis, dans le Royaume Céleste, de parler à travers vous et d’exercer notre ministère auprès des âmes chères qui se sont rassemblées. Dieu nous a tous bénis, n’est-ce pas, dans cette belle effusion d’amour et de service ?
 
@@ -24,6 +24,3 @@ Notre objectif est d’établir un fondement de Vérité et d’Amour dans l’�
 L’humilité est une partie tellement importante de l’expression de la Vérité de l’âme. La douceur et la passion de l’âme, ces choses apportent la Lumière et les bénédictions de Dieu. Bien-aimés, beaux amis, je souhaite vous remercier pour vos efforts, merci pour votre temps et l’application de vos dons et l’expression de vos âmes dans cette entreprise. Je vais continuer à travailler avec ces belles âmes qui marchent sur cette terre. Mon engagement est fort. Mon désir est grand. Mes efforts seront incessants pour apporter la Vérité de l’Amour de Dieu dans cette partie du monde.
 
 Que Dieu vous bénisse tous, qu’il vous garde dans son amour et dans le flux et la grâce de son toucher. Mon amour est avec vous aussi. Je suis votre ami Michael Collier. Que Dieu vous bénisse. Que Dieu vous bénisse dans vos voyages. Que Dieu vous bénisse et qu’il prenne soin de vous tous, qu’il vous protège et vous enveloppe de son amour. Que Dieu vous bénisse.
-
-
-

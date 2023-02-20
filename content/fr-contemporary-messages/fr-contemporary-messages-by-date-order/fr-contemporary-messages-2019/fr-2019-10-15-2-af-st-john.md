@@ -9,7 +9,7 @@ weight:
 ---
 ### L'innocence de l'âme prépare le terrain pour la guidance Divine
 
-St Jean - reçu par Al Fike le 15 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 15 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jean, Jean le bien-aimé. Notre chère fille se sent à bout de souffle comme vous diriez, et n’est pas sûre de la direction à prendre ou sûre de ce que l’avenir lui réserve. Mais dans cette hésitation, il y a aussi un profond désir de servir et d’être dans le flux de la Volonté de Dieu. Elle se sent donc contrainte et pourtant sans orientation. Elle ressent la puissance de l’Amour de Dieu qui continue à se déverser dans son âme et qui remue beaucoup de choses en elle. Cela remet en question certaines idées et perspectives qu’elle a longtemps mentalement entretenues.
 
@@ -46,7 +46,3 @@ En continuant sur cette voie, ne suivez-vous pas la volonté de Dieu ? N’expri
 Ces choses viennent avec l’âme éveillée, nettoyée et reformée dans l’Amour. Puissiez-vous venir à connaître cela, fille bien-aimée et enfants bien-aimés qui cherchent avidement à s’éveiller, à être utilisés comme canaux de Dieu, à être un frère et une sœur, une fille et un fils de Dieu. Il vient toujours si lentement mais il avance, ce grand réveil. Exprimez tout ce que vous avez découvert jusqu’à présent dans votre vie. Soyez un canal d’Amour. Veillez à ce que la source de cet amour, le pouvoir de cet amour en vous, vienne directement de Dieu par l’intermédiaire de son Esprit Saint qui transmet l’amour dans votre âme.
 
 Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Que vous soyez comblés dans l’Amour et que la renaissance de votre âme continue d’être le centre d’intérêt primordial de votre vie. Que Dieu vous bénisse. Je suis Jean et je vous aime. Que Dieu vous bénisse tous. Que Dieu vous bénisse dans votre voyage.
-
-
-
-

@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Il y aura de la joie sur la terre !
+### Il y aura de la joie sur la terre
 
-St Matthieu - reçu par Al Fike le 22 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 22 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
 Que Dieu soit avec vous. Je suis Matthieu. Chaque âme sur votre monde a un désir ardent de Dieu. Chaque âme est privée parce que souvent ce désir et cette aspiration ne sont pas satisfaits car ce monde continue à conspirer pour éloigner tous les enfants de Dieu de la Source qui satisfera le besoin profond et la soif de l'âme pour l'Amour de Dieu.
 
@@ -26,6 +26,3 @@ Lorsque cela sera accompli, et cela sera accompli, car Dieu a un plan pour le sa
 Continuez dans vos efforts, âmes bien-aimées, à marcher avec Dieu, à être avec Dieu et à vous laisser transformer par l'Amour de Dieu. De cette façon, vous serez des exemples brillants et vous connaîtrez la grande Vérité. Vous serez forts et beaux dans le flux de votre vie qui sera éclairé par Dieu et béni et dirigé par le Créateur. Vous cherchez ce qu'il y a de plus élevé, âmes bien-aimées. Ne cherchez rien de moins que ce qui est le plus élevé et trouvez l'épanouissement dans votre âme. Découvrez tout ce qui est en vous.
 
 Que Dieu vous bénisse dans ce voyage, qu'il vous garde près du sein de Dieu. Vous serez montré, escorté, protégé, guidé dans ce voyage. Que Dieu vous bénisse. Je suis Matthieu. Que Dieu vous bénisse.
-
-
-

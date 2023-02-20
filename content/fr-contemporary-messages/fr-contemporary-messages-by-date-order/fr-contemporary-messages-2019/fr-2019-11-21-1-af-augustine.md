@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu pourvoit à tout ce dont vous avez besoin
 
-Augustin - reçu par Al Fike le 21 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 21 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
 Âmes bien-aimées, c’est votre enseignant Augustin. Je viens une fois de plus pour vous parler et vous assurer de votre situation particulière en ce qui concerne les préoccupations matérielles. Chacun d’entre vous a eu des difficultés à un moment donné de sa vie concernant les exigences matérielles pour vivre dans ce monde. Pourtant, lorsque vous regardez votre vie, ne voyez-vous pas que vos besoins sont satisfaits ? N’est-ce pas évident que Dieu pourvoit à vos besoins et souvent à vos désirs. Mais il n’y a pas lieu de s’inquiéter, car lorsque vous empruntez le chemin que Dieu a placé devant vous et qui est en harmonie avec sa volonté, vos besoins sont satisfaits. Vous êtes profondément bénis à bien des égards. Il n’est pas nécessaire de gaspiller votre temps, vos pensées et vos énergies dans ces préoccupations matérielles. Car dans le flux de l’Amour et de la Volonté de Dieu, l’harmonie vient. Les besoins sont satisfaits. L’amour circule.
 
@@ -22,6 +22,3 @@ Vous améliorez les conditions de vie dans le monde en partageant vos ressources
 Vous apprendrez cela encore et encore, mes chers et beaux amis. Vous verrez par vous-même, à condition que vous soyez disposés et ouverts à donner votre cœur, à donner votre générosité matérielle, à donner votre temps, vos efforts pour prendre soin d’un autre, de quelque manière que ce soit, de quelque manière que ce soit dans le flux de la Volonté de Dieu, il n’y a pas de perte ou de sentiment que quelque chose est donné et non reçu en Grâce. Tout est dans le flux du Père qui fournit toute la générosité de la vie, la beauté de la vie, l’élévation, la lumière et l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. J’espère avoir été clair sur le fait que tout se déroulera dans l’harmonie et l’équanimité de la Grâce et des Lois d’Amour de Dieu. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis Augustin, votre enseignant. Que Dieu vous bénisse.
-
-
-

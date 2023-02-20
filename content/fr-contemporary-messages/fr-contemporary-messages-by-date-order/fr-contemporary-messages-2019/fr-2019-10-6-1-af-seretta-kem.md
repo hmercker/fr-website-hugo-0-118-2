@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous continuez à vous éveiller alors que vos âmes grandissent dans l'Amour du Père
 
-Seretta Kem - reçu par Al Fike le 6 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 6 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c’est Seretta Kem. Je souhaite assurer, à chacun d’entre vous, que vous serez guidés lorsque cela sera nécessaire, qu’il n’y a pas de mystères ou d’aspects non reconnus de la guidance dans votre vie et que Dieu continue de vous guider en avant dans Son Amour.
 
@@ -32,6 +32,3 @@ Soyez patientes, âmes bien-aimées, mais soyez sérieuses dans vos prières et 
 Ayez de la compassion pour vous-mêmes et cherchez à vous aimer. Cherchez à libérer toutes les barrières, tous les jugements, toutes les choses qui ne sont pas de l’amour. De cette façon, vous écartez le rideau de la condition humaine qui continue à envelopper toute l’humanité dans une grande ignorance et une grande peur.
 
 Vous vous réveillez et vous continuerez à vous réveiller. Vous êtes fermement à la portée de Dieu. Que Dieu vous bénisse dans ce voyage et que vous sachiez que vous êtes entourés par les anges de Dieu. En effet, vous êtes très précieux pour nous tous et nous faisons tout notre possible pour vous aider et vous élever au cours de ce voyage. Que Dieu vous bénisse. Je suis Seretta Kem. Mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-

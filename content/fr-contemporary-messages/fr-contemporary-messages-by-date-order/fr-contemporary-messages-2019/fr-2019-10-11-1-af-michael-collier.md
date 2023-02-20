@@ -9,7 +9,7 @@ weight:
 ---
 ### Les changements à venir dans les conditions de la terre
 
-Michaël Collier - reçu par Al Fike le 11 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 11 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Mes amis, je suis Michaël. Nos chers amis de l’autre côté de l’océan (Australie) sont entre de bonnes mains. Veuillez continuer à prier pour eux. Pour le cher qui est mon homonyme, continuez à prier. Il sera soutenu par les anges qui l’entourent, tandis que les médecins examinent et tentent de déterminer la situation de sa jambe. Mes chers amis, le monde est sur le point d’être dans un état de grand changement où vos priorités et votre objectif, l’objectif de la plupart de ceux qui vivent une vie essentiellement matérielle, va changer parce que les conditions dans votre monde sont en train de changer. Les énergies de votre monde changent et ce sur quoi vous vous êtes appuyés et ce que vous attendez de votre vie matérielle va également changer. Je ne suggère pas qu’il y aura de grands conflits, du moins pas en ce moment. Mais Dieu bénit votre monde avec des énergies et des impulsions pour corriger vos pensées et vos actions d’une manière qui apportera plus d’harmonie dans votre monde. Il y aura moins de concentration sur les gratifications matérielles. Il y aura un sentiment, un désir ardent dans les âmes de vos frères et sœurs, d’atteindre quelque chose qui est différent de ce qui est actuellement le centre d’intérêt de tant de personnes dans votre monde.
 
@@ -44,7 +44,3 @@ Dieu vous implorera et vous guidera au service de l’apport de la vérité à l
 Puissiez-vous faire partie de ce grand changement. Puissiez-vous ressentir dans votre cœur le désir de servir Dieu et de servir vos frères et sœurs avec amour et vérité, confort et guérison, joie et lumière.
 
 Que Dieu vous bénisse dans ce voyage, mes amis, et je vous remercie de m’avoir écouté. Je suis heureux d’être ici avec vous aujourd’hui. Je suis avec vous dans vos efforts pour aider à apporter ces contributions qui, avec le temps, changeront le monde. Que Dieu vous bénisse, chers amis, je suis Michael. Que Dieu vous bénisse.
-
-
-
-

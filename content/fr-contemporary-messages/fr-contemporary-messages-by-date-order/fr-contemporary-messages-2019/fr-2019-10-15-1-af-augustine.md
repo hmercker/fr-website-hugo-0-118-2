@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde en a grand besoin
 
-Augustin - reçu par Al Fike le 15 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Augustin, votre maître. Oui, le monde est dans un grand besoin, n’est-ce pas ? Beaucoup sont dans un grand besoin. Ce monde qui est le vôtre continue à présenter de nombreux défis à chaque âme qui y vit. Ce monde continue à amener de nombreuses âmes dans des endroits qui ne sont pas en harmonie avec Dieu. Ainsi, les conditions créées par les multitudes dans votre monde continuent d’enflammer et d’exciter des conditions négatives qui apportent douleur, inconfort et perturbations, de sorte que le monde ne fonctionne pas en harmonie avec les lois de Dieu.
 
@@ -36,8 +36,3 @@ Beaucoup de choses sont destinées à être reçues par vous, âmes bien-aimées
 Puissiez-vous continuer à reconnaître le rôle que vous jouez dans tous ces efforts de Dieu, Son grand plan pour le salut de l’humanité, afin que vous puissiez voir que vous faites partie d’un si beau flux d’Amour, transformant, créant, changeant, évoluant afin que tout puisse être en harmonie dans votre monde et que tout puisse être une expression d’Amour et de Lumière. Que Dieu vous bénisse dans ce voyage que vous entreprenez tous, âmes bien-aimées. Vos lumières sont belles, vos âmes ont tant de choses en elles qui ne sont pas encore reconnues, mais qui se réaliseront à mesure que la Bénédiction de Dieu continuera à vous éveiller jour après jour, moment après moment, prière après prière. Vous serez réveillées, âmes bien-aimées, et vous en viendrez à connaître votre véritable moi en relation avec votre Père céleste, votre Créateur, Celui qui vous aime au-delà de toute capacité de compréhension et de connaissance. Son Amour illimité se déverse sur vous en ce moment. Puissiez-vous recevoir en vous tout ce que vous pouvez absorber dans votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre maître Augustin et je suis heureux de vous accompagner. Je me joins à beaucoup, beaucoup d’âmes, beaucoup de beaux anges des Cieux Célestes dans cette prière et ce temps ensemble. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-
-
-

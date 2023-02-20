@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisir de vivre dans l'Amour de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 10 Octobre 2019, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 10 Octobre 2019, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis là, attention. Imaginez, si vous le voulez bien, être dans l’état d’amour à chaque instant. Imaginez la joie et le bonheur que votre cœur ressent lorsque votre âme est élevée dans l’amour, lorsque vous recevez l’Amour du Père Céleste et que vous vous accrochez à Son étreinte. Il n’existe aucune force au monde qui puisse vous enlever cela. Nous vivons ici dans la présence aimante de notre merveilleux Créateur. Lorsque nous rendons visite aux plans terrestres ou aux esprits des sphères inférieures, nous ne sommes pas perturbés par leur état. Nous avons de la compassion et de l’amour pour eux. Lorsqu’ils sont prêts, nous partageons cela avec eux et la Vérité de l’Amour de Dieu.
 
@@ -20,6 +20,3 @@ J’ai traversé beaucoup de choses dans mon temps terrestre qui pourraient êtr
 Oui, j’ai vu mon propre passage. J’en ai parlé. Cela a permis aux membres de ma famille et à mon mari aimant d’accepter plus facilement mon décès. Cet amour continue et j’embrasse tout le monde. Je ne porte aucun jugement sur vos choix, mais je vous suggère seulement, quoi que vous choisissiez, quoi que vous fassiez, de le faire avec amour de tout votre cœur et, je l’espère, dans l’Amour de Dieu si vous le choisissez ainsi, et vous ne serez jamais déçus. Tout sera béni. Allez en paix.
 
 Je vous donne mon amour et ma bénédiction dans tout ce que vous faites. Je suis Care.
-
-
-

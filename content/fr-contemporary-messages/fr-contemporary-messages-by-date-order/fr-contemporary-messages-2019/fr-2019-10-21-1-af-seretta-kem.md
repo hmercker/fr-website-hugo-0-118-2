@@ -9,7 +9,7 @@ weight:
 ---
 ### Priez pour que Dieu guérisse la faille entre chaque âme et Dieu
 
-Seretta Kem - reçu par Al Fike le 21 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 21 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant et guérisseur, Seretta Kem. Je souhaite parler des causes profondes de ces conditions qui sont créées au sein de l’individu et qui ont besoin de guérison et de rectification. Vous avez prié pour la guérison d’un être cher, ma fille bien-aimée. Je vous dis que Dieu entend cette prière, entend les prières de tous ceux d’entre vous qui souhaitent soutenir et apporter l’harmonie dans la vie de chacun. C’est une prière valable et une prière importante. Au début de l’histoire de l’humanité, les débuts de la disharmonie sont venus avec l’exercice du libre arbitre, les désirs de l’âme pour l’indépendance, fournissant un besoin de pouvoir et de contrôle de leurs vies, ayant une distance de la volonté de Dieu et mettant en œuvre la volonté et l’expression de l’individu dans leurs vies. Bien que cela ne soit pas en soi en désaccord avec Dieu, c’est l’exercice de la volonté et du désir qui peut très certainement apporter cette disharmonie.
 
@@ -48,6 +48,3 @@ Les maladies de l’humanité commencent par une âme qui n’est pas en harmoni
 Que Dieu vous bénisse dans vos voyages, mes bien-aimés. Je sais que vous voyez tout autour de vous des dilemmes, des problèmes et des modèles de comportement qui apportent la douleur et isolent les enfants de Dieu de Lui-même. Vous devez continuer à prier et avoir la foi que vos efforts, vos prières, votre lumière et votre amour apporteront des solutions et des bénédictions. Bien que vous deviez tenir compte du pouvoir du libre arbitre et du choix de chaque individu, l’important est que chacun en vienne à reconnaître qu’il existe un choix. Il existe la possibilité d’une guérison véritable, complète et profonde et d’une progression éternelle de l’âme grâce à l’afflux de l’Essence de Dieu.
 
 Que Dieu vous bénisse dans vos voyages, mes bien-aimés, et les voyages de vos proches et les voyages de ceux qui sont connectés à chacun d’entre vous. Puissions-nous tous continuer à nous efforcer d’avancer dans la lumière et de nous éveiller dans l’amour. Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je suis heureux de vous parler aujourd’hui d’un sujet très important, la guérison de l’humanité, une grande quête et un effort que nous entreprenons tous en continuant à nous rapprocher de Dieu et à être éveillés en nous par Son Amour. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

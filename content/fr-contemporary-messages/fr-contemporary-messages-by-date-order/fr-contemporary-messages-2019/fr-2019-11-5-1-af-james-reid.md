@@ -9,7 +9,7 @@ weight:
 ---
 ### Le voyage de l'âme vers Dieu
 
-James Reid - reçu par Al Fike le 5 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+James Reid - reçu par Al Fike le 5 Novembre 2019, Bayview, Sydney, NSW, Australie.
 
 Je suis James Reid. Si heureux d’être parmi mes amis une fois de plus. Si heureux de voir la lumière qui est ici et comment vous avez tous grandi dans vos âmes. Si heureux que nous connaissions tous la Grâce de Dieu, Son bel Amour, et que nous continuions tous à progresser sur ce chemin vers plus de Lumière et d’Amour, de Vérité et de connaissance. Je ne suis pas encore entré dans le Royaume Céleste car je me trouve très engagé dans les nombreux aspects du monde spirituel, voyageant, explorant, parlant à beaucoup et apprenant beaucoup. J’ai toujours été curieux et animé d’un profond désir de vérité. Je poursuis donc ces voyages, sans négliger mes prières pour recevoir ce grand Don d’Amour. Au fur et à mesure que je le fais, mon aptitude et mes capacités à comprendre, à comprendre vraiment les rouages de l’univers, les rouages de ma propre âme et les rouages de Dieu continuent de croître et de s’approfondir.
 
@@ -34,6 +34,3 @@ Ce que vous faites est très important et nécessaire, non seulement dans votre 
 Quand on voit à quel point les capacités de l’esprit sont pitoyables comparées à celles de l’âme, ces idées que vous portez en tant que créature terrestre sont presque sans valeur et ne signifient rien comparé à l’éveil de votre âme qui peut vraiment comprendre la vérité de la vie, l’émerveillement de la vie et le sens de la vie. Alors soyez humbles, mes amis. Soyez fidèles à vous-même. Soyez fidèles à Dieu et tout se déroulera dans l’harmonie, la paix et la compréhension mutuelle. Oh, il y a tellement de choses que je voudrais dire, mais il y a d’autres choses qui doivent être faites pendant que vous êtes assis dans ce cercle. Le temps m’a été donné et je vous en remercie. Sachez que votre ami James est avec vous, qu’il vous aime, qu’il prie pour vous et qu’il apprend de vous. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse. J’aurais seulement souhaité que nous puissions travailler ensemble de manière plus intense, mais cela n’était pas prévu. Alors maintenant, nous travaillons d’une manière différente. Merci d’être les belles âmes que vous êtes.
 
 Que Dieu vous bénisse et vous garde dans son amour. Je suis James, et nous sommes tous dans Son Amour.
-
-
-

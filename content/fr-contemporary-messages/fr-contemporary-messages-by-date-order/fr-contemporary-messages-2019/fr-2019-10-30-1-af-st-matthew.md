@@ -9,9 +9,9 @@ weight:
 ---
 ### Sur les aspects de l’âme
 
-St Matthieu - reçu par Al Fike le 30 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 30 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
-Je suis MatthIeu et je souhaite partager avec vous un discours sur l’âme puisque cet instrument est en bonne condition pour le recevoir et je suis donc heureux de le partager. En raison de sa complexité, nous devons profiter d’un esprit clair.
+Je suis Matthieu et je souhaite partager avec vous un discours sur l’âme puisque cet instrument est en bonne condition pour le recevoir et je suis donc heureux de le partager. En raison de sa complexité, nous devons profiter d’un esprit clair.
 
 J’ai déjà expliqué dans le passé que l’âme est comme un diamant aux multiples facettes et que chaque facette reflète un aspect de l’âme. Certaines de ces facettes sont bien polies et claires et transmettent bien ces parties et ces éléments de l’âme, tandis que d’autres sont obscurcies par les incrustations de l’âme ainsi que par les préjugés du mental qui ne veut pas accepter ce qui est transmis par l’âme. Ainsi, ces deux aspects que chaque individu exprime et vit dans la condition humaine dans laquelle vous résidez, continuent à obscurcir ces éléments, ces belles facettes de l’âme. Comme vous recevez l’Amour Divin de Dieu, il y a moins d’obstructions, moins de parties de l’âme qui sont obscurcies et moins de préjugés dans le mental qui ne veut pas accepter ou percevoir ces aspects de l’âme. Nous avons dit que l’âme a des chambres. Oui, il y a des composants dans l’âme qui ont diverses fonctions. Ces composants ou chambres, si vous voulez, sont nombreux mais pour ceux d’entre vous qui parcourent cette Terre, beaucoup de ces éléments sont en sommeil.
 
@@ -40,6 +40,3 @@ Tant de choses vous attendent, mes chers frères et sœurs. Tant de choses sont 
 Ce don révèle tout. Cette bénédiction enlève tout ce qui n’est pas en harmonie avec Dieu et amène l’âme à Dieu dans une joyeuse réunion et communion avec le Créateur de tout, la Source de tout, la grande Source de l’Amour. Vous avez donc un voyage devant vous, comme vous le savez bien, mais chaque âme qui s’embarque dans ce voyage avec foi, qui cherche ce grand don d’Amour, qui persiste et continue à permettre aux qualités transformatrices de cet Amour de dissoudre tout ce qui n’est pas de l’amour, trouvera son chemin et découvrira les aspects merveilleux de sa propre âme étincelant dans la Lumière de Dieu, un beau joyau de la Couronne de Dieu, une belle fleur de Son jardin. Cet Amour fera naître toutes vos qualités uniques, toute la beauté et l’émerveillement de votre âme.
 
 Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage. Nous continuons à vous accompagner. Quel plaisir nous avons à voir vos âmes émerger et sa lumière et sa luminosité étinceler dans le firmament de Dieu. Que Dieu vous bénisse profondément, âmes bien-aimées, et vous réveille pleinement. Que Dieu vous bénisse. Je suis Matthieu.
-
-
-

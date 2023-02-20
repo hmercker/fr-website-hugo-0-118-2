@@ -9,7 +9,7 @@ weight:
 ---
 ### Un jour, le treillis de lumière encerclera le monde entier
 
-Michaël Collier - reçu par Al Fike le 3 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 3 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Que Dieu vous bénisse, mes amis. Je suis Michaël Collier. Oui, je peux voyager au-delà des rivages de cette terre lointaine (l’Australie) et être avec vous aujourd’hui et vous parler. Je souhaite vous dire à quel point il est important de souder cette communauté dans l’amour. De continuer à forger les réseaux, le treillis de lumière parmi vous et parmi ceux qui sont curieux, qui viennent vous entendre parler de la grande Vérité de l’Amour du Père. En tendant la main, mes amis bien-aimés, vous aidez à tisser le monde ensemble à partir de nombreux endroits différents au-delà des épicentres de vos Cercles de prière dans le monde dans des endroits éloignés, des endroits que vous ne connaissez pas en ce moment, des individus qui vous observent, des mortels sur cette Terre qui sont curieux, et ceux qui ont un intérêt dans votre travail.
 
@@ -34,6 +34,3 @@ Que Dieu bénisse chacune de vous, âmes précieuses, car vous êtes précieuses
 Que Dieu vous bénisse. Je suis Michael Collier et je travaille avec vous tous alors que vous continuez à chercher à servir Dieu.
 
 Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

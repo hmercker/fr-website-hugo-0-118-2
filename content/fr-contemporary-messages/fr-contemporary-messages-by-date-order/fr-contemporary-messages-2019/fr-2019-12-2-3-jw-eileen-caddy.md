@@ -9,7 +9,7 @@ weight:
 ---
 ### Cultiver le jardin de son âme et s'épanouir
 
-Eileen Caddy - reçu par Jimbeau Walsh le 2 Décembre 2019, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 2 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Je suis ici votre sœur dans l’amour de Dieu, Eileen Caddy. Vous m’attirez dans cette lumière avec votre amour.
 
@@ -22,6 +22,3 @@ Comme vous le savez tous dans ce Cercle, ce magnifique Cercle de Lumière, l’A
 Je demande à chacun, avec douceur, de se rappeler à soi-même et aux autres avec bienveillance et avec l’Amour de Dieu, tout en s’encourageant mutuellement, car beaucoup sont bénis, car ce cercle s’étend au-delà de ce que vous pouvez imaginer. Ceux qui viennent en esprit et qui sont attirés par la lumière, ils sont bénis. Nous vous remercions donc. Nous vous honorons. Nous prions avec vous.
 
 Que Dieu bénisse chacun d’entre vous avec un grand afflux et un grand remplissage de Son Amour. Je suis votre amie et sœur Eileen.
-
-
-

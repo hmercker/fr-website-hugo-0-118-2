@@ -9,9 +9,9 @@ weight:
 ---
 ### Votre lumière est très attirante dans le monde spirituel
 
-Mylora - reçu par Al Fike le 3 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Mylora - reçu par Al Fike le 3 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
-Que l'Amour de Dieu continue à remplir votre âme jusqu'à ce qu'elle soit débordante d'amour. Je m'appelle Mylora et je suis une habitante du Royaume céleste. Je viens avec la chère fille de si loin<sup id=”a1”>[1](#f1)</sup> car je suis l'un de ses guides. Elle a le don magnifique d'inclure les âmes qui cherchent et d'apporter la Vérité de l'Amour du Père à ceux qui cherchent et prient, d'embrasser et d'accepter beaucoup, de donner son cœur, de donner la connaissance qu'elle a dans son âme de la vérité de l'existence de Dieu et de la nature de Dieu et de tout ce qui est de Dieu. Elle est alignée sur ces choses avec un cœur pur. Donc, avec chacun d'entre vous, mes amis, vous amenez vos guides spéciaux et vos enseignants avec vous et beaucoup d'esprits et beaucoup de personnes qui sont curieuses et qui désirent savoir comment venir à la Lumière.
+Que l'Amour de Dieu continue à remplir votre âme jusqu'à ce qu'elle soit débordante d'amour. Je m'appelle Mylora et je suis une habitante du Royaume céleste. Je viens avec la chère fille de si loin <sup id=”a1”>[1](#f1)</sup> car je suis l'un de ses guides. Elle a le don magnifique d'inclure les âmes qui cherchent et d'apporter la Vérité de l'Amour du Père à ceux qui cherchent et prient, d'embrasser et d'accepter beaucoup, de donner son cœur, de donner la connaissance qu'elle a dans son âme de la vérité de l'existence de Dieu et de la nature de Dieu et de tout ce qui est de Dieu. Elle est alignée sur ces choses avec un cœur pur. Donc, avec chacun d'entre vous, mes amis, vous amenez vos guides spéciaux et vos enseignants avec vous et beaucoup d'esprits et beaucoup de personnes qui sont curieuses et qui désirent savoir comment venir à la Lumière.
 
 Comme vous voyagez dans le monde, comme vous venez de différents lieux dans le monde, ainsi ceux qui vous suivent (et il y en a beaucoup), viennent pour être avec vous dans ces Cercles de Lumière, et ils s’ouvrent aux bénédictions que Dieu doit donner dans ces Cercles. Lorsque Dieu bénit le Cercle de Lumière, une lumière et des bénédictions tombent sur votre Cercle comme un épais contenant d’amour et de lumière, et de là elle se répand à tous ceux qui vous entourent. Et il y a beaucoup d’âmes bien-aimées qui vous entourent en ce moment. Et si vous pouviez voir le sourire sur leurs visages, la reconnaissance dans leurs yeux, le sentiment que Dieu les aime vraiment, que le travail que vous faites ensemble dans ces Cercles de Lumière est puissant et très important pour le monde ! Car le monde est un vaste lieu, et le monde est un lieu de multiples couches et de nombreuses réalités, non seulement votre monde physique, mais toutes les réalités du monde spirituel. Mais ici, dans le monde physique, il est possible que tous ces esprits de tous ces différents lieux et niveaux de progression viennent et se mêlent ensemble dans cette Lumière, et viennent voir par eux-mêmes ce que vous désirez, désirez ardemment et priez pour.
 
@@ -31,8 +31,3 @@ Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis Mylora 
 <small>
 
 1. <large id=”f1”> Il est fait référence à une personne présente qui venait de l'île de le réunion.[↩](#a1)
-
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Se rassembler en tant que communauté
 
-Nicodème - reçu par Al Fike le 18 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Nicodème - reçu par Al Fike le 18 Décembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Nicodème.
 
@@ -24,6 +24,3 @@ Je souhaite dire cela de la manière la plus douce et la plus aimante qui soit, 
 Je vous laisse avec mon amour, mes bénédictions et ma gratitude envers cet instrument qui a été assez surpris que je veuille parler car il est seul et en prière, mais il sait qu’il y a beaucoup de personnes en prière avec lui, donc en substance, ceci est pour tous. Que Dieu vous bénisse. Puissiez-vous vous ouvrir à la guidance et savoir que nous sommes avec vous pour vous offrir protection, guidance et amour. Vous êtes précieux pour nous tous, chacun d’entre nous, que Dieu vous bénisse.
 
 Je suis votre frère dans les cieux Célestes, Nicodème.
-
-
-

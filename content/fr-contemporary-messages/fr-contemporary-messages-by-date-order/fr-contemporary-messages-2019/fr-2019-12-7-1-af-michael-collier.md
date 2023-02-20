@@ -9,7 +9,7 @@ weight:
 ---
 ### Les besoins du monde requièrent votre service et votre engagement
 
-Michaël Collier - reçu par Al Fike le 7 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 7 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Je suis Michaël Collier. Je reviens pour vous parler de votre travail consistant à apporter les vérités de l'Amour du Père au monde. Je suis très heureux de vous entendre parler de votre retour dans le pays que vous avez visité et qui, en ce moment, subit des crises climatiques et des incendies (Australie). Ces sortes de conditions vont s'intensifier dans le monde entier, car les changements terrestres exercent leurs effets. C'est pourquoi il est important pour vous de retourner dans ces endroits, pour renforcer et rétablir un sentiment d'urgence autour de la spiritualité croissante qui est nécessaire dans le cœur de l'humanité afin de faire face à ces conditions et de faire face à ce qui vient. Nous aurons donc besoin de vous à maintes reprises.
 
@@ -40,7 +40,3 @@ Il y a beaucoup à faire, mes amis, et peu de temps pour le faire. Vous pouvez a
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis votre ami, Michaël Collier. Je continue à être avec vous dans vos conversations et vos réflexions, vos prières, en suppliant Dieu de vous bénir continuellement. Mais cette grande bénédiction de Dieu doit s'accompagner d'une réponse d'amour et de service et d'une prise de conscience que votre monde est profondément désespéré et a besoin de vos efforts, de votre sagesse, de la Vérité que vous connaissez, pour se manifester.
 
 Que Dieu vous bénisse, mes amis. Que Dieu continue à vous bénir et à vous garder dans sa lumière, à vous fortifier chaque jour et à vous montrer le chemin. Que Dieu vous bénisse. Mon amour est avec vous. Je suis Michaël Collier. Merci, mes amis.
-
-
-
-

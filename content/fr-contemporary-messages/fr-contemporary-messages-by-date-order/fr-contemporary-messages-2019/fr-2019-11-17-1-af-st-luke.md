@@ -9,7 +9,7 @@ weight:
 ---
 ### Les conditions énergétiques de la Terre vous affectent tous
 
-St Luc - reçu par Al Fike le 17 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 17 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
 Que Dieu vous bénisse. Je m’appelle Luc. Je suis venu vous parler des conditions énergétiques du plan Terrestre et de la façon dont ces conditions vous affectent tous. Le monde a été créé par Dieu. Les intentions de Dieu ont créé des impulsions et des expressions, ont peuplé la Terre d’une manière telle que tout était à un niveau d’harmonie et de grâce, mais pas parfait, car dans toutes les Créations de Dieu se trouve l’intention de changement et d’évolution vers le plus grand objectif d’harmonie. Puis Dieu a placé sur la Terre l’humanité, lui donnant le grand cadeau du libre arbitre et d’une âme, quelque chose qu’aucune autre créature sur votre monde ne possède, une âme individualisée.
 
@@ -44,8 +44,3 @@ Il y a beaucoup de travail à faire dans ce monde. Je suis sûr que pour beaucou
 Dieu vous guidera ainsi, mes amis. Dieu vous montrera le chemin et Dieu sera toujours avec vous. Vous pouvez compter sur la force et l’Amour de Dieu, les bénédictions de Dieu, la guidance de Dieu. Tout cela est à venir si vous choisissez de suivre le chemin de l’Amour et de la Lumière.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et vous garde dans Sa Lumière, Sa protection et Son Amour, créant pour vous un merveilleux flux d’expérience, d’éveil, de joie et d’Amour. Que Dieu vous bénisse. Je suis Luc. Merci d’attirer la Lumière parmi vous et d’amener vos amis anges à parler et à apporter les bénédictions de Dieu sur vous. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
-
-
-
-
-
