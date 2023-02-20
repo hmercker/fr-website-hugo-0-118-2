@@ -9,7 +9,7 @@ weight:
 ---
 ### Encourager et accueillir les différences
 
-Seretta Kem - reçu par Al Fike le 17 Février 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 17 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, Seretta Kem. Vous êtes tous nécessaires dans cette grande entreprise à laquelle vous aspirez pour la Voix Directe. Chacun apporte sa contribution dans cette période de développement et de besoin de croissance et d’éveil de l’âme qui se déroule sans cesse. Nous ne doutons pas de votre engagement, âmes bien-aimées, dans ce projet. Nous ne doutons pas de votre désir d’atteindre quelque chose de plus élevé que les conditions du plan terrestre. Il y a en effet tant de choses qui nécessitent votre attention et vos efforts quotidiens pour vous élever dans l’amour et la lumière. Nous vous avons demandé de corriger votre pensée, d’être en harmonie avec la Volonté de Dieu et en harmonie avec les lois de Dieu. C’est un facteur important pour le succès de l’entreprise que vous entreprenez.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le sujet du service
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 6 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 6 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre ami Charles. Nous étions tous en train d'écouter le sujet du service et moi aussi j'avais envisagé cela dans ma vie. Il est souvent considéré que les artistes, qu'ils soient musiciens ou acteurs, peintres ou danseurs, peuvent être assez complaisants envers eux-mêmes et oui, cela peut être vrai. Mais la grande joie de partager un cadeau, c'est tout simplement de servir.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière et du libre arbitre
 
-St Matthieu - reçu par Al Fike le 16 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 16 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite commenter le pouvoir de la prière étant donné que plusieurs parmi vous avez échangé sur ce sujet et que de nombreuses perspectives différentes ont été exprimées à cet égard. Dieu travaille avec ses enfants de différentes manières dans son grand projet du progrès de chaque âme. Pourtant, une partie de ce plan est l’inclusion du libre arbitre, le respect des choix faits à chaque moment de la vie d’un mortel et d’un esprit. En cela, le monde de la pensée et l’action est très fluide car chacun peut choisir à chaque instant ce qui doit se manifester dans leur vie. Répondre aux conditions dans lesquelles ils vivent, aux pensées qu’ils ont, à la ou les conclusions qui en découlent, ainsi que les désirs et les choix qui se manifestent dans leur vie.
 

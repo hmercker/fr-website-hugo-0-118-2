@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement à apporter la vérité de l'Amour de Dieu aux autres
 
-Michaël Collier - reçu par Al Fike le 28 Février 2020, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 28 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Merci pour votre rassemblement, mes chers et précieux amis sur le plan terrestre. Mon nom est Michaël Collier et je pense que certains d’entre vous ne me connaissent pas ou ne m’ont pas entendu parler dans ces cercles si inhabituels, et pourtant si beaux, dans leur lumière et leur amour. Je suis né à Londres il y a quelques siècles et je n’ai pas vécu une vie extraordinaire mais plutôt banale. Je n’ai rien fait dans ma vie qui puisse être remarqué ou reconnu dans l’histoire, je fus un homme ordinaire qui a vécu une vie ordinaire. Lorsque je suis passé dans le monde des esprits, je ne connaissais rien à son sujet. Comme tant d’autres dans votre monde, je n’étais pas instruit quant à la nature spirituelle de moi-même et de la continuation de la vie, et il m’a donc fallu un certain temps pour m’adapter et comprendre ma situation.
 

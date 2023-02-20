@@ -9,7 +9,7 @@ weight:
 ---
 ### Fondations de Findhorn
 
-Eileen Caddy - reçu par Jimbeau Walsh le 15 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 15 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Eileen, j’ai écouté votre belle prière. Je ne prendrai pas beaucoup de votre temps car je sais que vous avez un calendrier à respecter.
 

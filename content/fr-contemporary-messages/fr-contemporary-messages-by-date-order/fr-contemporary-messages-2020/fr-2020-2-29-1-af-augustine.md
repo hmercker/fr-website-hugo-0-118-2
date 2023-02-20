@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est important de mener une vie spirituelle
 
-Augustin - reçu par Al Fike le 29 Février 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 29 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien aimées, je suis votre enseignant Augustine. Pour ceux d’entre vous qui ne me connaissent pas, je fus autrefois l’évêque d’Hippone, il y a plusieurs centaines d’années, lorsque je marchais sur la Terre, mais je suis effet passé dans le monde des esprits depuis de de nombreux siècles et j’ai fait mon chemin jusqu’au Royaume Céleste. Je suis une de ces âmes dont parle la chère fille qui a été rachetée par l’Amour de Dieu. Toutes les réalités de la Terre ne font plus partie de moi, et toutes les réalités du Ciel font vraiment partie de moi, où Dieu est mon guide et la vérité est mon grand désir de partager et d’enseigner à ceux qui se trouvent sur le plan terrestre.
 

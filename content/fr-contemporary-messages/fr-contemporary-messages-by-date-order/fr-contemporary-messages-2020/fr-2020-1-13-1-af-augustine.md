@@ -9,7 +9,7 @@ weight:
 ---
 ### Être en harmonie est de la plus haute importance pour être un instrument de Dieu
 
-Augustin - reçu par Al Fike le 13 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 13 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je dois dire que je suis quelque peu amusé par votre prière, fille bien-aimée. Vos propos expriment si bien le dilemme humain. D’une part, votre esprit est tellement curieux et désireux de recevoir des directives et des conseils des Anges, et d’autre part, vous priez pour recevoir l’Amour du Père, pour réveiller votre âme et pour réconcilier vos pulsions et désirs, et ceci est souvent source de confusion et de difficultés pour prendre des décisions dans votre vie. C’est le dilemme de la condition humaine, n’est-ce pas ? Les mortels de votre monde sont continuellement confrontés et remettent en question vos décisions et vos actions dans le monde.
 

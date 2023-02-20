@@ -9,7 +9,7 @@ weight:
 ---
 ### Le treillis de lumière est comme un filet qui recouvre le monde et le relie tous ensemble
 
-Keea Atta Kem - reçu par Maureen Cardoso le 31 Janvier 2020, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 31 Janvier 2020, Abbotsford, Colombie-Britannique, Canada.
 
 Je me joins à vous dans votre Cercle de lumière par-dessus les fils, je suis Keea Atta Kem. Vous continuez à vous rassembler de cette façon, en élargissant et en renforçant ce Cercle de Lumière qui agit comme un filet sur votre monde, en rejoignant chacun d’entre vous, en unissant vos âmes dans ces magnifiques fils tissés sur votre planète, lui apportant la belle Lumière que nous, de notre point de vue, voyons. Nous continuons à vous encourager, à vous aimer et à vous guider, chacun d’entre vous, au fur et à mesure que vous progressez sur votre chemin personnel, en renforçant la compréhension et l’éveil de vos âmes, en venant à reconnaître cette partie de vous qui s’éveille, qui a des dons à partager et qui est obligée de créer, de façon créative, un déploiement d’actions afin de bénéficier de la bénédiction de cette expression d’Amour et de Vérité dans tous vos environnements.
 

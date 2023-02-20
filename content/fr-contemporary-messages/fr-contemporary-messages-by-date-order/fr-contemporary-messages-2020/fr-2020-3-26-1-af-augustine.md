@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est temps de répondre à l'invitation à rechercher l'harmonie par la prière
 
-Augustin - reçu par Al Fike le 26 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 26 Mars 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Augustin, votre enseignant. Alors que les vents du changement soufflent sur votre monde, ne voyez-vous pas à quel point l’humanité est inadéquate dans sa capacité à apporter l’harmonie et la guérison face à la destruction et au danger ? Malgré tous les efforts de toutes les âmes de votre monde pour se protéger des conditions de la nature, des conditions qui menacent la stabilité même de vos cultures du monde, vous vous sentez impuissants, chers âmes, parce que ce que Dieu a créé est bien plus grand que ce que l’humanité a créé.
 

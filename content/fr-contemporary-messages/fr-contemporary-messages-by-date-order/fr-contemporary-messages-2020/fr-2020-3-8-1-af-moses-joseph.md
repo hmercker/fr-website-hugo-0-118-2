@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu appelle les leaders à prendre responsabilité
 
-Moïse & Joseph - reçu par Al Fike le 8 Mars 2020, Gibsons, Colombie-Britannique, Canada.
+Moïse & Joseph - reçu par Al Fike le 8 Mars 2020, Monroeville, PA, USA.
 
 Enfants de Dieu, je suis Moïse. J’ai conduit mon peuple hors des dangers et de l’agitation des conditions obscures du monde pendant mon séjour sur cette Terre. Dieu fera appel à chacun d’entre vous pour conduire Ses enfants dans la sécurité et la sûreté avec Dieu. Vous devez donc être forts, vous devez être forts et de grande foi et avec Dieu. C’est ainsi que Dieu vous donnera la force. De cette façon, Dieu vous donnera la perspicacité dont vous avez besoin pour diriger et être clair dans votre vision.
 

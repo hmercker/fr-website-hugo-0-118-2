@@ -9,7 +9,7 @@ weight:
 ---
 ### Chacun a une place dans le plan de Dieu
 
-André - reçu par Al Fike le 9 Février 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 9 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis André. Je suis heureux de vous voir réunis tous ensemble, en prière, pour rechercher le Don d’Amour Divin du Père Céleste dans vos âmes, avec sérieux, dévotion et constance dans vos vies ; que vous suiviez et répondiez à l’appel de votre propre âme à être proche de Dieu, à avoir ce Grand Don de Son Amour implanté dans vos âmes alors qu’il grandit et s’étend en vous.
 

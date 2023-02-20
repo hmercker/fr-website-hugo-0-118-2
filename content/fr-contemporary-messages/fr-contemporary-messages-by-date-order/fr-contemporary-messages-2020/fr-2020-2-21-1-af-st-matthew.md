@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous ouvrez la porte de votre âme quand vous priez
 
-St Matthieu - reçu par Al Fike le 21 Février 2020, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 21 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Matthieu. Chaque fois que vous priez, vous venez à la porte de votre âme et c’est l’intensité de vos prières qui ouvre la porte et vous permet d’y entrer avec Dieu, en communion avec Sa Grande Touche d’Amour et de Présence. C’est donc à vous de parcourir cette route entre le mental qui est engagé dans les préoccupations et les pensées quotidiennes, en mettant cela de côté et en voyageant plus profondément en vous-mêmes, votre vrai moi : votre âme. Chaque jour, vous faites cela avec sérieux, dans la prière et le désir de Dieu, afin de porter le chemin plus complètement et d’atteindre votre but plus facilement.
 

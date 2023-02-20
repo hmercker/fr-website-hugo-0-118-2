@@ -9,7 +9,7 @@ weight:
 ---
 ### Restez dans la grâce
 
-Yogananda - reçu par Jimbeau Walsh le 17 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 17 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère et ami Yogananda. Vous avez tous reçu le grand cadeau de l’Amour de Dieu et vous connaissez la grande vérité de Sa disponibilité. Au fur et à mesure que chacun d’entre vous grandit dans son voyage vers les Cieux Célestes, au fur et à mesure que chacun d’entre vous reçoit de plus en plus de ce grand amour, vous devenez véritablement un canal de lumière et d’amour dans ce monde. Donc avant tout, rappelez-vous ce que le Maître a dit : *« Cherchez d’abord le Royaume des Cieux et tout le reste vous sera donné. »* C’est une grande vérité et cela indique ce qui est le plus important dans ce voyage car tout le reste vous sera donné. Le chemin sera éclairé par l’amour que vous portez. Et comme vous le savez, cette présence sainte, sacrée et glorieuse, au-delà du mental, au-delà de tous les mots que vous prononcez, est votre cadeau aux autres.
 

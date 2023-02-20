@@ -9,7 +9,7 @@ weight:
 ---
 ### Marchez dans ce monde avec la Vérité
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 9 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 9 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care. Oui, c’est Jean qui est venu. Il a été attiré comme beaucoup ici. Chacun d’entre vous avec vos dons et le fait de savoir que le temps est venu de s’en remettre à Dieu et aux anges Célestes et de marcher dans le monde avec la vérité et la Présence de l’Amour de Dieu.
 

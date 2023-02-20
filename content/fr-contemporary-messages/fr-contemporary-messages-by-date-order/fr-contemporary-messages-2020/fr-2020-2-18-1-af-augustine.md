@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu vous tricote tous ensemble
 
-Augustin - reçu par Al Fike le 18 Février 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 18 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Dieu vous relie tous ensemble, mes bien-aimés. Cette grande chaîne de Lumière qui est venue de vous, de vos âmes dans les prières à Dieu, dans les prières communes, dans les efforts d’unité et du désir de recevoir le Don de Son Amour, le don de Lumière et de guérison et de paix. Dieu vous rassemble tous, âmes bien-aimées, afin que vous soyez une force unie dans ce monde pour le bien, pour la Lumière ; afin que vous soyez utilisés par Dieu et Ses anges pour apporter une ouverture, une grande ouverture de Lumière et une influence sur votre monde. Ainsi, Dieu continue à vous rassembler. Dieu continue d’encourager chacun d’entre vous à être en communion avec Sa Grande Âme, cette grande Source d’Amour et de Lumière qui donne du pouvoir à tous ces fils qui sont rassemblés parmi vous et réunis avec une si belle complexité afin que vous soyez, tous ensemble, en harmonie ; le travail des anges qui continuent à vous rapprocher les uns des autres, créant des modèles exquis de Lumière dans votre monde, des modèles qui atteignent les autres ; ceux qui sont connectés à vous, ceux dans le monde qui aspirent, en ce moment même, dans leur âme à la Lumière et aux bénédictions.
 

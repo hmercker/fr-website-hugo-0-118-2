@@ -9,7 +9,7 @@ weight:
 ---
 ### Tout l’univers est gouverné par l’Amour
 
-André - reçu par Al Fike le 17 Février 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 17 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 L’essence de Dieu est l’amour. Tout dans l’univers est gouverné par l’Amour. Et malheureusement, c’est l’humanité qui ne s’en rend pas compte, qui ne voit pas la puissance de l’amour telle qu’elle est, ses beaux rouages et ses influences dans le monde. Nous vous invitons donc, âmes bien-aimées, à continuer d’ouvrir votre âme à ce grand Don d’Amour, à cette abondance que Dieu doit donner. Car, Dieu vous aime tous avec une telle profondeur et une telle ampleur que vous ne pourriez pas comprendre la puissance et la gloire de l’Amour de Dieu pour chacun d’entre vous. Quelle que soit votre position dans la vie, ce que vous avez fait de votre vie, combien votre vie a été difficile ou facile, vous êtes également aimés de Dieu.
 

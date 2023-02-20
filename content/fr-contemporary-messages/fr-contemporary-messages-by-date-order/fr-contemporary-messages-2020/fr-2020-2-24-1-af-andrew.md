@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu veut que vous sachiez ce qu'est une relation avec Lui
 
-André - reçu par Al Fike le 24 Février 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 24 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis André. Avec le clair désir de l’âme dirigée vers Dieu pour recevoir l’Essence de Son âme dans votre âme, c’est là que le Don est donné ; c’est ainsi que le Don est reçu. Une aspiration, un désir, une prière, s’ouvrir à Dieu en toute humilité et innocence, chercher à connaître et à être avec votre Créateur. Et lorsque vous êtes ainsi réunis dans la prière et que tous sont unis dans ce désir, alors la grande bénédiction de l’Amour de Dieu se déverse sur vous pour que vous puissiez boire à votre faim, âmes bien-aimées, pour que vous puissiez recevoir tout ce que vous êtes capables de recevoir, que vous soyez venus à la source de tout amour, pour recevoir, reconnaître, sentir et connaître la grande paix qui dépasse toute compréhension ; un contact de Dieu sur vous, un contact de paix autour de vous, l’éveil à tout ce qui est de lumière, tout ce qui est des royaumes les plus élevés, la venue sur cette Terre, le contact avec vous tous. Vous êtes bénis, âmes bien-aimées, vous êtes bénis. Car Dieu désire que vous connaissiez vraiment, que vous compreniez qui Il est et ce qu’il y a dans cette relation entre vous et le Créateur.
 

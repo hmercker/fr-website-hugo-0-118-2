@@ -1,7 +1,7 @@
 ---
-title: "Guide pour la retraite de la voix directe "
+title: "Guide pour la retraite de la voix directe"
 menu_title: ""
-description: "Guide pour la retraite de la voix directe "
+description: "Guide pour la retraite de la voix directe"
 date: 2022-06-01 06:00:01+00:975
 draft: False
 hidden: True
@@ -9,7 +9,7 @@ weight:
 ---
 ### Guide pour la retraite de la voix directe
 
-Seretta Kem - reçu par Al Fike le 5 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 5 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis heureux de voir que vous avez tous décidé de vous réunir pour d’autres sessions de préparation et de développement de la Voix Directe. Je suis heureux du message que j’ai donné il y a quelques jours par l’intermédiaire de ma chère fille, que cette information est essentiellement correcte, que nous vous laissons le soin de choisir les dates auxquelles vous souhaitez vous réunir et que lorsque vous choisirez les moments appropriés, ce sera en harmonie, que tous seront dans la joie de se retrouver dans cet effort, de se donner en temps et en prière pour se soutenir mutuellement dans cette grande aventure.
 

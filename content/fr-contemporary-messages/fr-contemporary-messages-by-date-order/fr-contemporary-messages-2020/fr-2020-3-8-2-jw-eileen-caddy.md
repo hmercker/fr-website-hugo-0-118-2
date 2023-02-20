@@ -9,7 +9,7 @@ weight:
 ---
 ### Le courage d’aller de l’avant
 
-Eileen Caddy - reçu par Jimbeau Walsh le 8 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 8 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Eileen. Alors que j’écoute vos préoccupations, un sourire se dessine sur mon visage, me rappelant mes propres préoccupations et me demandant si j’avais le courage de continuer. Comme vous, j’ai prié et ma connexion avec Dieu, la Présence et l’Amour m’ont donné le courage de continuer. Vous avez tendu la main à ce monde avec l’Amour Divin et sa vérité, souhaitant embrasser toutes les cultures et croyances, franchissant les frontières avec amour.
 

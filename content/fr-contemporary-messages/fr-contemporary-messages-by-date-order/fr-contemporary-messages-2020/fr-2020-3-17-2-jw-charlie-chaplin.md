@@ -9,7 +9,7 @@ weight:
 ---
 ### Partagez vos dons
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 17 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 17 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Charles. Certains d’entre vous me connaissent sous le nom de Charlie. Je suis honoré de pouvoir vous parler aujourd’hui et j’y suis autorisé car beaucoup sont séquestrés et déconnectés de leurs distractions habituelles. C’est donc le moment idéal pour partager des chants d’amour, pour danser avec les enfants, pour créer des œuvres d’art, pour donner ce que vous savez de cette vérité de l’Amour de Dieu. Il y a tant de façons de la partager sans être envahissant, comme avec de l’humour, des chansons et de la légèreté. Car chaque crise est une opportunité. Comme le dit le vieux dicton : « Quand la vie te donne des citrons, fais de la limonade. » Vous pouvez le faire.
 

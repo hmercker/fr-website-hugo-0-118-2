@@ -9,7 +9,7 @@ weight:
 ---
 ### Honorer les soignants – S’occuper des autres
 
-St François d'Assise - reçu par Jimbeau Walsh le 6 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 6 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère François. Je suis humblement touché par ce groupe de soignants. Beaucoup dans le monde ne peuvent pas comprendre les défis de prendre soin des autres qui sont dans l’incapacité de prendre soin d’eux-mêmes. Ceux qui sont ici et qui ont rendu service pendant tant d’années ont fait face aux triomphes et aux tribulations et à tous les défis d’être des soignants.
 

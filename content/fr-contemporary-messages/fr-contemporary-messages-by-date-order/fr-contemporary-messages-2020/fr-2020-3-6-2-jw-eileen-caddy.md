@@ -9,7 +9,7 @@ weight:
 ---
 ### Gardez le cap avec amour
 
-Eileen Caddy - reçu par Jimbeau Walsh le 6 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 6 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre amie Eileen. J’étais avec vous tout à l’heure dans le cercle et j’ai choisi, comme je l’ai dit à mon cher ami ici présent, de parler à ce cercle parce que, dans un sens, je suis votre gardien dans ce voyage, ce projet.
 

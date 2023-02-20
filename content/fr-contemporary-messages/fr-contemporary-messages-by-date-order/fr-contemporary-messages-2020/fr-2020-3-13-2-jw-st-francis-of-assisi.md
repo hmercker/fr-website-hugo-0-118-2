@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde s'est ralenti pour laisser du temps à la prière
 
-St François d'Assise - reçu par Jimbeau Walsh le 13 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 13 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami François.
 

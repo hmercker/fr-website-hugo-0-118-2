@@ -9,7 +9,7 @@ weight:
 ---
 ### Q&R sur l'obscurité et les chakras
 
-Flavius Josèphe - reçu par Al Fike le 15 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 15 Mars 2020, Houston, TX, USA.
 
 Oui. Je suis Flavius Josèphe et je vais répondre à vos questions, chers amis. Notre professeur bien-aimé, Keea, vous a donné l’essence du message que nous avons l’intention de vous transmettre, à vous et à d’autres, car il est important de reconnaître les raisons et les moyens par lesquels Dieu apportera le changement dans votre monde et la guérison. Elle vous a donc parlé avec amour des conditions qui sont difficiles à reconnaître et à accepter.  Alors, mes amis, qu’est-ce que vous souhaitez demander ?
 

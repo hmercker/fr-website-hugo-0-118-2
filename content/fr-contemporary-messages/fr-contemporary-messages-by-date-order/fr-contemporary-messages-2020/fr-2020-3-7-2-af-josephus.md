@@ -9,7 +9,7 @@ weight:
 ---
 ### Communion de l'âme avec Dieu
 
-Flavius Josèphe - reçu par Al Fike le 7 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 7 Mars 2020, Monroeville, PA, USA.
 
 Je vous bénis, âmes bien-aimées, mon nom est Flavius Josèphe. Je viens vous parler des limites du mental et des perceptions que vous avez tous et sur lesquelles vous comptez, et qui sont quelque peu limitatives en ce qui concerne l’éveil spirituel.
 

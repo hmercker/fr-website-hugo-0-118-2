@@ -9,7 +9,7 @@ weight:
 ---
 ### Ayez foi en Dieu, les anges et le voyage
 
-Jésus - reçu par Al Fike le 22 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 22 Mars 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je viens, je suis Jésus. Vous n’avez rien à craindre, mes bien-aimés, car je vous ai dit à maintes reprises que je vous conduirai vers la lumière et c’est ce que je ferai. Ayez foi en Dieu, ayez foi dans les anges qui vous entourent chacun. Ayez foi dans le voyage que Dieu souhaite que vous fassiez en continuant à réveiller vos âmes pour que le chemin soit clair et que la compréhension vienne à chacun de vous afin que vous ne soyez pas effrayés, ni confus mais que vous veniez à la lumière de la vérité.
 

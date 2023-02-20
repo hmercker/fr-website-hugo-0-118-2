@@ -9,7 +9,7 @@ weight:
 ---
 ### Sainte Communion Sainte Communauté
 
-St François d'Assise - reçu par Jimbeau Walsh le 17 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 17 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C'est moi, votre frère Francis. Les mots sainte communion signifient être en communion avec Dieu. Dans ces beaux cercles que vous avez, chacun est en communion, chacun dans la mesure de ses désirs et de ses capacités d’ouverture. Je vous le dis à tous, ces désirs sont tout. Ils transcendent tous les mots que vous pourriez avoir et ils vous amènent dans cette glorieuse communion.
 

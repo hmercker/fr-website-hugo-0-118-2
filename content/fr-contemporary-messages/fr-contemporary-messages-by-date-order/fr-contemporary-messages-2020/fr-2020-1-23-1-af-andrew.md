@@ -9,7 +9,7 @@ weight:
 ---
 ### La vraie guidance apporte un signal expansif et joyeux dans l'âme
 
-André - reçu par Al Fike le 23 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 23 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est André. Vous êtes tous nécessaires dans le monde, âmes bien-aimées. Je suis préoccupé par le fait que certains d’entre vous sentent et perçoivent qu’ils ne sont pas nécessaires et qu’ils peuvent être rejetés.
 

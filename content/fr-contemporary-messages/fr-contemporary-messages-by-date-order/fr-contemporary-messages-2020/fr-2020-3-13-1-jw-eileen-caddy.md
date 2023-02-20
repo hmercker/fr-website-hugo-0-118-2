@@ -9,7 +9,7 @@ weight:
 ---
 ### Suggestions de Findhorn
 
-Eileen Caddy - reçu par Jimbeau Walsh le 13 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 13 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi votre sœur Eileen, je suis si heureuse que vous ayez compris mes suggestions et mes commentaires et que vous les ayez pris à cœur en élaborant vos propositions. Les dés sont jetés. Maintenant que les événements sur terre conspirent pour inciter les gens à entrer dans leur âme au-delà de la simple survie sur terre, le moment de ta demande semble en effet très propice.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Aigle Blanc vient offrir la guérison
 
-White Eagle - reçu par Jimbeau Walsh le 29 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+White Eagle - reçu par Jimbeau Walsh le 29 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Aigle Blanc.
 

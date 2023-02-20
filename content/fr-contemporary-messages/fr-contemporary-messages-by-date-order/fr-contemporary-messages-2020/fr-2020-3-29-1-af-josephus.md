@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment faire face aux conditions changeantes de cette Terre en ce moment
 
-Flavius Josèphe - reçu par Al Fike le 29 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 29 Mars 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Flavius Josèphe et je suis venu pour parler des conditions changeantes de votre monde. En ce moment même, chacun de vous est béni par la Lumière. Chacun d’entre vous peut être un partenaire du Père Céleste pour être un canal de Lumière dans le monde, car chacun d’entre vous ici est une âme sérieuse, une âme en quête, une âme qui est prête à aller au-delà de sa propre vision, de son propre besoin et de sa propre perspective pour atteindre quelque chose de plus grand, de plus élevé et en alignement avec Dieu.
 

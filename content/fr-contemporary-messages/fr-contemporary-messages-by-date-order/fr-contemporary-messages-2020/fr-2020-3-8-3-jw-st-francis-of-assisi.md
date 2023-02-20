@@ -9,7 +9,7 @@ weight:
 ---
 ### Suivez votre cœur
 
-St François d'Assise - reçu par Jimbeau Walsh le 8 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 8 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, François. Quelle joie de voir ce rassemblement d’âmes qui aspirent à ne faire qu’un dans l’Amour de Dieu. Ce n’est pas un chemin de l’esprit mais plutôt un chemin du cœur. Pour paraphraser notre cher frère Luc : *« Là où est votre cœur, là est votre âme, et quand le cœur aspire à l’amour du Créateur, là est votre trésor. »* Il n’y a pas de plus grand amour, il n’y a pas de plus grand cadeau. C’est un chemin simple que de permettre à votre cœur de s’ouvrir pour que Dieu puisse toucher vos âmes et apporter Son amour dans chacune d’elles, vous changeant, vous guérissant.
 

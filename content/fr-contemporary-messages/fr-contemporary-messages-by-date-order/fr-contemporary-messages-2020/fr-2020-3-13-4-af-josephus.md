@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité s'étendra à mesure que votre âme s'éveillera
 
-Flavius Josèphe - reçu par Al Fike le 13 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 13 Mars 2020, Houston, TX, USA.
 
 J’entends ta question, cher frère. Je comprends que tu ais un profond désir d’obtenir des informations plus complexes et de comprendre les Lois de l’Esprit et les Lois de l’Amour de Dieu afin de pouvoir enseigner et partager des informations vitales à vos interlocuteurs qui les aideront dans leur développement de l’âme.
 

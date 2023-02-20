@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour de Dieu est disponible pour chaque âme et existe partout
 
-Jésus - reçu par Al Fike le 14 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 14 Mars 2020, Houston, TX, USA.
 
 Laissez votre âme être touchée par l’Essence de Dieu, Son Amour. Je viens. Je suis Jésus. Je viens pour vous apporter l’élévation et les bénédictions de la lumière et de la paix. Âmes bien-aimées, engagez-vous à alimenter les feux de votre âme. Puissiez-vous comprendre la puissance de votre désir et de votre envie de recevoir ce grand don qu’est l’Amour. C’est l’Essence de Dieu tirée de Lui et qui vous est donnée, ces grandes Eaux Vives qui se déversent si profondément, elles sont infinies, elles peuvent être données à chacun de vous alors que vous continuez à désirer et à prier pour cette bénédiction.
 

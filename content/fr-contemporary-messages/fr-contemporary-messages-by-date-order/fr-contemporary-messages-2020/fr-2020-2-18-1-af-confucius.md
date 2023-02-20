@@ -9,7 +9,7 @@ weight:
 ---
 ### Marchez toujours dans la lumière de l'Amour de Dieu
 
-Confucius - reçu par Al Fike le 18 Février 2020, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 18 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je vous bénis, mes petits oiseaux, je suis Confucius. Je viens vous apporter une bénédiction, une bénédiction de Lumière et de guérison, pour vous élever et vous soutenir, mes chers. Marchez toujours dans la Lumière de l’Amour de Dieu. Cherchez Ses bénédictions sur vous. Ayez toujours dans vos pensées que la Main de Dieu repose sur vous, sur chacun d’entre vous, au cours de votre voyage dans la vie. Ainsi Dieu vous bénira, âmes bien-aimées. Au fur et à mesure que vous affronterez les défis de la vie, Dieu vous élèvera, âmes bien-aimées. Vous êtes Ses enfants. Vous êtes profondément aimés. Vous êtes dans la Lumière de Son Toucher alors qu’Il vous apporte l’Amour, la paix et la joie.
 

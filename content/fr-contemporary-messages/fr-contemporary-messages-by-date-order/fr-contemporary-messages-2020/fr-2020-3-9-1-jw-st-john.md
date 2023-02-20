@@ -9,7 +9,7 @@ weight:
 ---
 ### Royaumes de lumière
 
-St Jean - reçu par Jimbeau Walsh le 9 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+St Jean - reçu par Jimbeau Walsh le 9 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Jean le Bien-Aimé. Je me tiens au-dessus de celui-ci. J’ai été attiré vers ce cercle, comme beaucoup d’autres, par la prière et votre discussion. Je tiens à dire que je peux sentir votre curiosité, chacun d’entre vous, qui se demande :  *« Comment cela sera-t-il lorsque je quitterai cette enveloppe mortelle, ce corps physique, pour entrer dans les royaumes de l’esprit ? »* Bien sûr, vous êtes attirés par les diverses descriptions de ceux qui ont été guidés par le monde spirituel et oui, par les Cieux Célestes et par le Maître lui-même dans certains cas. Et en ce moment, vous continuez à recevoir cette guidance.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne perdez pas votre détermination à développer le don de la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 1 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 1 Mars 2020, Gibsons, Colombie-Britannique, Canada.
 
 Mes amis, je suis Seretta Kem. Je suis heureuse que vous continuiez à vous réunir pour soutenir et aider à améliorer la possibilité de réaliser ce don dans votre monde. Il est important que vous continuiez à garder cette pensée, ce désir et cette intention vivants dans vos esprits et vos âmes. Ce n’est pas parce que vous ne vous êtes pas assis en cercle pour ce don dans la chair que le développement de ce don n’a pas lieu, car il a lieu. Il fait en effet partie du grand plan et des efforts que nous déployons en esprit, pour apporter la vérité à l’humanité.
 

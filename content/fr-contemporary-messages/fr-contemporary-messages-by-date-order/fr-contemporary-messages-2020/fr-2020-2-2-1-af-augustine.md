@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu a un grand plan en vue pour le salut de l’humanité
 
-Augustin - reçu par Al Fike le 2 Février 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 2 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant, Augustin. Dieu a de nombreux plans et de nombreux projets en cours pour apporter le salut à l’humanité, pour aider les âmes de ces mortels ici sur Terre à parvenir à la réalisation de la Vérité et à la réalisation de leur propre moi véritable et des potentiels de leurs âmes. Dieu a semé dans ce monde de nombreuses âmes qui ont en elles le sens du but, quelque chose qu’elles se sont engagées à faire pour Dieu et pour l’humanité. Oui, il y a un grand plan en marche, un grand plan en effet.
 

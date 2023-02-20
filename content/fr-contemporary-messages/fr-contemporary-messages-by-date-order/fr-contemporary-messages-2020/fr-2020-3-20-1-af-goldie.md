@@ -9,7 +9,7 @@ weight:
 ---
 ### Ressentir de la joie
 
-Goldie - reçu par Al Fike le 20 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Goldie - reçu par Al Fike le 20 Mars 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Goldie et sachez que je vais profiter de ces moments où vous êtes à la maison et avez besoin de vous amuser. Je viendrai vous chatouiller derrière les oreilles et sous le menton et je vous murmurerai des mots doux à l’oreille pour que vous puissiez tous ressentir un peu de joie et d’excitation dans ces moments qui vous éloignent de vos vies bien remplies.
 

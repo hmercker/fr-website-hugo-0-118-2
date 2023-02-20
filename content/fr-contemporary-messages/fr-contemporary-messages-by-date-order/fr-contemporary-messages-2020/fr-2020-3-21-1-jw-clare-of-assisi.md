@@ -9,7 +9,7 @@ weight:
 ---
 ### Les richesses de l'âme
 
-Claire d'Assise - reçu par Jimbeau Walsh le 21 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 21 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Mes chers enfants, je suis Claire d’Assise. J’ai été attirée dans votre cercle, à cause de vos échanges et parce que j’ai senti le désir ardent de vos âmes et aussi, j’ai veillé sur la sœur qui a voyagé en Angleterre et qui est maintenant de retour au Canada.
 

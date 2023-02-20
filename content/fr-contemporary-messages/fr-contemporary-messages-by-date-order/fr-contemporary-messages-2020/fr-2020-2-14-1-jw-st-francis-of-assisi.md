@@ -9,7 +9,7 @@ weight:
 ---
 ### Fou pour Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 14 Février 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 14 Février 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-francois-dassise.jpg)
 

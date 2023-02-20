@@ -9,7 +9,7 @@ weight:
 ---
 ### Passez du temps en prière plutôt que de vous inquiéter, Dieu veille sur vous
 
-André - reçu par Al Fike le 27 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 27 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Comme vous êtes bien protégés dans vos vies ; en sécurité, au chaud, vous ne voulez rien, âmes aimées. Bien que vous puissiez avoir l’impression de souhaiter plus, en vérité, Dieu veille sur vous. Chaque pas, chaque souffle que vous effectuez, la main de Dieu est sur vous. Il n’y a pas besoin de manque. Il n’y a pas besoin de désirer plus de choses matérielles. N’êtes-vous pas bien nourri, habillé, au chaud, en sécurité ?
 

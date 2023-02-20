@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pont reliant la Terre et le Ciel
 
-Eileen Caddy - reçu par Jimbeau Walsh le 9 Février 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 9 Février 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Eileen. Il existe un pont qui relie les réalités du plan terrestre aux réalités du monde Céleste et de l’esprit. Lorsque quelqu’un vient du plan terrestre et qu’il en est venu à croire que c’est tout ce qu’il y a, qu’il reviendra encore et encore et que, dans la condition humaine, les problèmes peuvent toujours être résolus de manière réfléchie, ils ont tendance à être résolus, mais la reconnaissance du pont vers le Créateur est obscurcie.
 

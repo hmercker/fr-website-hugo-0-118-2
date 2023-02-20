@@ -9,7 +9,7 @@ weight:
 ---
 ### La main de Dieu repose sur chacun de vous
 
-Joseph - reçu par Al Fike le 17 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 17 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, que la paix soit sur vous, je suis Joseph. La Main de Dieu repose sur chacun de vous et vous apportera une force, une constance, une Lumière et un Amour qui nourriront votre âme et vous aideront à naviguer dans la vie, dans la Lumière, dans la sagesse et la force. Chaque mortel de votre monde bénéficierait de ces bénédictions et a besoin de ces bénédictions. Car, lorsque votre Lumière brille et que cette Lumière vient de vos âmes imprégnées de l’Amour du Père, alors vous ne pouvez rien faire dans la vie sans que cette influence, cette protection et cette bénédiction ne vous apportent ce qui est en harmonie avec le désir de Dieu pour vous, Sa Volonté pour vous, dans la vie.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Avec le temps, le filet d'amour de Dieu dans votre âme deviendra un fleuve puissant
 
-Augustin - reçu par Al Fike le 16 Février 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 16 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Comme vous aspirez aux expériences mystiques du Toucher de Dieu sur vous et sur vos âmes. Comme vous aspirez aux manifestations, aux preuves et aux expressions palpables de ces dons de Dieu. Comme vous voulez que vos frères et sœurs sachent, par leur esprit, leurs sens et leur âme, que le don de Dieu, Son Amour, est vrai, réel et connaissable. Comment vous cherchez à être utilisés comme les instruments de Dieu pour réaliser de telles merveilles et bénédictions afin d’aider vos compagnons de route sur cette route de l’amour.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque tradition religieuse peut recevoir cet Amour Divin
 
-Baal Shem Tov - reçu par Jimbeau Walsh le 7 Février 2020, Punalu’u, Oahu, Hawaii, USA
+Baal Shem Tov - reçu par Jimbeau Walsh le 7 Février 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Israel Ben Eliazer. Je fus connu sous le nom de Baal Shem Tov et je fus un réformateur dans ma communauté parmi les Hassidistes d’Europe de l’Est. J’avais fait l’expérience de la lumière et de l’amour de Dieu à travers mes prières. J’ai fait l’expérience de cet être comme étant partout et accessible à tous. Dans chaque action, il pouvait y avoir un lien avec Dieu et je prêchais cela. Au début, il y a eu une réaction (négative) qui ne fut pas celle à laquelle je m’attendais. Mais au fur et à mesure que nous avons prié, dansé et célébré, cette vérité que j’avais reçue a atteint le plus grand nombre, des milliers de personnes.
 

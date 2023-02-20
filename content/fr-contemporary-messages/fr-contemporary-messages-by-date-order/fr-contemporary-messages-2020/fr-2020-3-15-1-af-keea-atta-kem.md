@@ -9,7 +9,7 @@ weight:
 ---
 ### Une allocution sérieuse sur le changement des conditions de la Terre
 
-Keea Atta Kem - reçu par Al Fike le 15 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 15 Mars 2020, Houston, TX, USA.
 
 Âmes bien-aimées Je suis Keea Atta Kem et j’ai résidé en Égypte il y a plusieurs centaines d’années et je réside maintenant dans le Royaume Céleste, une âme rachetée et un ange de Dieu.
 
@@ -41,6 +41,6 @@ Vous devez vivre au jour le jour dans la foi et la confiance en Dieu, qui est la
 
 Ces changements sont un grand cadeau. Je vous invite donc, lorsque vous êtes au milieu de moments difficiles, à vous en souvenir, car cela se produit pour une raison et a un but et un résultat, pour élever l’humanité et ramener le monde du bord de la destruction vers un lieu d’harmonie. Ce sont de dures leçons, des leçons difficiles mais nécessaires pour que tous puissent trouver leur chemin vers une plus grande lumière et une vérité plus profonde et que l’harmonie puisse régner dans votre monde comme dans le nôtre. Que Dieu vous bénisse dans ce voyage.
 
-Maintenant je vais vous donner notre ami bien-aimé, Flavius Joseph, qui répondra aux questions que vous lui poserez après mon intervention, ma sérieuse intervention, mais je crois qu’il a répondu à certaines de vos questions dans le déversement de ces mots et vérités.
+Maintenant je vais vous donner notre ami bien-aimé, Flavius Josèphe, qui répondra aux questions que vous lui poserez après mon intervention, ma sérieuse intervention, mais je crois qu’il a répondu à certaines de vos questions dans le déversement de ces mots et vérités.
 
 Que Dieu vous bénisse, je suis Keea Atta Kem et je suis heureux de vous parler aujourd’hui. Que Dieu vous bénisse tous, Dieu est avec vous. Rappelez-vous ceci, mes frères et sœurs bien-aimés, Dieu sera toujours avec vous et vous ne serez jamais seuls. Cherchez les bénédictions de Dieu, cherchez les ressources de Dieu qui sont ses anges, ses bénédictions et son amour. Cherchez ces choses, mes amis bien-aimés, et vous arriverez à connaître une mesure de paix en ces temps de grand tumulte. Que Dieu vous bénisse, merci et mon amour est avec vous.

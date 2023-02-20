@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez vous concentrer sur la Prière
 
-Seretta Kem - reçu par Al Fike le 12 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 12 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Vous continuez à construire vos fondations mes amis bien-aimés, à considérer chaque jour comme une opportunité de faire grandir votre âme, à voir votre vie dans la perspective de faire grandir votre âme et d’avancer spirituellement. C’est ce qu’il faut, mes amis, pour que ces grands efforts portent leurs fruits.
 

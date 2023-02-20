@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Âme a été crée pour recevoir l’Amour de Dieu
 
-Augustin - reçu par Al Fike le 7 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 7 Mars 2020, Monroeville, PA, USA.
 
 Je suis votre enseignant Augustin. Pour ceux qui s’investissent leur vie dans la prière, il y a toujours une réponse. Pour ceux qui ont un profond désir de recevoir les Bénédictions de Dieu, ils susciteront l’Esprit Saint de répondre à ces prières et d’apporter ce Grand Don de l’Essence du Père, l’Amour de Dieu. Ce don sera donné à ceux qui prient et désirent cette bénédiction. Et cette prière peut être en paroles ou non. Cette prière peut être un accomplissement du désir de l’âme d’être avec Dieu. Mais quel que soit le motif de l’individu, il doit y avoir un désir, une aspiration à quelque chose de plus que ce qui est satisfait par le mental.
 

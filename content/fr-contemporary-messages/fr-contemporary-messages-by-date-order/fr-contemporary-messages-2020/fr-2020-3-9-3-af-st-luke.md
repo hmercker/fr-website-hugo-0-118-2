@@ -9,7 +9,7 @@ weight:
 ---
 ### Les pensées exercent une puissante influence sur votre monde
 
-St Luc - reçu par Al Fike le 9 Mars 2020, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 9 Mars 2020, Monroeville, PA, USA.
 
 Âmes bien-aimées, je suis Luc. Les devises du monde sont celles de la condition et des désirs humains les plus bas. Dans ces échanges de pensées et d’énergies entre vous, dans les conditions générales du monde, ces conditions sont renforcées. Ces pensées continuent à circuler, créant la peur et l’agitation, la méfiance et un manque d’amour. Si seulement l’humanité comprenait que le pouvoir de ses pensées, oui, le pouvoir de ces pensées qui circulent dans votre monde continuent à retenir l’humanité dans une condition obscure. Ainsi, en permettant à ces sentiments de peur et de doute, des désirs les plus bas, de proliférer continuellement, créant une barrière envers Dieu, une barrière envers la lumière, une barrière à la joie, de sorte que même les enfants innocents sont infectés par ces conditions et grandissent avec des attitudes et des pensées qui continuent à renforcer et à apporter le malheur à tous. Ainsi, les distractions du monde sont plus importantes que la véritable expression et ce que vous appelez l’authenticité de l’âme humaine.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Un rayon de lumière
 
-Hafiz - reçu par Jimbeau Walsh le 13 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Hafiz - reçu par Jimbeau Walsh le 13 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Hafiz le poète et vous êtes dans votre galaxie – un point dans le vaste univers du Créateur vivant sur un point microcosmique dans un univers en expansion et pourtant il y a un faisceau de lumière qui relie chacun à la Source. Cette connexion est facilitée par l’amour et provoquée par chacun qui recherche cet amour dans la chasse spirituelle où la proie capture le chasseur.
 

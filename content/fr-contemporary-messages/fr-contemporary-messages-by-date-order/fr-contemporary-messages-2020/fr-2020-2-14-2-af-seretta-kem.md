@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement au développement des dons de médiumnité
 
-Seretta Kem - reçu par Al Fike le 14 Février 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem. Je me suis impliquée avec cet instrument et d’autres dans de nombreuses formes de développement de la médiumnité et des moyens de communication entre votre monde et le nôtre. Je suis heureuse que vous envisagiez la possibilité d’une communication entre vous et nous du Royaume Céleste. Il y a un grand manque de compréhension et de connaissance concernant la communication entre vous du plan terrestre, qui êtes essentiellement des êtres spirituels, et nous du monde des esprits qui n’avons pas de corps charnel à partir duquel opérer et nous exprimer. Pourtant, nous avons tous fait l’expérience de cette condition de la vie terrestre et nous en comprenons les joies et les défis.
 

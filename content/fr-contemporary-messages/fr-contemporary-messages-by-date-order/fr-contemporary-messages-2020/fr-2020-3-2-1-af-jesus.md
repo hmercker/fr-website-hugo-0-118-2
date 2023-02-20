@@ -9,7 +9,7 @@ weight:
 ---
 ### Les temps de grands changements sont à nos portes
 
-Jésus - reçu par Al Fike le 2 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 2 Mars 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Matthieu. Oui, les vents du changement arrivent pour chacun d’entre vous, mes chers et beaux amis. Il y a beaucoup de choses qui arrivent dans le monde, beaucoup de choses que vous devez reconnaître et admettre dans vos âmes et comprendre cet endroit en vous qui a la sagesse, l’amour, la force et la connaissance pour être dans le monde comme un leader dans le monde, car Dieu aura besoin de votre leadership. Dieu aura besoin de chacun de vous pour être fort et clair dans votre perspective, de belles âmes, des canaux de lumière et d’amour dans le monde. Ces défis ne sont pas insurmontables et les conditions qui viennent, bien qu’elles ne soient pas compatibles avec les grandes énergies et les conditions que l’humanité a construites, sont compatibles avec Dieu, compatibles avec la nouvelle ère et la nouvelle façon d’être dans le monde qui vient.
 

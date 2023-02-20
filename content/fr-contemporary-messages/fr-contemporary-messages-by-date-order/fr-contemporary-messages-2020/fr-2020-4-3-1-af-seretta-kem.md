@@ -9,7 +9,7 @@ weight:
 ---
 ### La médiumnité exige de se consacrer au développement d'une relation avec Dieu
 
-Seretta Kem - reçu par Al Fike le 3 Avril 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 3 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem et je suis très heureux de voir qu’il y a tant de personnes qui sont sérieuses dans cette aventure et qui ont le désir de communiquer avec nous. Si peu dans votre monde ont ce désir ou même une idée de ce qui est possible. Mettre en avant la sagesse des anges sera un grand cadeau pour chacun d’entre vous, âmes bien-aimées. Je tiens à vous assurer qu’un ange vous a été assigné alors que vous continuez sur cette trajectoire. Vous recevrez de l’inspiration, des bénédictions et des expériences alors que vous poursuivez vos efforts pour prier pour l’Amour de Dieu chaque jour.
 

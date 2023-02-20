@@ -9,7 +9,7 @@ weight:
 ---
 ### Les portes des Cieux Célestes ne seront pas fermées pendant des millénaires
 
-Jésus - reçu par Al Fike le 4 Février 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 4 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je viens pour être avec vous, âmes bien-aimées, je suis Jésus. Je suis venu pour vous élever dans vos prières, pour marcher avec vous dans votre vie quotidienne, alors que vous continuez à lutter et à aspirer à la Lumière et à la Vérité. Je suis avec vous lorsque vous priez le Père Céleste, en cherchant sa bénédiction d’Amour dans vos âmes. Je suis avec vous lorsque vous vous sentez vivre. Je suis toujours avec vous bien-aimés, car vous êtes mes frères et sœurs et je continue à tous vous embrasser dans mes prières et mes efforts pour apporter la Lumière à votre monde.
 

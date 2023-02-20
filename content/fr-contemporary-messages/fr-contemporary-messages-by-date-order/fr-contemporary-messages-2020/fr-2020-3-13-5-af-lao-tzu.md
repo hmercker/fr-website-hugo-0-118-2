@@ -9,7 +9,7 @@ weight:
 ---
 ### Le grand potentiel de l'âme doit être découvert par tous
 
-Lao Tseu - reçu par Al Fike le 13 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Lao Tseu - reçu par Al Fike le 13 Mars 2020, Houston, TX, USA.
 
 Compagnons de lumière, je suis Lao Tseu. Il y a un grand bouleversement dans le monde, surtout en Orient comme vous l’appelez, où la grande promesse du matérialisme n’apporte pas, comme on l’a cru, le soulagement aux gens qui souffrent. Les superstitions des anciennes religions et idées sont en train de se dissiper. Beaucoup de choses changent dans cette partie du monde, tout comme dans votre partie. Le monde entier est bouleversé par de grands changements et de grands défis.
 

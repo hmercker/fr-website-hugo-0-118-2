@@ -9,7 +9,7 @@ weight:
 ---
 ### Quand vous priez, vous invitez Dieu à guérir
 
-St Paul - reçu par Al Fike le 25 Février 2020, Gibsons, Colombie-Britannique, Canada
+St Paul - reçu par Al Fike le 25 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Paul de Tarse. Je viens à vous, filles et fils bien-aimés, pour vous donner une bénédiction, pour vous apporter une inspiration, un don de Lumière. Car je réside au Ciel et je viens vous parler sur la Terre, ce lieu plein de troubles, de préoccupations et d’inquiétudes, et qui a grand besoin des bénédictions de Dieu et de vous toucher tous. Je viens vous dire, mes amis, que Dieu connaît chacun de vous et que Dieu aime chacun de vous de tout son cœur, et sait que, dans votre monde, toutes les âmes qui marchent sur cette Terre sont connues de Dieu et aimées de Dieu.
 
