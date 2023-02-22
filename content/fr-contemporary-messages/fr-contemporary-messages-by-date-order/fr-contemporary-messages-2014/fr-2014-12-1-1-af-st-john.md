@@ -9,7 +9,7 @@ weight:
 ---
 ### Le temps viendra où vous vous aimerez complètement et où vous aimerez ainsi toute l’humanité
 
-St Jean - reçu par Al Fike le 1 Décembre 2014, Gibsons, Colombie-Britannique, Canada.
+St Jean - reçu par Al Fike le 1 Décembre 2014, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, âmes bien-aimées, qui vous réunissez dans la prière, qui vous réunissez parce qu’elles désirent la fraternité et qui viennent parce que leurs âmes aspirent à l’Amour de Dieu. Et dans ce désir ardent, vous vous exprimez tous à Dieu et créez une lumière parmi vous qui est puissante et belle, car Dieu répond à vos prières, aux désirs de votre âme et vous amène pleinement dans Sa présence.
 
@@ -19,6 +19,6 @@ Oui, vous avez appris de grandes leçons, mes enfants. Vous avez cherché à gra
 
 En effet, c’est votre défi de vous aimer vous-mêmes et, ce faisant, d’aimer véritablement votre prochain. Puissiez-vous marcher dans la foi, mes bien-aimés, marcher dans la simplicité et l’humilité et que vos oreilles s’ouvrent à la guidance de Dieu, cette voix tranquille en vous. Puissiez-vous marcher avec certitude, paix et joie. Cela viendra, la certitude viendra et vous êtes déjà attirés dans vos âmes ; cela attend votre reconnaissance, cela attend votre volonté de mettre de côté votre résistance et vos soupçons et d’accepter la volonté de Dieu et d’accepter la lumière brûlante en vous. Elle viendra. Elle fait en effet partie de vous et, parfois, vous la reconnaissez.
 
-Il y aura un moment dans votre vie où ce sera la motivation et la conscience prédominantes en vous ; les désirs de vos âmes et de connaître la volonté de Dieu et pour ce canal d’amour en vous d’être une rivière puissante coulant à travers vous vers le monde. C’est le pouvoir de l’amour de Dieu. C’est la guérison de l’Amour de Dieu. C’est la sagesse de l’Amour de Dieu. Et c’est la vérité qui brûle en vous qui fera disparaître tous les obstacles, les doutes et les perceptions déformées. Soyez bénis, mes bien-aimés, soyez bénis. Je suis Jean et je vous aime. Je vous aime.
+Il y aura un moment dans votre vie où ce sera la motivation et la conscience prédominantes en vous ; les désirs de vos âmes et de connaître la Volonté de Dieu et pour ce canal d’amour en vous d’être une rivière puissante coulant à travers vous vers le monde. C’est le pouvoir de l’Amour de Dieu. C’est la guérison de l’Amour de Dieu. C’est la sagesse de l’Amour de Dieu. Et c’est la vérité qui brûle en vous qui fera disparaître tous les obstacles, les doutes et les perceptions déformées. Soyez bénis, mes bien-aimés, soyez bénis. Je suis Jean et je vous aime. Je vous aime.
 
 Buvez profondément, mes enfants, car l’Amour de Dieu se déverse sur vous en grande abondance en ce moment. Buvez profondément, ouvrez grand et acceptez ce cadeau afin qu’il puisse rapprocher votre âme de Dieu.
