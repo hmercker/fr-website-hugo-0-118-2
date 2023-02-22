@@ -9,7 +9,7 @@ weight:
 ---
 ### Passez du temps en prière plutôt que de vous inquiéter, Dieu veille sur vous
 
-André - reçu par Al Fike le 27 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 27 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Comme vous êtes bien protégés dans vos vies ; en sécurité, au chaud, vous ne voulez rien, âmes aimées. Bien que vous puissiez avoir l’impression de souhaiter plus, en vérité, Dieu veille sur vous. Chaque pas, chaque souffle que vous effectuez, la main de Dieu est sur vous. Il n’y a pas besoin de manque. Il n’y a pas besoin de désirer plus de choses matérielles. N’êtes-vous pas bien nourri, habillé, au chaud, en sécurité ?
 
@@ -24,6 +24,3 @@ Il y a beaucoup de choses qui nécessitent, exigent et désirent se manifester e
 Cette grande bénédiction n’est pas seulement pour vous, âmes bien-aimées, mais sera en effet exprimée de nombreuses manières différentes, sous différentes facettes et de beaux déploiements de votre âme, afin que vous puissiez en effet affecter, influencer, inspirer et bénéficier à de nombreuses autres âmes dans votre monde, celles qui vous sont proches et celles que vous ne connaissez pas, mais Dieu se servira de vous pour en toucher beaucoup. Soyez forts dans cette Lumière d’Amour. Engagez-vous quotidiennement dans vos prières. Soyez disciplinés dans votre esprit afin de pouvoir vous exprimer dans la Lumière, dans la Vérité, dans l’Amour. Beaucoup attend. Dieu attend vos efforts, l’expression des vrais désirs de votre âme exprimés dans la prière, se déployant dans l’Amour.
 
 Que Dieu vous bénisse sur ce voyage, mes amis. Je suis André. Mon amour est avec vous. Je suis avec vous très souvent. Je vois vos Lumières, je vois le voyage que vous faites, je comprends les défis qui peuvent entraver votre voyage. Mais ce qui me réjouit, c’est de voir que vous marchez, pas à pas, dans la foi et l’amour, dans la force et la Lumière. Comme vous êtes belles, âmes bien-aimées, comme vous êtes belles. Que les bénédictions de Dieu continuent à vous apporter à toutes une plus grande beauté et une plus grande Lumière. Que Dieu vous bénisse. Je suis André et je vous aime. Que Dieu vous bénisse.
-
-
-

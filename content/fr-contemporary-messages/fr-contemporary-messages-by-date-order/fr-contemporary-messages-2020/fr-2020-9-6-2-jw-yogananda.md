@@ -20,6 +20,3 @@ Bien que l’amour de Dieu transcende le monde, il n’est jamais en contradicti
 Pour vous qui choisissez la voie de l’amour divin, vous pouvez voir la beauté de l’harmonie naturelle sur terre. Vous apportez également une lumière plus puissante que la perspicacité humaine, et ce sont les perceptions de votre âme qui permettent à la Grâce de Dieu et au grand message de Son Amour de toucher tous ceux qui souhaitent être en harmonie avec leur Créateur.
 
 Que Dieu vous bénisse et vous porte dans ce grand effort pour apporter le message de la Vérité Divine au monde. Puis-je vous dire *« nous vous soutenons, vous avez notre amour et notre cœur »*. Quoi que vous ayez besoin, faites appel à nous, Dieu vous le fournira et nous obéirons à Ses ordres. Avec tout mon amour et mes bénédictions, je suis votre ami éternel dans l’amour de Dieu, Yogananda.
-
-
-

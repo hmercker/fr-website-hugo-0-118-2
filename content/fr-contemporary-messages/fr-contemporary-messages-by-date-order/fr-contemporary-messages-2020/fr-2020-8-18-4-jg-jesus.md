@@ -1,17 +1,17 @@
 ---
-title: "La Joie."
+title: "La Joie"
 menu_title: ""
-description: "La Joie."
+description: "La Joie"
 date: 2022-06-01 06:00:01+00:1223
 draft: False
 hidden: True
 weight:
 ---
-### La Joie.
+### La Joie
 
 Jésus - reçu par Jane Gartshore le 18 Août 2020
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/energiejoie.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-energiejoie.jpg)
 
 Je suis ici. Je souhaite parler de la joie. Pour beaucoup, la joie est insaisissable en ces temps. L’insécurité face à l’avenir provoque un affaiblissement de l’esprit, et le sentiment que tout va bien fait largement défaut.
 

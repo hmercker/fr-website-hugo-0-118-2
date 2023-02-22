@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Âme a été crée pour recevoir l’Amour de Dieu
 
-Augustin - reçu par Al Fike le 7 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 7 Mars 2020, Monroeville, PA, USA.
 
 Je suis votre enseignant Augustin. Pour ceux qui s’investissent leur vie dans la prière, il y a toujours une réponse. Pour ceux qui ont un profond désir de recevoir les Bénédictions de Dieu, ils susciteront l’Esprit Saint de répondre à ces prières et d’apporter ce Grand Don de l’Essence du Père, l’Amour de Dieu. Ce don sera donné à ceux qui prient et désirent cette bénédiction. Et cette prière peut être en paroles ou non. Cette prière peut être un accomplissement du désir de l’âme d’être avec Dieu. Mais quel que soit le motif de l’individu, il doit y avoir un désir, une aspiration à quelque chose de plus que ce qui est satisfait par le mental.
 
@@ -26,8 +26,3 @@ En chacun de vous, ce désir continue à mijoter et vous ressentez le désir de 
 Je vous demande donc, âmes bien-aimées, de prier pour ce don, de désirer ce don, de rechercher cette bénédiction. Et en cela, vous trouverez votre chemin vers Dieu d’une manière qui n’est pas prescrite dans un livre quelconque, mais qui est à la disposition de chacun de vous, parce qu’au sein de votre âme vous savez que c’est ce que vous désirez et que cela vous motivera à aller de l’avant. Cherchez les désirs de votre âme véritable. Cherchez à être avec Dieu, à désirer Dieu ; tout le reste suivra. Lorsque vous frapperez à cette porte, tout le reste viendra ; toutes les bénédictions et les dons, toute la Lumière et l’Amour se déverseront sur vous, âmes bien-aimées. Car, c’est la voie de Dieu. C’est le désir de Dieu pour Ses enfants : connaître Son Amour si intimement, si puissamment, si joyeusement, que rien d’autre ne satisfera l’âme que ce don tant désiré, encore et encore, prière après prière, implorant Dieu chaque jour pour que le secours de l’âme soit donné, pour qu’il soit béni, pour qu’il fasse vraiment partie de vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Son Don d’Amour est avec vous en ce moment. Inspirez-le, buvez-le, apportez-le-vous afin que vous puissiez connaître la rédemption qui vient avec ce Don d’Amour. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Je continue à être avec vous dans vos prières. Que Dieu vous bénisse.
-
-
-
-
-

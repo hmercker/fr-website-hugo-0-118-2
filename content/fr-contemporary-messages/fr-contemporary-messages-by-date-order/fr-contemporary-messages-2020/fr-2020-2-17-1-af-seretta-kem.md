@@ -9,7 +9,7 @@ weight:
 ---
 ### Encourager et accueillir les différences
 
-Seretta Kem - reçu par Al Fike le 17 Février 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 17 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, Seretta Kem. Vous êtes tous nécessaires dans cette grande entreprise à laquelle vous aspirez pour la Voix Directe. Chacun apporte sa contribution dans cette période de développement et de besoin de croissance et d’éveil de l’âme qui se déroule sans cesse. Nous ne doutons pas de votre engagement, âmes bien-aimées, dans ce projet. Nous ne doutons pas de votre désir d’atteindre quelque chose de plus élevé que les conditions du plan terrestre. Il y a en effet tant de choses qui nécessitent votre attention et vos efforts quotidiens pour vous élever dans l’amour et la lumière. Nous vous avons demandé de corriger votre pensée, d’être en harmonie avec la Volonté de Dieu et en harmonie avec les lois de Dieu. C’est un facteur important pour le succès de l’entreprise que vous entreprenez.
 
@@ -34,6 +34,3 @@ Priez, mes âmes bien-aimées, pour le véritable réveil que Dieu a en réserve
 À travers ces défis, ces périodes de croissance, ces moments où vous vous sentez agités et mal à l’aise, ces moments où le mental continue à imposer son propre agenda à votre âme, allez vers Dieu dans la foi, dans la confiance, dans la prière. Car tout ce qui est requis est de libérer ces choses qui ne sont pas de l’amour à votre Père Céleste et de permettre à Son toucher de guérison de soulever ces choses en vous et de les dissoudre et de les transformer afin que tout soit amour et harmonie.
 
 Que Dieu vous bénisse alors que vous continuez à grandir de cette manière. Que l’Amour continue à vous transformer. Que vos esprits libèrent tout ce qui n’est pas en harmonie avec la Vérité et l’Amour. On prend bien soin de vous, âmes bien-aimées. Les anges sont autour de vous. L’Amour vous enveloppe. La grâce vient à vous. Il y a tant de choses que Dieu donne. Puissiez-vous recevoir avec humilité, en reconnaissant avec vos esprits et vos âmes l’émerveillement du toucher de Dieu sur vous. Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je suis avec vous dans ce voyage. A chaque pas, à chaque respiration, sachez que je suis avec vous dans l’amour, de manière à vous aider à guérir, à vous soutenir et à vous amener plus loin sur ce chemin d’Amour Divin. Dieu vous bénit. Seretta Kem vous aime. Que Dieu vous bénisse.
-
-
-

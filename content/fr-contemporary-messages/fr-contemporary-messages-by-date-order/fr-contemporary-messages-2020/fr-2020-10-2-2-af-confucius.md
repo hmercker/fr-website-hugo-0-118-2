@@ -24,8 +24,3 @@ Vous devez avoir la foi en cela et vous devez écouter, écouter les âmes bien-
 Puissiez-vous porter le flambeau de l’amour partout où vous allez. Puissiez-vous avoir la force qui est votre foi, que Dieu va effectivement guérir, guider, aimer, nourrir et apporter la paix à votre monde, ce qui est la destinée de votre monde, d’être totalement en paix, d’être en harmonie et de connaître la paix.
 
 Je vous apporte mes bénédictions, mes bien-aimés, la paix à vos âmes et à vos esprits, la joie à vos cœurs, le soulagement de vos douleurs, la Lumière à votre âme. Que Dieu vous bénisse, je suis Confucius. Je vous aime tous, belles, belles âmes. Mes petits oiseaux, chantez vos chansons à Dieu et Dieu vous aura dans la paume de ses mains et vous portera dans la grande Lumière. Dieu vous bénit. Confucius vous aime.
-
-
-
-
-

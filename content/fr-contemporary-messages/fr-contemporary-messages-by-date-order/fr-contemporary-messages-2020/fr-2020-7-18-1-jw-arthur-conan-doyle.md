@@ -16,8 +16,3 @@ Je suis Arthur Conan Doyle. Je viens dans l’Amour de Dieu, en compagnie d’an
 Nous avons eu la connaissance reçue par les anges de cette progression et la grande Divinité du Maître Jésus dont la Lumière est si éblouissante qu’elle est aveuglante pour ceux qui ne peuvent pas encore voir avec leur âme. Lorsqu’il vient, l’atmosphère est remplie de Lumière et d’un Amour omniprésent qui ne peut être que Divin. Nous sommes attirés et les désirs de nos cœurs et de nos âmes souhaitent cet Amour. Ces anges Célestes qui viennent sur le plan terrestre et apportent la Vérité de cette progression et la transformation en Amour Divin et en unité à notre Créateur, ils sont attirés par votre prière. Nous sommes attirés par cet Amour. Je viens avec tant d’autres pour bénir ce groupe et pour conférer à tous notre amour en Dieu.
 
 Je vous remercie, mes chers frères et sœurs, dans la grâce de Dieu. Je suis Arthur Conan Doyle.
-
-
-
-
-

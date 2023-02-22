@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne désespérez pas
 
-Yogananda - reçu par Jimbeau Walsh le 3 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 3 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Yogananda, votre frère et ami. Je vois qu’il y a un certain poids sur vous tous aujourd’hui, car vous voyez tant de changements se produire dans ce monde où vous vivez, cette terre. Il vous a été donné un aperçu de ces changements terrestres à l’avance, afin que vous puissiez prier et être dans la Grâce de Dieu tout au long, afin que vous puissiez faire confiance à votre guidance quant à la façon de réagir.
 
@@ -20,6 +20,3 @@ C’est une conscience, et ainsi, avec votre grande conscience de l’âme, vous
 Avec tout mon amour et mes bénédictions et la protection du Royaume Céleste, que l’Amour de Dieu soit sur vous et transforme vos âmes.
 
 Dans Son Amour, je vous dis adieu pour l’instant, je suis Yogananda.
-
-
-

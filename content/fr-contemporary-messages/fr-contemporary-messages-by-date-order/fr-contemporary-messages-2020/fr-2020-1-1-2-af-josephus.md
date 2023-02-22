@@ -9,9 +9,9 @@ weight:
 ---
 ### Pourquoi Dieu permet-il la souffrance de l’innocent ?
 
-Flavius Joseph - reçu par Al Fike le 1 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Joseph - reçu par Al Fike le 1 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/argent-et-spiritualite.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-argent-et-spiritualite.jpg)
 
 Je suis Flavius Josèphe. Je suis venu répondre à la question que vous vous posez depuis plusieurs jours, et pour laquelle vous désirez des éclaircissements. Pour ce faire, nous devons remonter de nombreux siècles en arrière, jusqu’au début de l’établissement de l’humanité sur ce monde. A cette époque où Dieu a créé les premiers parents ou ceux qu’ils représentent, la Terre était en équilibre et en harmonie. Les éléments travaillaient ensemble pour maintenir la vie. Les premiers parents ont été bénis avec une âme purifiée, et un début très prometteur pour leur commencement sur cette planète et la prolifération de l’humanité sur celle-ci.
 
@@ -54,6 +54,3 @@ Continuez dans vos efforts, âmes bien-aimées. Continuez à être patients, à 
 Que Dieu vous bénisse, mes amis. Nous sommes avec vous. Nous comprenons votre angoisse et votre souffrance, et pourtant le monde souffre d’angoisse et de désaccord depuis de nombreuses années. Il est temps que la guérison commence, et elle s’est déroulée et se déroulera dans le temps et l’harmonie de la volonté de Dieu. Que Dieu vous bénisse, mes chers. Que Son Amour continue d’éveiller votre âme à la Vérité, à la compréhension, à la compassion, à la patience et à l’Amour.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis Josèphe et je suis heureux de vous parler aujourd’hui. Dieu vous bénisse. Dieu vous bénisse.
-
-
-

@@ -18,6 +18,3 @@ Je viens moi aussi pour célébrer la naissance de Jésus et l’avènement du C
 Dans ce beau cercle de lumière, il y en a beaucoup qui vous bénissent. Si vous avez besoin d’une guérison, c’est le moment de la demander. Et pour ceux que vous connaissez qui ont besoin de guérisons, envoyez-leur votre amour. Envoyons notre amour, l’amour du Père dans nos âmes au monde. Cette conscience du Christ, ce cœur sacré, cette lueur d’amour Divin, apportons ce don au monde. Et comme il vous l’a été dit maintes fois, il n’y a pas de plus grand cadeau, il n’y a pas de plus magnifique cadeau à offrir. Je vous dis que le Maître bénit chaque âme de ce cercle en ce moment avec sa lumière et son amour dans la grâce du Créateur. Vous êtes bénis. Vous êtes bénis. Avec tout mon amour, je vous souhaite à tous une joyeuse et sainte fête de Noël et de Hanoucca. Allez dans la grâce de Dieu. Je suis votre frère dans le Christ.
 
 Je suis Yogananda.
-
-
-

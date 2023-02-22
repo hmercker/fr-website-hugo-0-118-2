@@ -24,6 +24,3 @@ Poursuivez ce chemin de gloire et d’amour. Reconnaissez le chemin qui est deva
 Que Dieu te bénisse, ma fille. Puisses-tu sentir le contact de l’Amour de Dieu sur toi, car sa bénédiction d’amour remplit ton être en ce moment même. Montre à tous ceux que tu aimes le chemin à suivre, et vous marcherez ensemble dans la patrie éternelle de la lumière et de la beauté, de la paix et de la joie.
 
 Que Dieu te bénisse, mon amour est avec toi. Je suis Augustin et je reviendrai, selon ton désir et ton aspiration, que je vienne et que j’écrive. Que Dieu te bénisse et que je t’aime.
-
-
-

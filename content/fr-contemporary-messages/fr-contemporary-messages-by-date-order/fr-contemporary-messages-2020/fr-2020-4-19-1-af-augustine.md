@@ -30,6 +30,3 @@ Ces moments que vous vivez maintenant, dont certains vous paraissent très gêna
 Puissiez-vous continuer à permettre à Dieu d’accomplir Ses merveilles et Ses miracles dans votre vie, d’apporter Son Amour et Ses bénédictions à tous dans votre vie et dans ce monde qui change et évolue si rapidement. Ayez confiance que Dieu a Son plan en action. Il est en mouvement et vous concerne tous. Ceci, mes bien-aimés, est un grand cadeau. Puissiez-vous considérer vos vies en ce moment comme un grand cadeau. Puissiez-vous utiliser cette opportunité pour grandir spirituellement en force dans vos âmes, car c’est le désir de Dieu pour chacun d’entre vous. Vous serez bénis, âmes bien-aimées, encore et encore. Vous recevrez de nombreuses bénédictions et sensibilités, des visions et de la compréhension, de l’amour et de la joie. Tant de choses sont offertes à Ses enfants qu’Il aime au-delà de votre capacité à comprendre.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Moi aussi, je suis à vos côtés alors que vous continuez à vous demander qui vous êtes, où vous êtes et avec qui vous souhaitez être. Que Dieu vous bénisse, mes chers. Que Dieu vous bénisse. Augustin vous aime. Que Dieu vous bénisse.
-
-
-

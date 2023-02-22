@@ -9,9 +9,9 @@ weight:
 ---
 ### Q&R : Comment se connecter à d’autres cultures et religions ?
 
-Flavius Josèphe - reçu par Al Fike le 4 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 4 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
-*Question : Comment l’Esprit va-t-il se connecter avec de nombreuses cultures différentes dans le monde Lorsque les messages de Padgett proviennent d’un tel contexte Chrétien ? Comment allons-nous briser les barrières des fausses croyances et des compréhensions dominantes pour apporter les vérités aux différentes cultures ?*
+*[Question : Comment l’Esprit va-t-il se connecter avec de nombreuses cultures différentes dans le monde Lorsque les messages de Padgett proviennent d’un tel contexte Chrétien ? Comment allons-nous briser les barrières des fausses croyances et des compréhensions dominantes pour apporter les vérités aux différentes cultures ?]*
 
 Nous travaillons avec de nombreuses âmes différentes, partout dans le monde. Oui, vous avez vos limites de langue, de culture et de compréhension, bien que votre compréhension de la Vérité de l’Amour de Dieu soit claire et abondante. Vous avez remarqué que beaucoup de ceux qui rejoignent vos Cercles de Lumière et vos efforts sont d’une conviction plutôt Chrétienne et connaissent bien la langue anglaise. Certains ne le font pas, mais très peu. Mais ceux qui persistent dans ce grand effort pour apporter la Vérité de l’Amour de Dieu dans leur culture et leur langue trouveront une grande aide des anges pour communiquer cette Vérité aux autres.
 
@@ -28,6 +28,3 @@ Vous voyagerez vers ces lieux, âmes bien-aimées. Je sais qu’il est difficile
 Comme je l’ai dit, un grand plan est en place et se déroule en ce moment même. Votre place dans ce plan sera déterminée par vos efforts et votre engagement envers Dieu. Il y a beaucoup, beaucoup de potentiels et de possibilités pour vous d’atteindre les autres, étant donné le pouvoir de l’Amour de Dieu dans votre âme, le pouvoir des anges qui vous accompagnent, le pouvoir du toucher de Dieu sur vous. Ces éléments détermineront jusqu’où vos efforts et vos dons pourront atteindre d’autres âmes dans des lieux éloignés.
 
 Je vous le dis, mes amis, considérez que les possibilités de votre point de vue sont tout à fait illimitées et que la capacité de vos dons et votre aptitude à atteindre d’autres âmes sont profondes. Car c’est le pouvoir de votre âme qui continue à s’éveiller qui fera naître ces choses de nombreuses et surprenantes façons. Dans votre voyage, puissiez-vous en effet parvenir à réaliser ces potentiels et ces dons et voir par vous-même, l’émerveillement de ce que Dieu a créé dans votre être. Merci. (Flavius Josèphe)
-
-
-

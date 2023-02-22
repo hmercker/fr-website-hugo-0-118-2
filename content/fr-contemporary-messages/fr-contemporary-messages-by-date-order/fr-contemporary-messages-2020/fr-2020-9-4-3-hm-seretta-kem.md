@@ -38,6 +38,3 @@ Je voudrais continuer à écrire sur la perspective de recevoir la guérison de 
 En ouvrant la voie pour atteindre l’oreille de Dieu, une réponse est assurée. L’acceptation de la guérison appliquée et l’embrassement des énergies de guérison soutiendront la libre circulation de la guérison nécessaire/désirée.
 
 Notre communication est difficile et nous réessayerons à une autre occasion. Que Dieu te bénisse, cher enfant. Seretta Kem t’aime.
-
-
-

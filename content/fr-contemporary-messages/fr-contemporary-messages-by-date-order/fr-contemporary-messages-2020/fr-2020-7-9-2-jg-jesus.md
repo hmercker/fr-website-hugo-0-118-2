@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jane Gartshore le 9 Juillet 2020
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/angelearth.png)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-angelearth.png)
 
 De Yeshua ben Yosef le 9 juillet 2020, Reçu par Jane Gartshore.
 
@@ -25,7 +25,7 @@ C’est là que la confiance entre en jeu. Dieu désire que tous soient en paix.
 
 La volonté de Dieu sera accomplie. En fin de compte, le plan de Dieu est d’unir l’humanité en paix et en harmonie. Ce n’est qu’une étape dans l’évolution de sa création. La prochaine consiste à unir les cieux et la terre dans un paradis où tous peuvent prospérer. Maintenant, ces choses ne se produiront pas du jour au lendemain, et pas durant la vie de certains d’entre vous qui liront ce message au moment où il est écrit.
 
-L’élan pour le changement est souvent le conflit, et le conflit sera bientôt votre réalité si vous ne recherchez pas l’harmonie et la sécurité d’une vie protégée par Dieu, se soumettant à sa volonté, qui vous est toujours bénéfique à long terme, si ce n’est à court terme. Il ne laissera pas ses enfants souffrir inutilement, et vous pouvez vous croire en cela car je suis venu le proclamer. 
+L’élan pour le changement est souvent le conflit, et le conflit sera bientôt votre réalité si vous ne recherchez pas l’harmonie et la sécurité d’une vie protégée par Dieu, se soumettant à sa volonté, qui vous est toujours bénéfique à long terme, si ce n’est à court terme. Il ne laissera pas ses enfants souffrir inutilement, et vous pouvez vous croire en cela car je suis venu le proclamer.
 
 Mais qui sont ses enfants? En fait, toute l’humanité sont Ses enfants bien-aimés. Beaucoup ne se considèrent pas comme tels: ce sont des enfants de divinités inférieures ou des enfants sans dieu. Pourtant, leur Père céleste, Dieu pour tous, attends patiemment leur retour dans ses bras aimants. Il ne juge pas. Il attend. La souffrance infligée à ceux qui se détournent est la souffrance de l’homme laissé à sa propre volonté, à son propre sort, à ses propres lois.
 
@@ -34,6 +34,3 @@ Les lois de Dieu sont parfaites. Elles permettent des erreurs et ne les condamne
 Je vous demande de faire confiance à votre Père céleste. Vous qui reconnaissez sa souveraineté, sa bonté, sa bienveillance, ayez confiance en lui. Ayez confiance en son plan, en son plan pour vous et en son plan pour le monde. Le monde que vous avez connu se dérobe, se transforme et se remodèle dans son amour et sa volonté. L’obscurité se dissipera. Il se peut que le nouveau monde émerge des cendres des actions de l’humanité. Mais ce sera le monde de Dieu. Et c’est un monde auquel il faut croire et qu’il faut espérer.
 
 Je suis son fils, celui qui a marché sur cette Terre il y a tant d’années et qui est toujours avec vous pour vous montrer le chemin. Je suis Yeshua ben Yosef.
-
-
-

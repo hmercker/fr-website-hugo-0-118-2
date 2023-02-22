@@ -26,6 +26,3 @@ Il y a toujours du temps pour la prière, mes bien-aimés ; pas seulement une pr
 Utilisez la Loi que vous connaissez, âmes bien-aimées, qui travaillera en votre faveur et vous apportera ce dont vous avez besoin et apportera l’harmonie dans votre vie. Ce n’est pas impossible, c’est tout à fait possible. Avec la foi, la confiance, une prière vraie et sincère et le désir d’être en harmonie avec Dieu et les lois de la création de Dieu, tant de choses viendront après la prière. Beaucoup vous est donné à mesure que vous continuez à vous ouvrir, à connaître vos propres vulnérabilités, vos angoisses, vos souffrances, ce que vous êtes perdu et ne pouvez pas trouver, ces réalités viennent dans une simple prière et le désir de l’âme.
 
 Que Dieu vous bénisse ainsi, âmes bien-aimées. Je suis votre enseignant Augustin et je continue à vous parler et à vous conseiller, mes bien-aimés. Vous êtes sous ma responsabilité, chacun d’entre vous. Sachez que je suis avec vous. Sachez que je vous chuchoterai des conseils à l’oreille afin que vous sachiez quel chemin vous devez suivre pour trouver l’harmonie et la paix. Dieu utilise ses anges à votre profit. Puissiez-vous trouver ce bénéfice à chaque prière et à chaque bénédiction. Que Dieu bénisse vos âmes bien-aimées, mon amour est avec vous. Je suis avec vous, beaucoup d’anges sont avec vous. Que Dieu vous bénisse.
-
-
-

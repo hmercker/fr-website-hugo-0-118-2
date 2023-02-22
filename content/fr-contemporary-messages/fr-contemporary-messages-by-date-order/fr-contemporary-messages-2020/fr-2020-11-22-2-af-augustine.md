@@ -38,6 +38,3 @@ Chacun d’entre vous ici, ce beau cercle d’individus éclairés par l’âme,
 Que Dieu vous bénisse sur le chemin que vous avez pris. Que Dieu vous aide à lever les obstacles qui se dressent devant lui. Que l’amour de Dieu continue à se déverser sur vous comme il le fait constamment et régulièrement. Que vous ressentiez la grande bénédiction de Son Amour et que vous sachiez qu’il est vrai et réel. Sachez que vous êtes vraiment aimé et que nous sommes proches. Il n’y a rien qui puisse nous éloigner de vous si ce n’est vous-même. Lorsque ce moment est celui où vous sentez une distance, regardez en vous et essayez de voir ce qui vous éloigne et priez pour la guérison de ces obstacles, ces barrières à Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. Je suis heureux de venir à vous aujourd’hui pour vous encourager sur votre chemin, pour vous aider à surmonter vos obstacles et vos défis, pour vous inspirer de plus grandes réalités, de plus grandes choses avec Dieu. Que Dieu vous bénisse. Mon amour est avec vous, mes bien-aimés. Mon amour est avec vous.
-
-
-

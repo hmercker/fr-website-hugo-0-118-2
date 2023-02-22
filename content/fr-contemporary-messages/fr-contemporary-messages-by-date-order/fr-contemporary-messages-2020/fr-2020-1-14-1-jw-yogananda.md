@@ -9,7 +9,7 @@ weight:
 ---
 ### Différences et similitudes entre la méditation et la prière
 
-Yogananda - reçu par Jimbeau Walsh le 14 Janvier 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 14 Janvier 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère et ami, Yogananda. Je souhaite vous expliquer les différences et les similitudes entre la méditation et la prière. Ces activités sont parfois séparées, mais peuvent aussi être identiques. Dans la méditation orientale traditionnelle, il est enseigné à aller à l’intérieur, à laisser aller l’esprit, à trouver le calme au centre de son être dans la zone du chakra du cœur, à détendre complètement le corps mais à maintenir la conscience. Dans ce lieu, il y a la paix. Il y a une unité. Dans mon propre enseignement, où j’ai présenté le Kriya Yoga, que j’ai appris de mon professeur Sri Yukteswar, je me suis concentré sur le fait d’aller à l’intérieur et de permettre au corps d’être un vaisseau de lumière, en ouvrant chaque chakra de sorte qu’il y ait comme un faisceau de lumière s’étendant du chakra le plus bas jusqu’au ciel en passant par le sahasrara (chakra de la couronne). J’ai présenté cela d’une manière très scientifique. Cette méthode en Occident est devenue très connue à mon époque. Plusieurs milliers de personnes ont essayé cette approche avec beaucoup de succès, trouvant une grande paix, ressentant la lumière, l’unité avec les forces cosmiques et la conscience de l’amour qui envahit leur être.
 
@@ -24,6 +24,3 @@ Mon intention aujourd’hui est donc de jeter un pont, de créer un pont entre l
 Je vous encourage à aller à l’intérieur et à être calme. Trouvez cette place dans votre cœur, dans votre âme où se trouve le bel amour naturel donné à tous. Permettez à votre esprit de se calmer, à votre cœur de s’ouvrir, à votre corps d’être en paix. Permettez aux désirs de vos âmes d’atteindre le Créateur dans l’humilité qui est requise dans la reconnaissance du Grand. Cela se transforme véritablement en conscience du Christ. Devenir oint de l’amour du Créateur. Être transformé en tant qu’âme de la simple image de Dieu à l’union avec la substance même de Dieu et de l’immortalité, la vie éternelle. C’est le don qui est offert par notre Créateur le plus aimant. Je vous encourage à demander, car vous recevrez vraiment.
 
 Je remercie celui-ci d’avoir pris le temps de recevoir ce message que j’ai tant souhaité donner à mes élèves et au monde. Que vous soyez tous bénis et transformés dans l’Amour de Dieu. Je vous aime et je vous remercie. Allez en paix. Je suis votre frère et votre ami dans les cieux Célestes, Yogananda. Je vous remercie. Que Dieu vous bénisse.
-
-
-

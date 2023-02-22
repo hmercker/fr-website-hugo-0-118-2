@@ -32,6 +32,3 @@ Vous trouverez vraiment votre chemin et arriverez à ce lieu d’âme éveillée
 Mes bénédictions sont avec vous, âmes bien-aimées, et sachez que je suis avec vous. Je suis avec vous, mes bien-aimés, et je marcherai avec vous pour toute l’éternité alors que nous continuons à nous épanouir dans le grand Amour de Dieu, nous éveillant à chaque instant dans Son grand flux et Son Toucher sur nos âmes, faisant apparaître toute sa beauté et son émerveillement. Nous sommes tous ensemble, mes frères et sœurs, dans ce grand voyage.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je marche toujours avec vous. Que Dieu vous bénisse.
-
-
-

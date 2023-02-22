@@ -1,13 +1,13 @@
 ---
-title: "Chante avec les Oiseaux "
+title: "Chante avec les Oiseaux"
 menu_title: ""
-description: "Chante avec les Oiseaux "
+description: "Chante avec les Oiseaux"
 date: 2022-06-01 06:00:01+00:1092
 draft: False
 hidden: True
 weight:
 ---
-### Chante avec les Oiseaux 
+### Chante avec les Oiseaux
 
 St François d'Assise - reçu par Helge Mercker le 7 Mai 2020, Elim, Namibie
 
@@ -20,6 +20,3 @@ Je marche avec toi, ma chère, et j’apporte mon amour et mes chants, ma joie e
 *« Dieu miséricordieux, nous prions pour tous les enfants, pour tous ceux qui aspirent à ton Amour. Ouvre nos âmes lorsque nous venons vers toi, cher Dieu, et prie pour que Ton Amour nous remplisse. »*
 
 Bénis sois-tu ma fille, je suis heureux que tu aies commencé à m’écrire et je peux venir t’apporter mon amour et mon soutien dans le développement de nos communications de cette manière. Tu reconnais facilement ma présence et tu sais que je suis souvent avec toi, ma chère enfant. Je reviendrai, car je désire ardemment être avec les enfants de Dieu qui cherchent Son Amour. Que Dieu te bénisse, mon âme bien-aimée. François est souvent avec toi. Que Dieu te bénisse.
-
-
-

@@ -1,19 +1,19 @@
 ---
-title: "Q&R sur l'obscurité et les chakras "
+title: "Q&R sur l'obscurité et les chakras"
 menu_title: ""
-description: "Q&R sur l'obscurité et les chakras "
+description: "Q&R sur l'obscurité et les chakras"
 date: 2022-06-01 06:00:01+00:1033
 draft: False
 hidden: True
 weight:
 ---
-### Q&R sur l'obscurité et les chakras 
+### Q&R sur l'obscurité et les chakras
 
-Flavius Joseph - reçu par Al Fike le 15 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 15 Mars 2020, Houston, TX, USA.
 
-Oui. Je suis Flavius Joseph et je vais répondre à vos questions, chers amis. Notre professeur bien-aimé, Keea, vous a donné l’essence du message que nous avons l’intention de vous transmettre, à vous et à d’autres, car il est important de reconnaître les raisons et les moyens par lesquels Dieu apportera le changement dans votre monde et la guérison. Elle vous a donc parlé avec amour des conditions qui sont difficiles à reconnaître et à accepter.  Alors, mes amis, qu’est-ce que vous souhaitez demander ?
+Oui. Je suis Flavius Josèphe et je vais répondre à vos questions, chers amis. Notre professeur bien-aimé, Keea, vous a donné l’essence du message que nous avons l’intention de vous transmettre, à vous et à d’autres, car il est important de reconnaître les raisons et les moyens par lesquels Dieu apportera le changement dans votre monde et la guérison. Elle vous a donc parlé avec amour des conditions qui sont difficiles à reconnaître et à accepter.  Alors, mes amis, qu’est-ce que vous souhaitez demander ?
 
-*Question :  Que devons-nous savoir et comprendre de l’obscurité afin d’acquérir plus de lumière et d’apprécier la lumière ?*
+*[Question :  Que devons-nous savoir et comprendre de l’obscurité afin d’acquérir plus de lumière et d’apprécier la lumière ?]*
 
 Tout ce que vous devez savoir sur l’obscurité est ce que vous avez expérimenté dans votre propre vie, chacun d’entre vous ayant expérimenté l’obscurité à sa manière et à certains moments de sa vie. Chacun d’entre vous a été soumis à de sombres influences.  Chacun d’entre vous a lutté contre ces conditions sombres du plan terrestre.  Il est certain qu’à travers vos expériences, vous avez beaucoup appris sur ce qui est une condition prédominante dans votre monde et sur les conditions qui ont fait partie de votre propre vie intérieure et qui vous ont causé de la douleur, de la souffrance et de grands défis.
 
@@ -21,7 +21,7 @@ Pourtant, vous avez réalisé que l’antidote à ces conditions est d’apporte
 
 Y a-t-il d’autres questions, âmes bien-aimées ?
 
-*Question : Oui, Flavius Joseph. J’ai une question. Il y a beaucoup de discussions sur les chakras et les énergies et je comprends qu’il y a un total de 12 chakras. Pouvez-vous élaborer sur les énergies des chakras et sur la façon dont elles peuvent être utilisées avec une âme éveillée ?*
+*[Question : Oui, Flavius Josèphe. J’ai une question. Il y a beaucoup de discussions sur les chakras et les énergies et je comprends qu’il y a un total de 12 chakras. Pouvez-vous élaborer sur les énergies des chakras et sur la façon dont elles peuvent être utilisées avec une âme éveillée ?]*
 
 Ces choses dont vous parlez sont du corps spirituel et en fait il y a plus de chakras que le nombre que vous avez décrit ou prescrit au corps spirituel. Au fur et à mesure que l’âme grandit et est énergisée, d’autres aspects du corps spirituel vont réagir et s’éveiller dans le cadre de ce processus d’éveil. Bien sûr, comme vous le comprenez, ces aspects du corps spirituel ont leurs fonctions et sont utilisés de différentes manières. Ils aident également à maintenir le corps spirituel en alignement et renforcé dans la lumière, et les capacités et les dons seront amplifiés par ces zones du corps spirituel. Comme l’âme exprime ses dons, les dons sont en alignement et en accord avec ces divers centres d’énergie du corps et s’expriment ainsi à travers le corps, le corps spirituel que je décris et aussi à travers le corps physique. 
 
@@ -39,9 +39,4 @@ Merci, âmes bien-aimées. Je crois que nous avons suffisamment parlé aujourd�
 
 Puissiez-vous continuer à grandir dans l’Amour de Dieu. Dans cette croissance et cette expansion, les réponses et les visions, la vraie compréhension viendront et infuseront dans votre conscience une connaissance si profonde de la Vérité qu’elle sera inébranlable, mais aussi qu’elle s’étendra au fur et à mesure que vos âmes se développeront. Que Dieu vous bénisse dans ce voyage, mes amis. 
 
-Je suis Flavius Joseph Je suis heureux d’être avec vous aujourd’hui. Que ce jour soit béni, âmes bien-aimées, et rappelez-vous que vous pouvez demander notre aide. Vous pouvez nous faire venir près de vous, mais votre demande s’adresse d’abord et avant tout à Dieu. Ensuite, nous répondons en fonction de la Volonté de Dieu qui coule à travers nous et se manifeste dans votre vie. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous et je suis impatient de vous aider tous et j’essaierai de le faire de nombreuses façons différentes.  Que Dieu vous bénisse et que Son Amour soit avec vous. Que Dieu vous bénisse.
-
-
-
-
-
+Je suis Flavius Josèphe Je suis heureux d’être avec vous aujourd’hui. Que ce jour soit béni, âmes bien-aimées, et rappelez-vous que vous pouvez demander notre aide. Vous pouvez nous faire venir près de vous, mais votre demande s’adresse d’abord et avant tout à Dieu. Ensuite, nous répondons en fonction de la Volonté de Dieu qui coule à travers nous et se manifeste dans votre vie. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous et je suis impatient de vous aider tous et j’essaierai de le faire de nombreuses façons différentes.  Que Dieu vous bénisse et que Son Amour soit avec vous. Que Dieu vous bénisse.

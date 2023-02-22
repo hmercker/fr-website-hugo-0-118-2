@@ -20,4 +20,3 @@ Le Maître supervise tout cela et son amour, comme vous le savez, est indescript
 Je suis votre sœur en Christ. Avec toutes mes bénédictions, puissiez-vous marcher dans la Lumière et l’Amour de notre Père Céleste. Je vous aime.
 
 Je suis Care.
-

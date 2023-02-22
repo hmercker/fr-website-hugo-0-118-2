@@ -11,7 +11,7 @@ weight:
 
 André - reçu par Al Fike le 26 Août 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/ptiere-de-guerison-1.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-ptiere-de-guerison-1.jpg)
 
 C’est André. La prière est la clé du travail spirituel car lorsque vous engagez Dieu dans la prière, vous ouvrez les portes de la lumière, à l’influence des esprits et des anges brillants, à la guidance, au développement de vos dons. Toutes les belles choses viennent de Dieu. Lorsque vous ouvrez votre cœur à l’amour de Dieu, ces dons et bénédictions, ainsi que les perceptions et la lumière, sont intensifiés et mis en valeur par ce don.
 
@@ -22,6 +22,3 @@ Chaque âme a le choix de recevoir ce don d’Amour. Il n’est pas donné avec 
 Cherchez le Royaume, comme cela a été dit maintes fois, et le Royaume vous appartiendra en temps voulu, à condition que vous soyez constants et sérieux dans vos efforts de prière.
 
 Que Dieu vous bénisse sur ce voyage, belles âmes. Que vous veniez chercher le plus haut et connaître le plus grand des dons de votre Père Céleste qui est Dieu, le Créateur, la Source de tout. Que Dieu vous bénisse. Je suis André. Que Dieu vous bénisse.
-
-
-

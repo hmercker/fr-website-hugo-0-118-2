@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde va ainsi, l'Église Catholique va ainsi, une variété d'âmes, certaines claires et d'autres sombres
 
-Augustin - reçu par Al Fike le 3 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 3 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Je vois que vous vous êtes une fois de plus rassemblées dans la Lumière et que l’unité entre vous grandit, sentant que vous êtes une dans cette grande Lumière qui s’avance vers Dieu, suppliant Dieu de recevoir Son don d’Amour. En réponse, l’Esprit Saint touche chacune de vos âmes. Âmes bien-aimées, vous êtes bénies. Vous recevez de grandes bénédictions. Vous vous éveillez chaque jour un peu plus en vous révélant les uns aux autres, à Dieu, à vous-même.
 
@@ -36,8 +36,3 @@ Alors je vous dis, âmes bien-aimées, ne soyez pas comme ceux qui se sont élev
 Beaucoup vous attend, chères et bien-aimées âmes. Il y a un grand potentiel en chacun de vous, mais il est bien sûr de votre responsabilité d’être en harmonie avec Dieu, de rechercher ce don d’Amour qui vous transforme et vous donne des pouvoirs, âmes bien-aimées. Que Dieu vous bénisse dans ce voyage et que vous parveniez à connaître votre véritable moi et à prendre tous les moyens à votre disposition pour continuer à grandir dans vos âmes et devenir forts et libres de toutes les conditions qui ne sont pas en harmonie avec l’Amour.
 
 Que Dieu vous bénisse. Je suis votre enseignant Augustin et je viens à vous avec humilité parce que j’ai été celui qui a cherché le pouvoir et le contrôle dans ma vie sur Terre et je continue à ce jour, après de nombreuses années, à aider à rectifier ces erreurs et actions que j’ai faites dans la lumière, ou devrais-je dire l’obscurité, du pouvoir. Que Dieu vous bénisse afin que vous ne fassiez pas ces erreurs mais que vous continuiez à être les humbles enfants de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Mon amour, mes encouragements et mes prières sont avec vous tous, afin que vous puissiez effectivement avancer dans votre monde et apporter la Vérité en toute humilité, grâce, beauté et amour. Que Dieu vous bénisse. Augustin vous aime. Dieu vous aime.
-
-
-
-
-

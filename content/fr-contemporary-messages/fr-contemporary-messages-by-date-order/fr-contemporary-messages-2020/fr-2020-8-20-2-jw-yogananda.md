@@ -20,6 +20,3 @@ Qu’ils reçoivent une guérison par l’amour naturel et les guérisseurs de l
 Il a vous été dit, que tout peut être guéri, les organes de l’individu ne sont pas irréparables. Je souhaite modifier légèrement ce point de vue. Donc, si c’est vrai dans l’absolu, ce qui est connu sur terre par les médecins et les scientifiques, entre autres, comme étant irréparable, est une variable. Car ce n’est pas ce que nous voyons et certainement pas au-delà de ce que Dieu peut faire. Je vous dis cela pour que vous ne perdiez jamais espoir et que vous ayez foi dans les pouvoirs de guérison de l’amour de Dieu et dans votre propre capacité à être guidé de toutes les manières possibles. Que ce monde reçoive une profonde guérison et que vos prières et celles de tous les habitants de la planète élèvent les vibrations de la terre vers une nouvelle conscience, vers l’harmonie dans l’amour naturel et divin. Que Dieu vous bénisse de tout don bon et parfait, mes chers amis, mon frère et mes sœurs sur le chemin de l’Amour Divin.
 
 Je suis Yogananda Que Dieu vous bénisse.
-
-
-

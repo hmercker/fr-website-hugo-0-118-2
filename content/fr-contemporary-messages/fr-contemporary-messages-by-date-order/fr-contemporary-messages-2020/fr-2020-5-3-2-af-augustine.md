@@ -28,6 +28,3 @@ Que votre vie soit une prière constante, mes bien-aimés. Puissiez-vous marcher
 Être un canal d’amour de cette manière est une expression puissante et belle que Dieu souhaite cultiver en chacun de vous. Permettez à Dieu de le faire. Soyez ouverts et réceptifs à la possibilité d’être la Grâce de Dieu à tout moment. Que vos pensées et vos actes reflètent cette grâce. Que vos prières puissent être profondes et demeurer dans la conscience de Dieu.
 
 Que vous connaissiez la paix éternelle, mes bien-aimés, et que vous soyez dans cette grande lumière qui est présente en ce moment. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin, et je viens vous assurer que vous connaîtrez une paix profonde, une joie et une grâce durables dans vos vies. Que Dieu vous bénisse. Mon amour est avec vous, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

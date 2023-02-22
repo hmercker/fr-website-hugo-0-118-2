@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez vous concentrer sur la Prière
 
-Seretta Kem - reçu par Al Fike le 12 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 12 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Vous continuez à construire vos fondations mes amis bien-aimés, à considérer chaque jour comme une opportunité de faire grandir votre âme, à voir votre vie dans la perspective de faire grandir votre âme et d’avancer spirituellement. C’est ce qu’il faut, mes amis, pour que ces grands efforts portent leurs fruits.
 
@@ -24,8 +24,3 @@ Votre volonté de suivre Dieu sera claire et forte. Votre foi dans le présent e
 Un grand avenir s’ouvre à mes âmes bien-aimées. Un grand avenir, en effet. Vous serez bénis. Vous serez profondément bénis et tout viendra et se déroulera dans l’émerveillement du plan de Dieu. Vous trouverez votre voie et vous saurez que vous le ferez, éclairés par la sagesse, éclairés par le foyer de votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu continue à vous réveiller et que toutes les choses que j’ai dites aujourd’hui se réalisent, car le déploiement de votre âme fera de ces choses une belle manifestation de votre âme. Que la volonté de Dieu se conjugue, que Dieu vous bénisse. Seretta Kem vous aime. Je suis avec vous tous les jours. Je suis avec vous mes amis. Telle est la profondeur de mon engagement envers vos efforts et envers chacun d’entre vous. Que Dieu vous bénisse. Dieu vous bénisse.
-
-
-
-
-

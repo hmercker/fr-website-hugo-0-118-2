@@ -26,7 +26,3 @@ Ensemble nous communions dans cette Lumière, précieux et bien-aimés. Ensemble
 Le moment décisif est arrivé. Le choix de l'amour est on ne peut plus clair. Cherchez cet Amour. Cherchez à être l'Amour. Cherchez à être dans la Lumière que l'Amour apporte. Cherchez à connaître votre propre âme et ce qui a créé votre âme et tout s'écoulera dans une lumière et une joie abondantes, s'éveillant à la Vérité, se débarrassant des illusions de votre monde, ces illusions créées par l'homme et non par Dieu. Ainsi, la clarté de la Vérité montrera le chemin à l'humanité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Élie. Je suis avec vous dans vos efforts. Beaucoup sont avec vous et cherchent à vous élever vers une plus grande Vérité et un plus grand Amour. Que Dieu vous bénisse. Chaque âme précieuse, je vous apporte une bénédiction. Ouvrez vos cœurs et sachez que vous êtes aimés. Que Dieu vous bénisse. Dieu vous bénit, mes bien-aimés.
-
-
-
-

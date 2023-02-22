@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le virus n'est qu'un prélude à ce qui est à venir 
+### Le virus n'est qu'un prélude à ce qui est à venir
 
 St Matthieu - reçu par Al Fike le 14 Avril 2020, Gibsons, Colombie-Britannique, Canada
 
@@ -28,8 +28,3 @@ Il y a beaucoup d’anges et d’esprits qui sont très impliqués et occupés �
 Que Dieu vous bénisse alors que vous continuez à vous éveiller. Que l’Amour de Dieu continue à couler dans votre âme, apportant la puissance et l’impulsion du changement, de la transformation et de la vérité, apportant la joie de Son Amour étincelant dans votre conscience, jaillissant de votre âme, inondant votre esprit de tout ce qui est bon, vrai et de lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et je continue avec beaucoup à prier avec vous et à être avec vous dans ce voyage d’éveil de l’âme et de transformation de vous, de chacun de vous et de votre monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous.
-
-
-
-
-

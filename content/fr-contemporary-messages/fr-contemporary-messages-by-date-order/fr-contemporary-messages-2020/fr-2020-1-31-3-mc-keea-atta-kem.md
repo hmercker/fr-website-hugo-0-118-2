@@ -9,7 +9,7 @@ weight:
 ---
 ### Le treillis de lumière est comme un filet qui recouvre le monde et le relie tous ensemble
 
-Keea Atta Kem - reçu par Maureen Cardoso le 31 Janvier 2020, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 31 Janvier 2020, Abbotsford, Colombie-Britannique, Canada.
 
 Je me joins à vous dans votre Cercle de lumière par-dessus les fils, je suis Keea Atta Kem. Vous continuez à vous rassembler de cette façon, en élargissant et en renforçant ce Cercle de Lumière qui agit comme un filet sur votre monde, en rejoignant chacun d’entre vous, en unissant vos âmes dans ces magnifiques fils tissés sur votre planète, lui apportant la belle Lumière que nous, de notre point de vue, voyons. Nous continuons à vous encourager, à vous aimer et à vous guider, chacun d’entre vous, au fur et à mesure que vous progressez sur votre chemin personnel, en renforçant la compréhension et l’éveil de vos âmes, en venant à reconnaître cette partie de vous qui s’éveille, qui a des dons à partager et qui est obligée de créer, de façon créative, un déploiement d’actions afin de bénéficier de la bénédiction de cette expression d’Amour et de Vérité dans tous vos environnements.
 
@@ -24,6 +24,3 @@ Et alors que ce muscle se renforce, se développe et se fortifie, qu’il est no
 Mes chers amis, continuez ce voyage en permettant à votre âme de prendre des forces, de s’éveiller et donnez lui cette place, une occasion de s’exprimer. Ainsi, mes chers amis, votre voyage sera riche et les expériences de votre vie s’approfondiront. Il y aura en vous un profond sentiment d’épanouissement à l’idée que vous atteignez votre but ; et vous êtes des êtres aimés. Car chaque âme a un but commun, celui de s’éveiller dans l’Amour de Dieu. Ainsi, vous êtes sur la bonne voie.
 
 Mon amour est avec vous. Je suis Keea Atta Kem. C’est une grande joie de voir tant d’âmes réunies de cette façon pour partager l’Amour du Créateur, pour partager la gloire de la façon dont l’Amour de Dieu agit dans leur vie, et comment l’Amour de Dieu peut dépasser tous les détails et du mental. Que Dieu vous bénisse, mes chers amis. Je suis Keea Atta Kem et mon amour est avec vous.
-
-
-

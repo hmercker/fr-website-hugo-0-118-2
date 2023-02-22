@@ -11,7 +11,7 @@ weight:
 
 Flavius Josèphe - reçu par Al Fike le 18 Août 2020, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/garconetangsale.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-garconetangsale.jpg)
 
 Que Dieu vous bénisse, mes chers amis et que Son amour se déverse dans votre âme en cette journée ensoleillée alors que vous vous réunissez ensemble dans la prière, désireux de fraternité, d’unité et de bénédictions divines. Je suis JFlavius Josèphe et je viens vous parler de l’âme, ce réceptacle mis en chacun de vous, que Dieu a placé en vous, qui vous permettra de comprendre qui vous êtes et ce que vous êtes vraiment, et également qui et qu’est ce que Dieu. Bien que les âmes de la plupart des hommes soient incomplètes, à moitié pleines; pleine de vie, pleine de lumière ; mais pourtant incomplètes et souvent obscurcies par la condition humaine : ces aspects et éléments, ces souvenirs et énergies qui couvrent l’âme à travers les expériences de la vie sur Terre et l’âme est un mystère pour beaucoup bien que, lorsque le mot âme est mentionné, il y a une lueur de compréhension. Mais cette compréhension est faible et fébrile, car pour vraiment comprendre l’âme, on doit mettre de côté ces conditions de l’esprit, ces barrières de l’esprit, et aussi pénétrer ces conditions de l’âme afin que l’âme devienne un aspect réel et viable de votre être.
 

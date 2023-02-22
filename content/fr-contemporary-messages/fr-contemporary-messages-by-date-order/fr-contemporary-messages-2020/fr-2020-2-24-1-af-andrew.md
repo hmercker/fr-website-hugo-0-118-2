@@ -1,15 +1,15 @@
 ---
-title: "Dieu veut que vous sachiez ce qu'est une relation avec Lui "
+title: "Dieu veut que vous sachiez ce qu'est une relation avec Lui"
 menu_title: ""
-description: "Dieu veut que vous sachiez ce qu'est une relation avec Lui "
+description: "Dieu veut que vous sachiez ce qu'est une relation avec Lui"
 date: 2022-06-01 06:00:01+00:1004
 draft: False
 hidden: True
 weight:
 ---
-### Dieu veut que vous sachiez ce qu'est une relation avec Lui 
+### Dieu veut que vous sachiez ce qu'est une relation avec Lui
 
-André - reçu par Al Fike le 24 Février 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 24 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis André. Avec le clair désir de l’âme dirigée vers Dieu pour recevoir l’Essence de Son âme dans votre âme, c’est là que le Don est donné ; c’est ainsi que le Don est reçu. Une aspiration, un désir, une prière, s’ouvrir à Dieu en toute humilité et innocence, chercher à connaître et à être avec votre Créateur. Et lorsque vous êtes ainsi réunis dans la prière et que tous sont unis dans ce désir, alors la grande bénédiction de l’Amour de Dieu se déverse sur vous pour que vous puissiez boire à votre faim, âmes bien-aimées, pour que vous puissiez recevoir tout ce que vous êtes capables de recevoir, que vous soyez venus à la source de tout amour, pour recevoir, reconnaître, sentir et connaître la grande paix qui dépasse toute compréhension ; un contact de Dieu sur vous, un contact de paix autour de vous, l’éveil à tout ce qui est de lumière, tout ce qui est des royaumes les plus élevés, la venue sur cette Terre, le contact avec vous tous. Vous êtes bénis, âmes bien-aimées, vous êtes bénis. Car Dieu désire que vous connaissiez vraiment, que vous compreniez qui Il est et ce qu’il y a dans cette relation entre vous et le Créateur.
 
@@ -20,6 +20,3 @@ Les portes s’ouvriront, vos âmes s’ouvriront au grand flot d’Amour qui vo
 Tant de choses vous attendent, mes bien-aimés, tant de choses, et souvent vous ne recevez qu’un aperçu de ce qui est vraiment en vous. Cependant, à mesure que vous poursuivez ce séjour entre votre mental et votre âme et entre votre âme et Dieu, d’autres choses s’éveillent, vos yeux s’ouvrent largement et clairement, réceptifs à tout ce qui doit être donné. Vous connaîtrez Dieu avec une telle clarté et une telle profondeur, une telle joie et un tel amour que tout ce que vous voyez dans votre vie, tout ce que vous avez vécu, tout ce qui est possible se fondra en perceptions claires et merveilleuses, reliant les facultés de l’âme aux facultés du mental en une seule grande et merveilleuse capacité de connaître la vérité et de savoir que celle-ci se trouve dans l’univers de Dieu.
 
 Chères âmes bien-aimées, buvez profondément les bénédictions de Dieu. En ce moment, Ses eaux vivantes se déversent sur vous. Buvez profondément et sachez que vous continuez à vous élever dans la Lumière et à vous réveiller de ces endroits profonds de l’âme. Que Dieu vous bénisse au cours de ce voyage. Que Dieu continue à vous bénir profondément, à vous réveiller pleinement, à vous apporter tout ce qui est censé être donné, béni et infusé dans votre âme. Que Dieu vous bénisse. Je suis André. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

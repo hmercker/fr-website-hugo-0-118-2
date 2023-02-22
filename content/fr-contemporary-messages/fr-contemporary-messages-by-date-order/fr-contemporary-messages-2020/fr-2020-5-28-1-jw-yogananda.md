@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Demandez 
+### Demandez
 
 Yogananda - reçu par Jimbeau Walsh le 28 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
@@ -22,4 +22,3 @@ Sur les plans terrestres, il faut penser à sa santé physique et à son bien-ê
 C’est pourquoi nous disons toujours d’aller dans votre cœur, d’aller à l’intérieur, de vous connecter à votre âme, puis d’envoyer une prière depuis cet endroit : *« Cher Dieu, touche mon âme, guéris mes blessures, élève-moi dans l’Amour Divin. »* Cet acte de demander et d’être assez humble pour reconnaître le Créateur apporte avec lui l’éternité et la connexion du mortel à l’immortel, de l’humain au Divin et à la compagnie des anges Célestes. Nous sommes attirés par cette prière, ce désir et cette communion dans l’amour de Dieu. Que tous ici soient bénis, guéris, transformés dans ce grand amour qui réveille l’âme et vous élève au-dessus du plan terrestre dans la félicité immortelle.
 
 Je vous remercie. Que Dieu bénisse chacun avec ce grand amour Divin. Je vous aime, je suis votre frère et ami dans l’Amour de Dieu, je suis Yogananda.
-

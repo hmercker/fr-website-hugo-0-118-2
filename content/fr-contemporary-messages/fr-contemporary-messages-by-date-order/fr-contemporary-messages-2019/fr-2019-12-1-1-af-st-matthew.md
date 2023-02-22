@@ -9,7 +9,7 @@ weight:
 ---
 ### Faites de votre journée une expression de votre âme
 
-St Matthieu - reçu par Al Fike le 1 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 1 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Chassez tous les doutes de votre esprit, mes bien-aimés, dans les temps à venir, comme le dit notre ami bien-aimé, vous serez mis au défi. Là où il y a le moindre doute, les forces qui souhaitent discréditer ce que vous avez à dire, travailleront dur et avec empressement pour transformer cette fissure en une crevasse qui, aux yeux de ceux qui vous regardent, sera un grand défaut. C’est ainsi que fonctionne la condition humaine, comme vous le savez bien, les dirigeants de ce monde doivent apparaître exempts de défauts ou de ce qui n’est pas de la plus haute qualité, pour être crus. Bien que, contrairement à cela, il y a beaucoup de dirigeants dans le monde qui ne peuvent pas tenir une bougie à votre intégrité et à la Vérité que vous portez, âmes bien-aimées. Mais en effet, vous vous affaiblissez vous-mêmes lorsque vous permettez au doute de s’insinuer, de s’installer, de détourner votre esprit de la Vérité, de permettre à votre esprit d’avoir la domination et le pouvoir de contrôler vos pensées et vos actions à tous égards.
 
@@ -34,6 +34,3 @@ Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Puissiez-vous en veni
 Car une âme éveillée est une âme avec une grande capacité à aimer, à être vraiment un enfant de Dieu, à être vraiment tout ce qu’elle est censée être dans ce monde et dans le prochain. Que Dieu vous bénisse dans ce voyage. Vous serez toujours accompagnés par les anges et par la Main de Dieu qui repose sur vous, âmes bien-aimées. Bannissez vos doutes et acceptez votre destin d’âme transformée sur ce Chemin Divin.
 
 Que Dieu vous bénisse. Je suis Matthieu et mon amour est avec vous. Belles âmes toutes, mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

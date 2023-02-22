@@ -76,6 +76,3 @@ Vous ne trébucherez pas, vous ne devinerez pas et vous ne vous retrouverez pas 
 Ces réalités viendront à chacun d’entre vous, âmes bien-aimées, et à toutes les âmes qui sont prêtes à franchir le pas au-delà des limites de leurs attitudes mentales, de leurs préjugés et de leurs craintes, vers ce lieu d’éveil de l’âme et de reconnaissance de Dieu. Puissiez-vous prendre conscience des grands dons et possibilités que Dieu a mis à votre disposition et voir votre place sur ce grand chemin de service et d’amour, afin que toutes ces réalités se reflètent dans vos âmes, vos esprits et vos mentalités individuelles et magnifiques que Dieu a prévu pour que vous puissiez les exprimer dans la vie, que ce soit dans cette vie matérielle ou dans la vie spirituelle. Tant de choses vous attendent, âmes bien-aimées. Vous êtes en route, bien en route, et vous allez apprendre à vous connaître. Dans la joie de la connaissance, vous serez l’expression d’une grande lumière et d’un grand amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et votre ami, votre enseignant et Maître du Royaume Céleste. Je suis Jésus et je vous remercie d’avoir à nouveau écouté mes paroles. Puissiez-vous les prendre à cœur et connaître la vérité qui a été dite. Que Dieu vous bénisse. Que Dieu vous bénisse, mes chers amis. Je suis avec vous pour toujours. Que Dieu vous bénisse.
-
-
-

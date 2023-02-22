@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu vous tricote tous ensemble
 
-Augustin - reçu par Al Fike le 18 Février 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 18 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Dieu vous relie tous ensemble, mes bien-aimés. Cette grande chaîne de Lumière qui est venue de vous, de vos âmes dans les prières à Dieu, dans les prières communes, dans les efforts d’unité et du désir de recevoir le Don de Son Amour, le don de Lumière et de guérison et de paix. Dieu vous rassemble tous, âmes bien-aimées, afin que vous soyez une force unie dans ce monde pour le bien, pour la Lumière ; afin que vous soyez utilisés par Dieu et Ses anges pour apporter une ouverture, une grande ouverture de Lumière et une influence sur votre monde. Ainsi, Dieu continue à vous rassembler. Dieu continue d’encourager chacun d’entre vous à être en communion avec Sa Grande Âme, cette grande Source d’Amour et de Lumière qui donne du pouvoir à tous ces fils qui sont rassemblés parmi vous et réunis avec une si belle complexité afin que vous soyez, tous ensemble, en harmonie ; le travail des anges qui continuent à vous rapprocher les uns des autres, créant des modèles exquis de Lumière dans votre monde, des modèles qui atteignent les autres ; ceux qui sont connectés à vous, ceux dans le monde qui aspirent, en ce moment même, dans leur âme à la Lumière et aux bénédictions.
 
@@ -20,6 +20,3 @@ Ainsi, ces grands canaux d’Amour sont construits par vos prières, nos efforts
 Ainsi, vous continuez à vous rapprocher de tout ce qui se trouve dans l’univers de Dieu et de la Volonté de Dieu. Vous trouverez donc votre chemin. Vous connaîtrez votre chemin, vous comprendrez et vous sentirez profondément que vous faites partie du grand plan de Dieu et du grand amour de Dieu pour vous tous. Beaucoup de choses vont se présenter dans les temps à venir. Beaucoup de bénédictions pour vous tous, mais aussi beaucoup de défis. Car votre monde continue à être en désaccord et à avoir besoin d’une grande guérison. Ainsi, Dieu a un plan qui fera avancer l’humanité dans la Lumière, pour amener l’humanité à reconnaître sa vraie nature, son vrai but sur ce monde, tout ce qui est en harmonie avec les Lois de la Création de Dieu, dont vous faites tous partie.
 
 Que Dieu vous bénisse sur ce chemin, âmes précieuses ; âmes précieuses en effet. Vous êtes profondément aimées. Que Dieu vous bénisse. Je suis votre enseignant Augustin et je continue à vous aider dans vos voyages et parfois à vous enseigner et à vous encourager dans votre quête de Vérité et d’Amour. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

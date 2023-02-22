@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jane Gartshore le 19 Juillet 2020
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/blur-1845861_1920.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-blur-1845861_1920.jpg)
 
 La force motrice derrière une grande partie des décisions prises dans ce monde est la cupidité. La force de la cupidité, qui est une soif de pouvoir et de domination sur d’autres personnes de moindre envergure, est une force qui sera étouffée et vaincue par la main de Dieu.
 
@@ -26,10 +26,3 @@ Beaucoup peuvent percevoir un tel état chez une autre personne ou dans un espri
 Ne vous laissez pas tromper par les apparences ! Nombreux sont ceux qui, dans ce monde, jouent à un jeu de tromperie. Leurs paroles ne veulent pas dire grand-chose. Leur vraie nature se révélera une fois que la lumière de Dieu aura brillé sur eux. Et cela arrivera. Cela viendra.
 
 Faites confiance à votre Saint-Père. Croyez qu’Il vous fera voir les ténèbres et la lumière. Et quoi que vous fassiez, ne cachez pas votre propre obscurité. Remettez-la à Dieu. Choisissez l’amour, et repentez-vous de vos péchés. Il est miséricordieux. Et Il vous aime, chacun et chacune d’entre vous. Je suis Jeshua.
-
-
-
-
-
-
-

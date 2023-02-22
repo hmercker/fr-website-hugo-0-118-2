@@ -9,7 +9,7 @@ weight:
 ---
 ### La médiumnité exige de se consacrer au développement d'une relation avec Dieu
 
-Seretta Kem - reçu par Al Fike le 3 Avril 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 3 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem et je suis très heureux de voir qu’il y a tant de personnes qui sont sérieuses dans cette aventure et qui ont le désir de communiquer avec nous. Si peu dans votre monde ont ce désir ou même une idée de ce qui est possible. Mettre en avant la sagesse des anges sera un grand cadeau pour chacun d’entre vous, âmes bien-aimées. Je tiens à vous assurer qu’un ange vous a été assigné alors que vous continuez sur cette trajectoire. Vous recevrez de l’inspiration, des bénédictions et des expériences alors que vous poursuivez vos efforts pour prier pour l’Amour de Dieu chaque jour.
 
@@ -24,5 +24,3 @@ Tant de choses peuvent être données, mes amis, et tant de choses attendent vos
 Puissiez-vous poursuivre votre voyage de l’âme en relation avec votre Père Céleste, en vous éveillant à l’Amour de Dieu. Car c’est ce cadeau, le plus grand cadeau de tous, le cadeau le plus élevé qui apportera tout ce que vous désirez et tout ce dont vous avez besoin pour réaliser ces cadeaux de communication. Que Dieu vous bénisse dans ce voyage, qu’il vous protège toujours, et qu’il vous inspire à rechercher ce qu’il y a de plus élevé, à être en alignement avec Dieu.
 
 Que Dieu vous bénisse. Je suis Seretta Kem et je continuerai à vous parler et à vous assister alors que vous apprenez, grandissez et vous éveillez à ces grands potentiels de l’âme. Que Dieu vous bénisse. Que Son Amour continue de couler dans vos âmes. Puissiez-vous en venir à voir les merveilles de votre propre âme et les merveilles de la Grande Âme de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour est avec vous.
-
-

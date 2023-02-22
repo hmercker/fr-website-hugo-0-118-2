@@ -1,13 +1,13 @@
 ---
-title: "Voyage pour apporter l'égalité et l'amour à l'humanité "
+title: "Voyage pour apporter l'égalité et l'amour à l'humanité"
 menu_title: ""
-description: "Voyage pour apporter l'égalité et l'amour à l'humanité "
+description: "Voyage pour apporter l'égalité et l'amour à l'humanité"
 date: 2022-06-01 06:00:01+00:1055
 draft: False
 hidden: True
 weight:
 ---
-### Voyage pour apporter l'égalité et l'amour à l'humanité 
+### Voyage pour apporter l'égalité et l'amour à l'humanité
 
 Guru Nanak - reçu par Maureen Cardoso le 7 Avril 2020, Abbotsford, Colombie-Britannique, Canada
 
@@ -38,6 +38,3 @@ J’espère qu’il y a une façon consciente de recevoir l’enseignement de l�
 Nous sommes nombreux à avoir été, lorsque nous avons parcouru la Terre, des leaders de différentes confessions et enseignements, et nous nous réunissons aujourd’hui. Nous travaillons à apporter la Vérité dans toutes les religions, et la Vérité de l’Amour de Dieu dans toutes les religions. Notre travail se poursuit, bien-aimés, il n’est jamais terminé. Nous aspirons tous à partager les vérités de l’amour de Dieu et notre âme est imprégnée de cet amour. Nous sommes des Anges Célestes au service de l’Amour et de la Vérité pour l’humanité.
 
 Je vous remercie d’avoir écouté mes paroles. Je vous remercie d’avoir embrassé l’humanité tout entière sur un pied d’égalité. Chacun de vous est profondément aimé par la Grâce de Dieu. Je suis Guru Nanak. Que Dieu vous bénisse.
-
-
-

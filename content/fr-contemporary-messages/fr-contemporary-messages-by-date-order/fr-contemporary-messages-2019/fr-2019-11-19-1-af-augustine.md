@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher dans la Volonté de Dieu
 
-Augustin - reçu par Al Fike le 19 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 19 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
 Je suis Augustin. Beaucoup de ceux qui ont été avec vous dans les Cercles de Lumière ont été quelque peu déconcertés. Ce n’est pas que les mots que vous prononcez, ou les actions que vous transmettez, ne leur soient pas familiers ou qu’ils soient surpris de quelque manière que ce soit. C’est votre Lumière, âmes bien-aimées, et votre engagement envers Dieu qui est quelque peu déconcertant pour ceux qui ont, disons, un intérêt tiède pour Dieu et l’âme. Pourtant, ils sentent en vous un feu, une passion pour cette relation et un profond désir de connaître vos propres âmes, d’exprimer votre vie à travers votre âme.
 
@@ -38,6 +38,3 @@ Chaque moment, chers et beaux chercheurs d’Amour et de Lumière, vous sera ré
 Marchez dans la Volonté de Dieu, mes bien-aimés. Marchez dans la Lumière de Dieu et l’Amour de Dieu avec l’intention d’avoir vos yeux ouverts à la Volonté et à la direction du Toucher de Dieu sur vous. Beaucoup de belles bénédictions, d’expériences, de cadeaux et d’opportunités viendront à vous. Vous serez surpris et ravis et joyeux par les cadeaux que Dieu vous donne, les opportunités qui vous traversent pour servir l’humanité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. Je continue à marcher à vos côtés pour vous aider à comprendre les possibilités de votre propre âme engagée dans la vie, le service et l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

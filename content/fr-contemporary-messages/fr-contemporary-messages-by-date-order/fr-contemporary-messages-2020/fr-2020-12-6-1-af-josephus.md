@@ -54,6 +54,3 @@ Je crois que je vais m’arrêter maintenant car je sais que votre temps est lim
 Ne considérez pas la conscience de la condition humaine comme votre référence pour la vie. Pensez aux possibilités de la conscience de votre âme et à la façon dont elle peut être réalisée et éveillée. Si vous le faites, je vous assurerai que les anges des Cieux Célestes viendront vous aider dans ce voyage d’éveil. Beaucoup sera donné à une âme qui est désireuse et sérieuse de poursuivre le voyage de l’éveil conscient, de la connaissance de la vérité, de la vérité intérieure et extérieure. Tout viendra avec cette bénédiction de l’Amour.
 
 Je vous remercie, mes amis. Que Dieu vous bénisse dans vos voyages. Je reviendrai peut-être pour parler d’autres réalités de l’âme. Bénédictions à vous tous, bénédictions et lumière. Que Dieu vous bénisse. Je suis Flavius Josèphe. Mon amour est avec vous.
-
-
-

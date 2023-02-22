@@ -9,9 +9,9 @@ weight:
 ---
 ### Les vents du changement arrivent pour chacun d’entre vous
 
-St Matthieu - reçu par Al Fike le 3 Mars 2020, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 3 Mars 2020, Gibsons, Colombie-Britannique, Canada.
 
-Âmes bien-aimées, je suis Matthieu. Oui, les vents du changement arrivent pour chacun d'entre vous, mes chers et beaux amis. Il y a beaucoup de choses qui arrivent dans le monde, beaucoup de choses que vous devez reconnaître et admettre dans vos âmes et comprendre cet endroit en vous qui a la sagesse, l'amour, la force et la connaissance pour être dans le monde comme un leader dans le monde, car Dieu aura besoin de votre leadership. Dieu aura besoin de chacun de vous pour être fort et clair dans votre perspective, de belles âmes, des canaux de lumière et d'amour dans le monde. Ces défis ne sont pas insurmontables et les conditions qui viennent, bien qu'elles ne soient pas compatibles avec les grandes énergies et les conditions que l'humanité a construites, sont compatibles avec Dieu, compatibles avec la nouvelle ère et la nouvelle façon d'être dans le monde qui vient.
+Âmes bien-aimées, je suis Matthieu. Oui, [les vents du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-2-1-af-jesus/) arrivent pour chacun d'entre vous, mes chers et beaux amis. Il y a beaucoup de choses qui arrivent dans le monde, beaucoup de choses que vous devez reconnaître et admettre dans vos âmes et comprendre cet endroit en vous qui a la sagesse, l'amour, la force et la connaissance pour être dans le monde comme un leader dans le monde, car Dieu aura besoin de votre leadership. Dieu aura besoin de chacun de vous pour être fort et clair dans votre perspective, de belles âmes, des canaux de lumière et d'amour dans le monde. Ces défis ne sont pas insurmontables et les conditions qui viennent, bien qu'elles ne soient pas compatibles avec les grandes énergies et les conditions que l'humanité a construites, sont compatibles avec Dieu, compatibles avec la nouvelle ère et la nouvelle façon d'être dans le monde qui vient.
 
 Vous devez donc chercher à vous aligner sur ces choses. Pour les voir avec les yeux de votre âme et pour comprendre avec la sagesse de votre âme. De cette façon, vous pourrez utiliser vos dons, ces choses que Dieu vous a données afin d'aider les autres dans ce voyage d'éveil et de transition des ténèbres à la lumière, de ce que l'humanité a créé à ce que Dieu a créé, une réconciliation entre les âmes des hommes et l'âme de Dieu.
 
@@ -34,6 +34,3 @@ Il en sera ainsi en fonction de votre désir et de vos efforts dans la prière, 
 Que Dieu vous bénisse dans vos voyages, âmes bien-aimées. Puissiez-vous en venir à savoir que Dieu a l'intention de vous accorder toutes les bonnes et belles bénédictions, ainsi qu'à cette Terre et à tous ceux qui l'habitent. Les créatures, les âmes bien-aimées, toute la nature dans toute sa gloire et sa polyvalence s'épanouiront dans ce nouveau monde, tout comme les âmes de l'humanité et tous ceux qui viennent, les enfants, les enfants des enfants, pendant de nombreux, nombreux siècles à venir, connaîtront un monde différent du vôtre. Ils feront l'expérience d'une vie épanouie dans l'amour, qui est joyeuse et belle. Ces choses arrivent et de grandes bénédictions vont couler sur vous tous.
 
 Je suis votre ami Matthieu. Je suis heureux de vous avoir parlé aujourd'hui. Que Dieu vous bénisse, âmes bien-aimées. Que ce jour soit un jour de profonde bénédiction. Chaque jour où vous vous réunissez sera en effet un jour de profondes bénédictions. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. Je suis Matthieu. Que Dieu vous bénisse.
-
-
-

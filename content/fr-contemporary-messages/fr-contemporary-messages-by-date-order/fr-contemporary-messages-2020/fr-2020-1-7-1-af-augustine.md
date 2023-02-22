@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde est enveloppé de brume et de nuances de gris
 
-Augustin - reçu par Al Fike le 7 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 7 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est votre enseignant, Augustin. Le monde est enveloppé d’une brume avec des nuances de gris, certaines sombres, d’autres plus claires mais très peu de lumière. En nous approchant de votre Terre, nous devons donc pénétrer dans cet environnement brumeux créé par les conditions de l’humanité sur votre monde. Il est donc difficile pour chacun d’entre vous de vivre dans cette couverture oppressante et de vous en libérer dans votre vie quotidienne et vos prières. C’est la puissance de vos propres prières, âmes bien-aimées, qui est capable d’éclaircir l’air et d’apporter la lumière.
 
@@ -36,6 +36,3 @@ Je sais que vous avez de grandes préoccupations, âmes bien-aimées. Je sais qu
 Puissiez-vous voir le rôle que Dieu a assigné à chacun de vous. Que cette vision et cette perception vous viennent clairement et puissamment afin que vous puissiez vous mouvoir à l’intérieur de la volonté de Dieu et agir en conséquence. Que Dieu vous bénisse, âmes bien-aimées, sur votre chemin. Que Dieu vous montre le chemin. Que Dieu vous renforce, vous guide et vous enseigne les voies de la Lumière et de l’Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin est avec vous dans votre voyage et votre réveil. Que Dieu vous bénisse. Mon amour est avec vous.
-
-
-

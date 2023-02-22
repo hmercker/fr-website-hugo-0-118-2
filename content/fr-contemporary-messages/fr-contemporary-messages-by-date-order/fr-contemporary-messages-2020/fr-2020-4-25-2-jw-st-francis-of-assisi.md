@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Uu pont entre le Ciel et la Terre 
+### Uu pont entre le Ciel et la Terre
 
 St François d'Assise - reçu par Jimbeau Walsh le 25 Avril 2020, Punalu’u, Oahu, Hawaii, USA
 
@@ -18,6 +18,3 @@ Comme c’était le désir profond de tant de personnes pour une Terre plus dura
 C’est le souhait que je vous adresse alors que je vous accompagne dans votre voyage et votre visite. Sachez que lorsque vous me demandez de l’aide, celle-ci est toujours disponible. Nous sommes là pour vous plus que vous ne le pensez. Que chacun dans ce beau cercle s’ouvre à l’Amour de Dieu et le reçoive en grande abondance. Je suis votre frère et l’ami de votre âme. Que Dieu vous bénisse.
 
 Je suis François. Allez en paix.
-
-
-

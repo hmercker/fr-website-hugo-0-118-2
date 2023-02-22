@@ -40,6 +40,3 @@ Ce ne sera pas le cas pour tous. Tous ne sont pas destinés à périr en ces tem
 Je vous invite tous à vous réfugier dans les bras de votre Père Céleste, qui entend vos cris et connaît vos craintes. Trouvez la paix dans son étreinte éternelle, en abandonnant votre besoin d’être dans ce monde. Soyez dans Son monde, un monde d’amour éternel.
 
 Je suis venu aussi vous prendre dans mes bras. Je suis là pour vous. Je marche avec vous jusqu’au bout, jusqu’à la nouvelle vie qui vous attend au-delà. N’ayez pas peur. Vous êtes aimé. Je suis Yeshua.
-
-
-

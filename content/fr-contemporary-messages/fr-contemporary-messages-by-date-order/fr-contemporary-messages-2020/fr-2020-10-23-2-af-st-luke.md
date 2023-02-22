@@ -24,6 +24,3 @@ De cette façon, Dieu vous guidera pour travailler pour Lui de nombreuses maniè
 Puissiez-vous trouver tous les trésors qui se trouvent dans votre âme, mes amis bien-aimés. Puissiez-vous en venir à connaître les grands joyaux qui sont en vous, ces dons, ces capacités qui sont si magnifiques et impressionnantes dans leurs modes d’expression et de manifestation. Vous en viendrez à connaître ces choses, mes amis, et vous glanerez une grande joie dans le réveil de vos âmes. Que le Père continue à vous bénir profondément, en dégageant tout ce qui peut faire obstacle à cette floraison de votre âme, à l’épanouissement de cette belle créature qui n’est que vous.
 
 Que Dieu vous bénisse, mes bien-aimés, je suis Luc, et je suis heureux de vous parler aujourd’hui. Que Dieu vous bénisse et vous garde près de sa grande et merveilleuse âme. Mon amour pour vous est grand. Que Dieu vous bénisse.
-
-
-

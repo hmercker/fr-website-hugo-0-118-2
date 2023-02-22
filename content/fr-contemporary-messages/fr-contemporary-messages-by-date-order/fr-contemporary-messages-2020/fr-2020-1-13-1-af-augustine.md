@@ -9,7 +9,7 @@ weight:
 ---
 ### Être en harmonie est de la plus haute importance pour être un instrument de Dieu
 
-Augustin - reçu par Al Fike le 13 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 13 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je dois dire que je suis quelque peu amusé par votre prière, fille bien-aimée. Vos propos expriment si bien le dilemme humain. D’une part, votre esprit est tellement curieux et désireux de recevoir des directives et des conseils des Anges, et d’autre part, vous priez pour recevoir l’Amour du Père, pour réveiller votre âme et pour réconcilier vos pulsions et désirs, et ceci est souvent source de confusion et de difficultés pour prendre des décisions dans votre vie. C’est le dilemme de la condition humaine, n’est-ce pas ? Les mortels de votre monde sont continuellement confrontés et remettent en question vos décisions et vos actions dans le monde.
 
@@ -26,8 +26,3 @@ Ses propres pensées restrictives. Pourtant, l’âme est ouverte et claire, inv
 Il est important que vous utilisiez les ressources que Dieu vous a données. Les dons qui vous sont si facilement accessibles. La vérité que vous connaissez si bien. Et le sentiment d’amour que Dieu apporte dans votre vie et qui est omniprésent et global. Ainsi, vous connaîtrez votre vérité, votre destin, votre direction, les efforts nécessaires pour réaliser le plan de Dieu pour chacun d’entre vous. Vous vous êtes prouvé cela à maintes reprises, mes bien-aimés. C’est clair et non ambigu par nature. C’est la confiance et la foi de vos propres âmes dans l’alignement avec Dieu. Et il en sera ainsi. Continuez à vous fortifier et à vous réveiller. Il en sera ainsi, mes amis bien-aimés. Il en sera ainsi.
 
 Que Dieu vous bénisse au cours de ce voyage. Qu’il vous garde dans l’alignement de Dieu. Faites en sorte que cette grande bénédiction de Son Amour coule continuellement dans votre âme alors que vous évoluez, que vous vous éveillez et que vous fleurissez dans l’Amour et la Grâce de Dieu et dans la Sagesse et la Connaissance. Soyez bénies et fortifiées, âmes bien-aimées, je suis votre enseignant Augustin. Et je vous remercie de m’avoir écouté aujourd’hui et de m’avoir demandé de vous guider. J’espère que je vous ai donné ce que vous avez besoin d’entendre et de connaître et que vous serez rassurés de continuer à suivre la voie divine et d’être guidés par Dieu et ses anges sur cette voie. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-
-
-

@@ -1,15 +1,15 @@
 ---
-title: "Encouragement au développement des dons de médiumnité "
+title: "Encouragement au développement des dons de médiumnité"
 menu_title: ""
-description: "Encouragement au développement des dons de médiumnité "
+description: "Encouragement au développement des dons de médiumnité"
 date: 2022-06-01 06:00:01+00:997
 draft: False
 hidden: True
 weight:
 ---
-### Encouragement au développement des dons de médiumnité 
+### Encouragement au développement des dons de médiumnité
 
-Seretta Kem - reçu par Al Fike le 14 Février 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem. Je me suis impliquée avec cet instrument et d’autres dans de nombreuses formes de développement de la médiumnité et des moyens de communication entre votre monde et le nôtre. Je suis heureuse que vous envisagiez la possibilité d’une communication entre vous et nous du Royaume Céleste. Il y a un grand manque de compréhension et de connaissance concernant la communication entre vous du plan terrestre, qui êtes essentiellement des êtres spirituels, et nous du monde des esprits qui n’avons pas de corps charnel à partir duquel opérer et nous exprimer. Pourtant, nous avons tous fait l’expérience de cette condition de la vie terrestre et nous en comprenons les joies et les défis.
 
@@ -28,6 +28,3 @@ Tant de choses sont à votre disposition, mes amis. Alors que vous continuez à 
 Tous sont des bénédictions. Tous viendront en harmonie, au bon moment et au bon endroit. Souvenez-vous que vous êtes portés dans les bras de Dieu, que les anges vous entourent de protection et d’amour, que vous êtes en sécurité dans cette Lumière et que vous ne serez en aucun cas abandonné au cours du voyage, à condition que vous le désiriez et que vous vouliez emprunter cette route qui mène aux expériences et aux compréhensions exceptionnelles de l’âme.
 
 Que Dieu vous bénisse sur ce voyage, mes chers amis. Je suis Seretta Kem. Mon amour pour vous est grand. Je suis impatiente de vous aider tous à développer votre âme, les facultés de votre âme, de vous aider à comprendre la vraie nature de votre âme, comme le font tous les anges du Ciel qui se consacrent à cette tâche pour aider à éveiller l’humanité à la Vérité, à l’Amour, à tout ce qui est bon, à tout ce qui est merveilleux, à tout ce qui élargit la conscience de l’humanité dans la voie et le flux de l’Amour. Réveillez-vous, mes amis. Réveillez-vous et réjouissez-vous des opportunités qui vous sont offertes, des possibilités rendues manifestes par l’Amour, des bénédictions de Dieu qui réveillent l’âme. Que Dieu vous bénisse, mes amis bien-aimés, et vous garde toujours sous sa protection et ses soins. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Faites grandir vos âmes dans le jardin d’Amour de Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 3 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 3 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis François. Je suis venu avec mon cher frère Yogananda, car nous voyageons souvent ensemble. Il a été très influencé par la lecture de ma vie et par sa visite à Assise au cours de sa vie et il a eu le sentiment que je veillais sur lui alors, que je le regardais grandir, se développer et progresser. Et lorsqu’il est venu, ce fut moment très glorieux. Et donc, nous voyageons souvent ensemble.
 
@@ -20,8 +20,3 @@ Alors que vous vivez sur terre, rappelez-vous d’être doux, gentils et nourris
 Comme l’a dit mon cher frère, ayez la foi, laissez tomber le doute. Laissez l’Amour remplacer la peur. Marchez debout dans l’Amour.
 
 Que Dieu vous bénisse tous. Je suis votre frère dans le Royaume Céleste, François. Que Dieu vous bénisse.
-
-
-
-
-

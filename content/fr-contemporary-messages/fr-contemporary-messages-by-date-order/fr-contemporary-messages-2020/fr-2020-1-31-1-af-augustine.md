@@ -9,7 +9,7 @@ weight:
 ---
 ### Un lien puissant vous unit lorsque vous priez ensemble
 
-Augustin - reçu par Al Fike le 31 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 31 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien aîmées, je suis votre enseignant Augustin. Qu’il est merveilleux de voir tant d’âmes qui viennent boire l’Amour du Père, à ce puits de Lumière qu’est cet Amour donné à chacun de vous, couler ; les Eaux Vives qui ne seront jamais sèches mais couleront toujours pour toujours. Et que vous marchiez ensemble, âmes bien-aimées ; il y a en vous un grand lien, comme l’a dit notre précieuse et bien-aimée Keea, ce lien qui vous relie les uns aux autres et qui est fort et continue à se développer. Ce fil de Lumière devient un cordon de Lumière, une corde de Lumière, un puissant agent de liaison qui vous rassemble tous ensemble lorsque vous priez de cette façon. De cette façon, Dieu peut vous utiliser individuellement, et collectivement, pour apporter des bénédictions à votre monde, pour apporter de nombreuses bénédictions à vos frères et sœurs, pour apporter des bénédictions à vos proches. Dieu utilise ce don que vous avez créé ensemble, ce Cercle de Lumière harmonieux, de nombreuses façons et vous êtes essentiels pour aider à soutenir et à construire le grand réseau de Lumière, ce grand effort dans lequel nous sommes tous engagés, âmes bien-aimées, pour aider à encercler le monde dans la Lumière, pour aider à neutraliser les conditions obscures qui continuent à supprimer les âmes de l’humanité dans l’obscurité.
 
@@ -22,6 +22,3 @@ Il en sera de même pour ceux d’entre vous qui ont trouvé leur vrai moi, leur
 De grands changements, de grands réveils, de grands changements de compréhension, de grandes vagues d’Amour vous engloutiront tous et vous amèneront à ce lieu de douces connaissances de Dieu et de grande compassion pour l’humanité, instruments de Sa Volonté, canaux de Son Amour. Il en sera ainsi lorsque vous continuerez à prier et à grandir dans cette bénédiction. Il en sera de même lorsque vous trouverez votre place dans Son plan et que vous y trouverez votre but ; un réveil merveilleux et joyeux des grands joyaux de votre âme exprimés par la Volonté de Dieu et son plan pour l’humanité.
 
 Que Dieu vous bénisse dans ce voyage, vous transportant vers ce lieu de véritable compréhension et d’expression de vos âmes. Nous sommes là avec vous. Nous le serons toujours, et notre amour pour vous est grand. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Que Dieu vous bénisse, âmes bien-aimées, que Son Amour brille sur vous pour l’éternité. Que Dieu vous bénisse.
-
-
-

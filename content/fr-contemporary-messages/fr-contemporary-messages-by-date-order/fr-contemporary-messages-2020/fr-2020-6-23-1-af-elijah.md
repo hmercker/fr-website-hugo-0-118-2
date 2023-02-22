@@ -24,8 +24,3 @@ Reconnaissez le pouvoir de l’amour. Voyez que c’est ce que vous recherchez t
 Puissiez-vous venir danser dans la vie, en connaissant la merveilleuse musique de Dieu dans Son Amour, pour être dans ce joyeux ravissement, avec cette vraie connaissance, ce soi conscient éveillé en relation avec tout ce qui est Harmonie avec amour. Que Dieu vous bénisse et vous rapproche toujours plus de cette réalisation, de cet éveil et de cette connaissance où la joie règnera en maître en vous. Quelles que soient les conditions que vous rencontrez, vous connaîtrez l’expression inébranlable et merveilleuse de l’amour dans votre âme, joyeusement exprimée dans le monde. Que Dieu vous bénisse dans ce voyage et vous garde, vous garde dans la Lumière de toute Vérité et de tout Amour, de toute bonté, de toute grâce, de toute Vérité, de toute joie.
 
 Bénédictions à vous âmes bien-aimées, je suis Elie et je suis avec vous alors que vous continuez à lutter dans un monde si troublé et qui se débat dans les ténèbres et l’erreur. Vous êtes arrivés à la Fontaine de tout ce qui est Amour. Vous devez boire profondément et connaître cette Vérité. Mon amour est avec vous. J’apporte une bénédiction pour vous tous, car Dieu souhaite que vous soyez tous élevés, chers enfants, que vous soyez éveillés, que vous connaissiez votre vrai moi dans le grand amour. Que Dieu vous bénisse.
-
-
-
-
-

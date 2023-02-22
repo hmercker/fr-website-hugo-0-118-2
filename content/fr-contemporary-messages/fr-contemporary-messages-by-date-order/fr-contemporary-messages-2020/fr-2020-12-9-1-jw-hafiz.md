@@ -11,7 +11,7 @@ weight:
 
 Hafiz - reçu par Jimbeau Walsh le 9 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/haffiz.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-haffiz.jpg)
 
 Dieu dans son infinie patience attend votre arrivée
 Dans Sa grande salle de bal
@@ -38,6 +38,3 @@ Comme le derviche tourneur
 Vous êtes
 Le Danseur de Dieu
 Hafiz.
-
-
-

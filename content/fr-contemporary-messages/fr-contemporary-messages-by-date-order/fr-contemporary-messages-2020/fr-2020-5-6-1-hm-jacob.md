@@ -22,6 +22,3 @@ Avoir la foi en ce que Dieu nous révèle, et faire confiance à ces paroles de 
 C'est un sujet complexe et je souhaite écrire à nouveau et je souhaite que notre relation se renforce car j'ai beaucoup à partager. Je prierai avec toi et avec toutes les âmes chères qui cherchent l'Amour du Père. Nous venons de loin pour être avec vous et nous désirons apporter notre lumière et notre amour alors que le monde est en plein changement. Mon amour est avec toi, chère fille. Cherchez un lien étroit avec Dieu et venez comme un enfant innocent, car Il désire ardemment que chaque enfant reçoive Son Amour et bien plus encore.
 
 Que Dieu continue à te bénir, chère enfant, et je viendrai pour être avec toi. Que Dieu te bénisse. Jacob, un ancien prophète, t'aime et t'apporte son amour, sa force et sa lumière pour vous aider à trouver la vérité dans les nombreux aspects de la vie dans l'Amour de Dieu. Bonne nuit et que notre Père Céleste te bénisse.
-
-
-

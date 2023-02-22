@@ -9,7 +9,7 @@ weight:
 ---
 ### L'importance des portails de lumière dans le monde
 
-André - reçu par Al Fike le 28 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 28 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Il est bon de vous voir ensemble, âmes bien-aimées. Chaque fois que vous vous réunissez dans ce Cercle de Lumière, vous apportez un grand bénéfice à votre âme. Vous permettez aux bénédictions de se déverser sur vous à travers ce Portail de Lumière, à travers les efforts qui ont été faits ici, dans ce lieu de prière, encore et encore, construisant cette condition de lumière, construisant la présence de Dieu en ce lieu. Est-ce moins sacré qu’une église ou qu’un autre lieu de culte ? Non, âmes bien-aimées, c’est un lieu sacré, un lieu de Dieu. Alors que vous continuez à prier ici, à vous tendre la main dans l’amour, à déclarer vos intentions à Dieu, à rechercher la grande bénédiction de Son Amour, vous continuez à ajouter à la fondation de ce lieu et à apporter de plus grandes bénédictions dans le monde à travers ce Portail.
 
@@ -28,6 +28,3 @@ Vous n’avez pas besoin de comprendre toutes les ramifications, les complexité
 Vous êtes Ses enfants. Réveillez-vous et sachez vraiment cela. Vous êtes profondément aimés. Puissiez-vous en venir à ressentir et à reconnaître cette touche d’amour qui est éternelle et infinie. Puissiez-vous arriver à comprendre vraiment Dieu et toute Sa beauté et Sa complexité, Sa puissance et Sa gloire, Son Amour et Sa joie, Sa connaissance et Sa beauté. Tant de choses vous attendent, âmes bien-aimées. Continuez à tourner votre regard vers Dieu, vers votre propre âme, vers les possibilités de votre éveil spirituel et tout dans la vie sera un voyage magnifique, un émerveillement et une expression joyeuse de tout ce que vous êtes. Vous êtes aimé. Vous êtes aimés.
 
 Que Dieu vous bénisse, âmes bien-aimées, qu’il vous garde sur ce chemin, qu’il vous garde dans Sa Grâce, qu’il vous garde dans la Lumière de la Vérité et de l’Amour. Que Dieu vous bénisse, âmes bien-aimées. Je suis votre ami et frère André et je vous aime tendrement. Je vous aime tendrement et je serai avec mon protégé, sa compagne et ceux qui voyagent avec lui, comme beaucoup d’autres. Il y aura beaucoup de portes ouvertes, de possibilités à exploiter chaque jour. Que chacun de vous ait la capacité, la sensibilité et la syntonisation pour voir et savoir ce que Dieu vous donne, vous donne sous forme de service et d’opportunités pour apporter l’amour et la vérité. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

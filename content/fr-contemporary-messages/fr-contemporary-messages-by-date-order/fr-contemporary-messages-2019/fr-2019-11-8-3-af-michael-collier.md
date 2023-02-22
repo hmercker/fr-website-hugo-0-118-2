@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettez à Dieu d'opérer Sa magie à travers vous
 
-Michael Collier - reçu par Al Fike le 8 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Michael Collier - reçu par Al Fike le 8 Novembre 2019, Fitzroy Falls, NSW, Australie.
 
 C’est moi, Michael Collier et je suis si heureux que mes chers amis soient revenus pour poursuivre leur travail dans cette partie du monde. Je continue à travailler avec ma sœur et mon frère bien-aimés dans leurs efforts. Ils ont été diligents à bien des égards, cherchant à servir Dieu. Ce chemin et cet effort n’ont pas été particulièrement faciles. Ils se sont souvent sentis seuls, mais ils ont persisté dans leurs prières. Sachez que j’ai été avec vous très, très souvent, que j’ai pris un engagement profond envers chacun d’entre vous dans votre cheminement vers Dieu, et que je réside effectivement dans le Royaume Céleste.
 
@@ -34,6 +34,3 @@ Le décor a été planté, les acteurs, tous très capables, de belles âmes. La
 Dieu vous bénisse mes amis, je suis Michael et je suis heureux que nous soyons tous réunis une fois de plus avec quelques nouveaux visages, que je connais bien, comme vous pouvez le supposer. Nous sommes tous ensemble dans ce projet. Nous allons forger un chemin de Lumière à travers cette condition qui comporte de nombreux obstacles mais, comme je l’ai dit, sous les obstructions du mental se trouve une âme qui désire la Vérité. Avec de la patience, nous trouverons tous notre chemin vers l’unité, la confiance, la joie, l’élévation et la bénédiction de l’Amour dans nos âmes.
 
 Que Dieu vous bénisse dans ce voyage. Que Dieu vous bénisse et que mon amour soit avec vous. Je serai là pour chaque moment. Je ne le manquerais pour rien au monde, comme vous le diriez. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
-
-
-

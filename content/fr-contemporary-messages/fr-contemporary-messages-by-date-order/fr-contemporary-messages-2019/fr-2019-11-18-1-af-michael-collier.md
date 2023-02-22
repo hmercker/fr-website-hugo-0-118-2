@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes porteur d'une vérité particulière
 
-Michaël Collier - reçu par Al Fike le 18 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 18 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
 Bien-aimées et belles âmes, faisant partie de la famille des enfants aimants de Dieu, mon nom est Michaël Collier. Je suis grand ami avec certains qui sont ici et guide ceux qui vivent sur ce beau pays qui sont des serviteurs de Dieu dans Son Amour. Chacun d’entre vous est un gardien de la porte pour Dieu, car ce sont vos prières et vos efforts pour atteindre Dieu dans la Vérité de Son Amour qui permettent le déversement d’une plus grande Lumière dans votre monde. Ainsi vos efforts, mes beaux amis, contribuent à éveiller l’humanité à la Vérité. Alors que vous continuez à prier et à recevoir ce don d’Amour, alors que vous continuez à supplier Dieu de bénir vos frères et sœurs, alors que vous voyagez dans le monde et que vous tendez la main aux autres et que vous voyagez au sein de vos propres communautés, vous apportez le son de cloche de la Vérité avec vous. Chacun de vous, dans son âme, sonne cette cloche qui amène les enfants à Dieu. Considérez ceci, mes amis, que non seulement vous vivez une vie comme tout le monde dans votre monde, mais que vous portez un message spécial, une Vérité spéciale qui peut sauver le monde de toute l’angoisse, la douleur, les distorsions et le manque d’amour qui existent dans votre monde.
 
@@ -24,6 +24,3 @@ Ainsi ce travail continue, mes amis bien-aimés, dans de nombreux endroits, à t
 Comme vous êtes bénis, mes amis. Comme Dieu vous a donné un si grand cadeau qu’aucun autre ne peut être comparé à ce qui a été donné dans la Vérité de Son Amour. Que Dieu vous bénisse alors que vous vivez et marchez dans votre vie et que vous êtes ce beau phare, ce canal, cette âme brillante qui peut et va donner beaucoup de bénédictions en tant qu’instruments de Dieu dans le monde.
 
 Je vous remercie de m’avoir écouté. Je m’appelle Michael. Mon amour est avec vous. Je suis un habitant du Royaume Céleste et je suis heureux et béni et humble d’être votre serviteur dans ce monde. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

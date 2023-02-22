@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce cercle est comme un collier de lumière
 
-André - reçu par Al Fike le 30 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 30 Novembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Que la grâce de l’amour de Dieu continue à remplir vos âmes, à accroître votre lumière, à vous apporter tout ce que Dieu souhaite accorder à chacun de vous. Lorsque je regarde ce Cercle, c’est comme un collier de lumière. Chacun ajoute sa perle de lumière à ce magnifique Cercle. Ensemble, vous brillez de mille feux, vous rayonnez jusqu’aux sphères de l’esprit, vous appelez les esprits curieux et assoiffés de lumière. Ainsi, vos efforts réunis créent une belle atmosphère dans laquelle ceux qui sont dans l’obscurité et dans la grisaille des sphères inférieures peuvent venir et se délecter de la lumière, se réchauffant dans cette Grâce et cette Beauté que Dieu déverse sur vous tous.
 
@@ -26,6 +26,3 @@ Comme je l’ai dit, c’est multidimensionnel. La lumière se répercute dans d
 Vous rendez à beaucoup un grand service, âmes bien-aimées. Puissiez-vous continuer à servir de cette humble et belle manière, en sachant que tout autour de vous est Lumière, que vous êtes entourés par les anges, que vous faites partie d’un grand effort et d’un plan pour aider beaucoup de ceux qui sont dans l’obscurité, à entrer dans la Lumière. Que Dieu vous bénisse dans ce grand effort, nous tous. Puissions-nous continuer à travailler ensemble en harmonie et être les serviteurs de Dieu pour l’élévation et la réclamation de nombreuses âmes dans ton monde et le nôtre.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis André et mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-

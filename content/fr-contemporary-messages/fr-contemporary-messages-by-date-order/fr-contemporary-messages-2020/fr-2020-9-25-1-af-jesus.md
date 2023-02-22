@@ -32,6 +32,3 @@ Mes frères et sœurs bien-aimés et magnifiques, vous êtes sur le point de con
 Tant de choses sont possibles si vous êtes disposés, si vous priez vraiment pour recevoir les grands dons que Dieu a à vous donner, le don de Son Essence qui allume tous les autres dons, les dons de Sa guidance et de Sa protection qui vous permettent de vous déplacer dans le monde comme une lumière, Ses dons de Vérité que vous pouvez être en mesure d’enseigner aux autres et d’exprimer ces vérités de nombreuses façons, un exemple à suivre pour les autres.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère. Je suis Jésus, le Maître des Cieux Célestes, et mon amour pour vous est grand, âmes bien-aimées, grand en effet. Je vous remercie d’avoir écouté mes paroles. Puissiez-vous les prendre dans vos âmes et les amener à être votre propre vérité et compréhension. Que vous puissiez vous éveiller dans la vérité et connaître la joie, la joie profonde de l’Amour de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous et je vous aime. Que Dieu vous bénisse.
-
-
-

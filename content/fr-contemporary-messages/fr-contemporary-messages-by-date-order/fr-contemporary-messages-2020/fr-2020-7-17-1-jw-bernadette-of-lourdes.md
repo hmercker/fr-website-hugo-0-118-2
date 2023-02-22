@@ -16,6 +16,3 @@ Je suis Bernadette et je viens dans la Grâce de Dieu dans ce cercle de lumière
 Que Dieu vous bénisse … Que Sa grâce soit avec vous.
 
 Bernadette Soubirou
-
-
-

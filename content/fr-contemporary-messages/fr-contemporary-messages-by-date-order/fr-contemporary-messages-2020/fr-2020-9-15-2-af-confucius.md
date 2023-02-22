@@ -16,6 +16,3 @@ Je vous apporte une bénédiction de guérison. Je suis Confucius. Je touche cha
 Sachez que Dieu utilisera tout ce que vous êtes. Une âme brillante d’amour sera une âme qui donne avec les bénédictions de Dieu à beaucoup. Âmes précieuses, soyez dans la lumière. Travaillez pour que Dieu apporte une plus grande lumière à votre monde, car nous avons une grande foi en vous. Nous continuons à voir l’éveil, la luminosité de vos âmes, la vérité naissante dans vos esprits et la conscience de Dieu, de Sa Vérité et de Son Amour. Vous êtes bénis, mes bien-aimés, vous êtes bénis sur ce voyage vers Dieu.
 
 Mon amour pour vous, mon amour pour vous, âmes précieuses, que Dieu vous bénisse.
-
-
-

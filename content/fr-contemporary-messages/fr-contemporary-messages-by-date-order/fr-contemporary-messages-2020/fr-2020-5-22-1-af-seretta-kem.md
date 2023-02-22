@@ -30,6 +30,3 @@ Elle est prévue pour chacun d’entre vous. Dans ce processus de lâcher prise,
 C’est la Loi de l’Amour et c’est ainsi que Dieu guérit Ses enfants et les amène à l’harmonisation, qu’il remplace les blessures et les endroits sombres par Son Amour, par ce brillant et beau, merveilleux élixir d’Amour qui est l’agent d’activation, pour tout ce qui est bon et en harmonie avec l’univers. Ces choses émergeront de vos âmes lorsque vous permettrez à ce qui les retient d’être libéré. Puissiez-vous continuer sur ce chemin de libération de ces parties de vous qui ne sont pas de Dieu mais de l’homme, et qui ne sont pas censées faire partie de vous, afin que vous puissiez effectivement laisser ces choses aller et, d’une certaine manière, renoncer à cette condition humaine et embrasser l’harmonie qui est de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Mon amour est avec vous. Je continue à vous guider et à vous encourager, à vous aider de nombreuses façons. Il y en a beaucoup qui sont avec moi et qui désirent aussi vous guider sur votre chemin d’éveil de l’âme, de guérison de l’âme, d’expression d’un grand amour et de joie. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
-
-
-

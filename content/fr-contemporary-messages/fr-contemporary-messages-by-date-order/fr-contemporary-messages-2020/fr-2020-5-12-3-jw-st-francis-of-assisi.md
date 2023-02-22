@@ -18,6 +18,3 @@ Mon cher frère, ma chère sœur. Lorsque cela vous servira de vous retirer du m
 Je suis votre frère et ami en Christ et un disciple du maître.
 
 Je suis François, que Dieu vous bénisse.
-
-
-

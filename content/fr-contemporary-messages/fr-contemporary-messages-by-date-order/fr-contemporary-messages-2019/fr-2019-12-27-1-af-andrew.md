@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu ne vous abandonne jamais
 
-André - reçu par Al Fike le 27 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 27 Décembre 2019, Edmonton, AB, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis André. C’est par la force de votre âme que vous portez la lumière. Peu importe les conditions que vous pouvez rencontrer dans ce monde, c’est la force de votre âme qui vous élèvera, la base de cette grande foi que vous portez et cette belle lumière en vous. Lorsque tout le reste est dépouillé, cette lumière demeure et cette force vous fait avancer. C’est le pouvoir du toucher de Dieu sur votre âme qui garantira que toutes les conditions de votre monde matériel ne vous diminueront pas, âmes bien-aimées. Car ceux qui dépendent du mental et des conditions et de l’insistance du mental pour leur confort, leurs routines, leurs idées et leurs perceptions sont vulnérables aux conditions terrestres.
 
@@ -20,6 +20,3 @@ C’est cette force, cette perception et cette beauté d’âme qui vous aideron
 Vous n’êtes pas seuls, aucun d’entre vous, peu importe avec quoi vous luttez, âmes bien-aimées. Non, vous n’êtes pas seuls. Mais en effet, le monde défie chacun d’entre vous d’une manière ou d’une autre, mais vous n’êtes pas seuls. Le pouvoir de Son Amour est le pouvoir de la guérison et de la grâce, de la paix et de la vérité. Il est pour vous tous. C’est une grande bénédiction de Dieu qui vous porte dans la Lumière. Puissiez-vous continuer à recevoir ce cadeau et savoir que vous êtes vraiment aimés, vraiment aimés et jamais seuls.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis André. Je suis avec vous. Mon amour est avec vous et une grande attention se déverse sur chacun d’entre vous, élevant et soutenant, guérissant et apportant la paix. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

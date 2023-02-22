@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous ouvrez la porte de votre âme quand vous priez
 
-St Matthieu - reçu par Al Fike le 21 Février 2020, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 21 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Matthieu. Chaque fois que vous priez, vous venez à la porte de votre âme et c’est l’intensité de vos prières qui ouvre la porte et vous permet d’y entrer avec Dieu, en communion avec Sa Grande Touche d’Amour et de Présence. C’est donc à vous de parcourir cette route entre le mental qui est engagé dans les préoccupations et les pensées quotidiennes, en mettant cela de côté et en voyageant plus profondément en vous-mêmes, votre vrai moi : votre âme. Chaque jour, vous faites cela avec sérieux, dans la prière et le désir de Dieu, afin de porter le chemin plus complètement et d’atteindre votre but plus facilement.
 
@@ -26,6 +26,3 @@ Puissiez-vous continuer à prier, à aspirer et à reconnaître vos pas sur ce c
 Que Dieu vous bénisse sur ce chemin, âmes bien-aimées, et souvenez-vous que nous sommes avec vous. Les anges du ciel marchent avec vous sur ce chemin et continuent à vous élever et à vous soutenir alors que vous faites vos pas sur le chemin de l’éveil, le chemin de l’âme, le chemin de l’âme vers Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu et je suis souvent avec vous. Vous tous, mes bien-aimés, vous avez reçu la visite d’un ange. Certains d’entre vous ne sont jamais sans ange et selon vos désirs et vos prières, il en sera ainsi. Car, chacun d’entre vous qui aspire vraiment à être sur le Chemin Divin et à exprimer son âme à Dieu dans l’humilité et la grâce, la beauté et la paix. Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et je suis avec vous. Que Dieu vous bénisse.
-
-
-

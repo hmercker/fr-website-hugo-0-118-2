@@ -9,7 +9,7 @@ weight:
 ---
 ### Chacun a une place dans le plan de Dieu
 
-André - reçu par Al Fike le 9 Février 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 9 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis André. Je suis heureux de vous voir réunis tous ensemble, en prière, pour rechercher le Don d’Amour Divin du Père Céleste dans vos âmes, avec sérieux, dévotion et constance dans vos vies ; que vous suiviez et répondiez à l’appel de votre propre âme à être proche de Dieu, à avoir ce Grand Don de Son Amour implanté dans vos âmes alors qu’il grandit et s’étend en vous.
 
@@ -30,6 +30,3 @@ Réfléchissez à ce qui est important, âmes bien-aimées. Considérez ce sur q
 Tant de choses attendent que vous reconnaissiez, que vous vous ouvriez, que vous soyez fidèle à cette vérité de votre relation avec Dieu. Puissiez-vous continuer ce grand voyage d’éveil. Sachez que vous n’êtes jamais seul, sachez que nous, du Royaume Céleste, continuons à marcher à vos côtés dans nos efforts mutuels pour faire croître la Lumière sur ce monde et en lui, dans votre âme, afin que vous puissiez porter la Vérité partout où vous allez, afin que ces grands fils de Lumière puissent venir à travers vous vers de nombreux autres, reliant le monde ensemble dans ce grand réseau de Lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis André et je suis heureux d’être avec vous. Il y a beaucoup d’anges avec vous en ce moment. Ces moyens de communication sont profondément bénis par Dieu afin que vous puissiez sentir que vous êtes ensemble, que vous êtes entrelacés, que vous faites partie d’une grande fraternité et d’une famille d’amour. C’est un cadeau, un véritable cadeau pour vous tous. Un don qui a été profondément béni par Dieu, par notre frère Jésus, par les nombreux anges qui viennent vous parler, par vos propres intentions d’âme qui rendent tout cela possible. Puissiez-vous continuer à vous ouvrir largement à toutes les possibilités qui s’offrent à vous pour vous soutenir dans ce grand voyage d’éveil de l’âme et de service à Dieu. Que Dieu vous bénisse, que Dieu vous bénisse tous. André vous aime. Que Dieu vous bénisse.
-
-
-

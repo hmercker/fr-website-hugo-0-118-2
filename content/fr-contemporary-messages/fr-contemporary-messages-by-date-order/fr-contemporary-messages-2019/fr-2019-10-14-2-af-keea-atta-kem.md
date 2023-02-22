@@ -9,7 +9,7 @@ weight:
 ---
 ### Prier pour l'Amour de Dieu dans les conditions difficiles de notre monde
 
-Keea Atta Kem - reçu par Al Fike le 14 Octobre 2019, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 14 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Alors que vous envoyez vos prières à Dieu avec toutes vos intentions et tous vos sentiments, vos désirs d’apporter la guérison et la résolution des problèmes et des situations dans lesquels vos frères et sœurs se trouvent et pour vous-mêmes d’être élevés, puisse l’Amour du Père s’écouler effectivement dans vos âmes en réveillant toutes ces parties qui sont endormies, qui ont besoin d’être guéries, ou qui ont besoin que leurs chambres soient ouvertes à l’Amour. Que vos prières soient de bonne foi avec la certitude que Dieu est à l’écoute et la certitude que Dieu répondra à tout ce que vous lui proposez car ce monde qui est le vôtre est si complexe, si plein de besoins, de douleurs et d’erreurs et a besoin de vos prières.
 
@@ -22,8 +22,3 @@ C’est la foi, de vous permettre de lâcher prise, de libérer tout ce qui n’
 Comme Dieu vous voit et vous reconnaît dans Son Amour, ainsi la lumière pleut sur vous, ainsi la lumière coule à travers vous et vers le monde. Vous pouvez accomplir tant de choses dans ces Cercles de Lumière. Tant de choses sont possibles à condition d’avoir la foi et la confiance, de permettre à tout ce qui est lumière et bonté de couler et de vous envelopper dans cette communion d’amour avec votre Créateur.
 
 Libérez tout ce qui est un fardeau. Mettez de côté toutes les pensées qui ne sont pas d’amour et concentrez-vous sur votre communion avec Dieu. C’est ce qui vous est demandé alors que vous vous réunissez. C’est ce qui vous apportera tout ce qui est prévu. Puissiez-vous être profondément bénis, âmes bien-aimées, pleinement éveillées, qu’on vous montre la voie pour continuer à servir Dieu comme vous avez prié de le faire et pour être Ses instruments et Ses canaux d’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Son Amour continue à se déverser en vous. Nous sommes avec vous, nous vous aimons. Que Dieu vous bénisse. Je suis Keea et je vous aime. Que Dieu vous bénisse.
-
-
-
-
-

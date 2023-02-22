@@ -9,9 +9,9 @@ weight:
 ---
 ### Expiation et mise en harmonie avec les lois de Dieu
 
-Keea Atta Kem - reçu par Maureen Cardoso le 5 Octobre 2019, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 5 Octobre 2019, F.U.S.C, Barnaby, Colombie-Britannique, Canada.
 
-Je suis Keea-Atta Kem, l’un des enseignants du Ciel, dont l’âme a été transformée par l’essence même de l’Amour Divin. Et oui, je suis un être Céleste. C’est la terminologie correcte. C’est un cadeau précieux pour nous, dans les royaumes Célestes, et pour ceux qui sont dans l’esprit, d’être témoins des âmes qui résident sur le plan terrestre et qui commencent l’éveil de leur âme par le grand don de l’Amour Divin. C’est un cadeau qui apporte une grande joie, qui apporte l’harmonie et la paix et le grand cadeau qui purifie l’âme. Et ainsi votre travail commence, pour ainsi dire, dès l’éveil de votre âme. Et alors que vous continuez avec cela, vos prières sincères à Dieu, la sincérité de la demande de votre cœur et l’ouverture de votre âme, ce don d’Amour vous transforme.
+Je suis Keea Atta Kem, l’un des enseignants du Ciel, dont l’âme a été transformée par l’essence même de l’Amour Divin. Et oui, je suis un être Céleste. C’est la terminologie correcte. C’est un cadeau précieux pour nous, dans les royaumes Célestes, et pour ceux qui sont dans l’esprit, d’être témoins des âmes qui résident sur le plan terrestre et qui commencent l’éveil de leur âme par le grand don de l’Amour Divin. C’est un cadeau qui apporte une grande joie, qui apporte l’harmonie et la paix et le grand cadeau qui purifie l’âme. Et ainsi votre travail commence, pour ainsi dire, dès l’éveil de votre âme. Et alors que vous continuez avec cela, vos prières sincères à Dieu, la sincérité de la demande de votre cœur et l’ouverture de votre âme, ce don d’Amour vous transforme.
 
 Il viendra un moment dans votre éveil où certains d’entre vous connaîtront de nombreuses expériences d’expiation et d’autres qui sont nouveaux sur ce chemin ou qui n’ont peut-être pas encore fait l’expérience de ce que nous appelons l’expiation. C’est une libération d’une condition qui n’est pas en harmonie avec l’Amour et les Lois de Dieu, parce qu’il y a une cause et un effet qui se produisent. Vous aspirez à ce que cet Amour bénisse votre âme, et comme Dieu entend votre sincérité, Il fait entrer par le don de l’Esprit Saint, ce grand Amour dans votre âme. Et comme deux choses ne peuvent pas résider au même endroit en même temps et que le don supérieur l’emporte sur celui de l’essence inférieure, la condition qui réside dans votre âme et qui est maintenant remplacée par le don de l’Amour Divin, s’élève et s’envole. Et alors dans votre belle âme réside cet Amour pour toujours plus. Et avec l’accumulation de cet Amour, le cycle continu de réception et de libération se poursuit.
 
@@ -23,7 +23,4 @@ Cette voie est donc différente dans la mesure où il ne s’agit pas de savoir 
 
 Je vous remercie d’avoir écouté mes paroles, car je sens que vous êtes très désireux d’entendre avec les oreilles de votre âme. Il existe une condition lumineuse des plus gracieuses et des plus belles. Vos âmes sont illuminées et rayonnent une belle fréquence, car elles entendent cette Vérité, et elles entendent l’appel de Dieu, et elles désirent s’aligner avec cet Amour, une âme éveillée.
 
-Je suis Keea-Atta Kem, un de vos enseignants Célestes. Mon amour est avec vous. Que Dieu bénisse chacun d’entre vous. Que Dieu vous bénisse.
-
-
-
+Je suis Keea Atta Kem, un de vos enseignants Célestes. Mon amour est avec vous. Que Dieu bénisse chacun d’entre vous. Que Dieu vous bénisse.

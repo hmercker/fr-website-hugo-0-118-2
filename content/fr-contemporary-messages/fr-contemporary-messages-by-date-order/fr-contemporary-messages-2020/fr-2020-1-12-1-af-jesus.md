@@ -9,7 +9,7 @@ weight:
 ---
 ### L’amour doit devenir la monnaie de l’humanité
 
-Jésus - reçu par Al Fike le 12 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 12 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénit profondément, mes bien-aimés. Je viens, je suis Jésus. Je viens parce que vous vous réunissez pour honorer votre Terre bien-aimée et pour honorer Dieu et implorer Dieu pour Ses Bénédictions sur ce monde. Je viens parce que je vous aime tous. Vous êtes tous mes frères et sœurs qui marchent dans ce monde en cherchant à maintenir la lumière, l’amour et la vérité. Je viens parce que je souhaite vous soutenir, vous assurer que dans les temps à venir, bien qu’il y ait de grands changements et des perturbations dans votre monde, Dieu enveloppera chacun d’entre vous de protection, de conseils et d’amour.
 
@@ -34,6 +34,3 @@ Vous devez donc vivre l’Amour. Soyez un exemple pour vos frères et sœurs. Ma
 Je suis votre frère et votre ami. Je marche avec vous. Je serai toujours avec vous. Que l’Amour de Dieu continue à se déverser dans vos âmes en réveillant tout, en apportant la Vérité à votre conscience bénie et à votre compréhension. Réveillez-vous dans l’Amour, mes amis. Réveillez-vous dans la Vérité. Soyez humbles et forts. Soyez clairs et dévoués à la Vérité de l’Amour.
 
 Que Dieu vous bénisse tous. Je suis avec vous. Je suis Jésus et je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

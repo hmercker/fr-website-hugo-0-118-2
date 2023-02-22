@@ -9,7 +9,7 @@ weight:
 ---
 ### La foi est un instrument pour que la guérison se produise
 
-Lotus Blossom - reçu par Maureen Cardoso le 3 Décembre 2019, Abbotsford, Colombie-Britannique, Canada
+Lotus Blossom - reçu par Maureen Cardoso le 3 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 C’est moi, Fleur de Lotus. Beaucoup d’entre vous dans ce cercle ont le don de la guérison. J’assiste et travaille avec chacun d’entre vous pour ouvrir le flux d’énergies, d’énergies de guérison que Dieu souhaite voir passer à travers vous pour aider à la guérison des autres. Certains d’entre vous ont suivi une formation formelle dans les modalités de guérison et d’autres non. Il n’est pas nécessaire pour ceux qui n’ont pas suivi de formation formelle de le faire, car lorsque vous êtes un instrument de Dieu, votre présence fait naître les énergies à travers vous. Vous pouvez toucher quelqu’un d’autre d’une manière très simple sans l’intention de guérir et Dieu utilisera cette occasion pour faire circuler ces énergies à travers vous.
 
@@ -22,8 +22,3 @@ Ainsi, comme dans toute autre forme d’instrumentation pour Dieu, votre rôle e
 Au fur et à mesure que vous vous éveillerez plus pleinement dans votre âme, votre don de guérison changera, grandira et se développera. De nombreuses expériences merveilleuses peuvent être canalisées à travers vous pendant que vous facilitez la guérison grâce à votre instrumentalité. Faites de votre mieux pour ne pas vous laisser distraire par ces expériences et permettez-leur d’aller et venir, car cela fait partie du flux. Lorsque vous vous concentrez sur une expérience, vous empêchez les autres de venir à vous et à travers vous. Il suffit de s’éveiller pour permettre à cette rivière d’Amour de Dieu de couler continuellement à travers vous à chaque instant et vous serez un profond instrument de guérison pour votre Père Céleste. Permettez à votre don d’être éveillé, mes bien-aimés. Permettez-vous d’être utilisés de la manière gracieuse dont Dieu désire vous utiliser.
 
 Je suis Fleur de Lotus et mon amour est avec chacun d’entre vous. Que la Grâce de l’Amour de Dieu se déverse sur vous en apportant la guérison et l’éveil. Que Dieu vous bénisse.
-
-
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Faites un rituel de toujours demander à être en harmonie avec Dieu
 
-Yogananda - reçu par Jimbeau Walsh le 6 Décembre 2019, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 6 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 C’est moi, Yogananda. J’ai souhaité prendre la parole plus tôt dans la journée mais le Maître est venu et a parlé et nous ne l’interrompons pas lorsqu’il parle. En sa présence, qui est si magnifique, nous sommes essentiellement sans voix, mais je voulais transmettre quelque chose sur les rituels.
 
@@ -20,6 +20,3 @@ Quoi que vous fassiez, même si vous vous reposez, vous pouvez être centré, da
 Il s’agit donc vraiment d’une simple demande et cela vous profitera à tous, y compris à cet instrument. Et je souhaite m’adresser à vous aujourd’hui, mes amis, pour vous encourager à rester attentif à Dieu et de ne pas prêter attention aux circonstances, aux peuples, aux esprits inférieurs, aux vexations. Demandez la protection, demandez l’amour, cela créera une barrière d’amour et dissipera les ténèbres. C’est la pratique dont j’aimerais parler aujourd’hui. C’est le yoga divin et pour vous, qui êtes bénis par la connaissance de l’Amour de Dieu, votre âme perçoit ces paroles comme vraies et elles le sont véritablement.
 
 Si vous choisissez de commencer et de conserver cette attitude dans la vie, vous allez progresser exponentiellement dans l’Amour de Dieu et finalement être la demeure pour les différents anges du ciel Céleste. Nous sommes avec vous, nous vous aimons, tout mon amour pour vous. Je vous remercie. Que Dieu vous bénisse. Je suis votre frère et ami, Yogananda.
-
-
-

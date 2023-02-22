@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde s'est ralenti pour laisser du temps à la prière
 
-St François d'Assise - reçu par Jimbeau Walsh le 13 Mars 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 13 Mars 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami François.
 
@@ -20,6 +20,3 @@ Je vous dis ces choses parce que, d’une certaine façon, c’est ce qui se pas
 Mon souhait pour chacun d’entre vous est le grand cadeau de l’amour de Dieu pour vous élever tous et vous réveiller pour toujours. Nous sommes avec vous ici et vous serez avec nous ici en temps voulu.
 
 Avec tout mon amour et ma bénédiction, que Dieu bénisse chacun d’entre vous. Je suis votre frère et ami Francis. Que Dieu vous bénisse.
-
-
-

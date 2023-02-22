@@ -9,7 +9,7 @@ weight:
 ---
 ### Les tests nous aident à discerner comment gérer les énergies négatives
 
-Augustin - reçu par Al Fike le 1 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 1 Novembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis de retour. Je vois que vous avez un test devant vous, mes bien-aimés, une situation où il n’y a pas d’approche claire car vous voulez chacun être un canal d’amour. Vous voulez tous faire ce qui est en harmonie avec l’amour. Pourtant, vous voyez que la personne dont vous vous occupez a un grand besoin et qu’elle absorbera vos efforts communs dans la prière pour répondre à ce besoin. Cela rend difficile la décision de garder vos distances ou d’être inclusif et aimant de la manière qu’elle préfère et désire.
 
@@ -42,6 +42,3 @@ Dieu continue à nourrir votre âme. Nous continuons à marcher avec vous et à 
 C’est toujours votre choix, âmes bien-aimées, toujours votre choix de défendre la Vérité ou de continuer à insister sur les conditions que vous avez héritées à travers les générations qui font partie de ce monde dans lequel vous vivez et qui ne sont pas en harmonie avec l’Amour et la Vérité. Il est facile d’embrasser ces conditions. Elles sont plus accessibles dans votre monde. Marcher sur le Chemin Divin, pour être vraiment les instruments de Dieu et les canaux de l’Amour et de la Vérité, ce n’est pas une route facile. Mais c’est une route qui apportera de nombreuses récompenses, de nombreuses bénédictions et beaucoup de joie. Mais elle exige votre force, votre résolution et votre dévouement, rien de moins, mes chers amis, rien de moins.
 
 Que Dieu vous bénisse dans ce voyage. Puissiez-vous en venir à connaître toute la Vérité. Puissiez-vous en venir à voir cette dichotomie qui existe en vous et dans toutes les âmes qui luttent pour la Lumière, la Vérité et l’Amour. Que Dieu vous bénisse, mes bien-aimés. Que Dieu apporte vraiment Son Amour et Sa Lumière pour vous embrasser tous et remplir votre âme jusqu’à ce que tout ce qu’il y a autour et à l’intérieur soit de la Lumière. Nous sommes avec vous. Notre amour est avec vous. L’Amour de Dieu continue à se déverser sur vous. Dieu vous bénit, mes bien-aimés. Je suis votre enseignant Augustin et mon amour pour vous est grand. Bien-aimées sur le chemin de l’amour, Dieu vous bénisse, Dieu vous bénisse.
-
-
-

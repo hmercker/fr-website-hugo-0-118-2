@@ -9,7 +9,7 @@ weight:
 ---
 ### Alignez votre corps, votre esprit et votre âme Permettre à votre âme de conduire votre véhicule
 
-St Matthieu - reçu par Maureen Cardoso le 2 Décembre 2019, Abbotsford, Colombie-Britannique, Canada
+St Matthieu - reçu par Maureen Cardoso le 2 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 C’est moi, Matthieu. Lorsque vous voyez la lumière d’une autre personne et ce qui émane autour d’elle, c’est l’essence de son âme qui fait son chemin à travers le corps de chair vers le corps d’esprit afin que vous puissiez voir le rayonnement de qui elle est à l’intérieur. C’est la lumière de leur âme que vous reconnaissez. Lorsque la lumière de l’âme est libre de toute condition, libre de ce qui l’encrasse et l’empêche de briller librement, ce que vous voyez est indéniable. Vous êtes attirés par cette lumière car vous reconnaissez qu’il y a quelque chose en cet individu qui vous attire.
 
@@ -30,6 +30,3 @@ Apprendre à amener votre esprit dans un état méditatif de calme et de paix es
 C’est un élément important pour aller de l’avant et être capable d’entendre la sagesse de votre âme dans son éveil. Cela se produira, mais il faut que vous choisissiez que cela se produise. Dieu éveillera vos âmes, mes bien-aimés, avec Son Amour mais vous êtes le conducteur de votre corps et de votre mental. C’est de votre propre volonté que vous pouvez choisir de vous aligner avec le corps, l’esprit et l’âme, permettant à votre âme d’être le conducteur de votre véhicule.
 
 Je vous remercie d’avoir écouté mes paroles. J’espère que je pourrai vous apporter une certaine forme d’inspiration et de compréhension afin d’apporter une grande harmonie avec ces trois aspects de qui vous êtes et les dons que vous utilisez pour vous conduire ici sur Terre. Je suis Matthieu. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

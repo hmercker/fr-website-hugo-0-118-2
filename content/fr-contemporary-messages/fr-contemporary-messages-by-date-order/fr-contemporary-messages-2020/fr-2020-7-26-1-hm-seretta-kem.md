@@ -20,8 +20,3 @@ Prie ma fille, prie Dieu, notre Père bien-aimé, pour que Son Amour te rempliss
 Je suis Seretta Kem et je viens cet après-midi pour apporter mon amour et mon encouragement à vous maintenir les uns les autres dans cette nouvelle conscience d’être, dans ce rassemblement dans un amour que chacun de vous a reçu. Je reviendrai pour vous apporter des enseignements sur la guérison et les vérités de Dieu.
 
 Que Dieu vous bénisse et que mon amour soit avec toi, chère fille, et avec tout ce à quoi tu es reliée. Que Dieu vous bénisse ! Seretta Kem vous aime tous.
-
-
-
-
-

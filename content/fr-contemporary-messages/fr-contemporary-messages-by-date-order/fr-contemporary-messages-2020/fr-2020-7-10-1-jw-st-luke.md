@@ -20,6 +20,3 @@ Lorsque vous ressentez l’Amour, c’est une bénédiction pour tout votre êtr
 Discernez ce qui touche votre cœur et remplit votre âme d’Amour comme Vérité. Permettez-lui d’être votre boussole et votre guide. N’ayez pas peur car l’Amour de Dieu vous relie à Ses Cieux Célestes. Comme vous êtes bénis d’avoir cette Vérité. Merci d’avoir entendu mon message à travers celui-ci. J’en suis satisfait.
 
 Que Dieu vous bénisse avec le don glorieux de Son Amour. Je suis votre frère en Christ qui vous aime. Je suis Luc.
-
-
-

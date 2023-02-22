@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu a entendu vos prières
 
-André - reçu par Al Fike le 26 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 26 Novembre 2019, Sydney, Australie.
 
 Dieu a entendu vos prières, mes bien-aimés, et un ange se tient avec chacun d’entre vous. Alors que vous continuez à tendre la main à vos frères et sœurs, créant une communauté d’amour, ainsi Dieu répond non seulement lorsque vous priez ensemble de cette façon, mais Dieu répond à toutes vos prières et a assigné des anges pour vous servir, pour vous élever et vous éveiller dans l’Amour. Gardez cela en tête et dans vos cœurs, âmes bien-aimées, que vous êtes vraiment aimées et prises en charge, que l’Amour de Dieu continue à se déverser sur vous. C’est à vous de boire cette Essence Sainte, de la désirer, de vous ouvrir à ce Toucher, de vous éveiller à la réalité de Dieu, à la Vérité de la Présence de Dieu dans votre vie afin que vos âmes puissent effectivement se développer et s’éveiller et devenir une partie vraiment reconnue et puissante de votre vie.
 
@@ -24,6 +24,3 @@ Puissiez-vous donc aller de l’avant et être disponibles pour que Dieu apporte
 Âmes bien-aimées, je ne dirais pas que vous ne pouvez pas être à cet endroit, vous prélasser dans cet Amour et être dans ce Cercle béni de Lumière que Dieu a créé autour de vous et qu’il souhaite continuer à vous bénir puissamment dans vos prières et vos moments de calme et de contemplation de votre Père Céleste. Non, ces temps sont importants et nécessaires à la croissance de votre âme, mais ne négligez pas les opportunités que Dieu peut mettre devant vous. Alors que vous parcourez le monde, que vous marchez sur les routes et les chemins de cette Terre, continuez à accueillir et à accepter les opportunités que Dieu peut mettre devant vous, pour être un instrument, un canal d’Amour pour bénir quelqu’un d’autre. C’est important et comme je l’ai dit, cela vous apportera de nombreuses récompenses, de nombreuses bénédictions.
 
 Que Dieu vous bénisse dans vos voyages, âmes bien-aimées, et vous emmène dans de nombreux voyages vers de nombreuses âmes, pour être dans la bénédiction et le flux de la volonté de Dieu, guidés vers l’avant, bénis en abondance, aimant tous ceux que vous rencontrez, tous ceux qui peuvent croiser votre chemin. Que Dieu vous bénisse, chers amis. Je suis André et mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

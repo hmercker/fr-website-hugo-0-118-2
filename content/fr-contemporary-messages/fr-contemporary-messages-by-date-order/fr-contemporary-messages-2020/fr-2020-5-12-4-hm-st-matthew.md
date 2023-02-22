@@ -22,8 +22,3 @@ Souvent, le mental matériel ne se sent pas satisfait et, après un certain temp
 Cherche à aller le plus souvent possible dans la prière pour trouver la clarté de l’âme, avant de te retrouver dans une situation d’opinions contradictoires de la part de personnes qui, pourtant, n’aspirent qu’à l’amour, à l’acceptation et à l’inclusion dans leur cœur.
 
 Ma fille, tu connais les chemins et tu continues à trouver la paix par la prière, par le désir de l’amour de Dieu. Cela permet de donner beaucoup et de clarifier ses propres réponses. Je te bénis, toi et tous ceux qui cherchent la paix. Que Dieu te bénisse et que Matthieu soit avec toi.
-
-
-
-
-

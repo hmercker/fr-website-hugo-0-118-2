@@ -1,13 +1,13 @@
 ---
-title: "Levez-vous et Brillez !"
+title: "Levez-vous et Brillez!"
 menu_title: ""
-description: "Levez-vous et Brillez !"
+description: "Levez-vous et Brillez!"
 date: 2022-06-01 06:00:01+00:1321
 draft: False
 hidden: True
 weight:
 ---
-### Levez-vous et Brillez !
+### Levez-vous et Brillez!
 
 Care Derby Walsh - reçu par Jimbeau Walsh le 21 Novembre 2020, Punalu’u, Oahu, Hawaii, USA
 
@@ -18,6 +18,3 @@ Lorsque vous vous réveillez le matin en état de gratitude et que vous dites : 
 La négativité et le sentiment d’être déconnecté sont une merveilleuse bénédiction, car c’est une leçon qui vous dit qu’il est temps de prier. Avant de vous lever, vous pouvez prier : *« Cher Dieu, apporte Ton Amour dans mon âme, la joie de Ta Présence dans mon cœur. Que Tes Anges soient avec moi en ce jour. Que je sois guidé et que je sois dans Ta volonté à chaque étape du chemin, afin de Te servir et de Te rendre gloire, car c’est ma joie. »* Quoi qu’il en soit, votre journée commencera et se terminera par l’Unité avec Dieu dans l’amour et vous l’apporterez tout au long de votre journée, quelles que soient les circonstances et les réactions, bonnes ou négatives, vous apporterez la lumière de l’amour dans votre âme à tous. Et cette lumière, mes frères, vous l’avez ! Il suffit d’actionner l’interrupteur et d’éclairer la pièce.
 
 Je suis avec vous aujourd’hui, car vous permettez à la volonté de Dieu d’être votre volonté et d’être une guérison pour tous, une bénédiction pour tous, une prière exaucée et un canal de l’amour de Dieu comme vous le souhaitez. Et c’est ce que vous êtes ! Je vous laisse avec tout mon amour, toutes mes bénédictions. Je suis votre sœur, votre amie et votre bien-aimée. Je suis Care. Comme je vous aime. Que Dieu vous bénisse !
-
-
-

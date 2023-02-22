@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour du Père est la clé qui ouvre toute la liste
 
-Jésus - reçu par Al Fike le 6 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 6 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Je suis Jésus. Mon amour pour vous est grand, mais l’Amour du Père pour vous est immense, plus grand que ce que vous pouvez imaginer. C’est pourquoi je vous supplie, mes âmes bien-aimées, d’aller vers votre Père Céleste pour chercher Son Amour, d’aspirer à Son Amour, d’avoir soif, de lutter, de prier et d’implorer Dieu pour Son Amour. Car cette bénédiction est la clé qui ouvre toutes les bénédictions, toutes les portes, toutes les opportunités et tous les dons dans votre âme. C’est le grand élixir de vie, de l’âme, apportant une nouvelle vie et de nouvelles possibilités alors que vos âmes sont transformées par le toucher même de Dieu sur elles.
 
@@ -20,6 +20,3 @@ Cette grande guérison de votre âme continue à vous décharger, mes bien-aimé
 Ainsi, mes bien-aimés, suivez-moi sur ce chemin de la Vérité et je ne vous abandonnerai pas, âmes bien-aimées, mais je continuerai à vous guider sur ce voyage d’éveil et de Vérité. Alors que vous me suivez, nous tournerons tous nos regards vers le ciel, vers la Grande Source de Tout, cherchant Son contact sur nos âmes. Nous sommes tous ensemble dans ce voyage, frères et sœurs, alors que nous recherchons notre Père céleste.
 
 Puissiez-vous être bénis, âmes bien-aimées, et portés et embrassés par Dieu. Car chacun d’entre vous a été élevé par Dieu. Vous avez cherché à être sauvés par Son Amour et ce salut sera réalisé. Que Dieu vous bénisse dans ce voyage. Je suis avec vous. Le Royaume Céleste tout entier est avec vous sur cette route de l’Amour. Que Dieu vous bénisse et vous garde sur le chemin de la Lumière, de l’Amour et de la Vérité, afin que vous ne soyez pas égarés sur ce chemin, mais fidèles à Dieu, fidèles au toucher qui vivifie l’âme et vous éveille tous à Sa Présence et à Son Existence. Dieu est avec vous, mes bien-aimés. Honorez Dieu par votre amour. Honorez-vous les uns les autres avec amour. Honorez votre vie avec amour.
-
-
-

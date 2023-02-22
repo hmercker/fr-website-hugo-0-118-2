@@ -9,7 +9,7 @@ weight:
 ---
 ### La Romance Divine
 
-Yogananda - reçu par Jimbeau Walsh le 9 Février 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 9 Février 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi Yogananda. Mes chers amis, vous vous êtes réunis en Présence de Dieu dans la lueur de Son amour, attirés ici par les désirs profonds de vos âmes d’être unis dans l’amour de Dieu. C’est une romance Divine que vous avez choisie et qui ne ressemble à aucune autre. Lorsque vous vous ouvrez à cet amour, tout ce qui n’est pas d’amour commence à se dissoudre, à tomber, et vous ressentez cette joie dans tout votre être. Vous pouvez parfois vous poser des questions. Comment puis-je décider de poursuivre ceci ou cela ou de prendre ce chemin ou un autre ? Si vous le faites avec votre mental, vous arriverez à une sorte de conclusion logique. Cependant, lorsque vous atteindrez votre âme, vous sentirez quel chemin est le chemin de l’amour, le chemin de la joie.
 
@@ -18,7 +18,3 @@ Je vous (vais) donner un exemple évident : Pensez aux énormes sommes d’argen
 Vous n’avez pas besoin d’être préoccupé par les ténèbres, par les problèmes de ce monde. Je sais que vos cœurs sont touchés par les souffrances des autres. Je vous dis d’envisager de rester dans l’amour de Dieu afin de pouvoir vraiment toucher chaque âme, afin de devenir un aimant attirant ceux qui souhaitent ressentir cet amour pour être guéris, pour être dans la joie. Ils vous demanderont et vous pourrez leur répondre en vérité *« Que votre âme soit touchée par l’amour de Dieu. »* Chacun d’entre vous vient avec ce désir, alors exprimez-le. Mes chers amis, vous êtes si bénis. Je vous laisse avec mon amour, mes bénédictions et nous tous ici présents, nous vous embrassons dans l’amour du Créateur.
 
 Que Dieu vous bénisse et vous transforme. Paix. Je suis Yogananda.
-
-
-
-

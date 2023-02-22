@@ -9,7 +9,7 @@ weight:
 ---
 ### Le discernement dans le service
 
-St Luc - reçu par Al Fike le 1 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 1 Novembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Beaucoup dans votre monde sont désespérément en quête d’amour, cherchent à soulager leur douleur et sont très confus, ayant de grandes difficultés dans leur vie. Le monde regorge de telles âmes, qui cherchent de plus en plus à trouver le réconfort, la paix et l’amour dans leur vie, car c’est leur âme qui crie, qui cherche la lumière dans un effort pour trouver un lieu de refuge et de paix. Pourtant, dans votre monde, il y a tant de voies de distraction, des voies qui ne mènent nulle part. Mais pour le moment, il y a un vague sentiment de soulagement, un vague sentiment que cette âme a la paix, un but ou de l’amour. Grâce à la loi de l’attraction, ces âmes désespérées continuent souvent à s’accrocher les unes aux autres, augmentant ainsi la douleur, l’erreur et l’obscurité, s’infligeant mutuellement un grand mal et un grand mécontentement.
 
@@ -44,6 +44,3 @@ Reconnaissez-le, âmes bien-aimées. Ayez dans votre cœur une grande joie et de
 Vous êtes Ses enfants. Vous êtes bénis. Vous avez choisi cela et en choisissant, vous êtes choisis. Âmes bien-aimées, reconnaissez que vos âmes ont vraiment décidé, dans l’expression de leurs dons, de leur beauté et de leur dévouement à Dieu, de vivre une vie de service, d’humilité et de grâce. Cela vous apportera toute la joie et le sentiment extatique de compréhension de Dieu que vous pouvez désirer.
 
 Que Dieu vous bénisse dans ce voyage. Je suis Luc et je continue à vous aider, vous tous. Car c’est ma joie, mon service, d’être avec vous, d’aider à vous enseigner, d’aider à vous élever, d’être à vos côtés alors que vous voyagez dans cette vie, pleine de grandes bénédictions et de grandes dysharmonies. Sachez que nous sommes avec vous. Nous sommes vraiment avec vous et nous vous aimons, chacun d’entre vous. Nous vous aimons tendrement. Tous vos frères et sœurs du Royaume Céleste vous aiment tendrement, vous connaissent et continuent de prier pour votre réveil et votre illumination. Que Dieu vous bénisse. Je suis Luc et je vous aime.
-
-
-

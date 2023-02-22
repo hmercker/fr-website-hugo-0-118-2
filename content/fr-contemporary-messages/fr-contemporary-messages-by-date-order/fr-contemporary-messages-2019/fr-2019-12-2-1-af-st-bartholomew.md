@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous réaliserez vos dons pour servir l'humanité
 
-Bartholomée - reçu par Al Fike le 2 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Bartholomée - reçu par Al Fike le 2 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Que Dieu soit avec vous, mes âmes bien-aimées. Je m’appelle Bartholomé et je n’ai pas encore parlé à travers cet instrument mais je suis heureux de le faire aujourd’hui. Je suis un habitant du Royaume Céleste et j’ai été un habitant pendant de très nombreuses années de votre temps terrestre. Je continue à travailler avec le Maître Jésus et tous les disciples et tous les anges du Ciel pour apporter la Vérité et la bonne nouvelle de l’Amour Divin au monde.
 
@@ -26,6 +26,3 @@ Chaque âme parviendra à la réalisation de ce qu’elle est. Alors que l’Amo
 Vous n’avez aucune idée des trésors qui sont en vous. Continuez à rechercher l’Amour de Dieu et à vous éveiller à cette bénédiction qui éveille tout en vous et vous verrez par vous-mêmes l’émerveillement et la beauté de ce que Dieu a créé. Dans ce joyeux réveil, vous en viendrez à reconnaître la puissance et la beauté de votre propre création et à reconnaître combien Dieu vous aime et combien Dieu aime chaque âme.
 
 Que Dieu vous bénisse dans ce voyage. Que les étincelles, les éclairs de perspicacité et de lumière arrivent à votre conscience et soient reconnus comme un cadeau de Dieu. Que Dieu vous bénisse. Je suis Bartholomé et je suis heureux de vous avoir parlé aujourd’hui. Je vous souhaite une journée remplie de lumière. Que toutes les bonnes bénédictions viennent à vous, chère fille, en ce jour et pour vous tous, un jour de joie, un jour de grâce, un jour de perspicacité, un jour de reconnaissance de votre vrai moi. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Merci.
-
-
-

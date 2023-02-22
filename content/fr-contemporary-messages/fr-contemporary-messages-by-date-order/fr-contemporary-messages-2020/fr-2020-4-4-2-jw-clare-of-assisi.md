@@ -18,6 +18,3 @@ Et plus profondément encore : « Qu’est-ce qui apporte la joie au cœur, à l
 Vous voyez donc que peu de choses sont nécessaires pour mener une vie simple et qu’en fait, afin de recevoir l’amour de Dieu, il suffit d’abandonner à tout moment ses attachements matériels et de demander la bénédiction, ces choses, ces choses matérielles, tombent et vous recevez la richesse et la gloire de l’Amour de Dieu. Une telle joie ! Une telle joie !
 
 Merci de me permettre de venir vers mes chères sœurs et mes chers frères dans l’Amour de Dieu. Nous ne faisons qu’un. Je suis Claire.
-
-
-

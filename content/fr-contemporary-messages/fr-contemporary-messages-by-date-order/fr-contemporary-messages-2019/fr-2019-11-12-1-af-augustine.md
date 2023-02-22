@@ -9,7 +9,7 @@ weight:
 ---
 ### Établir des portails, des centres et des cercles de lumières
 
-Augustin - reçu par Al Fike le 12 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 12 Novembre 2019, Fitzroy Falls, NSW, Australie.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Il y a plusieurs années, nous vous avons donné l’instruction d’aller dans le monde et d’établir des Cercles et des Centres de Lumière. C’est ce que vous avez fait. Vous continuez à répondre à cette demande. C’est votre objectif et votre mission lorsque vous vous réunissez de cette manière. Vous aidez Dieu à établir des Centres de Lumière et à créer les moyens par lesquels ils peuvent être soutenus par un Portail et bien sûr par les prières de ceux qui sont les gardiens de ces Centres.
 
@@ -34,4 +34,3 @@ Mais je vous le dis, âmes bien-aimées, Dieu vous guidera sur la façon de rép
 L’invitation que Dieu vous a faite de servir de cette manière est autant une invitation à votre propre croissance personnelle et à l’éveil de votre âme qu’une invitation à bénir les autres. Dans la grande sagesse et la grâce de Dieu, tous sont bénis. Tous reçoivent de grandes bénédictions lorsque vous continuez à accomplir Sa volonté et à servir dans l’amour. Vous vous éveillez et êtes renforcés, vous entrez plus pleinement dans la Lumière et vous vous rapprochez de la source de tout Amour.
 
 Ainsi vous êtes bénis, âmes bien-aimées, ainsi vous êtes bénis et vous êtes accompagnés par de nombreux anges qui vous assistent dans ce voyage. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse.
-

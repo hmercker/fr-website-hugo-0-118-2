@@ -18,6 +18,3 @@ En ouvrant ton âme, ton amour jaillit et s’élève pour atteindre Dieu. Nous 
 Dans mes voyages, j’ai essayé de percevoir avec mon cœur. Beaucoup m’est venu et m’a été donné. Ma vie s’est déroulée d’une manière dévouée à Dieu. Dans ma quête du bonheur, je l’ai trouvé à l’endroit où j’ai reconnu l’amour de Dieu, cet endroit qu’est l’âme. Je souhaite écrire davantage sur ce sujet de l’âme, mais je reviendrai.
 
 Pour l’instant, je souhaite ajouter mes prières et continuer à me consacrer à apporter les paroles de la vérité à votre monde. Je t’aime, ma chère fille, et je reviendrai. Que Dieu te bénisse. Que Dieu te bénisse.
-
-
-

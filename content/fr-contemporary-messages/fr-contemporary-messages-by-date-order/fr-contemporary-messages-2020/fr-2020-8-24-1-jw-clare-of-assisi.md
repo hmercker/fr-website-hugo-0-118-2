@@ -18,6 +18,3 @@ Il est important de prendre le temps de laisser de côté toutes les tensions du
 Réservez donc tout le temps que vous pouvez pour être avec Dieu et, lorsque Dieu vous répond, nous le faisons aussi. Nous sommes attirés par vos prières et nous sommes, si je peux utiliser l’expression, une armée spirituelle pour vous défendre du mal et vous protéger, pour prier avec vous . Lorsque vous saurez qu’il n’y a rien de plus important dans le monde entier que d’être transformé dans l’Amour de Dieu, alors ce sera à vous, car Dieu le souhaite. Prenez cela à cœur, mes gentilles souris, mes douces âmes. Nous venons dans la joie et la gloire de Dieu pour vous. Que Son amour soit le vôtre. Mon amour et mes bénédictions à tous ici et au-delà. Je suis votre sœur dans le Christ et je vous aime.
 
 Je suis Claire d’Assise. Allez avec Dieu.
-
-
-

@@ -26,6 +26,3 @@ Vous êtes profondément bénis, âmes bien-aimées. Vous en arrivez à vous con
 Que Dieu vous bénisse, âmes bien-aimées. Nous honorons vos efforts, vos désirs intimes d’être des instruments de Dieu, d’aider Dieu à réveiller l’humanité. Puissiez-vous vous considérer comme ces instruments, porteurs de vérité. Puissiez-vous vous éveiller plus pleinement dans Son don d’Amour. Puissiez-vous vous voir sur ce chemin de communion avec Dieu et être en alignement avec tout ce qui est et sera dans la lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Joseph et je viens vous reconnaître dans vos grands efforts, dans votre lumière et dans l’amour qui brille dans vos âmes. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées, bien-aimées.
-
-
-

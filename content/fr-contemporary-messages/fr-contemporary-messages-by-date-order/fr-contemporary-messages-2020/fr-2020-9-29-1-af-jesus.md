@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 29 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/attraction-spirituelle.png)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-attraction-spirituelle.png)
 
 Âmes bien-aimées, que le Souffle de Dieu soit sur chacun de vous comme il l’est sûrement. Je suis Jésus. Je viens vous parler du désir et des efforts de Dieu pour communiquer avec chacun d’entre vous. Lorsque je marchais sur la Terre, les questions que mes disciples m’ont posées sont les mêmes que celles que vous me posez aujourd’hui : *« Comment puis-je connaître Dieu ? Comment puis-je entendre Dieu ? Comment puis-je être avec Dieu ? »* De ces réalités dont j’ai parlé, mes disciples ont eu beaucoup de mal à les comprendre et à les mettre en œuvre dans leur propre vie. Pourtant, qu’est-ce qui les a attirés vers moi ? Qu’est-ce qui les a poussés à écouter ? Qu’est-ce qui les a poussés à se rassembler dans ce groupe d’individus à la recherche de la vérité ? N’est-ce pas là la direction de Dieu ? N’est-ce pas le Souffle de Dieu sur eux et sur vous, mes frères et sœurs bien-aimés ?
 

@@ -44,6 +44,3 @@ Maintenant, avec ces âmes sincères comme vous, vous faites avancer cette véri
 C’est ainsi que le plan de Dieu se réalise, d’une âme à l’autre jusqu’à ce que de nombreuses flammes soient allumées, jusqu’à ce que vous arriviez à cet endroit où il y a une grande lumière dans le monde. N’est-ce pas ce que vous désirez, ce que nous désirons, et certainement ce que Dieu désire, que le monde soit éclairé, que le monde connaisse la paix, que le monde connaisse l’amour, l’amour profond ? N’est-ce pas là notre objectif ? N’est-ce pas là notre travail ? Nous sommes tous engagés dans cette grande quête, cherchant la direction de Dieu, cherchant à être un canal d’amour, un canal de vérité dans votre monde et dans notre monde. Tant de choses dépendent de la sincérité et des efforts, de la cohérence et de la force, de la grande foi de ceux qui sont prêts à faire ce travail.
 
 Que Dieu vous bénisse dans ce travail, ce voyage et ces efforts. Je suis avec vous dans ces efforts car cela me fait un grand bien de voir que ce qui a commencé avec moi il y a tant d’années continue encore aujourd’hui. Je m’appelle James Padgett. Mon amour pour vous est grand. Nous nous consacrons tous à ce travail qui est l’amour de Dieu qui se manifeste dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, mes chers.
-
-
-

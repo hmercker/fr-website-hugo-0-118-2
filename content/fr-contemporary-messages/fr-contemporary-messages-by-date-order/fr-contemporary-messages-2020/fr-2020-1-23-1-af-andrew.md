@@ -9,7 +9,7 @@ weight:
 ---
 ### La vraie guidance apporte un signal expansif et joyeux dans l'âme
 
-André - reçu par Al Fike le 23 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 23 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est André. Vous êtes tous nécessaires dans le monde, âmes bien-aimées. Je suis préoccupé par le fait que certains d’entre vous sentent et perçoivent qu’ils ne sont pas nécessaires et qu’ils peuvent être rejetés.
 
@@ -28,6 +28,3 @@ Comme vous en venez à voir le monde à partir de ces deux lieux de compréhensi
 Je vous demande instamment de ne pas vous inquiéter ou vous angoisser, mais d’avoir de la patience et de réaliser que l’image va s’éclaircir, que tout va se mettre en place comme il se doit. Vous verrez que Dieu vous utilisera de nombreuses manières différentes, avec des opportunités, des circonstances, des situations et même des lieux différents. Soyez assurés que vos perceptions, vos connaissances de l’âme vous apporteront la guidance dont vous avez besoin.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis André. Mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
-
-
-

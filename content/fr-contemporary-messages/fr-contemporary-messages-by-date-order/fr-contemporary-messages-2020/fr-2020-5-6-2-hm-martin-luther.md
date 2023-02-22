@@ -1,13 +1,13 @@
 ---
-title: "Encouragement "
+title: "Encouragement"
 menu_title: ""
-description: "Encouragement "
+description: "Encouragement"
 date: 2022-06-01 06:00:01+00:1091
 draft: False
 hidden: True
 weight:
 ---
-### Encouragement 
+### Encouragement
 
 Martin Luther - reçu par Helge Mercker le 6 Mai 2020, Elim, Namibie
 
@@ -22,6 +22,3 @@ Nous éprouvons beaucoup de plaisir et de joie en voyant comment des âmes chèr
 Comme cet Amour ne cesse de s’étendre dans l’âme, l’action transformatrice apportera les effets désirés qui se reflètent dans ses attributs, ses qualités, ses expressions. Dans votre monde, pour pouvoir exprimer les attributs, les dons et les qualités de son âme, il faut vraiment avoir lâché prise sur les restrictions et les habitudes, les règles et les attentes du mental ou de l’ego. Une fois ces aspects éclaircis et libérés, le mental est intégré dans le reflet de l’amour de l’âme et il est plus facile pour l’âme d’avancer dans le monde, en accomplissant son but, sa vocation à vivre une vie d’âme, une vie d’âme imprégnée de l’Amour de Dieu.
 
 Puisse le voyage se poursuivre alors que tu recherches l’Amour de Dieu chaque jour, t’apportant la nourriture et l’eau de la vie, t’amenant pas à pas à une prise de conscience de ton véritable moi, où tu es prête à te défaire d’habitudes et de schémas malveillants, te tournant vers la Lumière, cherchant toujours Son Amour. Marche ma fille et je marche avec toi. Ressens notre amour car nous sommes ici avec toi maintenant et nous continuons à prier avec toi. Sois bénis par le Toucher du Père Céleste et Son Amour, alors qu’il s’écoule toujours. Que Dieu te bénisse. Mon amour est toujours avec toi. Je reviendrai dès que j’aurai beaucoup de choses à écrire. Dieu te bénisse. Je t’aime, je suis Martin Luther.
-
-
-

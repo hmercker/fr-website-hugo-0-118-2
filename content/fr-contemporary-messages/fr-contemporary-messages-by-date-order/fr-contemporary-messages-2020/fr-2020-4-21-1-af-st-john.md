@@ -40,6 +40,3 @@ Tant de choses vous attendent, mes amis. Tant de choses viennent dans l’Amour.
 Votre voyage commence, mes bien-aimés. Nous sommes avec vous. Vos frères et sœurs des Cieux Célestes continuent à marcher avec vous, à reconnaître que vous avez fait ce choix et que parmi toutes les nombreuses âmes de votre monde, vous avez fait ce choix de manière consciente et puissante. Comme vous êtes bénis. Comme nous sommes bénis d’assister à ce voyage que vous commencez et comme Dieu est merveilleux, lui qui nous aime tous et nous porte sur ce chemin d’amour. Puissions-nous tous continuer à avancer, continuellement, ardument, passionnément vers Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Jean et je suis heureux de vous avoir parlé aujourd’hui. Que Dieu vous bénisse dans Son Amour et vous garde dans Sa Lumière et Ses soins, Sa protection et Sa paix. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

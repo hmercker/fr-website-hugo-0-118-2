@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque rencontre est une bénédiction
 
-Confucius - reçu par Al Fike le 8 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 8 Novembre 2019, Bayview, Sydney, NSW, Australie.
 
 Âmes bien-aimées, c’est Confucius qui est ici. Je vous apporte mes bénédictions, âmes bien-aimées, voyageurs intrépides sur le Chemin Divin qui se sont engagés à enseigner cette Vérité à qui veut bien l’entendre, qui se trouve sur votre chemin, que Dieu vous a placés sur ce chemin et ce voyage d’enseignement et de service et d’amour. Soyez assurés que la Main de Dieu est sur chacun de vous, que vous serez bénis. Lorsque Dieu vous oblige à parler, parlez, âmes bien-aimées. Quand Dieu vous oblige à donner de l’amour, aimez, âmes bien-aimées. Lorsque Dieu vous oblige à être un canal de guérison et de paix, donnez de votre cœur.
 
@@ -20,6 +20,3 @@ Lorsque vous rencontrez ceux que vous connaissez et aimez et ceux que vous ne co
 Il est difficile pour vous de connaître les besoins d’un autre. Vous ne pouvez pas encore voir avec les yeux de votre âme si clairs que vous pouvez faire exactement ce qui est requis. Mais lorsque vous dites une prière pour être utilisé au service de Dieu, Dieu utilisera les dons que vous avez et ce qui est possible de venir à travers vous pour toucher cette âme. Même si vous ne pouvez pas reconnaître cette bénédiction pour cette personne, ayez la foi que vous avez fait votre travail, que cette âme a été bénie, que des graines ont été plantées, que l’amour est donné. Un jour, ces graines germeront et deviendront quelque chose de beau. Vous faites votre travail, âmes bien-aimées, et Dieu est heureux, très heureux de vos efforts. Ses bénédictions sur vous, réveillant, réveillant tout ce qui est à l’intérieur. Petits oiseaux, lorsque vous volez, sachez que vous avez l’escorte des anges. Vous êtes bénis, protégés et aimés.
 
 Que Dieu vous bénisse. Dieu vous bénisse. Confucius vous aime.
-
-
-

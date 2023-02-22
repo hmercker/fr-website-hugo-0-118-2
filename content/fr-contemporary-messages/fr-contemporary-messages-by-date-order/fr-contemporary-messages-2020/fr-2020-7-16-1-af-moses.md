@@ -32,6 +32,3 @@ Chaque âme doit être éveillée. Dieu apportera ce qui est nécessaire pour é
 Rien ne sera refusé à Ses enfants. Tout sera donné en temps voulu, en harmonie et conformément à votre propre volonté, âmes bien-aimées. Choisissez sagement chaque jour. Marchez dans la lumière chaque jour. Cherchez à maintenir votre propre vérité, votre propre lumière et vos propres désirs d’âme afin que vous puissiez être avec Dieu, ressentir la Grâce de Dieu et connaître la puissante Main de Dieu sur vous.
 
 Vous êtes bénis, enfants bien-aimés, par les anges du Ciel, par la Main de Dieu, et par une âme désireuse d’être bénie et de connaître la Vérité. Que Dieu vous bénisse, âmes bien-aimées. Je suis Moïse et je viens pour vous encourager tous, pour mettre devant vous un chemin qui est de Lumière et béni par Dieu. Puissiez-vous marcher sur cette route et le faire avec une grande foi, confiance et désir. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

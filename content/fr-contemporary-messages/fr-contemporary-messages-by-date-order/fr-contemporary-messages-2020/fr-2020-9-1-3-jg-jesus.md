@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jane Gartshore le 1 Septembre 2020
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/ethiopie-1.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-ethiopie-1.jpg)
 
 Je suis Yeshua.
 
@@ -38,5 +38,3 @@ Pour ceux d’entre vous qui sont appelés à exercer une plus grande responsabi
 Beaucoup sera donné à ceux qui cherchent, car le salut d’un seul peut conduire au salut de beaucoup. Le désastre à venir mettra en lumière les affaires des hommes qui ne sont pas en harmonie avec la volonté et le plan de Dieu. Priez pour le réveil de vos frères et sœurs, mes bien-aimés. Priez pour qu’ils voient la lumière : la lumière qui est Dieu, la lumière de la vérité.
 
 Je serai avec vous tous. Je suis Yeshua.
-
-

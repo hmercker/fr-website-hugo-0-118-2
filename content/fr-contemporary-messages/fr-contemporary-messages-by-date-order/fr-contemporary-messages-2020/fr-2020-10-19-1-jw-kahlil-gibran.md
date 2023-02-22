@@ -11,7 +11,7 @@ weight:
 
 Kahlil Gibran - reçu par Jimbeau Walsh le 19 Octobre 2020, Punalu’u, Oahu, Hawaii, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/spiritualite-23.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-spiritualite-23.jpg)
 
 C'ets mpi, votre frère dans le royaume de Dieu où son amour règne en maître. Je suis Kahlil Gibran.
 
@@ -22,10 +22,3 @@ Ainsi, ma vie fut une dichotomie du monde terrestre touché par l’esprit. Vous
 Chaque fois que j’ai été préoccupé par le fait que je sois retombé dans un état dont j’avais peut-être un peu honte, ou de savoir jusqu’où j’avais pu retomber, il était parfois difficile de revenir à l’harmonie. Alors, je priais, mon âme s’ouvrait, l’esprit s’élevait, les anges venaient et j’étais élevé par ce qui s’était passé. Le monde qui a accueilli mes écrits a pu ressentir avec son âme l’importance de ce qui est au-dessus du mental. Et bien que je n’aie pas considéré mes œuvres les plus populaires comme étant les plus importantes, même ces œuvres survivent. Je vous invite tous à lire le Chant de l’âme, le Chant de l’amour, le Chant de la sagesse, le Chant de la musique, car ils reflètent les aspirations de mon âme et je pense qu’ils résonneront avec beaucoup d’entre vous sur ce beau chemin. Continuez d’avancer, car lorsque vous entrez dans la lumière de l’Amour de Dieu, lorsque vous commencez à ressentir la transformation de votre âme, vous réalisez que vous n’avez pas besoin de regarder en arrière, sauf peut-être pour voir le chemin parcouru. Quelle bénédiction !
 
 Je remercie mes chers frères et sœurs et mon ami ici, de m’avoir permis de m’exprimer et d’être venu. Que Dieu bénisse chacun d’entre vous de son amour, de sa lumière, de sa grâce. Je suis votre frère dans le Christ. Kahlil Gibran. Que Dieu vous bénisse.
-
-
-
-
-
-
-

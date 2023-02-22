@@ -9,7 +9,7 @@ weight:
 ---
 ### Avec le temps, le filet d'amour de Dieu dans votre âme deviendra un fleuve puissant
 
-Augustin - reçu par Al Fike le 16 Février 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 16 Février 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Comme vous aspirez aux expériences mystiques du Toucher de Dieu sur vous et sur vos âmes. Comme vous aspirez aux manifestations, aux preuves et aux expressions palpables de ces dons de Dieu. Comme vous voulez que vos frères et sœurs sachent, par leur esprit, leurs sens et leur âme, que le don de Dieu, Son Amour, est vrai, réel et connaissable. Comment vous cherchez à être utilisés comme les instruments de Dieu pour réaliser de telles merveilles et bénédictions afin d’aider vos compagnons de route sur cette route de l’amour.
 
@@ -34,6 +34,3 @@ Car n’appelons-nous pas cela la nouvelle naissance ? La nouvelle naissance, me
 Vous ferez tous l’expérience de cette transformation, âmes bien-aimées, et vous connaîtrez le grand toucher mystique qui accompagne la conscience de l’âme éveillée. Ces choses viendront à vous et sont promises par Dieu. Une touche sacrée sur votre cœur, votre âme et votre esprit, qui vous rassemblera tous en harmonie, vous réveillera tous en temps voulu et dans la mesure où vous atteindrez la plus haute bénédiction, la plus haute Vérité et le plus grand bien, non seulement pour vous mais aussi pour ce monde. Ainsi, vous serez comblés. Vous serez donc bénis. Ainsi vous saurez. Je vous le promets. Vous connaîtrez vraiment les merveilles de Dieu et le pouvoir de l’Amour pour tout transformer.
 
 Que Dieu vous bénisse sur ce chemin. Je suis votre enseignant Augustin et je suis venu vous encourager et vous apporter mon amour pour que vous sachiez que je suis proche et souvent avec vous, comme le sont de nombreux anges. Ainsi, vous n’êtes jamais seul. Nous poursuivons donc ce grand processus de naissance de votre âme, vous réconciliant avec votre Créateur, vous apportant tout ce que vos âmes désirent et recherchent. Que Dieu vous bénisse. Augustin vous aime tendrement. Que Dieu vous bénisse.
-
-
-

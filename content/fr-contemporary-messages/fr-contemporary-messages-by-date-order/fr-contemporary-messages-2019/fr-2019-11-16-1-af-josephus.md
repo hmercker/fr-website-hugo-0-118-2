@@ -9,9 +9,9 @@ weight:
 ---
 ### La vérité arrive quand l'âme commence à se réveiller de ses profonds sommeils
 
-Flavius Josèphe - reçu par Al Fike le 16 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 16 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
-Âmes bien-aimées, je suis Flavius Josèphe. Je suis un habitant du Royaume Céleste et autrefois un philosophe dans la tradition Juive. Mes chers et bien-aimés amis, vous ne comprenez pas vraiment vos propres âmes. Vous ne connaissez pas vraiment le potentiel de votre âme. Tant que vous ne serez pas parvenus à cette réalisation et à cette compréhension de qui et de ce que vous êtes, vous ne connaîtrez pas les réponses aux questions<sup id=”a1”>[1](#f1)</sup> que vous cherchez. Vous ne comprenez pas vraiment les voies de Dieu ou les voies de l’Univers. Car, mes beaux amis, les instruments que vous utilisez pour comprendre la Vérité sont bien maigres comparés aux facultés de l’âme. Lorsque l’âme est éveillée, lorsque vous recevez au sein de cette âme qui est votre véritable soi, les grandes et profondes bénédictions de l’Amour Divin pour l’éveiller, alors vous êtes équipés pour comprendre vraiment la Vérité, pour savoir vraiment ce qui est réel et une partie valide de la Création de Dieu et de l’existence que vous expérimentez au sein de cette Création.
+Âmes bien-aimées, je suis Flavius Josèphe. Je suis un habitant du Royaume Céleste et autrefois un philosophe dans la tradition Juive. Mes chers et bien-aimés amis, vous ne comprenez pas vraiment vos propres âmes. Vous ne connaissez pas vraiment le potentiel de votre âme. Tant que vous ne serez pas parvenus à cette réalisation et à cette compréhension de qui et de ce que vous êtes, vous ne connaîtrez pas les réponses aux questions <sup id=”a1”>[1](#f1)</sup> que vous cherchez. Vous ne comprenez pas vraiment les voies de Dieu ou les voies de l’Univers. Car, mes beaux amis, les instruments que vous utilisez pour comprendre la Vérité sont bien maigres comparés aux facultés de l’âme. Lorsque l’âme est éveillée, lorsque vous recevez au sein de cette âme qui est votre véritable soi, les grandes et profondes bénédictions de l’Amour Divin pour l’éveiller, alors vous êtes équipés pour comprendre vraiment la Vérité, pour savoir vraiment ce qui est réel et une partie valide de la Création de Dieu et de l’existence que vous expérimentez au sein de cette Création.
 
 Ainsi, pour beaucoup d’entre vous, vous êtes impatients. Vous cherchez les réponses à toutes vos questions avec une immédiateté qui n’est pas pratique en termes de processus d’éveil et de compréhension de la Vérité. La Vérité vient à vous lorsque l’âme commence à se lever de ses profonds sommeils, commence à ouvrir les yeux, commence à être vivante en vous. Pour certains d’entre vous, il se trouve que vous êtes sortis de votre sommeil, que vous avez été réveillés dans une certaine mesure. Dans ce sentiment d’éveil, vous avez une grande confiance dans le fait que maintenant vous pouvez voir et connaître la Vérité. Je vous le dis mes amis, c’est un sentiment qui vient de votre mental, le mental matériel. Car le mental matériel apprécie l’immédiateté de la connaissance, de l’expérience et de la Vérité. Le mental matériel se sent puissant, il sent qu’il est plus grand lorsqu’une Vérité vient et est stockée et intégrée dans ce mental. Pourtant, en réalité, la vérité qui vient à l’esprit n’est ni immédiate ni permanente. Il s’agit d’une illusion.
 
@@ -31,10 +31,3 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis Flavius Josèphe. Je suis he
 <small>
 
 1. <large id=”f1”> Ce message est une réponse aux questions soulevées lors de cette retraite, mais la question spécifique abordée ici n’est pas incluse à ce stade. Elle peut être trouvée dans d’autres messages de questions-réponses de cette retraite. Mais il se peut aussi que Flavius Josèphe réfléchisse simplement à la nature de toutes les questions soulevées par les participants.[↩](#a1)
-
-
-
-
-
-
-

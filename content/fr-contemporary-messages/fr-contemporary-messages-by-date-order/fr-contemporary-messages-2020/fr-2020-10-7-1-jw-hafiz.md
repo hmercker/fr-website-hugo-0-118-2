@@ -16,6 +16,3 @@ Je suis ici le poète Hafez (ou Hafiz). Surprise ! Je suis venu à cause de ce d
 C’est le spectacle de Dieu et pourtant nous sommes tous dedans, dans son théâtre, des personnages, chacun d’entre nous. Alors quel rôle choisirez-vous de jouer ? Que souhaitez-vous apporter au public et comment voulez-vous honorer le Créateur de la pièce ? Si vous y allez dans la foi, dans la certitude que vous pouvez ne faire qu’Un avec votre Créateur dans l’amour, si vous faites confiance à ce processus, vous vous retrouverez dans la glorieuse salle de bal de l’Univers à danser avec le Bien-aimé sur la plus belle musique en couleur et en lumière, au-delà de tout spectre sur terre. Ceci est votre avenir. Cela vaut le prix de l’admission. Au-delà de tout ce que vous avez dépensé, sera votre récompense : l’amour sans fin, la félicité et la joie de la Grâce des Créateurs !
 
 Merci de m’avoir permis de passer, comme j’aimerais le faire plus souvent, et je vous souhaite à tous une grande bénédiction dans l’amour de Dieu, comme nous le faisons tous. Je suis votre frère et ami et oui, je suis un ami céleste dans l’amour de Dieu, dans Son Royaume. Je suis Hafiz.
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne perdez pas un instant et ne prenez rien pour acquis
 
-Augustin - reçu par Al Fike le 20 Novembre 2019, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 20 Novembre 2019, Mooloolaba, Queensland, Australie.
 
 Il est important en ce moment de marcher dans la Lumière, d’être en accord avec Dieu, de continuer à s’éveiller à l’afflux de l’Amour de Dieu dans votre âme. Des temps cruciaux, en effet, alors que les changements sur la Terre continuent à s’intensifier, les changements en vous continuent à croître alors que Dieu vous prépare, vous éveille à votre but et à votre destinée dans le monde. Ne perdez pas un instant, âmes bien-aimées. Ne considérez rien comme acquis, car les bénédictions et les opportunités qui se déversent sur vous en ce moment sont le résultat de grands efforts de notre part en esprit et des grandes bénédictions de Dieu sur vous.
 
@@ -36,6 +36,3 @@ Bien que vous aimeriez voir beaucoup d’entre eux renoncer à leur erreur et re
 Vous savez combien vous êtes profondément aimées, mes bien-aimées, combien nous sommes profondément aimés et combien nous sommes heureux que vous continuiez à répondre à l’appel du service et de l’amour pour l’humanité. Continuez dans vos efforts, dans votre désir et votre capacité d’aimer vos frères et sœurs. Continuez dans l’harmonie et l’amour et vous serez élevés et bénis par Dieu.
 
 Dieu vous bénit, âmes bien-aimées. Votre enseignant Augustin est toujours à vos côtés, cherchant toujours à vous aider dans votre compréhension et votre éveil de l’âme à la Vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
-
-
-

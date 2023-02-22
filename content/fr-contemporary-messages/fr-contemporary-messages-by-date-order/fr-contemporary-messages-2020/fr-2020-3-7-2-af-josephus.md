@@ -1,17 +1,17 @@
 ---
-title: "Communion de l'âme avec Dieu "
+title: "Communion de l'âme avec Dieu"
 menu_title: ""
-description: "Communion de l'âme avec Dieu "
+description: "Communion de l'âme avec Dieu"
 date: 2022-06-01 06:00:01+00:1018
 draft: False
 hidden: True
 weight:
 ---
-### Communion de l'âme avec Dieu 
+### Communion de l'âme avec Dieu
 
-Flavius Joseph - reçu par Al Fike le 7 Mars 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 7 Mars 2020, Monroeville, PA, USA.
 
-Je vous bénis, âmes bien-aimées, mon nom est Flavius Joseph. Je viens vous parler des limites du mental et des perceptions que vous avez tous et sur lesquelles vous comptez, et qui sont quelque peu limitatives en ce qui concerne l’éveil spirituel.
+Je vous bénis, âmes bien-aimées, mon nom est Flavius Josèphe. Je viens vous parler des limites du mental et des perceptions que vous avez tous et sur lesquelles vous comptez, et qui sont quelque peu limitatives en ce qui concerne l’éveil spirituel.
 
 Je crois que vous comprenez tous que pour connaître vraiment Dieu et connaître votre vrai moi, votre âme, il faut avoir la capacité de voir le monde à travers d’autres yeux, de comprendre le monde à travers un autre esprit qui n’est pas le mental matériel, mais l’esprit de l’âme. Très peu de gens dans votre monde le savent vraiment ou reconnaissent qu’il y a quelque chose de plus, quelque chose au-delà de ces perceptions quotidiennes dans lesquelles vous êtes engagés, avec toute votre concentration et vos énergies, pour comprendre et délimiter les différents aspects de ce monde. Et cet effort pour comprendre le monde requiert une grande partie de votre pensée, de votre temps, des perceptions qui découlent de l’expérience des choses du monde. Pourtant, vous êtes tous ici intéressés et désireux d’aller au-delà de ces simples perceptions et d’aller vers quelque chose de plus complexe et de plus profond.
 
@@ -33,7 +33,4 @@ Pour ce faire, mes bien-aimés, vous devez être forts et clairs et être enraci
 
 Que Dieu vous bénisse lors de cet éveil. Que Dieu vous bénisse avec la joyeuse compréhension de Sa grande Création et de Son vrai Soi, Son âme, en relation avec votre merveilleuse âme. Tant de choses vous attendent, âmes bien-aimées, tant de choses que je ne peux pas vous expliquer en ce moment. Mais au fur et à mesure que cet instrument grandira et que vous grandirez, vous serez prêts à apprendre davantage des vérités de Dieu, et cela viendra. Il s’ouvrira et vous serez remplis de l’incroyable merveille de Dieu.
 
-Que Dieu vous bénisse, mes amis. Je suis Flavius Joseph. Je suis heureux de venir vous parler de ce sujet, et je prie pour que chacun d’entre vous trouve son chemin sur ce chemin d’éveil et d’expression de l’âme, pour venir voir les merveilles de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour est avec vous.
-
-
-
+Que Dieu vous bénisse, mes amis. Je suis Flavius Josèphe. Je suis heureux de venir vous parler de ce sujet, et je prie pour que chacun d’entre vous trouve son chemin sur ce chemin d’éveil et d’expression de l’âme, pour venir voir les merveilles de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour est avec vous.

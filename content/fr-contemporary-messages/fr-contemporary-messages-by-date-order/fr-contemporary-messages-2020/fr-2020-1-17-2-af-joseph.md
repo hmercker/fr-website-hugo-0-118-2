@@ -9,7 +9,7 @@ weight:
 ---
 ### La main de Dieu repose sur chacun de vous
 
-Joseph - reçu par Al Fike le 17 Janvier 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 17 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, que la paix soit sur vous, je suis Joseph. La Main de Dieu repose sur chacun de vous et vous apportera une force, une constance, une Lumière et un Amour qui nourriront votre âme et vous aideront à naviguer dans la vie, dans la Lumière, dans la sagesse et la force. Chaque mortel de votre monde bénéficierait de ces bénédictions et a besoin de ces bénédictions. Car, lorsque votre Lumière brille et que cette Lumière vient de vos âmes imprégnées de l’Amour du Père, alors vous ne pouvez rien faire dans la vie sans que cette influence, cette protection et cette bénédiction ne vous apportent ce qui est en harmonie avec le désir de Dieu pour vous, Sa Volonté pour vous, dans la vie.
 
@@ -26,6 +26,3 @@ Il y a des personnes dans le monde qui ne sont pas encore conscients de ces cade
 Marchez avec Dieu, âmes bien-aimées. Voyez que vous êtes vraiment dans l’alignement et que vous marcherez dans la Vérité et que vous serez un canal d’Amour pour les âmes perdues, pour les âmes qui aspirent, pour de nombreuses âmes. Ce Don, ce Don d’Amour qui brûle dans votre âme sera la source de changement dans le monde, bien-aimés ; ajoutez la Lumière, ajoutez la Vérité, apportez l’espoir et apportez le changement.
 
 Puissent vos Lumières continuer à briller, vos efforts se poursuivre dans la direction du service de Dieu dans l’alignement et la force, dans tous les beaux cadeaux et bénédictions de votre âme. Que Dieu vous bénisse, âmes bien-aimées. Je suis Joseph, père de Jésus, et je viens pour vous encourager, vous élever et vous fortifier sur ce chemin qui n’est pas tout à fait facile, mais qui est simple. Soyez avec la Vérité, soutenez-la, appliquez-la, et tous les dons qui sont bons, merveilleux et puissants seront donnés. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous, comme l’est mon fils, mon partenaire bien-aimé et tous les anges du Ciel. Que Dieu vous bénisse.
-
-
-

@@ -1,13 +1,13 @@
 ---
-title: "Encouragements pour le Cercle des Sept "
+title: "Encouragements pour le Cercle des Sept"
 menu_title: ""
-description: "Encouragements pour le Cercle des Sept "
+description: "Encouragements pour le Cercle des Sept"
 date: 2022-06-01 06:00:01+00:1104
 draft: False
 hidden: True
 weight:
 ---
-### Encouragements pour le Cercle des Sept 
+### Encouragements pour le Cercle des Sept
 
 Martin Luther - reçu par Helge Mercker le 14 Mai 2020, Elim, Namibie
 
@@ -22,8 +22,3 @@ La main de Dieu est sur vous tous tant que vous suivez les conseils qui vous ont
 Nous continuons à guider chacun d’entre vous, chaque ange désigné est aux côtés de sa charge. Nous sommes dans cet engagement comme vous l’êtes, nous sommes dans ce lien d’amour comme vous l’êtes. Alors, rassemblez-vous dans l’amour et tout ira bien. Mon amour est avec chacun de vous et tant de personnes vous aident à vous rapprocher de vos réveils. Beaucoup a été donné, beaucoup a été partagé. Vous vous réunirez une fois de plus pour poursuivre et accomplir ce travail.
 
 Je suis Martin Luther et je vous salue tous avec mon amour et mon soutien. Que Dieu vous bénisse.
-
-
-
-
-

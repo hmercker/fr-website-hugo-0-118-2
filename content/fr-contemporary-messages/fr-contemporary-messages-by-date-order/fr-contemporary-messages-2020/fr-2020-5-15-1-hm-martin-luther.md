@@ -18,6 +18,3 @@ Grâce aux bénédictions de la connaissance intuitive vient l’expression de c
 La connaissance n’est pas le volume de faits acquis. La compréhension consciente est importante, mais sa portée est très limitée, comparée à la connaissance de l’âme, ce lieu intérieur profond. Bien qu’il puisse sembler qu’une vérité soit progressive – c’est-à-dire qu’elle semble grandir une fois que nous l’avons acquise – en réalité, c’est notre propre perception et compréhension qui grandit. La vérité désire être activée et être vécue. Une fois qu’une vérité est réalisée, il est important de vivre la vérité reconnue. Tout comme l’Amour du Père, une fois reçu dans l’âme, il a besoin d’être activé, il désire rayonner, briser les incrustations de l’âme, il désire être canalisé par l’être dans le monde, éclairant et illuminant ainsi l’être.
 
 J’apporte mon amour et nous nous écrirons à nouveau. La réception n’est pas aussi claire que je l’espérais, mais nous poursuivrons le sujet à nouveau. Soyez dans l’Amour de Dieu et je prie pour que Ses Bénédictions viennent à tous Ses enfants. Que Dieu vous bénisse ma chère fille. Dieu te bénisse.
-
-
-

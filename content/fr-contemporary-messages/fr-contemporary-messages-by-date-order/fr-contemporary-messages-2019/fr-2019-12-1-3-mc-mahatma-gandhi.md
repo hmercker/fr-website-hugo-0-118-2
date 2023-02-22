@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous serons avec vous au cours de vos défis
 
-Mahatma Gandhi - reçu par Maureen Cardoso le 1 Décembre 2019, Abbotsford, Colombie-Britannique, Canada
+Mahatma Gandhi - reçu par Maureen Cardoso le 1 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Je suis Gandhi. Puis-je dire que ce cher instrument conversait avec moi avant de me permettre de parler. Elle me demandait :  - « Que vas-tu dire ? »  Elle s’interroge donc sur le fait que j’utilise son instrumentalité et que je partage quelque chose avec vous, non pas qu’il doute que je n’aie pas quelque chose à dire qui serait important pour toucher vos cœurs et vous inspirer à continuer sur ce chemin d’éveil avec l’Amour de Dieu. Mais il est arrivé un moment où on lui a demandé d’aller plus loin dans sa médiumnité, dans le sens de simplement sentir un esprit et de permettre à cet esprit de délivrer un message d’amour et d’inspiration. Je la remercie donc pour sa volonté de se lancer avec une ardoise vierge.
 
@@ -24,6 +24,3 @@ Nous avons grandement besoin de vous. Votre travail aide, aide vraiment à dissi
 J’espère donc que vous ressentez mon amour et ma force, mes encouragements pour chacun d’entre vous. Il est important de savoir que vous êtes soutenus, que vous êtes aimés, et que nous travaillons ensemble. Vous n’êtes jamais seuls et nous continuons à vous servir. Que Dieu bénisse chacun d’entre vous dans son union avec notre Père Céleste. C’est un chemin humble, un chemin vrai, un chemin direct et un chemin glorieux.
 
 Continuez à servir l’éveil de vos âmes en recevant ce beau cadeau de l’Amour Divin. Je suis le Mahatma Gandhi et mon amour est avec chacun d’entre vous. Que Dieu vous bénisse.
-
-
-

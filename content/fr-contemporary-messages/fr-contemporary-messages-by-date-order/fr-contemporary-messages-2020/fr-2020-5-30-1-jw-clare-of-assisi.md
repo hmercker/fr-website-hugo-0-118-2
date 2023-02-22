@@ -16,6 +16,3 @@ C’est moi, Claire d’Assise. Et je suis aussi avec la belle appelée Care. No
 Alors s’il vous plaît, agissez dans l’amour pour apporter cette bénédiction à votre famille et à vos amis, quelle que soit la manière dont vous les rencontrez. Diffusez cette information sur les ondes et parlez de vos cœurs, tendez la main de vos âmes, car Dieu vous a tous bénis et vous nous êtes chers. N’ayez pas peur car vous êtes tous protégés. Nous vous encourageons à utiliser ce temps pour apporter ce qui est vérité, ce qui est amour, ce qui inspire et touche le cœur.
 
 Qu’il en soit ainsi. Comme Dieu vous sourit à tous, nous sommes nous aussi remplis de joie pour cette rencontre. Que Dieu vous bénisse. Je m’appelle Claire.
-
-
-
