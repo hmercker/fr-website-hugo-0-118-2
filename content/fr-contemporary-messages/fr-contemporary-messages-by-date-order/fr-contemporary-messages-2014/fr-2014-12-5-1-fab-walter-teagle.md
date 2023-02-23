@@ -9,7 +9,7 @@ weight:
 ---
 ### Commerce avec les Nazis
 
-Walter Teagle <sup id="a1">[1](#f1)</sup> - reçu par FAB le 5 Décembre 2014, Berkeley, Californie, USA.
+Walter Teagle <sup id="a1">[1](#f1)</sup> - reçu par FAB le 5 Décembre 2014, Berkeley, Californie, USA
 
 C’est moi, Walter Teagle.
 

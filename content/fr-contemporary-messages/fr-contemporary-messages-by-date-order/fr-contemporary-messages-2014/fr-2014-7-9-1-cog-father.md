@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’amour que je suis est l’amour que tu es <sup id="a1">[1](#f1)</sup>
+### L’amour que je suis est l’amour que tu es<sup id="a1">[1](#f1)</sup>
 
 Père - reçu par Enfant de Dieu le 9 Juillet 2014.
 

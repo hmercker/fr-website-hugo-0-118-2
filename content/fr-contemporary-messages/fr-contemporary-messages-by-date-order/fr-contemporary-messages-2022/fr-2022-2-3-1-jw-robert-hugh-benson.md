@@ -10,3 +10,19 @@ weight:
 ### La Septième Sphère est la porte d’entrée des Cieux Célestes
 
 Robert Hugh Benson - reçu par Jimbeau Walsh le 3 Février 2022, Nashville, TN, USA.
+
+Je suis Robert Hugh Benson.
+
+Je suis en train de suivre vos lectures et je suis heureux de voir comment chaque nouvel exposé de la vérité sur l’erreur vous apporte à tous une grande satisfaction. Vous pouvez, comme vous l’avez fait, continuer à remarquer des parallèles entre ce que je révèle et ce qui a été révélé à James Padgett, au révérend Owen, à Robert Lees, à Eileen, à Yogananda et à tant d’autres. Aucun de nous n’est parfait sur terre et je suis peut-être l’un des plus imparfaits dans le domaine du dogmatisme spirituel, ou devrais-je dire du dogmatisme et de la croyance religieuse. Néanmoins, je poursuis ma quête pour éclairer ceux qui viennent dans la condition de peur et d’erreur causée par leurs croyances, non seulement à partir de mes écrits mais par les églises orthodoxes et les grandes religions.
+
+Je vis maintenant dans la septième sphère et d’où je suis parti, c’est au-delà de l’imagination de l’esprit terrestre. J’ai traversé les nombreuses sphères et je peux vous dire que dans la septième, il y a tellement d’Amour de Dieu qui n’est que le résultat d’un désir plus profond pour que rien de moins que l’Amour Divin ne fasse partie de l’âme de quelqu’un, de son environnement et de sa constitution. Donc, comme je l’ai dit ainsi que d’autres, la septième sphère est la porte sur le précipice de la renaissance complète de l’âme.
+
+En attendant, alors que vous lisez ce que j’ai communiqué à travers Anthony<sup id=”a1”>[1](#f1)</sup>, je souhaite que vous vous souveniez que toujours plus de lumière, toujours plus d’amour, toujours plus de foi, et toujours plus de lâcher prise apporteront la transformation de vos âmes.
+
+Je vous remercie de tout mon cœur, comme beaucoup ici, pour vos études, pour votre curiosité, pour votre bienveillance, et surtout pour vos prières pour l’Amour de Dieu, car il n’y a rien de plus grand.
+
+Je reviendrai, et je vous remercie, belles âmes sur le chemin comme moi, vers les Cieux Célestes. Que Dieu nous bénisse. Allez en paix.
+<small>
+
+<large id=”f1”>Anthony Borgia.[↩](#a1)
+

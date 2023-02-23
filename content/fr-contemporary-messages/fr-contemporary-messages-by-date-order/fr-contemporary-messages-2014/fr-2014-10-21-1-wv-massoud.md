@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne prenez pas les choses personnellement
 
-Massoud - reçu par WV le 21 Octobre 2014, Ghent, Belgique.
+Massoud - reçu par WV le 21 Octobre 2014, Ghent, Belgique
 
 Bonsoir, mes chers amis. C’est un honneur d’être ici avec vous. Mon nom est Massoud. C’est la première fois que je m’adresse à vous. La raison pour laquelle je suis ici est que vous m’êtes tous très chers, car je vois tout ce que vous essayez d’accomplir dans ce monde.
 
@@ -25,9 +25,9 @@ Ce que je vous dis ici aujourd’hui s’applique aussi à vous, bien sûr. Vous
 
 Réfléchissez-y plus souvent ! Et si vous vous surprenez à faire ce genre d’excès, prenez le temps de vous détendre, de vous relaxer. Soyez compréhensif et aimant envers vous-même et présentez vos excuses à ceux que vous avez « attaqués ».
 
-L’amour est la seule énergie qui peut vous aider à changer ce monde ! Et si vous apprenez à être aimant et compréhensif envers vous-même, vous apprendrez à être plus compréhensif et aimant envers les autres. Parce que, que vous le croyiez ou non, que vous puissiez le voir ou non : *« Nous traitons les autres comme nous bous traitons nous-même ! »* Méditez là-dessus. Chacun de nous est (souvent) un miroir pour l’autre. Ce n’est que lorsque nous ouvrons les yeux sur la réalité de ce que nous sommes vraiment que nous verrons aussi les autres pour ce qu’ils sont vraiment. Si vous n’êtes pas ouvert, aimant et compréhensif envers les autres, vous ne le serez pas envers vous-même !
+L’amour est la seule énergie qui peut vous aider à changer ce monde ! Et si vous apprenez à être aimant et compréhensif envers vous-même, vous apprendrez à être plus compréhensif et aimant envers les autres. Parce que, que vous le croyiez ou non, que vous puissiez le voir ou non : *« Nous traitons les autres comme nous nous traitons nous-même ! »* Méditez là-dessus. Chacun de nous est (souvent) un miroir pour l’autre. Ce n’est que lorsque nous ouvrons les yeux sur la réalité de ce que nous sommes vraiment que nous verrons aussi les autres pour ce qu’ils sont vraiment. Si vous n’êtes pas ouvert, aimant et compréhensif envers les autres, vous ne le serez pas envers vous-même !
 
-Et voilà, je termine mon discours de ce soir. (Rires) Merci de votre présence. Laissez ce qui a été dit ce soir pénétrer au cœur de votre âme afin qu’il fasse partie de votre vie quotidienne ; de vos actions quotidiennes.
+Et voilà, je termine mon discours de ce soir. (Rires) Merci de votre présence. Laissez ce qui a été dit ce soir pénétrer au cœur de votre âme afin que cela fasse partie de votre vie quotidienne ; de vos actions quotidiennes.
 
 Bonsoir. Profitez de cette belle musique relaxante. Elle vous fera du bien.
 <small>

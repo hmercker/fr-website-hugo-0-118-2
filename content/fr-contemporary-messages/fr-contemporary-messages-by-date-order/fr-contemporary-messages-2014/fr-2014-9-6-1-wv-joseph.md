@@ -9,9 +9,9 @@ weight:
 ---
 ### Où sont mes propres limites ?
 
-Joseph - reçu par WV le 6 Septembre 2014, Frankfurt, Allemagne.
+Joseph - reçu par WV le 6 Septembre 2014, Frankfurt, Allemagne
 
-Bonsoir mes chers amis. C’est un plaisir d’être à nouveau parmi vous. Je m’appelle Joseph. Je suis venu vous parler de choses que vous devez savoir dans la vie. Des choses comme : « Où sont mes propres limites ? », « Comment prendre les bonnes décisions ? »
+Bonsoir mes chers amis. C’est un plaisir d’être à nouveau parmi vous. Je m’appelle Joseph. Je suis venu vous parler de choses que vous devez savoir dans la vie. Des choses comme : *« Où sont mes propres limites ? »*, *« Comment prendre les bonnes décisions ? »*
 
 Vous devez comprendre que vous êtes tous guidés par vos guides et par vos anges gardiens. Ils vous parlent en tant qu’âmes. Il est donc très important pour vous d’essayer d’écouter votre âme de temps à autre. Pourquoi tant de choses vont-elles mal dans nos vies ? Eh bien, parce que nous écoutons notre mental et nos pensées au lieu de nos sentiments, de notre âme. Cela, mes amis, est la raison pour laquelle tant de choses vont mal, pourquoi il y a tant de négativité, pourquoi il y a tant d’ego, pourquoi il y a tant de guerres. N’essayez pas de raisonner tout le temps. N’utilisez pas votre mental tout le temps. Essayez de vous vider de toutes les pensées que vous avez, car elles vous empêcheront de prendre les bonnes décisions.
 
