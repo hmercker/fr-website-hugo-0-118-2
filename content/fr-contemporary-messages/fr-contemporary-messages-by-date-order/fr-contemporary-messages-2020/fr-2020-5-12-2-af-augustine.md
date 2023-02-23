@@ -9,7 +9,7 @@ weight:
 ---
 ### Les cercles de lumière apportent une plus grande lumière au monde
 
-Augustin - reçu par Al Fike le 12 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 12 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est votre enseignant Augustin. Une fois de plus, vous vous réunissez dans un Cercle de Lumière, avec l’intention de prier, d’élever votre lumière spirituelle en harmonie avec les Lois d’Amour de Dieu et de rechercher Sa bénédiction d’Amour. Ainsi, vous continuez à marcher sur ce puissant escalier qui mène toujours plus haut vers les royaumes Célestes. Comme vous continuez à grandir dans l’Amour du Père, vous avez la force et le courage, la capacité et la volonté de monter toujours plus haut. Au fur et à mesure que vous vous élevez dans les hauteurs, vous vous débarrassez de tout ce qui vous fait tomber, de tout ce qui est lourd et alourdi par les conditions de votre monde, et vous cherchez Dieu. En montant, vous cherchez à être libérés de toutes les conditions matérielles et de l’obscurité de ce monde et en vous, afin de pouvoir marcher dans la lumière, purs et beaux dans votre visage, un canal d’amour pour Dieu alors que son amour continue à éveiller vos âmes.
 

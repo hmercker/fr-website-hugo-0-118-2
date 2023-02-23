@@ -9,7 +9,7 @@ weight:
 ---
 ### Le don de prophétie
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 12 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 12 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care,
 

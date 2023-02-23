@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez-vous envelopper par la paix qui dépasse toute compréhension
 
-Augustin - reçu par Al Fike le 3 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 3 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Que les bénédictions du Père et de Son Amour continuent à se déverser dans vos âmes. Lorsque je parle de la bénédiction de la paix, je parle du toucher de Dieu. Lorsque Dieu est proche, lorsque ses bénédictions se déversent sur vous, mes bien-aimés, cette composante de la paix est un don de Dieu. C’est un don spécifique qui vous enveloppe d’une lumière, d’un sentiment de confort, d’immobilité ; c’est la paix et avec ce don de paix et la lumière qui l’accompagne, vous êtes bénis de protection. C’est un don qui libère le mental, détend le corps et centre votre conscience dans la prière et dans votre âme.
 

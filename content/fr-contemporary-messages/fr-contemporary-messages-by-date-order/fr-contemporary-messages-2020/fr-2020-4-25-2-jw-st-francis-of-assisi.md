@@ -9,7 +9,7 @@ weight:
 ---
 ### Uu pont entre le Ciel et la Terre
 
-St François d'Assise - reçu par Jimbeau Walsh le 25 Avril 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 25 Avril 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami François. Vous êtes un groupe des plus aimables. Vous avez touché mon cœur. J’ai quitté l’agitation de la ville pour être dans la nature avec mes amis, pour ressentir la beauté de la création de Dieu et pour être en harmonie avec elle. Nous avions établi un équilibre, dans notre petit groupe, entre l’amour naturel de la Création de Dieu et de la gloire de l’Amour de Dieu reçu dans la prière. C’était, comme vous pouvez l’imaginer parfois, une sorte de paradis sur terre. Certains étaient assez étonnés qu’un groupe de mendiants apparemment pauvres puisse être aussi riches en dons de l’esprit, comme nous l’appelions. Oui, entre le soleil de votre galaxie et le Maître, le premier vrai fils de Dieu à recevoir l’amour, il y a une analogie. Pouvez-vous voir l’harmonie entre les deux mondes ? Vos prières et les désirs que vous avez créent un pont entre le Ciel et la Terre.
 

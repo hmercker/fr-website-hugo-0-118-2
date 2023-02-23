@@ -9,7 +9,7 @@ weight:
 ---
 ### Tout évolue vers une plus grande harmonie (2020 Online Prayer Circles)
 
-St François d'Assise - reçu par Al Fike le 5 Avril 2020, Gibsons, Colombie-Britannique, Canada
+St François d'Assise - reçu par Al Fike le 5 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis François. De nombreux anges sont avec nous aujourd’hui, apportant avec eux de nombreuses bénédictions et des dons spirituels pour chacun de vous, puisant les énergies et les bénédictions du ciel et les énergies et les bénédictions de votre Terre. Car votre partie de la Terre est en fleur au printemps, apportant une énergie, une bénédiction de vitalité qui émane de la Terre et peut être exploitée par nous, les anges, pour se concentrer sur vous tous. Quant aux bénédictions du ciel, de belles couleurs vous baignent tous ; bleu saphir, beau vert, or et blanc, jaune beurre, rose et bien d’autres nuances, comme un arc-en-ciel de la Touche divine sur chacun de vous. Cela vous aidera dans votre corps, votre esprit et votre nature spirituelle. Ces choses vous ont été données en cadeau, alors que vous continuez à attirer vers vous les nombreuses bénédictions de Dieu.
 

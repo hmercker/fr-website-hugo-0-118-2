@@ -9,7 +9,7 @@ weight:
 ---
 ### Richesse et joie
 
-Claire d'Assise - reçu par Jimbeau Walsh le 4 Avril 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 4 Avril 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi Claire d’Assise. Je suis attirée par ce beau cercle. Vous me connaissez peut-être comme la fondatrice de l’ordre des femmes monastiques qui se sont appelées et s’appellent encore les Clarisses. Nous avons suivi les traces de mon bien-aimé François d’Assise et de ses frères qui avaient décidé de laisser une grande partie du monde derrière eux et de vivre une vie simple. J’aborde cette question parce que vous êtes actuellement dans une période sur la terre où vous pouvez contempler l’importance des choses matérielles. De combien a-t-on besoin ? Qu’est-ce qui est nécessaire ?
 

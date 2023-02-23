@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu cherche à réconcilier l'humanité avec Lui alors que les changements terrestres balaient le monde
 
-André - reçu par Al Fike le 1 Juin 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 1 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Enfants bien-aimés, c’est André. Vous priez pour ceux qui sont perdus et dans les ténèbres dans votre monde, et ces ténèbres ont proliféré pendant de nombreuses, nombreuses années, presque depuis le début et elles ont grandi et grandi en largeur et en profondeur dans votre monde où personne ne peut échapper à l’influence et aux effets de ces conditions sombres. Personne n’est capable de résister à l’influence qui l’attire dans l’erreur qui a proliféré dans votre monde.
 

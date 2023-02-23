@@ -9,7 +9,7 @@ weight:
 ---
 ### Le virus n'est qu'un prélude à ce qui est à venir
 
-St Matthieu - reçu par Al Fike le 14 Avril 2020, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 14 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Matthieu. Dieu déverse des bénédictions de Lumière et d’Amour, de guérison et de paix sur votre monde. Avec ces circonstances inhabituelles dans lesquelles vous vous trouvez partout dans votre monde, Dieu utilise cette opportunité pour élever et bénir ces âmes qui cherchent le réconfort et la paix dans leurs vies. Le rythme frénétique de votre monde s’est ralenti et en cela, une ouverture, une opportunité pour de nombreuses bénédictions de venir à de nombreuses âmes.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque fois que vous touchez une autre âme, c’est le cadeau
 
-Kahlil Gibran - reçu par Jimbeau Walsh le 3 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+Kahlil Gibran - reçu par Jimbeau Walsh le 3 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je viens comme votre frère sur ce chemin de l’Amour de Dieu. Je souhaite parler des dons. Vous me connaissez peut-être par mes œuvres, en particulier le livre « Le Prophète ». J’avais le don d’écrire de la poésie et de la prose, mon amour de la peinture. Techniquement, j’ai développé ces dons dans de nombreux domaines, à partir de nombreuses influences. Mes parents étaient Chrétiens au Liban où je suis né mais j’ai grandi aux États-Unis, j’ai aussi vécu en France. J’ai été profondément influencé par les écrits, les quatrains des soufis, et par Blake, et les Baha’i. La beauté des paraboles du Nouveau Testament a influencé mes écrits. Mais je vous dis ceci, j’ai toujours cru à l’unité de l’humanité dans ce que j’appelle « l’Esprit », l’unité des religions.
 

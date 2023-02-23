@@ -9,7 +9,7 @@ weight:
 ---
 ### Résolution de conflits
 
-St Matthieu - reçu par Helge Mercker le 12 Mai 2020, Elim, Namibie
+St Matthieu - reçu par Helge Mercker le 12 Mai 2020, Swakopmund, Namibie.
 
 Ma fille, je suis Matthieu, et je te transmets mon amour et mes salutations en cette heure matinale.
 

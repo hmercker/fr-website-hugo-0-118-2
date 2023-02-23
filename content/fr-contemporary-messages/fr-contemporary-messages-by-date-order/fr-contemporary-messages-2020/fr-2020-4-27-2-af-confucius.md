@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous créez un portail de lumière en vous unifiant dans la prière
 
-Confucius - reçu par Al Fike le 27 Avril 2020, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 27 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions pour vous, âmes bien-aimées, je suis Confucius. Permettez aux bénédictions de l’Amour du Père d’atteindre les profondeurs de vos âmes. En recueillant ce Grand Cadeau, cette Essence de Dieu en vous, sachez que vous vous rapprochez de la Source de tout Amour et de toute Lumière, permettant à ce Cadeau de vous ouvrir davantage dans la Lumière, bien-aimées, belles âmes, âmes précieuses de Dieu. Rapprochez-vous des grandes bénédictions de Dieu et alors que vous le faites, que vous êtes unifiés dans la prière et l’Amour, alors vous créez un grand Portail de Lumière pour le monde que Dieu peut utiliser pour envoyer ses nombreuses bénédictions. Vous aidez Dieu dans cet effort pour éclairer le monde, pour apporter la vérité et l’amour, la paix et la joie.
 

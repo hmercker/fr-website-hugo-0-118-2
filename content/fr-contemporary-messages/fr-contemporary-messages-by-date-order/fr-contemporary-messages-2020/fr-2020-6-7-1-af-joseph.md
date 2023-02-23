@@ -9,7 +9,7 @@ weight:
 ---
 ### Agissez avec votre âme
 
-Joseph - reçu par Al Fike le 7 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 7 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, frères et sœurs bien-aimés, je suis Joseph. Comprenez-vous vraiment la puissance de votre propre âme ? Car la puissance de l’âme est grande, une fois que cette âme a été enflammée par le don de l’Amour du Père. Chaque enfant de votre monde a en lui le potentiel d’une grande puissance, de grandes capacités pour apporter ce qui est nécessaire dans votre monde pour une plus grande harmonie et une plus grande lumière, mais cette âme doit d’abord être éveillée. Même dans ses capacités naturelles, l’âme doit s’éveiller et s’exprimer à travers chaque individu de manière à faire naître les dons de l’âme. Malheureusement, une âme qui est privée de l’Amour Divin est limitée dans sa capacité à apporter les bénédictions de la lumière, les capacités de l’âme au monde, exprimées de façon pure et magnifique. Avec le pouvoir de transformation de l’Amour Divin de Dieu, cette âme, avec le temps, devient pleinement éveillée et ses capacités à apporter la lumière, la vérité, l’amour, la guérison, le changement de toutes les manières à votre monde, sont immenses.
 

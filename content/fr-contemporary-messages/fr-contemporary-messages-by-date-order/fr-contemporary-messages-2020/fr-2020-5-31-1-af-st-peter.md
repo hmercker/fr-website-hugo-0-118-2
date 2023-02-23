@@ -9,7 +9,7 @@ weight:
 ---
 ### La Pentecôte
 
-St Pierre - reçu par Al Fike le 31 Mai 2020, Gibsons, Colombie-Britannique, Canada
+St Pierre - reçu par Al Fike le 31 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-spiritualite-12-1.jpg)
 

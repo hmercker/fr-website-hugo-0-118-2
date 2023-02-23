@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettez aux intentions de vos âmes de vous atteindre
 
-St François d'Assise - reçu par Jimbeau Walsh le 23 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 23 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère François. Vous avez souvent entendu dire que nous vous appelons enfants, frères, sœurs, nos amis, car en vérité nous sommes tous des enfants de Dieu. Vous le savez et comme le Maître l’a fait remarquer, il faut devenir comme un enfant.
 

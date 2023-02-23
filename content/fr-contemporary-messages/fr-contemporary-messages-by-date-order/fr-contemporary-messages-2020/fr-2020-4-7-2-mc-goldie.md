@@ -9,7 +9,7 @@ weight:
 ---
 ### Le ciel chante "Oh Holy One" (Cercles de prière en ligne 2020)
 
-Goldie - reçu par Maureen Cardoso le 7 Avril 2020, Abbotsford, Colombie-Britannique, Canada
+Goldie - reçu par Maureen Cardoso le 7 Avril 2020, Abbotsford, Colombie-Britannique, Canada.
 
 Je suis Goldie. Au cher frère, notre instrument bien-aimé qui partage abondamment son don de chant et de musique, nous voudrions que vous sachiez que nous interprétons vos chansons dans le Ciel. « Oh Holy One » est une de nos chansons préférées.
 

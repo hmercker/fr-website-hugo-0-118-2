@@ -9,7 +9,7 @@ weight:
 ---
 ### Maintenir l'harmonie dans votre groupe - V.D.
 
-Seretta Kem - reçu par Al Fike le 25 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 25 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Il a été question de l’importance pour vous tous, au sein de ce groupe, d’être en harmonie les uns avec les autres. En effet, c’est toujours une question importante dans ce groupe et dans tout groupe dont vous pouvez faire partie et qui est en alignement avec l’Amour de Dieu. L’harmonie est un élément puissant et important de tout groupe ou relation parmi l’humanité. Il est important de donner l’exemple de l’harmonie et de l’amour. Il est nécessaire pour vous d’aller vers la plus haute perspective d’amour les uns envers les autres, où il y a acceptation et absence de jugement, où il y a un sens de la famille et de l’amour qui est partagé. Car vous ne pouvez pas juger vos frères et sœurs en fonction de leur niveau de progression, de leur personnalité, de leurs capacités de communication et de leurs dons de l’esprit.
 

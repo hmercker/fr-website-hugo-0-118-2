@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu
 
-White Eagle - reçu par Jimbeau Walsh le 19 Avril 2020, Punalu’u, Oahu, Hawaii, USA
+White Eagle - reçu par Jimbeau Walsh le 19 Avril 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis, Aigle Blanc. Je viens à vousi dans la grâce de Dieu comme votre frère et votre ami. Mon travail de guérisseur répond à l’appel de ceux qui le demandent sincèrement. Mon groupe s’efforce de guérir ceux qui, dans ce cercle, ont prié et dont les amis et la famille ont prié et (bien sûr) nous ne refusons jamais une demande sincère.
 

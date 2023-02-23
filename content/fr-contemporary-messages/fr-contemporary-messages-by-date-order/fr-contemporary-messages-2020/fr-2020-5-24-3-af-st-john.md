@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos actes d'amour, de service, de bonté et de lumière seront votre héritage
 
-St Jean - reçu par Al Fike le 24 Mai 2020, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 24 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Vous êtes profondément bénies, âmes bien-aimées, par Son amour. Je suis Jean, Jean le Bien-Aimé comme vous me connaissez. Chacune de vos âmes a pris une décision, s’est levée pour l’Amour, pour la Lumière, pour ce qui n’est pas de la condition humaine, mais de la condition de Dieu et de Sa Grande Âme vous dictant la Vérité de Son Amour et les Lois qui viennent avec Son Amour. Vos âmes ont décrété qu’elles se lèveraient pour la Lumière, que vous, à l’intérieur de votre vrai moi et de votre essence, avez décidé d’être dans la Gloire de Dieu, de vous réveiller dans la Gloire de Son Amour, de rejeter ces conditions et aspects de ce monde qui ne sont pas de l’amour. Vous avez choisi, âmes bien-aimées, et vous marchez dans le monde avec l’expression de ce choix et de cet Amour dans votre âme.
 

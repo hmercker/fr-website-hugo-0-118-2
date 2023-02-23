@@ -9,7 +9,7 @@ weight:
 ---
 ### Voyage pour apporter l'égalité et l'amour à l'humanité
 
-Guru Nanak - reçu par Maureen Cardoso le 7 Avril 2020, Abbotsford, Colombie-Britannique, Canada
+Guru Nanak - reçu par Maureen Cardoso le 7 Avril 2020, Abbotsford, Colombie-Britannique, Canada.
 
 Je suis le gourou Nanak. Je suis un habitant du Royaume Céleste et le fondateur de la tradition Sikh. Lorsque j’étais enfant, les membres de ma famille savaient que j’avais quelque chose d’unique. C’est devenu plus évident pour eux lorsque je suis devenu un jeune garçon. À cette époque en Inde, il y avait de nombreuses religions comme la religion Hindoue et la religion Islamique. Il y avait aussi le système de castes en place, avec une énorme discrimination basée sur la lignée dans laquelle vous êtes né.
 

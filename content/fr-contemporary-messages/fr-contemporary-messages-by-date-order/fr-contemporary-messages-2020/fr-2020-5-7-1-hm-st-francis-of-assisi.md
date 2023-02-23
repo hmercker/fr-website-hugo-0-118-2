@@ -9,7 +9,7 @@ weight:
 ---
 ### Chante avec les Oiseaux
 
-St François d'Assise - reçu par Helge Mercker le 7 Mai 2020, Elim, Namibie
+St François d'Assise - reçu par Helge Mercker le 7 Mai 2020, Swakopmund, Namibie.
 
 Ma fille, écoute le vent doux, sens la chaleur de la brise de l’océan. Écoute le bruit des feuilles de palmier qui se balancent dans le vent. Dieu te bénit dans tes prières. Je suis avec toi dans tes prières. Oui, c’est François, mon enfant bien-aimé, François d’Assise, c’est ainsi qu’on m’appelle. Un homme qui a vécu au service de notre Père qui est aux Cieux, et de nos frères et sœurs, démunis et affamés. Je suis ton ami et ton frère dans ce service d’amour. Je suis ici maintenant avec toi comme je l’ai souvent été, comme tu le sais.
 

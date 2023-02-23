@@ -9,7 +9,7 @@ weight:
 ---
 ### La conscience de l'âme
 
-Seretta Kem - reçu par Al Fike le 18 Avril 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 18 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes aimées, je suis Seretta Kem. Je souhaite vous exposer la conscience de l’âme et vous aider à mieux la comprendre. Beaucoup dans votre monde définissent la conscience comme la perception de ce qui est réel. Pourtant, les niveaux de conscience possibles au sein de l’âme et de l’esprit humains sont nombreux et complexes.
 

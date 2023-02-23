@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce que vous désirez dans la vie change à mesure que vous êtes transformé par l'Amour Divin
 
-Joseph - reçu par Al Fike le 18 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 18 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Joseph. Que l’Amour de Dieu continue à vous réveiller, mes amis. Puisse l’Amour de Dieu vous donner la perspicacité et la perception pour réaliser comment Ses bénédictions ont affecté vos vies, votre âme même, de manière si profonde qu’elles changent tout en vous et à l’extérieur. Beaucoup de changements sont à venir pour chacun d’entre vous, car le changement est inévitable lorsque l’on continue à forger une alliance avec Dieu. Ainsi, ce que vous apportez à vous-mêmes, à vos âmes dans la prière, en pensée et en acte, en suppliant Dieu de bénir chaque moment de vos vies, alors de nouvelles portes s’ouvrent, de nouvelles possibilités se réalisent, et ainsi vous changez. Vous changez ces parties profondes de vous-même qui déterminent vos désirs, vos perceptions, vos envies et vos besoins. Ce changement intérieur en vous se manifestera dans vos vies, créant pour chacun d’entre vous des motivations et des désirs différents. Vos priorités vont changer, mes amis. Ce que vous désirez le plus et ce qui vous procure le plus de plaisir sera différent de ce qui était votre mode de vie habituel dans le passé.
 

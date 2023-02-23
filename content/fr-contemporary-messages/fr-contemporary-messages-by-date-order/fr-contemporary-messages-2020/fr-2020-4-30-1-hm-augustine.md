@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher le chemin de l’Amour Divin
 
-Augustin - reçu par Helge Mercker le 30 Avril 2020, Elim, Namibie
+Augustin - reçu par Helge Mercker le 30 Avril 2020, Swakopmund, Namibie.
 
 Je suis Augustin, ton enseignant et ami. Je suis ici pour me joindre à tes études et à tes prières.
 

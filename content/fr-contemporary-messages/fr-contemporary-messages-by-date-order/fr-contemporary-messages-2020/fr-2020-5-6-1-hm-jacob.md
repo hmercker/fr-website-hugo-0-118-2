@@ -9,7 +9,7 @@ weight:
 ---
 ### Su la Foi
 
-Jacob - reçu par Helge Mercker le 6 Mai 2020, Elim, Namibie
+Jacob - reçu par Helge Mercker le 6 Mai 2020, Swkopmund, Namibie.
 
 Ma fille, nous pouvons commencer à écrire. Je m'appelle Jacob et je me suis présenté à toi il y a un jour. Je t'a fait part de mon apparence lorsque je vivais sur Terre. Tu as reçu les impressions de la terre ouverte, vaste et aride, et des grands troupeaux de moutons. Nous étions une grande famille et nous aimions notre Dieu. Je suis Jacob, un prophète qui a vécu sur Terre de nombreuses années avant que notre Jésus bien-aimé ne vienne sur Terre. Vous connaissez l'époque car nos histoires ont été racontées dans des livres. Je suis maintenant un habitant des Cieux Célestes, du Royaume de Dieu, vivant dans la gloire éternelle de Son Amour. Je m'appelle Jacob et je t'apporte un salut d'amour alors que j'ai entendu ta conversation au sujet de l'audition des murmures de Dieu. J'ai entendu Dieu dans mes prières et mes contemplations. J'ai senti sa voix qui me guidait. J'ai reçu des visions et j'ai été guidé dans de nombreuses étapes de ma longue vie sur Terre. J'étais un homme qui connaissait la vérité du Dieu unique et ma religion était simple. Nous vivions dans la simplicité et avec peu de confort, cependant nos désirs d'âme étaient dirigés vers notre Dieu.
 

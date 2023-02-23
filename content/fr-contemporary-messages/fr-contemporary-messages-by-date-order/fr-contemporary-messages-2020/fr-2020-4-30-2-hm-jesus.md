@@ -9,7 +9,7 @@ weight:
 ---
 ### Goutte par Goutte
 
-Jésus - reçu par Helge Mercker le 30 Avril 2020, Elim, Namibie
+Jésus - reçu par Helge Mercker le 30 Avril 2020, Swakopmund, Namibie.
 
 Âmes aimées, je suis Jésus. Je tiens à saluer ce bel instrument pour ses efforts visant à faire avancer la Vérité de l’âme. Ce n’est pas un sujet facile pour ceux d’entre vous qui habitent sur le plan terrestre, car tant de choses ne sont pas de l’âme. En effet, l’antithèse de l’âme est si importante qu’il est difficile d’observer et de comprendre les conditions, l’existence de l’âme.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Si vous aviez une croyance pour vous porter
 
-Thomas Merton <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 24 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+Thomas Merton <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 24 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Thomas Merton. Je suis votre frère dans l’Amour de Dieu. J’ai suivi le chemin de l’amour lorsque j’étais sur terre parce que j’avais découvert la seule chose dans l’Univers de Dieu qui était vraiment importante et nécessaire et, croyez-moi, j’avais un bagage.
 

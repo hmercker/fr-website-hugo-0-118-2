@@ -9,7 +9,7 @@ weight:
 ---
 ### Mettez l'amour sur les ondes
 
-Claire d'Assise - reçu par Jimbeau Walsh le 30 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 30 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Claire d’Assise. Et je suis aussi avec la belle appelée Care. Nous nous sommes retrouvées pour nous joindre à vous dans la prière et pour vous encourager dans votre marche dans l’Amour de Dieu. Cherchez le plus haut, recevez le plus haut, créez ce qui touche le cœur. L’humanité a besoin d’être relevée et bien que j’hésite à utiliser ce mot, je peux voir que la situation a un air de désespoir et de frustration.
 

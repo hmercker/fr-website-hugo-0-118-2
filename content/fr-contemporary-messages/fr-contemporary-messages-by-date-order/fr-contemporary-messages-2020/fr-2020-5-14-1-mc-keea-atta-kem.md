@@ -9,7 +9,7 @@ weight:
 ---
 ### Les lois spirituelles de la prière et de l'activation
 
-Keea Atta Kem - reçu par Maureen Cardoso le 14 Mai 2020, Abbotsford, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Maureen Cardoso le 14 Mai 2020, Abbotsford, Colombie-Britannique, Canada.
 
 C’est Keea et je suis ici avec vous. J’aimerais partager un message qui se rapporte à certaines des lois spirituelles dont vous allez discuter dans le programme de médiumnité.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Accueillir la libération de ce qui n'est pas en Harmonie
 
-Seretta Kem - reçu par Al Fike le 22 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 22 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, puisse l’Amour du Père trouver un afflux dans vos âmes, éveillant toutes les facultés et les beaux dons qui s’y trouvent. Il y a toujours du changement, âmes bien-aimées, dans la Création de Dieu. Il y a des ajustements et des recalibrages, il y a toujours une aspiration vers l’harmonie dans l’Univers de Dieu. Dans chacune de vos âmes, il y a un désir ardent d’être dans la pure Lumière dans laquelle vous avez été créés. Lorsque vous cherchez à progresser spirituellement, il y a un grand désir de libérer toutes ces choses qui ne sont pas en harmonie avec les objectifs que vous vous êtes fixés.
 

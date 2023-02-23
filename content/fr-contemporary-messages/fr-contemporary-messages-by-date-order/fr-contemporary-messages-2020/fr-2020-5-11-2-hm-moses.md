@@ -9,7 +9,7 @@ weight:
 ---
 ### Visez le plus haut
 
-Moïse - reçu par Helge Mercker le 11 Mai 2020, Elim, Namibie
+Moïse - reçu par Helge Mercker le 11 Mai 2020, Swakopmund, Namibie.
 
 C’est Moïse. Je parle et je t’apporte mon amour. Jacob est ici aussi. Nous t’apportons notre amour et nos salutations dans la prière.
 

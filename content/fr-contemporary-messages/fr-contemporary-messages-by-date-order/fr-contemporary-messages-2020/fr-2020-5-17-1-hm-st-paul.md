@@ -9,7 +9,7 @@ weight:
 ---
 ### Sur la prière
 
-St Paul - reçu par Helge Mercker le 17 Mai 2020, Elim, Namibie
+St Paul - reçu par Helge Mercker le 17 Mai 2020, Swakopmund, Namibie.
 
 Oui, c’est Paul et je désire écrire.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaissance de la vérité
 
-Martin Luther - reçu par Helge Mercker le 15 Mai 2020, Elim, Namibie
+Martin Luther - reçu par Helge Mercker le 15 Mai 2020, Swakopmund, Namibie.
 
 Bonjour ma chère fille, Martin Luther te salue.
 

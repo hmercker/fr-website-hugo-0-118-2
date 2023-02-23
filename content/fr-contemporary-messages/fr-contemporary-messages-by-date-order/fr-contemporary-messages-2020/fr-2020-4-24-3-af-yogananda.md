@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouvrez-vous en permettant à la vérité de pénétrer en vous
 
-Yogananda - reçu par Al Fike le 24 Avril 2020, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 24 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous autres voyageurs sur ce Chemin Divin. Je suis Yogananda. Alors que les vagues de l’Amour de Dieu déferlent sur les rivages de vos âmes, puissiez-vous continuer à accueillir ce cadeau. Puissent ces eaux vivantes se déverser dans vos âmes par les fissures et les crevasses créées par vos prières et vos efforts pour accueillir Dieu dans votre vie, votre conscience. Tout le temps que vous passez dans votre monde, une vie est si courte et pourtant dans cette vie il y a tant de potentiel et de possibilité d’éveiller tous vos dons, toutes vos capacités à vous connaître en relation avec le grand Univers de Dieu. Que l’Amour soit votre talisman, votre façon d’exprimer votre vie. Que vous puissiez choisir ces compréhensions plus profondes de l’âme pour être conscient et vous exprimer magnifiquement dans tout ce que vous faites dans la vie.
 

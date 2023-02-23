@@ -1,7 +1,7 @@
 ---
-title: "L'Amour de Dieu est le catalyseur "
+title: "L'Amour de Dieu est le catalyseur"
 menu_title: ""
-description: "L'Amour de Dieu est le catalyseur "
+description: "L'Amour de Dieu est le catalyseur"
 date: 2022-06-01 06:00:01+00:1119
 draft: False
 hidden: True
@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu est le catalyseur
 
-Confucius - reçu par Helge Mercker le 25 Mai 2020, Elim, Namibie
+Confucius - reçu par Helge Mercker le 25 Mai 2020, Swakopmund, Namibie.
 
 Mon petit oiseau, ma fille, je suis ici avec toi. Je suis Confucius.
 
