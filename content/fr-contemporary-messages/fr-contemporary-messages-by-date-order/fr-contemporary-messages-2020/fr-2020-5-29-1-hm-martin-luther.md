@@ -9,7 +9,7 @@ weight:
 ---
 ### Une salutation
 
-Martin Luther - reçu par Helge Mercker le 29 Mai 2020, Elim, Namibie
+Martin Luther - reçu par Helge Mercker le 29 Mai 2020, Swakopmund, Namibie.
 
 Ma fille, je suis là, Martin Luther.
 

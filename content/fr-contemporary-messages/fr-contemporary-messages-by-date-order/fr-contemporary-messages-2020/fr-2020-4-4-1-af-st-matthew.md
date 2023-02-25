@@ -9,7 +9,7 @@ weight:
 ---
 ### Des moyens nouveaux et créatifs s'ouvriront pour servir alors que les changements terrestres se poursuivent
 
-St Matthieu - reçu par Al Fike le 4 Avril 2020, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 4 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes, je suis Matthieu. Ne voyez-vous pas que Dieu vous offre chaque jour de grandes possibilités de servir ; que même si les structures de votre monde changent, que même si les conditions changent chaque jour, cela n’exclut pas les possibilités que Dieu a placées devant vous ? Il vous est donné de grandes opportunités, mes chers et beaux amis, de servir Dieu de nombreuses manières. Beaucoup sont impatients d’entendre vos paroles, d’être disponibles pour la prière et l’enseignement, pour le réconfort et la guérison, et vos distances, la distance physique entre vous et ceux qui doivent être servis, n’ont aucune importance. Vous pouvez servir Dieu malgré ces distances. Vous pouvez entrer dans le flux de la volonté de Dieu, en exécutant sa volonté, en étant un canal d’amour dans le monde, peu importe où vous êtes ou les circonstances auxquelles vous faites face dans votre vie, tant que vous placez avant tout votre désir de servir Dieu, de servir l’humanité. Ainsi, Dieu trouvera un moyen de faire circuler ces bénédictions prévues, afin que vos dons puissent s’accroître et être utilisés au profit de beaucoup.
 

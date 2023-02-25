@@ -9,7 +9,7 @@ weight:
 ---
 ### Explication de la manière dont les chakras sont utilisés dans la communication de l'esprit
 
-Yogananda - reçu par Jimbeau Walsh le 3 Avril 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 3 Avril 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami, Yogananda. Je viens dans la grâce de l’Amour de Dieu. Je suis avec Aigle Blanc et François. Ils sont mes frères. Aigle Blanc va, à un moment donné, vous parler du rassemblement des tribus et de sa véritable signification. François souhaite vous faire part de l’alignement entre les anges et la prière et de son expérience. Nous avons décidé aujourd’hui que je devrais parler.
 

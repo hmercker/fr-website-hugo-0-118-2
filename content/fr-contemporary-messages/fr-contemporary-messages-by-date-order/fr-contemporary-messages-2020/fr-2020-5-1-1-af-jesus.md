@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre âme a le potentiel de s'épanouir comme une brindille nue
 
-Jésus - reçu par Al Fike le 1 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Enfants de Dieu, je suis avec vous. Je suis Jésus. Chacun d’entre vous est béni par de nombreux dons et chacun d’entre vous est impatient d’expérimenter les bénédictions de la connaissance de son vrai moi manifesté dans le monde. Chacun de vous souhaite servir Dieu et le faire de la manière la plus élevée et la plus belle dont il est capable. Chacun d’entre vous sait que Dieu a un profond désir de réveiller vos âmes, de vous amener dans le grand flux de Son Amour et de Sa Volonté en servant vos frères et sœurs dans l’Amour.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Apportez la paix, le confort, l'amour et la guérison en tant que canaux de Dieu
 
-Augustin - reçu par Al Fike le 11 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 11 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre maître Augustin. Là où il y a des conflits, puissiez-vous semer la paix. Là où il y a de la souffrance et de la solitude, puissiez-vous semer les bénédictions de Dieu comme un canal d’amour pour apporter du réconfort. Âmes bien-aimées, vous pouvez faire beaucoup pour apporter la paix et le confort, l’amour et la guérison en tant que canaux de Dieu dans le monde. Alors que vous priez, puissiez-vous être inspirés. Puissiez-vous marcher sur cette Terre en tant que canal de Lumière et d’Amour. Puissiez-vous continuer à rechercher la guidance de Dieu et la guidance de vos anges amis. Puissiez-vous continuer à trouver l’unité entre vous dans vos efforts pour être des lumières dans le monde, que le grand pouvoir de l’Amour de Dieu continue à unifier les âmes entre elles, apportant l’harmonie entre vous. Bien que vous ayez chacun vos vies uniques, vos expériences et perspectives uniques, il y a dans votre âme un grand lien d’amour, l’un envers l’autre, et un grand et profond désir d’être dans la Grâce de Dieu. Cherchez à être dans cette Grâce, âmes bien-aimées, à être dans vos âmes afin que vous compreniez que ce dont je parle est vrai et clair pour vous, que l’éveil de vos âmes pour recevoir ce Grand Don de l’Amour de Dieu apportera ces réalisations, cette paix, cette harmonie et cette unité dans vos vies, avec des effets et des expressions de l’âme toujours plus forts.
 

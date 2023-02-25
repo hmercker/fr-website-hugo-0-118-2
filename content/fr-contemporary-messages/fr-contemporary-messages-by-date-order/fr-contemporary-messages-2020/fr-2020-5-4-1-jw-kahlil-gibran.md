@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous avez trouvé le joyau de l’amour de Dieu
 
-Kahlil Gibran - reçu par Jimbeau Walsh le 4 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+Kahlil Gibran - reçu par Jimbeau Walsh le 4 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Khalil Gibran. Je reviens afin de poursuivre mon intervention par amour pour vous tous et par admiration. J’ai déclaré qu’il y a de nombreux dons dans ce cercle et dans votre communauté et que chacun a quelque chose d’unique par rapport à son âme à donner, à servir, à partager. Certains ont parcouru de nombreux chemins, d’autres se sont accrochés à une voie plus traditionnelle reflétant souvent leur famille, peut-être leur ethnie, une croyance plus orthodoxe, mais chacun a trouvé ce joyau de l’Amour de Dieu et chacun a une vision du monde changée par cet Amour. Vous pouvez croire que vous n’avez pas l’expérience nécessaire pour partager votre voyage, mais que vous ayez la vue d’un mur de briques ou d’un chemin de jardin, d’une nuit sombre, d’un matin glorieux, d’une cellule de prison, ou que vous couriez sur la plage, en marchant dans les bois, toutes ces vues sont maintenant capables de regarder un chemin Céleste alors que vous marchez vers le futur avec ce don dans vos âmes.
 

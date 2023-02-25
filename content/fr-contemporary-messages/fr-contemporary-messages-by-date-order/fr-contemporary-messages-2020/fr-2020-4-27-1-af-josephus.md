@@ -9,7 +9,7 @@ weight:
 ---
 ### Le libre arbitre et son impact sur la Terre (Collection générale 2020)
 
-Flavius Josèphe - reçu par Al Fike le 27 Avril 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 27 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite donner un message à tous ceux qui sont prêts à écouter. Il a pour thème le libre arbitre et le fait que Dieu n’interfère pas dans la vie des hommes. Dieu ne manipule pas les âmes individuelles, les mortels dans votre monde, car le faire serait contredire la loi du libre arbitre.  Chaque individu dans votre monde a le privilège d’avoir la possibilité de faire ses propres choix, des choix qui parfois contredisent les lois de la création. L’humanité, plus que toutes les autres créatures de votre monde, a ce don et peut agir librement dans le monde. Ainsi, les conditions de votre monde sont créées par l’humanité. L’humanité a carte blanche, bien qu’elle soit toujours soumise aux lois de la création telles que la loi de cause à effet. Cependant, l’homme est libre de se déplacer, d’agir, d’être dans le monde sans l’intervention de Dieu.
 

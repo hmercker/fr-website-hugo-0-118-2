@@ -9,7 +9,7 @@ weight:
 ---
 ### Profitez des temps qui vous sont donnés (Atelier de médiumnité 2020)
 
-Augustin - reçu par Al Fike le 25 Avril 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 25 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. Vous avez une grande opportunité en ce moment dans vos vies de vous concentrer davantage sur vos communications et votre compréhension, vos connexions avec votre âme, puisque vos vies sont devenues plus calmes, moins engagées dans le monde matériel en dehors de vos maisons et de votre cercle plus restreint. Ce calme est un grand avantage pour vos explorations de l’âme, vous donnant du temps pour prier, pour contempler, pour être avec Dieu, pour être avec vos propres pensées et pour être en harmonie avec Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chemin de l'Amour de Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 6 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 6 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère François. Je suis attiré par vos prières, attiré par les désirs de vos âmes, je viens pour vous bénir et pour être avec vous dans l’Amour du Père. Lorsque ma vie est devenue simple, tout a été découvert en grâce pour mon âme et pour mes frères et sœurs qui ont suivi le chemin simple de la prière. Mais qu’il soit dit que nous étions un groupe des plus joyeux. Nous avons chanté, joué et apprécié la création de Dieu – les fleurs, la beauté, les animaux et la campagne. Oui, nous étions sur le chemin naturel et nous étions aussi sur le chemin de l’Amour de Dieu.
 

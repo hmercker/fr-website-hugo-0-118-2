@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité doit être expérimentée par l'âme
 
-Augustin - reçu par Helge Mercker le 24 Avril 2020, Elim, Namibie
+Augustin - reçu par Helge Mercker le 24 Avril 2020, Swakopmund, Namibie.
 
 Je te salue en cette heure matinale, c’est ton ami et maître Augustin.
 

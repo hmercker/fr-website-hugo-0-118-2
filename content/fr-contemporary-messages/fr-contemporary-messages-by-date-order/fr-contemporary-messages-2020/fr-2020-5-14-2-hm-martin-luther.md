@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragements pour le Cercle des Sept
 
-Martin Luther - reçu par Helge Mercker le 14 Mai 2020, Elim, Namibie
+Martin Luther - reçu par Helge Mercker le 14 Mai 2020, Swakopmund, Namibie.
 
 Martin Luther te salue. Je viens t’apporter mon amour et mon souhait que nous puissions nous écrire.
 

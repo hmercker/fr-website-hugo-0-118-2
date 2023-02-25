@@ -9,7 +9,7 @@ weight:
 ---
 ### Le livre de l'âme
 
-Augustin - reçu par Helge Mercker le 18 Mai 2020, Elim, Namibie
+Augustin - reçu par Helge Mercker le 18 Mai 2020, Swakopmund, Namibie.
 
 Enfant bien-aimé, je suis ici, ton maître Augustin.
 

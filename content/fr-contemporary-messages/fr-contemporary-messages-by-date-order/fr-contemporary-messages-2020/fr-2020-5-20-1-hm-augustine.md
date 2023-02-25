@@ -9,7 +9,7 @@ weight:
 ---
 ### Une Salutation Matinale
 
-Augustin - reçu par Helge Mercker le 20 Mai 2020, Elim, Namibie
+Augustin - reçu par Helge Mercker le 20 Mai 2020, Swakopmund, Namibie.
 
 Ma fille, c’est un bon moment pour écrire car tu es dans un état réceptif et ouvert à recevoir mes paroles.
 

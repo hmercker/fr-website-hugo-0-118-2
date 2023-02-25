@@ -9,7 +9,7 @@ weight:
 ---
 ### Mentalement vous pouvez créer une barrière entre vous et Dieu
 
-Joseph - reçu par Al Fike le 6 Avril 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 6 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Amis bien-aimés, que la grande Lumière et l’Amour de Dieu soient votre cadeau à votre âme. Je suis Joseph et je viens prier avec vous, mes amis. Je viens pour être dans ce Cercle de Lumière que vous avez créé par vos prières. Même si vous vous trouvez dans des endroits très éloignés, vous avez créé ensemble quelque chose d’uni, de puissant et de beau qui reflète la lumière de vos âmes.
 

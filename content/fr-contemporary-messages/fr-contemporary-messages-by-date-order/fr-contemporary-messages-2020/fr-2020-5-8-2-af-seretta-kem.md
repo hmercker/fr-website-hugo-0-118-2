@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment le mental interprète les événements par rapport à l'âme
 
-Seretta Kem - reçu par Al Fike le 8 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 8 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, enfants de la Grâce et de l’Amour de Dieu qui viennent prier ensemble, je suis Seretta Kem et je suis venue vous parler d’un sujet important : *« Comment discerner entre la compréhension mentale d’une expérience spirituelle et celle de l’âme. »*
 

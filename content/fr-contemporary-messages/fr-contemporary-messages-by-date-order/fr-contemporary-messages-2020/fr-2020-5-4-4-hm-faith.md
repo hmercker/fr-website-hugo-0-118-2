@@ -9,7 +9,7 @@ weight:
 ---
 ### Salutations de Faith (Atelier de la médiumnité 2020)
 
-Faith - reçu par Helge Mercker le 4 Mai 2020, Elim, Namibie
+Faith - reçu par Helge Mercker le 4 Mai 2020, Swkopmund, Namibie.
 
 Oui, ma fille, c’est la Foi. Je n’ai pas communiqué depuis longtemps et je souhaite faire connaître ma présence comme tu souhaites écrire nos paroles. Je salue ton enthousiasme et ton dévouement à ce travail, car j’ai hâte de communiquer avec toi sur Terre, et je te remercie d’avoir fait part de ton désir. Par le désir de ton âme pour l’Amour du Père, de nombreuses énergies sont activées. L’une d’entre elles est notre réponse, notre désir de te soutenir sur Terre dans tes prières, dans ton dévouement à notre Père Céleste. Nous sommes attirés par une âme qui cherche l’Amour du Père avec un désir sincère et qui désire ardemment être en compagnie du soutien du Ciel.
 

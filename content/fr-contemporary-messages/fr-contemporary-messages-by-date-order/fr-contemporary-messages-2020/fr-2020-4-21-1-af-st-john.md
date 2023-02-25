@@ -9,7 +9,7 @@ weight:
 ---
 ### Prenez un engagement profond pour aspirer à l'amour de Dieu
 
-St Jean - reçu par Al Fike le 21 Avril 2020, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 21 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Jean le Bien-aimé. Certains d’entre vous me connaissent bien, d’autres non, mais je vous connais tous très bien, tout comme de nombreux anges Célestes du Ciel connaissent vos âmes lumineuses. Nous sommes venus parce que vous avez aspiré et désiré le grand cadeau de l’Amour de Dieu. Nous demandons à chacun d’entre vous de s’engager profondément dans ce désir, dans ce réveil de l’âme dont nous parlons si souvent. Plus votre engagement est profond, plus votre désir est fort, plus vous passez de temps de contemplation et de prière à considérer la Vérité de Dieu et l’Amour de Dieu, afin que vous soyez profondément bénis, que vos questions trouvent des réponses, que l’Amour coule.
 

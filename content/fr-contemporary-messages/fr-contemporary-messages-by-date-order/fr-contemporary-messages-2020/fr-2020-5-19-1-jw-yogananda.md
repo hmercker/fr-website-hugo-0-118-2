@@ -9,7 +9,7 @@ weight:
 ---
 ### Les pensées deviennent des choses
 
-Yogananda - reçu par Jimbeau Walsh le 19 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 19 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Yogananda, votre frère et ami dans l’amour de Dieu – une âme transformée. Le monde est rempli de connaissances et il est vrai que les pensées deviennent des choses, peu importe que la pensée soit reçue en esprit ou que la pensée soit inspirée par l’esprit.
 

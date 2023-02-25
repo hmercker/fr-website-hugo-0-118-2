@@ -1,15 +1,15 @@
 ---
-title: "Dieu souhaite que tous nos dons d'âme s'épanouissent "
+title: "Dieu souhaite que tous nos dons d'âme s'épanouissent"
 menu_title: ""
-description: "Dieu souhaite que tous nos dons d'âme s'épanouissent "
+description: "Dieu souhaite que tous nos dons d'âme s'épanouissent"
 date: 2022-06-01 06:00:01+00:1059
 draft: False
 hidden: True
 weight:
 ---
-### Dieu souhaite que tous nos dons d'âme s'épanouissent 
+### Dieu souhaite que tous nos dons d'âme s'épanouissent
 
-St Luc - reçu par Al Fike le 12 Avril 2020, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 12 Avril 2020, Gibsons, Colombie-Britannique, Canada.
 
 Enfants bien-aimés de Dieu, je suis Luc. Je suis venu vous parler de la nouvelle vie qui est tout autour de vous, âmes bien-aimées, et en vous. Dans vos régions du monde, une vie nouvelle émerge de la terre, renouvelant la promesse de Dieu à chacun de vous d’apporter beauté, chaleur, nourriture et toutes choses qui sont bonnes et de lumière ; le miracle de la création de Dieu dans votre monde se révèle à chaque saison, à chaque fois que vous célébrez l’arrivée d’un temps nouveau dans votre monde, un nouvel éveil. Avec chaque jour qui passe, Dieu dépose dans votre âme davantage de Sa bénédiction d’amour, c’est donc un renouvellement, une ouverture et une expansion de vos âmes dans le Grand Don de Dieu de Son Amour.
 
@@ -17,7 +17,7 @@ Le monde se renouvelle, vos âmes se renouvellent, la vie continue d’apporter 
 
 Le but même de votre existence, âmes bien-aimées, est d’exprimer les grandes puissances créatrices de Dieu, d’apporter une nouvelle vie à l’univers. En tant que canaux de Dieu, vous apportez une plus grande lumière. En tant qu’une des âmes de Dieu qu’il a créées, vous apportez les expressions uniques de votre grande âme. Dans vos vies, vous apportez la créativité, vous apportez une touche de nouveauté à votre monde, vous vous exprimez avec de nombreux dons, vous vous exprimez avec toutes les capacités et facultés de votre esprit et de votre âme. C’est ce que Dieu souhaite pour chacun d’entre vous, mes bien-aimés, que cette grande puissance créative de votre être, cette belle expression de vos âmes, cet émerveillement qu’est la créativité de vos esprits, ce que vous pouvez faire avec vos corps physiques, comment vous pouvez exprimer les canaux de lumière, de guérison et d’amour à travers vos corps spirituels, et toutes les choses qui sont en alignement avec Dieu, exprimées et manifestées dans vos vies.
 
-Ce sont les vœux de Dieu pour chacun d’entre vous, âmes bien-aimées, pour que vos vies, votre monde, vos expressions, votre conscience, vos dons magnifiques de l’âme puissent tous s’épanouir et s’exprimer dans toute leur merveille et leurs capacités dans le monde. Cela apporte le renouveau, cela apporte la lumière, cela apporte une plus grande harmonie au monde. Et pour vous, mes chers et beaux amis, vous avez un grand potentiel alors que vous continuez à vous éveiller à l’Amour de Dieu, alors que Son Amour continue à se déverser toujours plus abondamment dans vos âmes. Ainsi, toutes ces choses sont rendues possibles Comme l’a dit le frère bien-aimé, Jésus a encouragé tout le monde à marcher dans le monde comme il a marché dans le monde ; à être ce canal d’amour dans le monde comme il a été un magnifique canal d’amour et l’est encore en ce moment même. 
+Ce sont les vœux de Dieu pour chacun d’entre vous, âmes bien-aimées, pour que vos vies, votre monde, vos expressions, votre conscience, vos dons magnifiques de l’âme puissent tous s’épanouir et s’exprimer dans toute leur merveille et leurs capacités dans le monde. Cela apporte le renouveau, cela apporte la lumière, cela apporte une plus grande harmonie au monde. Et pour vous, mes chers et beaux amis, vous avez un grand potentiel alors que vous continuez à vous éveiller à l’Amour de Dieu, alors que Son Amour continue à se déverser toujours plus abondamment dans vos âmes. Ainsi, toutes ces choses sont rendues possibles Comme l’a dit le frère bien-aimé, Jésus a encouragé tout le monde à marcher dans le monde comme il a marché dans le monde ; à être ce canal d’amour dans le monde comme il a été un magnifique canal d’amour et l’est encore en ce moment même.
 
 L’invitation de Dieu est que toutes les portes soient ouvertes, que toutes les possibilités soient réalisées, que tout ce qui est dans la vie soit exprimé dans sa plénitude, sa richesse et sa beauté. Alors, chaque jour, je vous invite à envisager les possibilités, les capacités que vous portez, à les réaliser, à les exprimer, à les élever et à les transformer, en vous rapprochant de Dieu, en demandant à Dieu de vous guider chaque jour, en demandant à Dieu de vous bénir chaque jour, en demandant à Dieu d’ouvrir vos yeux pour que vous puissiez voir tout ce dont vous êtes capable et tout ce qui se trouve dans la richesse de la vie. Lorsque vos yeux s’ouvrent, âmes bien-aimées, vous ressentirez alors une joie et connaîtrez l’émerveillement de la vie. Que ces réalités viennent à vous, s’ouvrant à chaque pas, à chaque souffle, à chaque prière, s’ouvrant et s’éveillant dans toute sa gloire, alors que vous consacrez votre vie à Dieu et que Dieu vous a dédié son expression et la création de l’univers pour que vous puissiez vivre une vie, avoir une existence pour toute l’éternité dans l’émerveillement qu’est la création de Dieu.
 

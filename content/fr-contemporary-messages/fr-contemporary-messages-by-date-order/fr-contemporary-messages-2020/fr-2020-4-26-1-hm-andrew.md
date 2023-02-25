@@ -9,7 +9,7 @@ weight:
 ---
 ### Servir dans le réseau de l'amour (Collection générale 2020)
 
-André - reçu par Helge Mercker le 26 Avril 2020, Elim, Namibie
+André - reçu par Helge Mercker le 26 Avril 2020, Swakopmund, Namibie.
 
 Chère fille, je désire écrire et passer ce temps de prière avec toi et parler de l’établissement du portail à cet endroit. Beaucoup d’aide et de travail de notre part ont été apportés pour établir les nombreuses ouvertures d’amour et de lumière pour atteindre votre monde de la terre. Le flux puissant d’amour et d’énergies de guérison et de purification à travers ces avenues est un bénéfice pour tous dans les environs et les zones environnantes. Nous cherchons à ouvrir davantage de portails, en connectant et en formant le réseau d’amour et de lumière qui enveloppe la terre entière. De plus en plus, ce tissage du réseau nécessite l’engagement d’âmes dévouées qui vivent dans le flux et le dévouement à notre Père Céleste, s’engageant dans leurs désirs de suivre Sa volonté et souhaitant aider à apporter le salut à tous les peuples. Car n’est-ce pas l’Amour du Père qui nous propulse vers l’avant pour servir Son désir ? En se conformant à cette force d’amour en action, l’âme s’élargit, désireuse de s’étendre toujours plus loin.
 

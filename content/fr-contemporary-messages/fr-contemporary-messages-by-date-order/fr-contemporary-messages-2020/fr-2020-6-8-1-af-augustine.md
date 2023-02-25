@@ -9,7 +9,7 @@ weight:
 ---
 ### L'expérience de la croissance de l'âme
 
-Augustin - reçu par Al Fike le 8 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 8 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant Augustin. J’entends ta prière, fille bien-aimée, j’entends tes préoccupations et ton désir d’une plus grande vérité et d’une meilleure compréhension du voyage de l’âme qui s’éveille dans l’Amour Divin. Comme tu le sais, chaque individu a son propre voyage à cet égard. Leurs expériences leur sont uniques. Leurs âmes sont une création unique de Dieu. Leurs corps, leurs esprits, leurs dons psychiques, leurs dons de raisonnement et les nombreuses autres facultés et dons de chaque individu sur votre plan terrestre constituent une expérience et un voyage uniques. Il est donc insensé de se comparer aux autres. Désirer des dons et des expériences spécifiques que d’autres possèdent est humain. Et pourtant, comme tu l’as expérimenté dans ta vie, chère fille (J), tes dons ne sont pas les mêmes que ceux de ton compagnon bien-aimé, ni ceux de tout autre individu dans le monde. Ainsi, ton voyage a été unique et tu peux témoigner de ce caractère unique et individuel.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Toutes les bonnes choses de Dieu et en harmonie resteront (2020 FUSC)
 
-Marc - reçu par Al Fike le 2 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 2 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénies, âmes bien-aimées, de ce grand confort, de cette paix et de cet amour. Je suis Marc et je suis venu vous assurer que votre église restera debout, que ceux d’entre vous qui font partie de cette communauté continueront à être bénis et que toutes les bonnes réalités qui sont de Dieu, bénies par Dieu et en harmonie avec les lois de la création de Dieu, resteront et seront renforcées dans les temps à venir. Et toutes ces réalités qui sont de l’homme et qui reflètent les appétits les plus bas de l’homme doivent être neutralisées et mises en harmonie avec l’amour. Votre monde est en train de changer et bien que vous puissiez vous sentir menacés et mal à l’aise face à ces changements et à ces conditions qui reflètent le déséquilibre de votre monde, ce qui vient est un temps de paix véritable, un temps où la paix sera suprême dans votre monde et perdurera pendant de très nombreux siècles. N’est-ce pas là quelque chose que vous souhaiteriez tous, un monde qui a été ramené à un lieu d’harmonie et d’équilibre, un monde dans lequel l’humanité sera motivée par l’amour, la compassion, la sagesse et s’honorera mutuellement avec la grâce de l’amour.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Portez l'amour dans vos âmes
 
-Eileen Caddy - reçu par Jimbeau Walsh le 24 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 24 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Eileen. J’ai suivi votre conversation et croyez-moi, je peux sentir les intentions de vos cœurs et de vos âmes. Ce souhait que vous avez de vous connecter à mon bien-aimé Findhorn est le résultat du fait que je vous ai demandé d’y apporter l’Amour de Dieu. Ce n’est pas si éloigné que vous pourriez l’imaginer.
 

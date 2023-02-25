@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement
 
-Martin Luther - reçu par Helge Mercker le 6 Mai 2020, Elim, Namibie
+Martin Luther - reçu par Helge Mercker le 6 Mai 2020, Swakopmund, Namibie.
 
 Ma fille, je suis ici pour écrire. Je te salue en cette heure de prière et de communion avec notre Père, ce temps de réflexion sur des sujets spirituels. Je suis Martin Luther, ton professeur et ton guide. Je suis venu pour partager mon amour et pour prier avec toi, pour t’embrasser dans cette lumière de l’Amour de Dieu, me sentant toujours si proche de Son Toucher.
 

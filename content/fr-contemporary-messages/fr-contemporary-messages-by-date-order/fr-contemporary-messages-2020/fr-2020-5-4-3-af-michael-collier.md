@@ -9,7 +9,7 @@ weight:
 ---
 ### La loi d'activation est activée par la prière
 
-Michaël Collier - reçu par Al Fike le 4 Mai 2020, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 4 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 
 Salutations de l'autre côté du voile. Je suis Michaël Collier et je ne vous ai pas parlé depuis un certain temps, mais les prières de ma chère sœur m'ont amené dans votre Cercle. Je suis heureux de vous parler aujourd'hui de sujets spirituels.
 

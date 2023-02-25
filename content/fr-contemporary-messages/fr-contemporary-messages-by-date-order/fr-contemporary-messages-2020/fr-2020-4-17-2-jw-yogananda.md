@@ -9,7 +9,7 @@ weight:
 ---
 ### La joie de recevoir l'Amour de Dieu est éternelle
 
-Yogananda - reçu par Jimbeau Walsh le 17 Avril 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 17 Avril 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Yogananda. Je souhaite compléter la belle description, par le Maître, de l’âme en relation avec son Créateur. Je vais utiliser l’exemple de la passion amoureuse, de l’amour humain. Vous êtes prêt à donner tout votre cœur parce que vous êtes si amoureux. Puis, peut-être, vous découvrez que l’objet de votre affection ressent la même chose. Vous remerciez Dieu. Vous remerciez votre bonne étoile. Vous êtes prêt à bondir et vous pensez que vous pourriez le faire. Quelle joie ! Vous avez l’impression que tout votre être bourdonne.
 

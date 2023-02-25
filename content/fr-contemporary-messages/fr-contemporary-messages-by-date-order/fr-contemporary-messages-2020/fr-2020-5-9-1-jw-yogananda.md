@@ -9,7 +9,7 @@ weight:
 ---
 ### Avancer dans le monde avec Amour
 
-Yogananda - reçu par Jimbeau Walsh le 9 Mai 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 9 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Yogananda.
 
