@@ -22,7 +22,7 @@ Dans le lieu où je vis, il n’y a pas de temps ou de limite, dans un maintenan
 Je suis votre sœur dans le Christ et je suis heureuse d’être votre guide si vous le souhaitez. Je suis Elizabeth Barrett Browning et je vous remercie.
 <small>
 
-<large id=”f1”>A travers les Brumes par Robert J. Lees – Chapitre 17 [https://new-birth.net/media/cms_page_media/220/Through_the_Mists_May_2021.pdf].[↩](#a1)
+1. <large id=”f1”>A travers les Brumes par Robert J. Lees – Chapitre 17 [https://new-birth.net/media/cms_page_media/220/Through_the_Mists_May_2021.pdf].[↩](#a1)
 
 
 **Elizabeth Barrett Browning**, est née le 6 Mars 1806 à Coxhoe Hall, dans le comté de Durham. Elle est décédée le 29 Juin 1861 à Florence, est une poétesse, essayiste et pamphlétaire britannique de l’ère victorienne. (Wikipédia)

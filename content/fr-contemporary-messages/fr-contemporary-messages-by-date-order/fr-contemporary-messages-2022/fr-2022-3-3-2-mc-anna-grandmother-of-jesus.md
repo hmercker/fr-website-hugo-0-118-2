@@ -11,7 +11,7 @@ weight:
 
 Anna (Grand mère de Jésus) - reçu par Maureen Cardoso le 3 Mars 2022, Abbotsford, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/roses-rouges.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/roses-rouges.webP)
 
 C’est moi Anna. Que Dieu vous bénisse tous et que la Grâce de l’Amour de Dieu vous touche profondément. Alors que nous passons ce temps ensemble, je me tiens devant vous avec un cadeau que je vous demande de recevoir. Je vous offre le cadeau d’une rose rouge qui est ma propre griffe. Puissiez-vous recevoir cette rose dans la forme la plus élevée qui soit, remplie de l’Essence Divine, de la Lumière, du souffle, de la grâce et du Toucher de Dieu. Que cette bénédiction repose dans votre cœur afin que votre cœur puisse être guéri ; que les tons de votre âme puissent vibrer en chantant Sa gloire et Ses louanges à l’éveil qu’elle a expérimenté jusqu’à présent.
 

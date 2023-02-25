@@ -11,7 +11,7 @@ weight:
 
 Yogananda - reçu par Jimbeau Walsh le 31 Mai 2022, Nashville, TN, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-17.jpeg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-17.jpg)
 
 Mes chers frères et sœurs, que la lumière de l’Amour de Dieu remplisse vos âmes et vous apporte la légèreté de l’être alors que vous laissez partir le poids du monde. Permettez à l’Amour de Dieu de vous élever et de vous débarrasser de tous ces bagages qui vous semblaient vous garder en sécurité.
 

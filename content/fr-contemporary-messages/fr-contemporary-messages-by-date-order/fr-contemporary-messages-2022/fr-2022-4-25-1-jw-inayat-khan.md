@@ -26,6 +26,6 @@ Je vous souhaite toute harmonie, toute guérison et toute élévation, dans l’
 Je suis votre frère en chanson, votre ami musicien, Inayat Khan. Que la paix de Dieu soit sur vous et que son amour remplisse vos âmes.
 <small>
 
-<large id=”f1”>Un frère de l’Amour Divin qui était très malade à l’hôpital.[↩](#a1)
+1. <large id=”f1”>Un frère de l’Amour Divin qui était très malade à l’hôpital.[↩](#a1)
 
 

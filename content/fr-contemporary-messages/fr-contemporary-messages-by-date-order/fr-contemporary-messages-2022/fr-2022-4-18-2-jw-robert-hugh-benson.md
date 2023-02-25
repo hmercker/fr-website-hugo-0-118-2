@@ -11,7 +11,7 @@ weight:
 
 Robert Hugh Benson - reçu par Jimbeau Walsh le 18 Avril 2022, Nashville, TN, USA.            
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-27.jpeg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-27.jpg)
 
 Je suis ici votre frère et ami dans le Christ, Robert Hugh Benson. Certains d’entre vous me connaissent peut-être comme monseigneur, ce qui était mon poste sur terre. D’autres savent que j’étais écrivain et, qu’en tant que clerc, j’ai écrit, avec conviction, beaucoup de choses qui contenaient beaucoup d’erreurs, beaucoup d’orgueil de la part de la puissance intellectuelle de mon esprit qui souhaitait convaincre les autres que ceci était vrai et que cela était faux, que cela était bien et que cela était mal. Et pourtant, mon âme avait en fait faim de vérité, et lorsque j’ai quitté ma position religieuse, j’ai écrit de la science-fiction basée sur mes convictions, si je puis dire, et j’ai connu un certain succès en tant qu’écrivain.
 
@@ -28,6 +28,6 @@ Donc, sachez encore une fois que lorsque vous dites la vérité dans l’amour, 
 Merci d’avoir pris mon message mon frère et de m’avoir permis de me présenter à ceux qui ne me connaissent pas. Je reviendrai car ce merveilleux cercle de lumière m’a attiré. Ainsi, avec tout l’amour, l’amour de mon âme et les bénédictions de nous tous ici, je vais me retirer dans la prière pour que Dieu puisse bénir chacun d’entre vous avec une douche du don glorieux de Son amour. Que Dieu vous bénisse tous. Je suis votre frère dans le Christ, Robert Hugh Benson.
 <small>
 
-<large id=”f1”>Traverser dans ce contexte signifie quitter le monde physique et arriver dans le monde spirituel.[↩](#a1)
+1. <large id=”f1”>Traverser dans ce contexte signifie quitter le monde physique et arriver dans le monde spirituel.[↩](#a1)
 
  

@@ -20,7 +20,9 @@ Comme vous pouvez facilement le supposer à partir de ce que j’ai reçu, vous 
 Donc, encore une fois, je vous remercie et je souhaite vous rappeler, au cas où vous l’auriez oublié, que le royaume Céleste soutient votre travail dans ce cercle et au-delà. Alors que vous touchez légèrement les autres dans l’amour de Dieu avec votre douce lueur, vous êtes en mesure de communiquer une petite vérité ici, une petite vérité là, plantant les graines de l’immortalité alors que vous êtes encore enfermés dans votre enveloppe mortelle et votre vie sur terre. Avec tout mon amour et une grande joie, je vous remercie. Que Dieu vous bénisse et vous garde. Je suis votre frère et ami dans le Christ, Robert J. Lees.
 <small>
 
-<large id=”f1”>Lien vers ses livres : [https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#mists].[↩](#a1)
-<large id=”f2”>[Lien vers ses livres](/fr-publications-and-downloads/fr-books/).[↩](#a2)
-<large id=”f3”>Lien vers ses livres : [https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#lowlands].[↩](#a3)
+1. <large id=”f1”>Lien vers ses livres : [https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#mists].[↩](#a1)
+
+2. <large id=”f2”>[Lien vers ses livres](/fr-publications-and-downloads/fr-books/).[↩](#a2)
+
+3. <large id=”f3”>Lien vers ses livres : [https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#lowlands].[↩](#a3)
 

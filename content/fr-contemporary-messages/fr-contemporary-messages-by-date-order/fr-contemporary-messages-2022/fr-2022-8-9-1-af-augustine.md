@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### Excellent message d’enseignement sur la volonté de Dieu et la volonté de l’homme
+### Excellent message d’enseignement sur la Volonté de Dieu et la volonté de l’homme
 
 Augustin - reçu par Al Fike le 9 Août 2022, Gibsons, Colombie-Britannique, Canada.
 
-Je suis votre enseignant, Augustin. Oh, combien de mauvaises actions dans le monde sont rationalisées par l’idée que Dieu perpètre de telles choses, et quelle erreur c’est. Ces croyances remontent loin dans l’histoire de l’humanité, avec l’idée que les dieux manipulent l’humanité selon leurs caprices et leur volonté, et avec la formation de la croyance Chrétienne, que les nombreux dieux deviennent un seul dieu qui manipule l’humanité selon Ses caprices.
+Je suis votre enseignant, Augustin. Oh, combien de mauvaises actions dans le monde sont rationalisées par l’idée que Dieu perpètre de telles choses, et quelle erreur c’est. Ces croyances remontent loin dans l’histoire de l’humanité, avec l’idée que les dieux manipulent l’humanité selon leurs caprices et leur volonté, et avec la formation de la croyance Chrétienne,  les nombreux dieux sont devenus un seul dieu qui manipule l’humanité selon Ses caprices.
 
-Où le concept de libre arbitre entre-t-il en jeu ? Comment se fait-il que Dieu ait donné à l’homme le libre arbitre tout en étant manipulé par Dieu et soumis à Ses caprices ? Ce sont deux affirmations contradictoires, et l’une doit être vraie là où l’autre est fausse. Une croyance très flagrante est que Dieu a mis Son fils unique à mort afin d’apaiser la colère de Dieu et d’apporter le pardon à l’humanité. Avec cette croyance et cette perception insoutenables du sens et du but de la vie, l’idée que Jésus est mort pour les péchés de ses frères et sœurs devient un concept formidable dans l’esprit des hommes.
+Où le concept de libre arbitre entre-t-il en jeu ? Comment se fait-il que Dieu ait donné à l’homme le libre arbitre tout en étant manipulé par Lui et soumis à Ses caprices ? Ce sont deux affirmations contradictoires, et l’une doit être vraie là où l’autre est fausse. Une croyance très flagrante est que Dieu a mis Son fils unique à mort afin d’apaiser la colère de Dieu et d’apporter le pardon à l’humanité. Avec cette croyance et cette perception insoutenables du sens et du but de la vie, l’idée que Jésus est mort pour les péchés de ses frères et sœurs devient un concept formidable dans l’esprit des hommes.
 
 Pourtant, vous êtes conscient de la vérité de la question, à savoir que Jésus n’est pas mort pour les péchés de l’humanité, et qu’il n’était pas destiné à mourir pour quoi que ce soit. Il était destiné à vivre comme tous les hommes sont destinés à vivre dans le monde, une vie pleine, une vie qui offre de nombreuses opportunités et possibilités de croissance, d’éveil et de spiritualité. Tant de choses sont offertes à l’humanité sur le plan terrestre, une si grande diversité d’expériences est donnée comme un cadeau de Dieu à l’humanité.
 

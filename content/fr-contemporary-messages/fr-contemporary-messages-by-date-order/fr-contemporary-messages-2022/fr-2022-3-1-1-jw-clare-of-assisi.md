@@ -11,7 +11,7 @@ weight:
 
 Claire d'Assise - reçu par Jimbeau Walsh le 1 Mars 2022, Nashville, TN, USA.    
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-11.jpeg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-11.jpg)
 
 C’est moi, Claire. Mes chères souris, je ressens vos beaux cœurs. Je ressens les désirs que vous avez pour la paix, pour le changement, pour la sécurité et pour la transformation. Permettez à vos cœurs de s’ouvrir dans ce cercle d’amour. Permettez cette guérison en vous-mêmes et pour la terre, car des milliards de personnes envoient des prières.
 

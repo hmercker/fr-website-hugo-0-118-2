@@ -20,6 +20,6 @@ Je peux dire que nous sommes honorés que vous revisitiez ce qu'Anthony a reçu 
 Puissiez-vous apprécier ce voyage en esprit et qu'il vous donne une image de la beauté et de l'amour qui vous attendent. Je prie pour que chacun d'entre vous soit rempli de l'Amour de Dieu comme je le suis maintenant et comme le sont ceux qui sont ici et qui vous aiment et vous guident. C'est notre joie et je vous remercie de m'accorder, ainsi qu'à Anthony, ce temps. Que Dieu vous bénisse. Je suis Robert Hugh Benson.
 <small>
 
-<large id=”f1”>Robert Hugh Benson, à travers Anthony Borgia, a écrit plusieurs livres sur son expérience du monde des esprits à savoir « Life in the world unseen », « More about life in the world unseen » et « Here and Hereafter ». Ces trois livres forment une trilogie mais seulement les deux premiers ont été traduits en français sous les titres respectifs « Ma vie au Paradis » et « le Paradis retrouvé ».[↩](#a1)
+1. <large id=”f1”>Robert Hugh Benson, à travers Anthony Borgia, a écrit plusieurs livres sur son expérience du monde des esprits à savoir « Life in the world unseen », « More about life in the world unseen » et « Here and Hereafter ». Ces trois livres forment une trilogie mais seulement les deux premiers ont été traduits en français sous les titres respectifs « Ma vie au Paradis » et « le Paradis retrouvé ».[↩](#a1)
 
 

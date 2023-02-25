@@ -11,9 +11,9 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 12 Mai 2022, Durham, Royaume Uni
 
-e suis Seretta Kem. Je travaille avec votre groupe, mon fils, depuis un certain temps. Car nous travaillons avec de nombreux groupes à travers le monde, de nombreux groupes avec des idées et des philosophies et des perceptions et des interprétations différentes de la vérité spirituelle. Mais essentiellement, tous ceux qui aspirent à la lumière sont des âmes qui aspirent à la vérité. C’est ainsi que nous sommes attirés pour aider ceux qui aspirent à la vérité.
+Je suis Seretta Kem. Je travaille avec votre groupe, mon fils, depuis un certain temps. Car nous travaillons avec de nombreux groupes à travers le monde, de nombreux groupes avec des idées et des philosophies et des perceptions et des interprétations différentes de la vérité spirituelle. Mais essentiellement, tous ceux qui aspirent à la lumière sont des âmes qui aspirent à la vérité. C’est ainsi que nous sommes attirés pour aider ceux qui aspirent à la vérité.
 
-Ainsi, nous t’avons réuni avec ces amis, et nous continuerons à établir des liens, des liens d’amour, entre vous, afin que nous puissions travailler plus harmonieusement ensemble et que vous puissiez bénéficier des êtres angéliques, ceux du Royaume Céleste, pour vous aider dans votre progression.
+Ainsi, nous vous avons réuni avec ces amis, et nous continuerons à établir des liens, des liens d’amour, entre vous, afin que nous puissions travailler plus harmonieusement ensemble et que vous puissiez bénéficier des êtres angéliques, ceux du Royaume Céleste, pour vous aider dans votre progression.
 
 Vous et votre petit groupe d’amis qui cherchent à progresser dans la lumière, je vous exhorte à prendre les paroles de vérité, d’amour et de lumière comme fondement, à faire preuve de discernement quant aux personnes avec lesquelles vous pouvez avoir des rapports, et à réaliser que dans vos pensées et vos actes, il y a une réponse.
 

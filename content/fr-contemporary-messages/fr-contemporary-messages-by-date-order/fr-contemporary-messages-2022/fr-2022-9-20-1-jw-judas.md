@@ -20,7 +20,8 @@ Enfin, je dis : profitez du voyage, profitez de l’amour de Dieu, de la chaleur
 Je vous remercie et vous bénis et que Dieu vous couvre de son amour, que vous sachiez qu’il est réel et que votre âme puisse sentir le contact de l’immortalité et de la félicité. Je suis votre frère et votre ami éternel dans le Christ. Je suis Judas. Que l’Amour de Dieu soit sur toi.
 <small>
 
-<large id=”f1”>1 Corinthiens 13:11.[↩](#a1)
-<large id=”f2”>Judas de Kerioth Book page 206 sous Perfection, amour de soi et loi du Désir.[↩](#a2)
+1. <large id=”f1”>"1 Corinthiens 13:11".[↩](#a1)
+
+2. <large id=”f2”>Judas de Kerioth Book page 169 sous "Perfection, Amour de Soi et loi du Désir".[↩](#a2)
 
 

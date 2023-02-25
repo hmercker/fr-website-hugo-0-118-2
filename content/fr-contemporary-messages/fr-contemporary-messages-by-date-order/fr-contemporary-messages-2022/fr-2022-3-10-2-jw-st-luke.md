@@ -11,7 +11,7 @@ weight:
 
 St Luc - reçu par Jimbeau Walsh le 10 Mars 2022, Nashville, TN, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/st-luc-peignant-marie.jpeg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/st-luc-peignant-marie.jpg)
 
 C’est moi, Luc, votre frère et ami. Sur le chemin spirituel, lorsque quelqu’un décide de changer et de commencer à considérer le destin de son âme, à un moment donné, il se rend compte des difficultés de rester dans son âme dans le monde matériel. Il s’ensuit une grande lutte pour maintenir une connexion avec Dieu, avec les anges, pour être guidé et être en harmonie dans un monde apparemment devenu fou.
 
