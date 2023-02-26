@@ -22,6 +22,6 @@ Soyez en paix, soyez dans la joie, soyez dans l'Amour de Dieu, le plus beau cade
 Nous vous envoyons tous notre amour et nos bénédictions, chères et belles âmes aimables. Pauvres comme des rats d'église et pourtant riches Rockefeller de l'amour de Dieu. Je vous aime, vraiment je vous aime. Allez dans l'Amour et la paix de Dieu. Je suis Care.
 <small>
 
-<large id=”f1”>Le médium avait reçu des informations lors d'une prière le jour précédent.[↩](#a1)
+1. <large id=”f1”>Le médium avait reçu des informations lors d'une prière le jour précédent.[↩](#a1)
 
 

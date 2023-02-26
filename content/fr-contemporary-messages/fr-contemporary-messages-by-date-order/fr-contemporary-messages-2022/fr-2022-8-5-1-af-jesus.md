@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 5 Août 2022, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/piritualite-27.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-27.jpg)
 
 Je viens. Je suis Jésus, votre ami et votre frère qui s’empresse de parler à ceux qui ont des oreilles pour écouter, des esprits et des âmes pour recevoir et intégrer les mots que je prononce et la vérité que je partage. Que tous ceux qui cherchent la vérité découvrent la vérité dans ce que je partage avec vous et qu’ils puissent appliquer ces leçons en conséquence.
 

@@ -11,7 +11,7 @@ weight:
 
 St François d'Assise - reçu par Al Fike le 1 Février 2022, Gibsons, Colombie-Britannique, Canada.
 
-Dieu vous bénisse mes amis, je suis l'un de vos amis des Cieux Célestes. Je suis Francis, et je viens prier avec vous, comme je le fais souvent, mais je ne parle pas souvent. Car il y en a beaucoup d'autres qui remplissent cette tâche. Cependant, nous sommes tous réunis dans ce Cercle de Lumière pour prier, pour chercher à faire la volonté de Dieu et sa soumission dans le monde matériel.
+Dieu vous bénisse mes amis, je suis l'un de vos amis des Cieux Célestes. Je suis François, et je viens prier avec vous, comme je le fais souvent, mais je ne parle pas souvent. Car il y en a beaucoup d'autres qui remplissent cette tâche. Cependant, nous sommes tous réunis dans ce Cercle de Lumière pour prier, pour chercher à faire la volonté de Dieu et sa soumission dans le monde matériel.
 
 Chacun de nous cherche à être utilisé par Dieu, à apporter réconfort et guérison, à élever et inspirer, à apporter notre amour à votre monde, un monde qui a tant besoin d'amour. Je suis particulièrement heureux lorsque vous priez pour ce monde et toutes les créatures qui s'y trouvent. J'ai un lien profond avec les créatures et les créations de Dieu. J'ai toujours eu cela, et je prie souvent pour l'élévation et l'harmonie qui sont nécessaires pour ramener ce monde à l'équilibre et à la lumière.
 

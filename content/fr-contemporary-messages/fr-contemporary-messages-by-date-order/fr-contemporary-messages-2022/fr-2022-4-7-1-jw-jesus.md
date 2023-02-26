@@ -18,5 +18,5 @@ Sachez que je suis avec vous, je vous embrasse, je ne vous laisserai pas tomber.
 Que les Bénédictions de Dieu et la magnificence de Sa Grâce soient vôtres. Que vous soyez tous un avec nous comme nous sommes un en Lui – Dieu Tout-Puissant. Je suis votre frère et ami éternel, je suis Jésus. Merci, mon frère, et que Dieu te bénisse.
 <small>
 
-<large id=”f1”>En référence à : Chapitre 15, partie 2 de « Ma vie au Paradis » par Anthony Borgia que le groupe lisait..[↩](#a1)
+1. <large id=”f1”>En référence à : Chapitre 15, partie 2 de « Ma vie au Paradis » par Anthony Borgia que le groupe lisait..[↩](#a1)
 

@@ -30,6 +30,6 @@ Je vous aime tous et je vous remercie tous de prendre soin les uns des autres et
 Je suis votre sœur en Christ, votre grand-mère, votre bien-aimée, et comme nous aimons le dire, « Votre amie éternelle dans l’Amour de Dieu.» Je suis Care et je vous aime.
 <small>
 
-    <large id=”f1”>Message personnel à Michael Willey.[↩](#a1)
-    <large id=”f2”>Messages personnels à Ruth Duvall et Melissa Goyak.[↩](#a2)
+1. <large id=”f1”> Message personnel à Michael Willey.[↩](#a1)
+2. <large id=”f2”> Messages personnels à Ruth Duvall et Melissa Goyak.[↩](#a2)
 

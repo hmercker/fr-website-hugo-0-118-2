@@ -22,6 +22,6 @@ D’abord et avant tout, comme vous le savez tous, s’ouvrir à la guidance dan
 Je vous donne mon amour, dans l’Amour du Père Céleste, dans l’amour d’une mère, d’une grand-mère, d’une âme sœur, d’une sœur, d’une âme sœur. Nous partageons cela dans l’intimité de ce groupe et au-delà des frontières de celui-ci, dans les royaumes invisibles. Allez en paix, ouvrez vos cœurs, aimez le monde, que Dieu vous bénisse. Je vous aime. Je suis Care.
 <small>
 
-<large id=”f1”>« Ma vie au Paradis » par Anthony Borgia … Partie 2 Chapitre 2.[↩](#a1)
+1. <large id=”f1”>« Ma vie au Paradis » par Anthony Borgia … Partie 2 Chapitre 2.[↩](#a1)
 
 

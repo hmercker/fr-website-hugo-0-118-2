@@ -13,7 +13,7 @@ St François d'Assise - reçu par Jimbeau Walsh le 6 Juin 2022, Nashville, TN, U
 
 Je suis là, votre frère en Christ, votre ami du Royaume Céleste dans l’Amour de Dieu, je viens. Je suis François.
 
-Comment donner un sens à un monde qui semble en proie au chaos, à la guerre, à la pauvreté, à tant de colère et de peur, à tant de changements terrestres, à tant de perturbations, à tant de sans-abri, à tant d’affamés ? On peut se demander : « Comment puis-je donner un sens à tout cela ? »
+Comment donner un sens à un monde qui semble en proie au chaos, à la guerre, à la pauvreté, à tant de colère et de peur, à tant de changements terrestres, à tant de perturbations, à tant de sans-abri, à tant d’affamés ? On peut se demander : *« Comment puis-je donner un sens à tout cela ? »*
 
 Les humains sont connus pour avoir cinq sens : la vue, l’ouïe, le toucher, le goût et l’odorat. Lorsqu’un humain a une intuition ou une perception au-delà de ce qui est considéré comme « la norme » des cinq sens, on parle parfois d’un sixième sens. Les mystiques parlent du sixième chakra à partir duquel ils sont capables de percevoir les esprits, les pensées supérieures et les perceptions.
 

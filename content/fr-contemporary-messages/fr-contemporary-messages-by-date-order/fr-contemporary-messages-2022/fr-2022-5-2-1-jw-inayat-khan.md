@@ -24,6 +24,6 @@ Mais pour vous, mes chers frères et sœurs, tout ce que je demande, c’est que
 Je souhaite ajouter à l’éloquence de mon cher frère sur le chant de l’âme et souhaite simplement dire ceci. Que la danse de l’âme est le désir ardent de se libérer de la force gravitationnelle de la terre et du corps dans l’exaltation et l’amour. Dieu vous bénisse Je suis Kahlil Gibran.
 <small>
 
-<large id=”f1”>Prières pour Louie à Phoenix.[↩](#a1)
+1. <large id=”f1”>Prières pour Louie à Phoenix.[↩](#a1)
 
 

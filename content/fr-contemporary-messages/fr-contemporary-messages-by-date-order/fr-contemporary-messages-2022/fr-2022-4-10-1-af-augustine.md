@@ -11,7 +11,7 @@ weight:
 
 Augustin - reçu par Al Fike le 10 Avril 2022, La Barbade.             
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/saint-augustin.jpeg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/saint-augustin.jpg)
 
 Mes amis, je suis votre enseignant, Augustin. J’ai vécu dans le monde des esprits pendant plusieurs centaines d’années. J’ai grandi dans mon âme et j’ai progressé dans le Royaume Céleste et j’y ai réside depuis plusieurs centaines d’années. Dois-je revenir sur le plan terrestre ? Quel serait le but de ma progression, ou devrais-je dire de ma digression, vers le plan matériel ? Je n’en ai pas besoin, car mon âme est agrandie et transformée par la grande bénédiction de l’Amour Divin de Dieu. Dieu m’a souri dans l’Amour et j’ai répondu en conséquence, en recevant Son Don d’Amour. Chacun de vous a cette opportunité.
 

@@ -18,5 +18,5 @@ La connaissance et la compréhension sont les beaux cadeaux d’un esprit éclai
 Dans ce cercle d’âmes bénies, chacun d’entre vous est unique, avec des désirs profonds qui tendent la main vers Dieu et qui sont couverts d’Amour Divin dans votre prière. Alors que vous vous détachez du monde, de tous vos problèmes, de toutes vos préoccupations, l’Amour de Dieu vous élève toujours et votre âme s’élève non seulement au-dessus de votre esprit, mais aussi de ce monde, afin que vous puissiez aimer vos ennemis, que vous puissiez embrasser ceux qui sont dans les ténèbres avec une profonde empathie depuis les profondeurs de votre âme maintenant illuminée par la lumière et l’amour de Dieu. C’est votre destinée glorieuse et vous êtes bénis. Nous vous remercions pour ce choix et nous vous remercions pour cette prière. Je suis ton frère et ton ami dans le Christ, et une âme transformée dans l’Amour Divin. Je suis Judas. Que Dieu te bénisse.
 <small>
 
-<large id=”f1”>Marc 8:36.[↩](#a1)
+1. <large id=”f1”>Marc 8:36.[↩](#a1)
 

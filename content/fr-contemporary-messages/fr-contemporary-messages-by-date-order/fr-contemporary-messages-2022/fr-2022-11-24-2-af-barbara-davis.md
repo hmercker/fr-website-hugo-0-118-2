@@ -11,7 +11,7 @@ weight:
 
 Barbara Davis - reçu par Al Fike le 24 Novembre 2022, Gibsons, Colombie-Britannique, Canada.
 
-Et je vous aime. Lorna est si heureuse de vous avoir parlé et de vous faire part de ses progrès de son voyage vers la lumière, vers laquelle vous vous dirigez également. Sachez que je suis souvent avec vous tous. En effet, parce que nous avons récemment quitté ce monde de la chair, il est plus facile pour nous de comprendre et d’établir des liens avec vous alors que vous luttez dans ce monde matériel.
+Et je vous aime. Lorna est si heureuse de vous avoir parlé et de vous faire part de ses progrès, de son voyage vers la lumière, vers laquelle vous vous dirigez également. Sachez que je suis souvent avec vous tous. En effet, parce que nous avons récemment quitté ce monde de la chair, il est plus facile pour nous de comprendre et d’établir des liens avec vous alors que vous luttez dans ce monde matériel.
 
 Et nous sommes profondément honorés et bénis par Dieu d’être avec vous, de vous aider, de vous soutenir. Vous souvenez-vous lorsque je parlais de mes perceptions des autres peuples et que je partageais que mes perceptions étaient souvent vraies, et bien vous devez comprendre que lorsque vous mettez en avant votre point de vue et votre perception particulière sur ces choses, je savais et voyais et cela m’a aidé à comprendre les autres. Et mon défi était de ne pas juger, mais d’être aimante et de dire la vérité, lorsque l’occasion se présentait.
 

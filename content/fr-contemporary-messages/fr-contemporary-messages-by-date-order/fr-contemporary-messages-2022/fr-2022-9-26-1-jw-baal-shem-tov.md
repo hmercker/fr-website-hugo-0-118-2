@@ -24,7 +24,9 @@ Alors, laissez cette joie être la vôtre et chantez des louanges au Seigneur, l
 Je vous remercie de m’avoir accordé ce temps et je vais me retirer pour être dans l’Amour de Dieu avec vous et dans Sa Grâce. Et dans ma tradition, je souhaite à chacun d’entre vous une bonne et heureuse année. Faites de chaque jour un nouveau jour en renaissant dans l’amour de Dieu. Avec tout mon amour et mes bénédictions, je vous remercie. Je suis le Baal Shem Tove. Que Dieu vous bénisse !
 <small>
 
-<large id=”f1”>Le médium Al Fike a reçu un message de Moïse le jour précédent.[↩](#a1)
-<large id=”f2”>Psaumes 98, 100.[↩](#a2)
-<large id=”f3”>Du grec ekstasis qui signifie « se tenir hors de soi ».[↩](#a3)
+1. <large id=”f1”>Le médium Al Fike a reçu un message de Moïse le jour précédent.[↩](#a1)
+
+2. <large id=”f2”>Psaumes 98, 100.[↩](#a2)
+
+3. <large id=”f3”>Du grec ekstasis qui signifie « se tenir hors de soi ».[↩](#a3)
 

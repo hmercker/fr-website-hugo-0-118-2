@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 24 Août 2022, Gibsons, Colombie-Britannique, Canada.
 
-e suis venu délivrer mon avant-dernier message au monde. Grâce à nos collaborations, les âmes ont été remuées et la controverse s’est formée jusqu’à un certain point parmi ceux qui lisent et absorbent ces messages. Ce qui est important, c’est que les individus s’éveillent à la vérité et l’affirment de quelque manière que ce soit et par quelque moyen que ces messages leur permettent de le faire.
+Je suis venu délivrer mon avant-dernier message au monde. Grâce à nos collaborations, les âmes ont été remuées et la controverse s’est formée jusqu’à un certain point parmi ceux qui lisent et absorbent ces messages. Ce qui est important, c’est que les individus s’éveillent à la vérité et l’affirment de quelque manière que ce soit et par quelque moyen que ces messages leur permettent de le faire.
 
 Nous ne pouvons pas vraiment enseigner la vérité aux individus qui la recherchent. Nous leur montrons plutôt le chemin pour qu’ils trouvent la vérité par eux-mêmes. Nous n’exigeons pas la conformité aux vérités que nous enseignons, car chaque vérité est donnée par des instruments tels que celui-ci et est donc sujette aux partis pris et aux filtres de l’instrument qui entrent dans l’esprit de cet individu. Par conséquent, le canal pour apporter la vérité est limité par les capacités de l’instrument à faire passer les mots qui sont destinés et le message qui est donné.
 
