@@ -9,7 +9,7 @@ weight:
 ---
 ### Le temps est venu pour Dieu de transformer ce monde
 
-Moïse - reçu par Al Fike le 16 Juillet 2020, Gibsons, Colombie-Britannique, Canada
+Moïse - reçu par Al Fike le 16 Juillet 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que l’Amour de Dieu transperce vos âmes, mes amis bien-aimés. Je suis Moïse. Je viens pour la chère fille qui est nouvelle à cette idée du chemin de l’âme rachetée apportée à l’humanité par mon frère Jésus qui est le grand Maître du Royaume Céleste. Tout au long de l’histoire des Hébreux, Dieu nous a bénis et guidés. En effet, il existe une alliance entre nous et Dieu, selon laquelle nous devons suivre le chemin de la Lumière vers le grand Dieu, le Créateur de tout.
 

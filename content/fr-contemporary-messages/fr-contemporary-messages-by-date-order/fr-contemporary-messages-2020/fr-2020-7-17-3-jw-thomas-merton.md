@@ -9,7 +9,7 @@ weight:
 ---
 ### Diversité et unicité
 
-Thomas Merton <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 17 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Thomas Merton <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 17 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici dans la Grâce de Dieu, Thomas Merton. Je suis attiré dans ce cercle par sa diversité et son unité. Vous qui venez de différentes cultures, de différentes régions du monde, vous trouvez une unité dans votre désir de recevoir l’amour de Dieu. Cela aussi, cette unité est quelque chose à laquelle j’aspire. A unifier tout le monde. Je savais dans mon âme qu’il n’y avait qu’un seul Créateur mais de nombreux prophètes. Bien sûr, en tant que chrétienne, je croyais en la divinité de Jésus, et qu’il était l’âme Divine.
 
@@ -20,4 +20,4 @@ Ce cercle de lumière attire tant d’êtres Célestes, qui souhaitent être en 
 Je vous remercie de m’avoir accordé ce temps et je suis honoré d’être ici, c’est mon privilège. Que vous soyez tous bénis par l’amour, l’amour des uns pour les autres et dans l’amour de Dieu. Je suis Thomas Merton, Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> **Thomas Merton OCSO** (31 Janvier 1915 – 10 Décembre 1968) était un moine trappiste américain, écrivain, théologien, mystique, poète, activiste social et spécialiste des religions comparées. Le 26 mai 1949, il est ordonné prêtre et reçoit le nom de « Père Louis ». Il était membre de l’abbaye *« d'Our Lady of Gethsemani »*, près de Bardstown, dans le Kentucky, où il a vécu de 1941 à sa mort.[↩](#a1) 
+1. <large id=”f1”> **Thomas Merton OCSO** (31 Janvier 1915 – 10 Décembre 1968) était un moine trappiste américain, écrivain, théologien, mystique, poète, activiste social et spécialiste des religions comparées. Le 26 mai 1949, il est ordonné prêtre et reçoit le nom de « Père Louis ». Il était membre de l’abbaye *« d'Our Lady of Gethsemani »*, près de Bardstown, dans le Kentucky, où il a vécu de 1941 à sa mort.[↩](#a1)

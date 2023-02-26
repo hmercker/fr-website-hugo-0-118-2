@@ -9,7 +9,7 @@ weight:
 ---
 ### Exploration des messages de Judas
 
-Judas - reçu par Jimbeau Walsh le 3 Août 2020, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 3 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère en Christ et un disciple du maître, votre ami Judas. C’est un grand plaisir pour moi de vous rendre visite alors que vous explorez les messages qui ont été donnés à notre frère en Équateur <sup id=”a1”>[1](#f1)</sup>. Et j'espère que cela vous aide de voir ses luttes avec la valeur et son incapacité à discerner entre l'esprit et l'âme. J’ai remarqué que lorsque vous lisez les mots que j’ai donnés, vous êtes capables de passer des préoccupations de votre esprit à la gratitude de votre cœur, car vous comprenez peu à peu ce que j’exprimais. Je souhaite tellement que vous compreniez et que vous en tiriez profit.
 

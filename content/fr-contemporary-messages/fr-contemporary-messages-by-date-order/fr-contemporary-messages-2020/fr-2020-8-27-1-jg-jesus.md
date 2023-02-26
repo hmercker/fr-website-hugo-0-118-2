@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour (deuxième partie)
 
-Jésus - reçu par Jane Gartshore le 27 Août 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 27 Août 2020.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-fleur-de-lotus.jpg)
 

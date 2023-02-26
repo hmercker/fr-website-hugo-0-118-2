@@ -9,7 +9,7 @@ weight:
 ---
 ### Le secret de l’âme est d’être humble
 
-St François d'Assise - reçu par Jimbeau Walsh le 18 Août 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 18 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Francois. Je viens dans la grâce de Dieu dans ce cercle béni, dans cette sainte communauté. Je veux parler de fierté.
 
@@ -19,7 +19,7 @@ J’ai vécu une expérience que l’on pourrait comparer à l’histoire de Pau
 
 Et je savais dans mon âme que je pouvais me connecter à mon Créateur, avec mon Être dans Son église. Et cette église était pure et elle permettait beaucoup de liberté et apportait tant de joie et de cadeaux à moi-même et à mes frères, et plus tard à nos sœurs.
 
-Mais vous savez que le secret de l’âme est d’être humble devant votre Créateur, de demander « Cher Dieu, bénis mon âme, guéris cette blessure, touche mes amis, transforme-moi et ce serpentin mortel en communion avec Toi pour l’éternité ».
+Mais vous savez que le secret de l’âme est d’être humble devant votre Créateur, de demander *« Cher Dieu, bénis mon âme, guéris cette blessure, touche mes amis, transforme-moi et ce serpentin mortel en communion avec Toi pour l’éternité »*.
 
 Je vous le dis, peu importe à travers quelle lentille vous voyez le monde ou la vie spirituelle, à travers quelle philosophie ou quelle science, car lorsque vous ouvrez votre cœur, que vous avez confiance en une foi sincère et que vous appelez du fond de votre âme ce trésor qui dépasse tous les trésors terrestres, vous le recevez. C’est simple. Cest Divin. C’est l’amour de Dieu. Son souhait pour vous.
 

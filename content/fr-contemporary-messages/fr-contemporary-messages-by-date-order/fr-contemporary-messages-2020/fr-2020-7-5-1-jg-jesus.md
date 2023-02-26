@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Pardon
 
-Jésus - reçu par Jane Gartshore le 5 Juillet 2020.
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 5 Juillet 2020.
 
 C’est moi, Yeshua. La leçon d’aujourd’hui porte sur le pardon.
 

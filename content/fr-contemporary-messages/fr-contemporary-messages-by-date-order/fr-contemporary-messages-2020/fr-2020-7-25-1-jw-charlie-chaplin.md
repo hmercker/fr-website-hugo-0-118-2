@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez un cadeau pour le monde
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 25 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 25 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis là, Charles. Vous me connaissez sous le nom de Charlie, Charlie Chaplin. J’ai écouté la conversation aujourd’hui, alors que je viens souvent rendre visite à mon ami. J’ai pensé à mon propre parcours, à mes propres dons et à la façon dont ils se sont éveillés. Je suis sorti de la pauvreté et ma motivation était de réussir à tout prix. Mon frère Sydney m’a beaucoup aidé et j’ai découvert que je pouvais chanter et danser comme mes parents. Mais je me suis poussé et j’ai travaillé très dur, et j’ai toujours voulu exprimer ma vision au monde, afin que le monde puisse voir la pauvreté et que le monde puisse être guéri. Mes thèmes, comme je l’ai déjà dit, étaient la romance, la justice sociale, les pauvres et la tyrannie de la dictature, entre autres. Je les ai exprimés avec mon cœur et cela a touché le monde parce que j’avais un sens de l’humour qui permettait de rire, même dans des circonstances terribles, dans mes films. J’admets et je vous confesse à tous que, dans mes dernières années, je suis devenu un peu un dictateur et un peu comme l’oppresseur contre lequel je m’étais élevé, mais finalement j’ai capitulé et la clarté est venue à moi et je me suis pardonné et j’ai cherché le pardon.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Qui suis-je dans le grand plan de Dieu ?
 
-Seretta Kem - reçu par Al Fike le 20 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 20 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes aimées, je suis Seretta Kem. Le voyage qui vous attend sera pour chacun d’entre vous un voyage intéressant. Mes frères bien-aimés, vous n’avez pas la moindre idée de ce que vos dons vous apporteront à l’avenir. Tout cela est un grand mystère et plein de potentiel et de possibilités. Vous vous demandez : *« Qui suis-je dans le grand plan de Dieu ? Que dois-je faire ? Quel chemin dois-je prendre ? Comment les choses vont-elles se dérouler dans ma vie ? »*
 

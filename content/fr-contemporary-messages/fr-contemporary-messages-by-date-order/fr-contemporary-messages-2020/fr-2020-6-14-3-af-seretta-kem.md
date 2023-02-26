@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous vous tricotons ensemble d'âme à âme
 
-Seretta Kem - reçu par Al Fike le 14 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Nous continuons à vous tricoter ensemble d’âme à âme. En persistant dans vos efforts de prière commune, vous ouvrez des portes et des possibilités qui apporteront une plus grande conscience et faciliteront le déploiement de vos dons. Ainsi, vous pourrez connaître la Vérité de la Création de Dieu, la Vérité de vos propres potentiels, et vous pourrez être en mesure de communiquer les uns avec les autres de manière plus profonde et de partager ces expériences ensemble dans un spectre plus large de conscience et d’expérience.
 

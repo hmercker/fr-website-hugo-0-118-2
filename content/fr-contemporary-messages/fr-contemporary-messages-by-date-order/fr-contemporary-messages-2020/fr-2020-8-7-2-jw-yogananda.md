@@ -9,7 +9,7 @@ weight:
 ---
 ### Les pensées que vous absorbez et émettez
 
-Yogananda - reçu par Jimbeau Walsh le 7 Août 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 7 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Yogananda.
 

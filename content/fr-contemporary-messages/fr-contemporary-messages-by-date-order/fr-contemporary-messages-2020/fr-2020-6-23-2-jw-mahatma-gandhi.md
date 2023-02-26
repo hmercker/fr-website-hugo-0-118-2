@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez l'Amour
 
-Mahatma Gandhi - reçu par Jimbeau Walsh le 23 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Mahatma Gandhi - reçu par Jimbeau Walsh le 23 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et votre ami Gandhi. Je suis votre frère dans le Christ et oui, un disciple du maître dans l’amour de Dieu. Je vous remercie de m’avoir permis de venir.
 

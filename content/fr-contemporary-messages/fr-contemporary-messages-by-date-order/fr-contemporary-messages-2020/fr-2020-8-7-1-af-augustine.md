@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaissez vos propres âmes
 
-Augustin - reçu par Al Fike le 7 Août 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 7 Août 2020, Gibsons, Colombie-Britannique, Canada.
 
 Enfants, âmes bien-aimées, je suis votre maître Augustin. Je viens vous encourager à connaître vos propres âmes. Dans le monde qui est tellement centré sur l’esprit, connaître votre propre âme est un grand défi. Pourtant, connaître votre propre âme est un grand cadeau et une invitation que Dieu vous a donnés, mes frères et sœurs bien-aimés. Ce sont vos âmes qui vous ont rassemblés.
 

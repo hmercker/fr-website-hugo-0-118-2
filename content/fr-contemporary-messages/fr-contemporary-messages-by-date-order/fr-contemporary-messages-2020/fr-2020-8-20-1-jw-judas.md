@@ -9,7 +9,7 @@ weight:
 ---
 ### Guérir dans la lumière et l’amour
 
-Judas - reçu par Jimbeau Walsh le 20 Août 2020, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 20 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Judas. Je viens dans l’amour de Dieu à mes chers amis, en veillant sur vous et en vous encourageant à savoir, comme nous seuls pouvons le savoir, ce qui vous attend. Il est si important que chacun d’entre vous se sente en sécurité afin de permettre à votre cœur de s’ouvrir sans crainte, sans distraction, sans être interrompu, ou tout ce qui pourrait vous éloigner du magnétisme de l’amour de Dieu.
 

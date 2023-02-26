@@ -152,7 +152,7 @@ Jésus | [Leçon 12 : Les méandres de la condition humaine (2022 Le Projet Jés
 Jésus | [Leçon 13 : L’équilibre et la loi de l’harmonie (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-23-1-af-jesus/) | 23 Juillet 2022
 Thomas l’Apôtre | [L'âme touchée par Dieu est la vraie preuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-25-1-jw-thomas-the-apostle/) | 25 Juillet 2022
 Jésus | [Leçon 14 : La loi du désir (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-26-1-af-jesus/) | 26 Juillet 2022
-Professeur Salyards | [Changements dans le monde (/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-26-2-af-professor-salyards/) | 26 Juillet 2022
+Professeur Salyards | [Changements dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-26-2-af-professor-salyards/) | 26 Juillet 2022
 Jésus | [Leçon 15 : L’expansion de la conscience de l’âme avec l’Amour Divin. (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-28-1-af-jesus/) | 28 Juillet 2022
 Seretta Kem | [Guérir avec les couleurs de l'arc-en-ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-29-1-af-seretta-kem/) | 29 Juillet 2022
 Jésus | [Nous marcherons parmi vous comme des mortels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-30-1-af-jesus/) | 30 Juillet 2022

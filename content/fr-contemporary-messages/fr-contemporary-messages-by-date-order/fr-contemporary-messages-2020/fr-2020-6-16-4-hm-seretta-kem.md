@@ -9,7 +9,7 @@ weight:
 ---
 ### A propos de la foi
 
-Seretta Kem - reçu par Helge Mercker le 16 Juin 2020, Elim, Namibie
+Seretta Kem - reçu par Helge Mercker le 16 Juin 2020, Swakopmund, Namibie.
 
 Ma chère fille, je suis ici. C’est moi, Seretta Kem. Bonjour et je te salue dans la bénédiction de ce nouveau jour.
 

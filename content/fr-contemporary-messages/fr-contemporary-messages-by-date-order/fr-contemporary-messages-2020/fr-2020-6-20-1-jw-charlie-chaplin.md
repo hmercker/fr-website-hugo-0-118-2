@@ -9,7 +9,7 @@ weight:
 ---
 ### Connectez-vous à l'amour
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 20 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 20 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi Charles, ou Charlie pour vous. Et oui, je suis sur ce chemin de l’Amour de Dieu avec vous tous dans mon voyage vers les Cieux Célestes. Ne faisons-nous pas tous ce voyage ? Je vous écoutais tout à l’heure lorsque vous avez parlé de moi, m’avez mentionné ainsi que les esprits inférieurs, les esprits supérieurs et les anges. Il est important, pour le bien-être de votre âme, de vous accorder à ce qui vous élèvera et vous apportera de la joie. La fréquence de la joie est une vibration plus élevée que celle de la tristesse. Le rire est un si bon médicament. C’est tout cela que je savais et que je sais encore.
 

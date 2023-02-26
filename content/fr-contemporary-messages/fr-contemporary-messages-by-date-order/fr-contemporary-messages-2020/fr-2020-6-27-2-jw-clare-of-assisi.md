@@ -9,7 +9,7 @@ weight:
 ---
 ### Clarté et cadeaux
 
-Claire d'Assise - reçu par Jimbeau Walsh le 27 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 27 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre sœur, Claire d’Assise.
 

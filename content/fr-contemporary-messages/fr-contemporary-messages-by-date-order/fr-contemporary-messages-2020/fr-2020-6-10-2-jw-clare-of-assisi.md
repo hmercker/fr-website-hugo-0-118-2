@@ -9,7 +9,7 @@ weight:
 ---
 ### Trois souris bienveillantes
 
-Claire d'Assise - reçu par Jimbeau Walsh le 10 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 10 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Claire.
 

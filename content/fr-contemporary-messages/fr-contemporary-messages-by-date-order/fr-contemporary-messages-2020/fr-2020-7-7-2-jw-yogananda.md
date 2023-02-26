@@ -9,7 +9,7 @@ weight:
 ---
 ### La Communauté de l'Amour Divin
 
-Yogananda - reçu par Jimbeau Walsh le 7 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 7 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Yogananda. Je suis votre frère et ami et je réside dans les Cieux Célestes. Je souhaite vous dire que lorsque j’étais un jeune garçon, j’allais au temple, je faisais la Puja avec ma mère, nous offrions des fruits, nous allumions notre encens, nous étions oints avec de l’huile. Même à cette époque, je pouvais aller à l’intérieur et aspirer à la connexion avec Dieu. Je ne voyais pas cela comme une chose distincte – en fait, je le voyais probablement comme quelque chose que tous les gens faisaient lorsqu’ils allaient à l’intérieur. Lorsque j’ai enseigné à mes étudiants, de nombreuses années plus tard, à aller à l’intérieur, je leur ai bien sûr aussi enseigné à parler à Dieu comme je l’avais fait, à prier Dieu, à demander à Dieu de les bénir et à ne faire qu’Un avec Lui, d’âme à âme. Je ne voyais aucune disparité entre les deux.
 

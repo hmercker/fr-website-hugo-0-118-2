@@ -9,7 +9,7 @@ weight:
 ---
 ### Embrasser tout le monde dans l'Amour de Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 17 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 17 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Francis votre cher frère, et vous êtes mes chers frères. Je ne fais aucune demande car nous ne faisons que suggérer et encourager. Nous attendons patiemment que notre influence et nos conseils, qui sont toujours donnés avec amour, soient acceptés. Car le message est toujours une question d’amour ; cela vous le savez et par-dessus tout, l’Amour de Dieu, pour le prier, pour le recevoir. Si vous voulez être vraiment riche, c’est ce que vous voulez posséder. Tout le reste est superflu. Cela ne veut pas dire que l’on doive ignorer les besoins des autres en matière de nourriture, de logement, d’amour, mais que la seule chose qui vaille la peine d’être emportée en esprit, la chose la plus précieuse, la plus précieuse, c’est l’Amour de Dieu. Et même cela, Dieu ne l’exige pas mais l’offre à bras ouverts.
 

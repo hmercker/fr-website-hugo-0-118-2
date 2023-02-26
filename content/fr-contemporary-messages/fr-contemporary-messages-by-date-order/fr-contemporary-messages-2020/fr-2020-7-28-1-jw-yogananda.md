@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez ouverts à la guérison
 
-Yogananda - reçu par Jimbeau Walsh le 28 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 28 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami Yogananda.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez d’abord cette bénédiction de Dieu
 
-Jean le Bien Aimé - reçu par Al Fike le 17 Juillet 2020, Gibsons, Colombie-Britannique, Canada
+Jean le Bien Aimé - reçu par Al Fike le 17 Juillet 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que l’Amour de Dieu continue à se déverser en vous. Puissiez-vous avoir une reconnaissance profonde et durable de ce don, afin qu’il continue à être actif et un agent puissant de changement en vous, âmes bien-aimées, car c’est pourquoi Dieu a donné à chaque mortel et à chaque esprit l’opportunité de recevoir ce don afin qu’il puisse activer un grand changement dans l’âme et ouvrir les espaces intérieurs, afin que tant de choses puissent être éveillées avec ce don puissant.
 

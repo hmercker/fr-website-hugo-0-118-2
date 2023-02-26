@@ -9,7 +9,9 @@ weight:
 ---
 ### Prier pour s'ouvrir à l'amour du Créateur
 
-Révérend George Vale Owen <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Août 2020, Punalu’u, Oahu, Hawaii, USA
+Révérend George Vale Owen <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Août 2020, Punalu’u, Oahu, Hawaii, USA.
+
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-george_vale_owen_arthur_conandoyle.jpg)
 
 Je suis votre frère en Christ, George Vale Owen. Certains me connaissent peut-être sous le nom de Rev Owen. Je fus le pasteur d’une petite église en Angleterre et j’ai reçu de nombreux messages de l’Esprit qui m’ont rendu humble et souvent stupéfié. Comme ils présentaient la vision des sphères depuis les enfers jusqu’au Royaume Céleste et les esprits qui m’ont assisté en me montrant le chemin et en me présentant au Maître.
 

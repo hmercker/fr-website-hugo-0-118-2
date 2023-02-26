@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître les dons que Dieu a à offrir
 
-Seretta Kem - reçu par Al Fike le 30 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 30 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous âmes bien-aimées, je suis Seretta Kem. Mon don est le don de guérison, parmi d’autres choses que je prodigue aux mortels pour leur bien. J’ai vécu dans ce que vous appelez l’Égypte, il y a plusieurs milliers d’années et j’ai étudié l’art de la guérison pendant tout ce temps. Je souhaite vous dire qu’à travers toutes mes études, j’ai réalisé que les voies de guérison, les canaux de guérison, l’art de la guérison sont si divers et complexes, qu’à ce jour je ne connais pas toutes ces voies et perspectives. En ce moment, il y a plusieurs puissants guérisseurs avec vous tous et oui, vous n’étiez pas isolés les uns des autres, mais en ce moment vous êtes tous ensemble, baignant dans cette lumière de guérison, cette touche de paix, cette lueur édifiante d’énergies qui vous sont apportées par nous qui sommes des serviteurs de Dieu.
 

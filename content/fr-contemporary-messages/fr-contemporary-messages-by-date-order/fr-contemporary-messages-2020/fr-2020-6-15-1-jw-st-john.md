@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu est amour
 
-St Jean - reçu par Jimbeau Walsh le 15 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+St Jean - reçu par Jimbeau Walsh le 15 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Jean, un disciple du maître et celui qui vient dans l’Amour de Dieu. Ce cadeau du Père Céleste dont le maître nous a donné la Vérité alors qu’il était sur terre, il continue à l’enseigner et à l’apporter dans les cieux et sur terre. Cette vérité englobe toutes les autres, à savoir que Dieu est amour. Ces mots se sont retrouvés dans mon évangile, bien qu’il ait été interpolé, traduit et retraduit de nombreuses fois, et cette grande vérité a tenu et tient toujours. Cet amour de Dieu, laissez-le être votre guide, laissez-le couler dans vos vies.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes avec vous dans ce voyage
 
-Claire d'Assise - reçu par Jimbeau Walsh le 29 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 29 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre sœur en Christ, Claire d’Assise.
 

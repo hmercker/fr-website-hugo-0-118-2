@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez l'amour vous guider
 
-St Luc - reçu par Jimbeau Walsh le 10 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+St Luc - reçu par Jimbeau Walsh le 10 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère en Christ, Luc. Dieu vous a tous donné une âme, un cœur et un esprit. L’esprit est un merveilleux organe de discrimination. Il permet de distinguer une chose d’une autre, d’être capable de définir les choses et c’est donc un très bon don pour naviguer dans le monde. Le cœur est le centre qui pompe le sang dans le corps, l’oxygénant, permettant à la force vitale d’imprégner le corps physique. C’est aussi la porte de l’âme, ou on peut dire, le siège de l’âme. Ainsi, les émotions arrivent dans le cœur par le biais de l’esprit et sont la façon dont l’esprit perçoit. L’âme souhaite recevoir la Vérité. Elle s’ouvre à l’Amour. Si vous voulez savoir si ce qui vous est présenté est du mental ou de l’âme, je vous encourage à faire cette mesure par le biais du sentiment d’amour.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez conscient de ce qui se trouve dans votre cœur
 
-St Luc - reçu par Jimbeau Walsh le 3 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+St Luc - reçu par Jimbeau Walsh le 3 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi Luc. Je suis votre frère et ami en Christ. Je n’ai pas l’habitude de parler à travers ce cher frère mais comme il m’avait mentionné dans sa prière, j’ai entendu et je suis venu. Je souhaite faire un commentaire sur le cœur et les désirs de l’âme. Si vous pouviez voir dans chaque âme mise à nu, les désirs, les envies, les appétits physiques, les préjugés, les croyances et ainsi de suite, qui sont tous de l’esprit mais qui sont maintenus dans l’âme, vous verriez que les afflictions du cœur représentent la disparité entre les deux. Car l’âme, dans son essence, ne fait aucune distinction et, dans le cas de tous les membres de ce cercle, les désirs sont d’être en harmonie avec leur Créateur, notre Créateur aimant.
 

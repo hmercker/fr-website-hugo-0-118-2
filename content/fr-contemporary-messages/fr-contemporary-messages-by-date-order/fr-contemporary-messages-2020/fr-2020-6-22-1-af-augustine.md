@@ -9,7 +9,7 @@ weight:
 ---
 ### Avertissement de nouveaux changements à venir qui feront des ravages
 
-Augustin - reçu par Al Fike le 22 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 22 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant Augustin. La première vague de cette flamme de la maladie qui a balayé la Terre a maintenant été maîtrisée en de nombreux endroits mais continue de brûler en d’autres. Je viens vous avertir, âmes bien-aimées, que dans un avenir proche, d’autres viendront causer des ravages dans vos vies. Les conditions qui ont engendré une telle maladie continuent de s’aggraver, en profondeur, dans l’environnement de la Terre, et elles reviendront. Je vous invite donc à vous préparer. Soyez prêts à répondre à vos besoins physiques et à être vigilants lorsque vous ouvrez vos portes et vos fenêtres et que vous sortez de votre isolement pour vous ouvrir au monde.
 

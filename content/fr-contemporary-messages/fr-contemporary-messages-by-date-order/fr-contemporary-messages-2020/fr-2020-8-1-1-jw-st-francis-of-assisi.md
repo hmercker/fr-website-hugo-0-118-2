@@ -9,7 +9,7 @@ weight:
 ---
 ### Embrassez tout dans l'amour
 
-St François d'Assise - reçu par Jimbeau Walsh le 1 Août 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 1 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, François, votre frère et ami dans la Grâce de Dieu. Lorsque j’ai quitté la maison familiale et que j’ai commencé à marcher dans la nature, parmi la beauté de la création de Dieu, en harmonie avec ses créatures, grandes et petites, j’étais si reconnaissant pour chaque fleur et pour les délices de la création dans le monde naturel. Je suivais également les désirs de mon âme d’atteindre le royaume Céleste. Car mon âme savait qu’il y avait quelque chose au-delà du plan terrestre dans cet Amour de Dieu qui nous porterait, nous transformerait et nous élèverait.
 

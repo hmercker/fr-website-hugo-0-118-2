@@ -9,7 +9,7 @@ weight:
 ---
 ### La médiumnité et la loi du rapport
 
-Seretta Kem - reçu par Al Fike le 17 Août 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 17 Août 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis venu pour répondre aux préoccupations de celui qui vous a écrit concernant la capacité de ce médium à apporter la Vérité et à le faire sans être limité par ses propres pensées. Son affirmation selon laquelle il serait possible pour cet instrument de transmettre des messages provenant de ce qu’il appelle le subconscient n’est pas exacte. Ce que vous appelez le subconscient existe certainement dans une certaine mesure, car il y a de nombreuses chambres du cerveau et du mental qui travaillent ensemble pour faire avancer une certaine qualité de pensée et d’idée.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le rachat d’une âme perdue
 
-Marie Antoinette - reçu par Al Fike le 28 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Marie Antoinette - reçu par Al Fike le 28 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Beaucoup d’amour à vous, beaux enfants de la lumière. Je m’appelle Joséphine et vous me connaissez peut-être par les mots que j’ai prononcés il y a tant d’années : *« Qu’ils mangent du gâteau. »* Cette arrogance, cette ignorance de mon temps sur terre m’a rendue célèbre pour avoir entretenu une telle erreur et un tel manque de compassion pour ceux de mes compatriotes qui souffraient. Et comme vous pouvez bien l’imaginer, lorsque mon heure est venue d’entrer dans le monde des esprits et que cette entrée a suivi très rapidement cette déclaration, je me suis retrouvée dans une grande obscurité. Je me suis retrouvée dans un grand dénuement.
 

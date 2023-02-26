@@ -9,7 +9,7 @@ weight:
 ---
 ### Les vibrations de la Vérité et de l'Amour Divin
 
-Yogananda - reçu par Jimbeau Walsh le 28 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 28 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère et ami dans l’Amour de Dieu, je suis Yogananda. Je souhaite parler du discernement de la vérité. Il y a eu beaucoup de discussions tant en public qu’en privé et il y a eu de nombreux messages concernant ce sujet que ce soit dans votre esprit ou dans vos âes. Je souhaite vous donner un moyen très simple de discerner la différence.
 

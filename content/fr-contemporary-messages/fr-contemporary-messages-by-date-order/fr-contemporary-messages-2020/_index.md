@@ -200,7 +200,7 @@ Care Derby Walsh | [Frères dans l'Amour de Dieu](/fr-contemporary-messages/fr-c
 Simon | [L'esprit est limité mais l'âme est illimitée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-25-2-af-simon/) | 25 Juin 2020
 Keea Atta Kem | [Il est nécessaire de toujours exprimer la vérité et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-26-1-af-keea-atta-kem/) | 26 Juin 2020
 Ramsès II | [Apprenez à connaître l’humilité et la joie qui accompagnent le service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-26-2-af-ramses-ii/) | 26 Juin 2020
-Thomas Merton | [Le pouvoir des mots](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-8-1-jw-thomas-merton/) | 8 Juin 2020
+Thomas Merton | [Le pouvoir des mots](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-27-1-jw-thomas-merton/) | 27 Juin 2020
 Claire d'Assise | [Clarté et cadeaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-27-2-jw-clare-of-assisi/) | 27 Juin 2020
 Care Derby Walsh | [Clarté et cadeaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-28-1-jw-care-derby-walsh/) | 28 Juin 2020
 Yogananda | [Les vibrations de la Vérité et de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-28-2-jw-yogananda/) | 28 Juin 2020
@@ -212,7 +212,6 @@ Yogananda | [Apportez-le au monde !](/fr-contemporary-messages/fr-contemporary-m
 Augustin | [Vous êtes un don les uns pour les autres et pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-30-3-af-augustine/) | 30 Juin 2020
 Seretta Kem | [Connaître les dons que Dieu a à offrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-30-4-af-seretta-kem/) | 30 Juin 2020
 Jésus | [Un message intéressant de Jésus sur les changements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-1-1-af-jesus/) | 1 Juillet 2020
-Seretta Kem | [Dieu parle à chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-1-2-af-seretta-kem/) | 1 Juillet 2020
 Jésus | [L’amour et la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-2-1-jg-jesus/) | 2 Juillet 2020
 St Luc | [Soyez conscient de ce qui se trouve dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-3-1-jw-st-luke/) | 3 Juillet 2020
 Jésus | [Les décisions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-3-2-jg-jesus/) | 3 Juillet 2020

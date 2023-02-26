@@ -9,7 +9,7 @@ weight:
 ---
 ### La prière est la clé du travail spirituel
 
-André - reçu par Al Fike le 26 Août 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 26 Août 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-ptiere-de-guerison-1.jpg)
 

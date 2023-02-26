@@ -9,7 +9,7 @@ weight:
 ---
 ### Dans l'amour de Dieu, vous n'êtes jamais seuls
 
-Claire d'Assise - reçu par Jimbeau Walsh le 14 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 14 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre sœur et amie, je suis Claire d’Assise. Les pauvres dames et moi qui sommes devenues connues sous le nom de Clarisses, nous voulions suivre les désirs de nos âmes, ressentir cette joie, cette extase, en présence de Dieu. Nous avons laissé le monde derrière nous et la simplicité est devenue notre Ordre.
 

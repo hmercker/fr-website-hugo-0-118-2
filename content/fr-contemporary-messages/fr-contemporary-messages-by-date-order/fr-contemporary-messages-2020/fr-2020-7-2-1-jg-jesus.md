@@ -9,9 +9,7 @@ weight:
 ---
 ### L’amour et la peur
 
-Jésus - reçu par Jane Gartshore le 2 Juillet 2020
-
-De Yeshua ben Yosef le 3 juillet 2020 et canalise par Jane Gartshore.
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 2 Juillet 2020.
 
 Ce n’est pas le moment d’avoir peur. C’est un temps pour l’amour. Centrez-vous dans l’amour. Toujours. Rien ne vous touchera. Je veux dire rien.
 

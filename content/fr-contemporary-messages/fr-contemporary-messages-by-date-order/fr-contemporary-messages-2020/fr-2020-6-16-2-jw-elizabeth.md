@@ -9,7 +9,7 @@ weight:
 ---
 ### Unis dans l’amour de Dieu
 
-Elizabeth - reçu par Jimbeau Walsh le 16 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Elizabeth - reçu par Jimbeau Walsh le 16 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis, Elizabeth. Je suis la mère de Jean, celui qu’on appelle le Baptiste, et la tante du Maître sur Terre et la sœur de Marie. Il y a un grand désir, et je dirais même une grande émotion, de la part des femmes de cette communauté, d’entendre davantage la voix de celles d’entre nous qui sont vos sœurs dans le Royaume Céleste. La profondeur de vos sentiments est très visible pour ceux d’entre nous qui sont ici, tout comme la profondeur de vos prières.
 

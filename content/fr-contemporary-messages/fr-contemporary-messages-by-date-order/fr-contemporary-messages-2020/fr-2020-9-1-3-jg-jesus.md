@@ -9,7 +9,7 @@ weight:
 ---
 ### Écouter
 
-Jésus - reçu par Jane Gartshore le 1 Septembre 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 1 Septembre 2020
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-ethiopie-1.jpg)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plan de Dieu pour le salut de l'humanité et la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 14 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Chers amis, je suis Seretta Kem. Vous avez été très surpris de l’intérêt de vos frères et soeurs pour le don de ce que vous appelez la Voix Directe. Comme cet instrument l’a compris des autres, il existe des groupes dans le monde entier qui travaillent à cette fin. Ils peuvent avoir des descriptions et des étiquettes différentes, mais essentiellement, nous tentons par l’esprit de continuer à forger ce lien entre nous et l’humanité pour ouvrir ces portails et ces corridors de communication afin que l’individu moyen sur votre plan terrestre puisse comprendre que sa perception d’un monde purement matériel dépourvu de dimensions différentes, de Dieu, des réalités spirituelles, est erronée.
 

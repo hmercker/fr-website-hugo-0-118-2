@@ -9,9 +9,9 @@ weight:
 ---
 ### La paix
 
-Jésus - reçu par Jane Gartshore le 6 Juillet 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 6 Juillet 2020.
 
-C’est moi, Yeshua. Mon message de ce soir porte sur le thème de la paix. J’en ai déjà parlé dans des messages par le biais de cet instrument. Se reporter [au message de Jésus du 30 Avril 2013](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-bs-jesus/)
+C’est moi, Yeshua. Mon message de ce soir porte sur le thème de la paix. J’en ai déjà parlé dans des messages par le biais de cet instrument. Se reporter [au message de Jésus du 30 Avril 2013](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-bs-jesus/).
 
 Ce soir, je souhaite discuter de la façon dont la paix est liée aux conditions qui règnent dans votre monde ces jours-ci. Vous constatez un manque de paix ; il y a des troubles, une incertitude sur ce qui est à venir. Cela met les gens en déséquilibre, dans leurs pensées, leurs habitudes, leurs interactions avec les autres. C’est une vibration qui envahit le monde en ce moment.
 

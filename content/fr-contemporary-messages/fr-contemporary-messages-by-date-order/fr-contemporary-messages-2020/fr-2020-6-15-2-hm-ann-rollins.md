@@ -9,7 +9,7 @@ weight:
 ---
 ### Réseau de l’amour
 
-Anne Rollins - reçu par Helge Mercker le 15 Juin 2020, Elim, Namibie
+Anne Rollins - reçu par Helge Mercker le 15 Juin 2020, Swakopmund, Namibie.
 
 Ma chère enfant, je suis Anne Rollins et je suis très heureuse que tu écrives mes propos.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes un don les uns pour les autres et pour Dieu
 
-Augustin - reçu par Al Fike le 30 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 30 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis votre enseignant, Augustin. Oui, vous venez juste de commencer vos voyages, vos voyages en tant qu’âmes individualisées sur un monde matériel et qui n’ont pas encore fait la transition vers le monde spirituel. Il y a beaucoup de choses en vous qui ont besoin d’être atténuées et mises en harmonie avec les lois de Dieu, avec votre propre moi, débordant de lumière, de joie et d’amour. Oui, c’est un long voyage à certains égards, un défi pour ceux qui ne sont pas conscients des voies et moyens d’amener la lumière en eux. Mais vous, âmes bien-aimées, portez la clé qui éclairera effectivement votre chemin et rendra ce voyage quelque peu facile par rapport à tant d’autres. Reconnaissez que la sagesse de votre âme et les désirs de vos âmes vous ont amenés à cet endroit où vous priez ensemble dans un Cercle de Lumière, où vous vous réunissez et affirmez la vérité des connaissances et des compréhensions de votre propre âme qui vous rapprochent de votre Créateur.
 

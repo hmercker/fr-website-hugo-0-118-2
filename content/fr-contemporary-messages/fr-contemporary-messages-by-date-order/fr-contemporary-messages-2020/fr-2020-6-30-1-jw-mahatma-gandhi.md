@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu apporte la paix
 
-Mahatma Gandhi - reçu par Jimbeau Walsh le 30 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Mahatma Gandhi - reçu par Jimbeau Walsh le 30 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/gandhi.jpg)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Concentrez vos pensées sur Dieu, pas tant sur nous, les ange
 
-Jésus - reçu par Al Fike le 23 Août 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 23 Août 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je vous bénis, âmes bien-aimées, je viens, je suis Jésus. Je viens pour vous élever, pour faire partie de vos prières, pour ajouter à vos prières mes propres prières pour votre bien-être et l’éveil de votre âme dans l’Amour du Père. Je viens vous dire que de bien des façons, nous, dans le Royaume Céleste, travaillons diligemment pour vous élever et pour maintenir une lumière autour de vous. Je tiens à souligner que vos pensées et vos désirs jouent un rôle clé dans l’efficacité de nos efforts pour maintenir la lumière dans vos vies.
 

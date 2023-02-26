@@ -9,7 +9,7 @@ weight:
 ---
 ### Les enfants de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 23 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 23 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care. Je vous demande d’atteindre l’Amour, cet Amour Divin du Père Céleste qui apporte une réponse à chaque question, qui guérit chaque blessure, qui apporte la paix qui dépasse l’entendement de l’esprit. Permettez à vos âmes de tendre la main à Dieu pour qu’il vous élève au-dessus de vos esprits et des problèmes, des attraits et des enchevêtrements du monde. De cette façon, vous apportez une bénédiction au monde, un monde troublé.
 

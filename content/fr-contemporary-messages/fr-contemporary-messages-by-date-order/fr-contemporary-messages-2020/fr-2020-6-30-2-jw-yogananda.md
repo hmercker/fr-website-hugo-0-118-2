@@ -9,7 +9,7 @@ weight:
 ---
 ### Apportez-le au monde!
 
-Yogananda - reçu par Jimbeau Walsh le 30 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 30 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère et ami Yogananda. La musique de l’amour n’est-elle pas un beau cadeau qui envoie un signal d’en haut au cœur, à travers les oreilles et élève l’âme ? J’aimais chanter des louanges à Dieu, mais étais-je un grand chanteur ? Pas vraiment ! Mais j’avais un grand amour et je réalise maintenant comment mes étudiants toléraient certains de mes chants, car eux aussi chantaient et nous nous laissions aller à l’amour, permettant à la musique de nous élever. J’ai cela en commun avec mon cher frère JW, car quel que soit son point de départ, lorsqu’il commence à recevoir la musique, il souhaite toujours être élevé et élever les autres. Et il vous dirait qu’il n’est pas Caruso et pourtant il y a de la beauté dans la mélodie et encore plus important, dans l’intention.
 
@@ -22,4 +22,4 @@ Et mon cher frère JW – il a été informé hier que lorsque l’air s’écla
 Que le grand don de l’Amour de Dieu continue à illuminer nos âmes et à nous élever dans la joie et la félicité qui sont le don de Dieu. Avec tout mon amour et les bénédictions d’un frère qui ne vous abandonnera jamais. Je suis Yogananda.
 <small>
 
-1. <large id=”f1”> parlant à John M de son ami pasteur.[↩](#a1)
+1. <large id=”f1”> Parlant à John M de son ami pasteur.[↩](#a1)

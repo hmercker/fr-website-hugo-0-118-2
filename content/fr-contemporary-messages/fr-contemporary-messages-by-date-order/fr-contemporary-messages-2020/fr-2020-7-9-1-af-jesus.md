@@ -9,7 +9,7 @@ weight:
 ---
 ### Les Cieux Célestes et l’Amour Divin sont encore disponibles
 
-Jésus - reçu par Al Fike le 9 Juillet 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 9 Juillet 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus, Maître du Royaume Céleste. Je viens commenter l’affirmation selon laquelle le Royaume Céleste a été fermé à toutes les âmes en ce moment <sup id=”a1”>[1](#f1)</sup>. Cette affirmation n’est pas un fait. En effet, le Royaume Céleste reste ouvert à toutes les âmes qui prient diligemment pour recevoir le don de l’Amour du Père et pour que leurs âmes soient purifiées et rachetées par l’Amour Divin. En effet, nous, dans le Royaume Céleste, nous nous efforçons d’éduquer ceux qui sont sur Terre et ceux qui sont en esprit sur la possibilité de recevoir ce don de l’Amour Divin.
 
@@ -38,4 +38,4 @@ N’ayez pas peur pour votre propre âme, car vous connaissez la Vérité et vou
 Je continue à être avec vous, frères et sœurs bien-aimés, sur ce chemin. J’ouvre mon cœur, mon amour, mon engagement et mes prières pour chacun d’entre vous car je vous aime tendrement. Vous continuerez à être mes chers, chers amis dans le monde. Que Dieu vous bénisse. Je suis Jésus, Maître du Royaume Céleste et je marche toujours avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Ceci est une réponse à un adepte de longue date de l’Amour Divin qui a publié sur Internet un message prétendant provenir de Jésus et affirmant que les Cieux Célestes sont maintenant fermés..[↩](#a1)
+1. <large id=”f1”> Ceci est une réponse à un adepte de longue date de l’Amour Divin qui a publié sur Internet un message prétendant provenir de Jésus et affirmant que les Cieux Célestes sont maintenant fermés.[↩](#a1)

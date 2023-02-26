@@ -9,7 +9,7 @@ weight:
 ---
 ### Une salutation matinale
 
-Martin Luther - reçu par Helge Mercker le 12 Juin 2020, Elim, Namibie
+Martin Luther - reçu par Helge Mercker le 12 Juin 2020, Swakopmund, Namibie.
 
 C’est avec plaisir que j’aimerais écrire, c’est Martin Luther.
 

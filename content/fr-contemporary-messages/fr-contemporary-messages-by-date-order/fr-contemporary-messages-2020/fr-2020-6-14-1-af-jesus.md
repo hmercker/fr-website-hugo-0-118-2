@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez dans la vérité de l’Amour de Dieu
 
-Jésus - reçu par Al Fike le 14 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 14 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que la bénédiction de l’Esprit Saint, qui est l’agent actif de Dieu et de Son Amour, vienne dans chacune de vos âmes, vous ouvrant à cette grande Bénédiction, éliminant tout obstacle entre vous et Dieu. Je viens, Je suis Jésus, et Je viens pour être avec mes frères et sœurs sur ce monde, ces belles âmes qui se sont engagées à recevoir ce Don de l’Amour de Dieu, à marcher sur le chemin de la rédemption de l’âme, de la guérison, qui amène à l’union avec la Source de tout.
 

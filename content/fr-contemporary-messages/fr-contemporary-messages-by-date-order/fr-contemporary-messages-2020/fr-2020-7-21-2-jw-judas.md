@@ -9,7 +9,7 @@ weight:
 ---
 ### Devenez une étoile
 
-Judas - reçu par Jimbeau Walsh le 21 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 21 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Judas. Je viens vers le réticent pour vous partager quelques réflexions. Vous êtes-vous déjà demandé pourquoi les gens souhaitent devenir des célébrités, devenir célèbres ? Peut-être savez-vous déjà qu’il s’agit d’un désir d’une part de partager des dons et d’autre part d’être aimé. Lorsque les gens atteignent ce statut dans le monde, cette pensée devient une considération majeure : *« Dois-je me reposer sur mes lauriers et me prélasser dans l’amour et l’adoration de l’humanité ou dois-je prendre ma bonne fortune et les dons qui m’ont été offerts et rendre service au monde ? »* Il s’agit bien sûr d’un exemple humain et je dirais même d’un exemple évident.
 

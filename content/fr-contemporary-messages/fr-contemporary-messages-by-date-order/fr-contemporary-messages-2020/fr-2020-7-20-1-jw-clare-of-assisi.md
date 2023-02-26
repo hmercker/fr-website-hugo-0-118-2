@@ -9,7 +9,7 @@ weight:
 ---
 ### La Foi en Dieu
 
-Claire d'Assise - reçu par Jimbeau Walsh le 20 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 20 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Claire d’Assise, votre sœur et amie dans le Christ. Je viens à ce rassemblement, à cette bénédiction sacrée, à ce cercle pour me joindre à vous dans la prière pour l’Amour de Dieu. Je souhaite vous dire que pour vous connecter au Père Céleste, il suffit d’un simple acte, d’une simple intention de permettre au désir de votre âme de s’élever au-dessus de votre esprit depuis les profondeurs de votre cœur, pour ne faire qu’Un avec Dieu dans Son Amour. Si vous souhaitez que cela soit votre guide, rappelez-vous simplement ce désir.
 

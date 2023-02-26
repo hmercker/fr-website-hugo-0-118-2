@@ -9,7 +9,7 @@ weight:
 ---
 ### S’ouvrir sans crainte
 
-Yogananda - reçu par Jimbeau Walsh le 21 Août 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 21 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère et ami Yogananda.
 

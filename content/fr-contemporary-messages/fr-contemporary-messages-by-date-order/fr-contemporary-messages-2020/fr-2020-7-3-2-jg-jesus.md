@@ -9,7 +9,7 @@ weight:
 ---
 ### Les décisions
 
-Jésus - reçu par Jane Gartshore le 3 Juillet 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 3 Juillet 2020.
 
 Je suis là, Yeshua. Je viens parler sur le sujet de la prise de décisions sur la vie que l’on va mener. Les décisions ne sont pas toujours faciles à prendre par moment, car ce qui semble être un choix facile à court terme peut très bien conduire au chaos et à la destruction à l’avenir. Par exemple, où choisit-on de vivre ? Dans un endroit où le loyer est abordable ou où l’eau est fraîche? Où il y a du luxe et du glamour, ou où il y a de la simplicit ? Que cherche-t-on à gagner de son environnement? Est-ce de l’envie? Est-ce que les choses dans la vie sont  importantes, ou est-ce les gens?
 

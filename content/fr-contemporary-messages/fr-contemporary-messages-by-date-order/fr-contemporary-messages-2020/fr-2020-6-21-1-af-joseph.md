@@ -9,7 +9,7 @@ weight:
 ---
 ### Fête des Pères
 
-Joseph - reçu par Al Fike le 21 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 21 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Joseph, le père de Jésus. À bien des égards, j’ai l’impression d’être le père pour vous tous, de vous porter tous dans mes prières, d’être avec vous tous dans mon cœur, et qu’en effet, chacun de nous dans les Sphères Célestes continue à vous nourrir sur les voies de l’Amour, de la Lumière et de la Vérité du Père. Nous vous considérons donc comme nos protégés, nos enfants qui sont dans le besoin et qui désirent la Vérité, les bénédictions de l’Amour de Dieu, la Lumière du Toucher de Dieu, la guérison, la paix et le confort qui viennent de la Source de tout.
 

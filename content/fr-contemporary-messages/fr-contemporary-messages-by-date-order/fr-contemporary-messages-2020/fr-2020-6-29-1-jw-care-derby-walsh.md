@@ -9,9 +9,9 @@ weight:
 ---
 ### Fou de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 29 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 29 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
-C’est moi, votre sœur Care, dans la grâce de Dieu. Quand St François comme vous le connaissez, quand notre frère François s’est éloigné du monde… ils ont dit : « Il est fou, il a perdu la tête, ça doit être la maladie. »
+C’est moi, votre sœur Care, dans la grâce de Dieu. Quand St François comme vous le connaissez, quand notre frère François s’est éloigné du monde… ils ont dit : *« Il est fou, il a perdu la tête, ça doit être la maladie. »*
 
 Lorsque Gandhi a refusé de se battre et qu’il a pourtant changé une nation par ses prières, sa méditation et son évangile de paix, il a été considéré comme fou par beaucoup et il en est ainsi pour tant de personnes qui ont changé le monde.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le voleur de cœurs
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 9 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 9 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Charles, ou comme vous me connaissez, Charlie.
 

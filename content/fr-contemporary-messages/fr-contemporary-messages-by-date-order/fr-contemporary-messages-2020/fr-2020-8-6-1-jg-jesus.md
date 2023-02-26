@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pardon(2eme partie)
 
-Jésus - reçu par Jane Gartshore le 6 Août 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 6 Août 2020.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-paysage.jpg)
 

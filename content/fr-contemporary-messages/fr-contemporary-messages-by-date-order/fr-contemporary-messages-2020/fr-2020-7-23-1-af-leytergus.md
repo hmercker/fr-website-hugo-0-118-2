@@ -9,7 +9,7 @@ weight:
 ---
 ### Embrasser la diversité et l’autre dans l’acceptation et l’amour
 
-Leytergus - reçu par Al Fike le 23 Juillet 2020, Gibsons, Colombie-Britannique, Canada
+Leytergus - reçu par Al Fike le 23 Juillet 2020, Kootenay Bay, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-spiritualite4-1.jpg)
 

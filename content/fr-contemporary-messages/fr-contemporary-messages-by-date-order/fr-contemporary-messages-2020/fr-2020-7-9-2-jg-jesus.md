@@ -9,11 +9,9 @@ weight:
 ---
 ### La Confiance
 
-Jésus - reçu par Jane Gartshore le 9 Juillet 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 9 Juillet 2020.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-angelearth.png)
-
-De Yeshua ben Yosef le 9 juillet 2020, Reçu par Jane Gartshore.
 
 Je suis là. Je viens avec un message de réconfort ce soir. C’est une assurance que bien que le but du plan de Dieu pour ce monde ne soit pas apparent quand on observe ce qui se passe à l’extérieur, il y a un destin pour ce monde et tous ceux qui y vivent.
 

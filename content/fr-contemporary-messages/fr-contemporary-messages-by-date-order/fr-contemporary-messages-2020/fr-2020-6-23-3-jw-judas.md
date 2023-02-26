@@ -9,7 +9,7 @@ weight:
 ---
 ### La voie, la lumière, la vérité
 
-Judas - reçu par Jimbeau Walsh le 23 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 23 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère dans le Christ, Judas de Kerioth. Oui, c’est moi. J’ai été avec le cher frère aujourd’hui et il me demandait tout à l’heure : *« Pourquoi ne parle-t-on pas davantage de prier Dieu afin de recevoir Son amour dans ce qui est devenu et que vous connaissez sous le nom des Évangiles, des Épitres et des écrits des apôtres ? »* Il se demandait pourquoi cela était si peu apparent. C’est une bonne question.
 

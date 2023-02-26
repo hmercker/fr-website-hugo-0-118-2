@@ -9,7 +9,7 @@ weight:
 ---
 ### Venez connaître le plan de Dieu
 
-Élie - reçu par Al Fike le 16 Août 2020, Gibsons, Colombie-Britannique, Canada
+Élie - reçu par Al Fike le 16 Août 2020, Gibsons, Colombie-Britannique, Canada.
 
 Père bien-aimé, que la puissance de Ton Amour touche les âmes de tous ceux qui viennent dans ce Cercle de Lumière. Je suis Élie, prophète des temps anciens, qui vient vous assurer, vous toutes, âmes bien-aimées de ce monde, que Dieu a en effet un plan pour le salut de l'humanité, car c'est une loi que toutes les choses viennent à l'harmonie et à la lumière dans l'Univers de Dieu. Ainsi, Dieu guidera tous ses enfants vers la Lumière. Le temps est venu dans votre monde, alors que l'obscurité s'intensifie et que les conditions de votre monde continuent à l'éloigner de la Lumière, ainsi que tous ceux qui s'y trouvent.
 

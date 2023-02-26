@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez ouverts à la guérison
 
-Yogananda - reçu par Jimbeau Walsh le 20 Août 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 20 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 J’étais présent hier lorsque frère Judas a transmis son message sur le pouvoir de guérison de la lumière et de l’amour. Nous en avions discuté, comme nous le faisons souvent, pour savoir qui allait transmettre le message. Nous sommes mis d’accord pour convenir que ce devrait être Judas. Je vous dis que c’est un ange merveilleux, brillant, ensoleillé et plein d’humour. Mais si le monde pouvait le voir tel qu’il est, il réaliserait que Dieu travaille avec tout le monde, quoi qu’il arrive. Peu importe votre passé. Le voyage de Judas, que certains d’entre vous connaissent bien, n’a pas été sans douleur ni sans châtiment, mais il a toujours été un disciple du Maître. Comme vous le savez peut-être, il pensait qu’il faisait quelque chose de bien et lorsqu’il a réalisé que cela ne se passerait pas comme il l’avait supposé, il a été frappé d’une manière difficile à décrire avec des mots et pourtant… Le voilà ! Un Ange Divin qui communique la sagesse, la vérité et l’amour de Dieu et qui, hier, a parlé avec éloquence de la lumière, de sa vibration et de son pouvoir de guérison. Je souhaite ajouter quelques propos à cette conversation.
 

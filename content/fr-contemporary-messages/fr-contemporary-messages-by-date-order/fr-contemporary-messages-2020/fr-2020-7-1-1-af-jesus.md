@@ -9,17 +9,16 @@ weight:
 ---
 ### Un message intéressant de Jésus sur les changements à venir
 
-Jésus - reçu par Al Fike le 1 Juillet 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Juillet 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-previsions2ndhal2020.jpg)
 
-Prologue : Ce n’est pas souvent que je reçois un message aussi important de la part de ces anges qui parlent à travers moi le médium. Ce message en deux parties est venu après avoir entendu un discours d’un pasteur du Kentucky qui a reçu une série de rêves prophétiques concernant l’avenir. Moi aussi, j’ai eu plusieurs visions et avertissements sur les temps à venir, sans parler d’un certain nombre de messages concernant les changements climatiques. Jeanne et moi avons été intrigués par son message, mais sommes demeurés incrédules quant à son avertissement de s’armer d’armes à feu afin de se protéger contre la violence et le chaos futurs. Il s’agit d’une conception très caricaturale du monde dans certaines régions des États-Unis et ce n’est certainement pas quelque chose que nous approuvons personnellement (ou en tant que Canadiens).
+**Prologue :** Ce n’est pas souvent que je reçois un message aussi important de la part de ces anges qui parlent à travers moi le médium. Ce message en deux parties est venu après avoir entendu un discours d’un pasteur du Kentucky <sup id="a1">[1](#f1)</sup> qui a reçu une série de rêves prophétiques concernant l’avenir. Moi aussi, j’ai eu plusieurs visions et avertissements sur les temps à venir, sans parler d’un certain nombre de messages concernant les changements climatiques. Jeanne et moi avons été intrigués par son message, mais sommes demeurés incrédules quant à son avertissement de s’armer d’armes à feu afin de se protéger contre la violence et le chaos futurs. Il s’agit d’une conception très caricaturale du monde dans certaines régions des États-Unis et ce n’est certainement pas quelque chose que nous approuvons personnellement (ou en tant que Canadiens).
 
 Après avoir entendu le pasteur, nous nous sommes mis à la prière, comme nous le faisons toujours chaque matin. Bien que le message du pasteur soit quelque peu lourd dans nos esprits, nous ne nous attendions à aucun commentaire de sa part de la part des anges. Mais, contre toute attente, nous avons reçu un message de Jésus suggérant que le cœur du message que nous avons écouté était correct mais également assujetti à l’interprétation erronée du pasteur. Il a ensuite commenté les perturbations et les changements à venir. Le message du pasteur et celui de Jésus sont assez déroutants, mais Jésus continue de mettre l’accent sur la préparation dans la prière et nous conseille de faire preuve de bon sens et de nous approvisionner en nourriture. Il ne dit rien de s’armer contre les assauts à venir ou même d’avoir peur. Il dit que la foi et la prière seront notre force et protégeront et guideront l’individu et sa famille. Un message très différent de celui donné par le pasteur. Je vous invite donc à lire ce message de ce point de vue plutôt que de vous laisser envahir par la peur et l’appréhension. Je suis convaincu que la grande majorité d’entre nous surmontera ces défis et, comme c’est souvent le cas, et seront rendus plus fort spirituellement.
 
 […]  Avec bénédictions et gratitude, Al Fike
-
-Partie I
+#### Partie I
 
 Âmes bien-aimées, je suis venu. Je suis Jésus, maître des Cieux Célestes, celui qui vous conduit les humains vers l’union avec Dieu alors que vos âmes continuent de croître dans l’amour du Père.
 
@@ -58,3 +57,7 @@ Nous marcherons avec vous à chaque étape du chemin, âmes bien-aimées. Nous a
 Que Dieu vous bénisse dans vos voyages, de si grands voyages de découverte et d’éveil de vos âmes. Nous sommes avec vous. La main de Dieu repose fermement sur vous. Je suis avec vous. Vous pouvez faire appel à ma force en ces temps de grande contrainte et je serai avec vous.  Je le promets, et de nombreux anges vous accompagneront toujours.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et votre ami et mon amour est toujours avec vous. Dieu vous bénisse. Je suis Jésus.
+
+<small>
+
+1. <large id="f1"> Ce pasteur a créé une vidéo largement diffusée sur Internet. Il s'appelle Dana Coverstone de Burkesville, dans le Kentucky.[↩](#a1)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisissez judicieusement
 
-Claire d'Assise - reçu par Jimbeau Walsh le 27 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 27 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Claire.
 

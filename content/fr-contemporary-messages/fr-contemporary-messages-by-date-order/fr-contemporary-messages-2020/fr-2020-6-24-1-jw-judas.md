@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce que vous recevrez sera largement suffisant
 
-Judas - reçu par Jimbeau Walsh le 24 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 24 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C'est moi, votre ami et frère Judas. Je vous répète que oui, c'est moi. J'ai été absorbé dans votre conversation et encore plus dans votre prière. Je souhaite vous expliquer pourquoi il y a un sentiment de divergence dans votre mental à propos de ce que vous avez reçu. Ce n'est pas compliqué. Je suis venu vous voir plus tôt et nous avons discuté de cette idée de prière et des évangiles et du compteur BS <sup id="a1">[1](#f1)</sup> comme vous l'appelez. Vous vouliez vous lever de votre lit et écrire ou enregistrer cela, mais je vous ai dit que je viendrais plus tard et je l'ai fait. Votre mental était préoccupé par votre désir de bien faire, que vous alliez tout inclure tout en recevant très clairement de moi. Ces domaines ne se sont pas toujours rencontrés dans un endroit parfaitement harmonieux, néanmoins, mon message sur les paroles de Jésus, l'amour qui émanait de lui, comment chaque mot et chaque histoire était une prière en soi et mettait le feu aux désirs de nos âmes, ce message, a atteint beaucoup de personnes.
 

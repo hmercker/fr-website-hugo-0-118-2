@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour
 
-Jésus - reçu par Jane Gartshore le 18 Août 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 18 Août 2020.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-lotus.jpg)
 

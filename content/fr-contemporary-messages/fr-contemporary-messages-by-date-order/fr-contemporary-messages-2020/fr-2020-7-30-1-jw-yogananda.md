@@ -9,7 +9,7 @@ weight:
 ---
 ### Fais du monde ton ashram, ton monastère
 
-Yogananda - reçu par Jimbeau Walsh le 30 Juillet 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 30 Juillet 2020, Schwenksville, Pennsylvania, USA.
 
 Je suis ton frère et ami Yogananda.
 

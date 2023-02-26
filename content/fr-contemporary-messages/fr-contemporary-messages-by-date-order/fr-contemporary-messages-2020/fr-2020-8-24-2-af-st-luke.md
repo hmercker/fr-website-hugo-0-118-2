@@ -9,7 +9,7 @@ weight:
 ---
 ### Équilibre entre les poursuites matérielles et spirituelles
 
-St Luc - reçu par Al Fike le 24 Août 2020, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 24 Août 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Luc. Je souhaite vous parler de la double nature de l’humanité, celle de la vie matérielle et celle de la vie spirituelle. Lorsque vous vaquez à vos occupations dans le monde, vous engagez vos esprits, vos intellects, vos désirs matériels et vos expressions matérielles. Parce que vous vivez dans un monde matériel, la quantité d’énergie et de temps que vous consacrez à ces activités est importante. Pourtant, une vie qui est strictement de nature matérielle, strictement axée sur les poursuites, les jugements et les perceptions matérielles est une vie plutôt superficielle, une vie qui n’améliore pas votre âme ou vos perceptions de la nature plus fine de votre être.
 

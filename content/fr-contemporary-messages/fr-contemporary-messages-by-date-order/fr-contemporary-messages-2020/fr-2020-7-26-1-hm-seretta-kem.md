@@ -9,7 +9,7 @@ weight:
 ---
 ### Prise de conscience de la nouvelle vie
 
-Seretta Kem - reçu par Helge Mercker le 26 Juillet 2020, Elim, Namibie
+Seretta Kem - reçu par Helge Mercker le 26 Juillet 2020, Swakopmund, Namibie.
 
 Mes enfants, nous vous embrassons dans notre amour. Nous venons pour être proches de vous et répondre à vos appels d’amour, de soutien et d’aide. Nous sommes venus vous dire que l’Amour du Père vit activement dans vos âmes et que, chaque jour, la vie de l’amour prend de nouvelles formes et de nouvelles figures qui grandissent sans cesse dans de nouvelles prises de conscience et de nouveaux éveils de qui vous êtes vraiment. L’Amour de Dieu est le moyen qui amène les nombreuses prises de conscience qui vous permettent de vous rapprocher de la source de cet amour, ce don merveilleux et gracieux.
 

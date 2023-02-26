@@ -9,7 +9,7 @@ weight:
 ---
 ### Ayez confiance que Dieu entend vos prières
 
-Augustin - reçu par Al Fike le 19 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 19 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Chères.âmes, je suis votre enseignant Augustin. Oui, le monde continue à vous défier, âmes bien-aimées. Cette condition humaine qui est si puissante dans votre monde continue à ériger ses barrières et ses difficultés dans vos vies, et pourtant vous êtes venus en prière, vous êtes venus vers votre Père Céleste pour recevoir les dons de la guérison, de l’élévation et de l’Amour. Et c’est ainsi que Dieu touchera chaque âme qui vient dans l’humilité, dans le sérieux, dans le désir d’être bénie et élevée, d’être guérie et réconfortée par sa main. Toutes les grandes et merveilleuses bénédictions sont disponibles pour chaque âme dans votre monde, et pourtant, si peu se tournent vers la Source de tout ce qui est bon et de la lumière, de l’amour et de la beauté. Si peu comprennent que Dieu souhaite donner à chaque âme les dons de Ses bénédictions, Son Amour, pour contrecarrer les conditions de votre monde, les luttes de vos corps, de vos esprits, de vos situations physiques, le monde matériel qui est si imprévisible et stimulant.
 

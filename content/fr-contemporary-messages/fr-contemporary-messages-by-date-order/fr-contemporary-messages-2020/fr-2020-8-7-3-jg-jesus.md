@@ -9,7 +9,7 @@ weight:
 ---
 ### Perte et Amour
 
-Jésus - reçu par Jane Gartshore le 7 Août 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 7 Août 2020.
 
 Le concept de la préparation est de réduire la nécessité de paniquer en cas de situation imprévue. Parfois, ces situations sont des pertes. Comment se préparer à une perte ? Par l’amour.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### L’humanité néglige souvent de construire une base spirituelle solide
 
-Jacques - reçu par Al Fike le 25 Août 2020, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 25 Août 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-positive-thinking-3805169_1280.jpg)
 

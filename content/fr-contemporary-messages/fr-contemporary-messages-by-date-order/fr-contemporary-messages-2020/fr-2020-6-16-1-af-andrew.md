@@ -9,7 +9,7 @@ weight:
 ---
 ### S'ouvrir à la coopération avec les autres
 
-André - reçu par Al Fike le 16 Juin 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 16 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, en ce nouveau jour. Je suis André et je tiens à vous assurer que vous continuerez à aller de l’avant dans le monde, en vous connectant avec de nombreuses autres âmes. Cela ne ressemble-t-il pas au rythme des vagues ? Parfois, une impulsion d’intention et de bénédictions se construit en vous et s’écoule à travers vous vers les autres. Puis il y a des moments où vous attendez leur réponse et vous continuez à prier pour qu’ils soient ouverts à votre invitation et que vous continuiez à être inspiré pour vous connecter aux autres. Ce rythme, ces vagues d’amour et d’intention se développeront à mesure que vous poursuivrez vos efforts pour être les canaux d’Amour de Dieu dans le monde. Vous ressentez donc l’excitation dans votre âme lorsque cette crête de la vague se construit en vous et est libérée dans le monde.
 

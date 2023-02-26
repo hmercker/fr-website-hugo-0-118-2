@@ -9,7 +9,7 @@ weight:
 ---
 ### Connexion d'amour instantanée
 
-Jésus - reçu par Helge Mercker le 21 Août 2020, Elim, Namibie
+Jésus - reçu par Helge Mercker le 21 Août 2020, Swakopmund, Namibie.
 
 Ma chère fille, je suis Jésus.
 

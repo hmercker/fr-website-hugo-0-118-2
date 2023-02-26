@@ -9,7 +9,7 @@ weight:
 ---
 ### Offrez le cadeau de l'Amour de Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 13 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 13 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, François. Je souhaite commenter le guide de notre cher frère et sa merveilleuse influence sur lui, et ses paroles. Car ce qu’il dit n’est-il pas ce sur quoi nous mettons notre intention, ou comme le dit Luc : *« Là où est le cœur est donc ton trésor ? »*
 

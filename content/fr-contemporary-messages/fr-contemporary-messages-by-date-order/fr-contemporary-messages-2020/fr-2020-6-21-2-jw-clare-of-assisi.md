@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour est le guérisseur de tous les cœurs
 
-Claire d'Assise - reçu par Jimbeau Walsh le 21 Juin 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 21 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre sœur Claire. Mes trois beaux et gentils amis, ces questions de cœur sont toujours guéries par l’amour, le meilleur remède. À ma chère sœur qui va subir des interventions dans les prochains jours, je vous encourage à mettre votre cœur à l’aise, à écouter les beaux sons de la nature et de la musique. Je vous encourage à vous éloigner de toute inharmonie et dans cette mesure je m’adresse à tous. Entourez-vous d’amour, de belle musique, de nature, de la beauté de la création de Dieu. Ce comportement produira le calme, la paix et la guérison et facilitera l’accélération du système immunitaire de vos corps. Je donne ceci à tous les trois puisque vous tous avez des problèmes de santé.
 

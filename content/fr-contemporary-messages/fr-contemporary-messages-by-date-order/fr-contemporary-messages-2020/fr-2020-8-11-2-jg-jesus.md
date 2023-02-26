@@ -2,14 +2,14 @@
 title: "La Joie"
 menu_title: ""
 description: "La Joie"
-date: 2022-06-01 06:00:01+00:1223
+date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
 ### La Joie
 
-Jésus - reçu par Jane Gartshore le 18 Août 2020
+Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 18 Août 2020.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-energiejoie.jpg)
 

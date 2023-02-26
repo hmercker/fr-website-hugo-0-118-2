@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est nécessaire de toujours exprimer la vérité et l’amour
 
-Keea Atta Kem - reçu par Al Fike le 26 Juin 2020, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 26 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Keea Atta Kem. J’ai vécu sur la Terre bien avant que le Maître Jésus ne vienne apporter sa Vérité au monde. J’ai vécu dans les temps anciens, à l’époque de Ramsès II. J’étais l’une de ses filles, l’une des nombreuses filles du Pharaon. Pourtant, déjà à mon époque, les défis de la condition humaine continuaient à être la source de nombreux dilemmes et situations à chaque âme présente. La race humaine s’est répandue dans le monde pendant très longtemps et a créé de nombreuses conditions dans le monde. De génération en génération, ces conditions ont continué à croître et à s’accumuler, de nombreuses erreurs et défis créés par l’humanité et toutes ces choses qui sont exprimées par les mortels qui ne sont pas en harmonie avec les lois d’Amour de Dieu.
 
