@@ -31,7 +31,7 @@ Je suis votre frère dans le Christ et ma Marie est ici avec moi comme beaucoup 
 Soyez en paix. Je suis Leslie Stone.
 <small>
 
-1. <large id=”f1”>Note du médium : Le Dr Stone m’a dit en privé dans la prière qu’il s’est retrouvé, après sa transition vers la vie spirituelle, dans la troisième sphère. Il voulait me faire savoir que c’est la première sphère de l’Amour Divin mais que c’est aussi une sphère d’amour naturel et qu’il n’y a pas deux 3e sphères distinctes. Peu après, Il a progressé vers la Cinquième sphère et finalement vers le Royaume Céleste.[↩](#a1)
+1. <large id=”f1”> Note du médium : Le Dr Stone m’a dit en privé dans la prière qu’il s’est retrouvé, après sa transition vers la vie spirituelle, dans la troisième sphère. Il voulait me faire savoir que c’est la première sphère de l’Amour Divin mais que c’est aussi une sphère d’amour naturel et qu’il n’y a pas deux 3e sphères distinctes. Peu après, Il a progressé vers la Cinquième sphère et finalement vers le Royaume Céleste.[↩](#a1)
 
 
 
