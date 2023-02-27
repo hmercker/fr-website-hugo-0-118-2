@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 2 : Le choix – Choisissez de changer vos façons de voir et de comprendre le monde
 
-Jésus - reçu par Al Fike le 8 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 8 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-caleb-jones-131206-unsplash-min.jpg)
 

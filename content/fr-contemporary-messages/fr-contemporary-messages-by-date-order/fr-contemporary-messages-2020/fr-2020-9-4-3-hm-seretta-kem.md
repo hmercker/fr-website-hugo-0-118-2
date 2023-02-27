@@ -9,7 +9,7 @@ weight:
 ---
 ### Guérison de l'âme
 
-Seretta Kem - reçu par Helge Mercker le 4 Septembre 2020, Elim, Namibie<
+Seretta Kem - reçu par Helge Mercker le 4 Septembre 2020, Swakopmund, Namibie.
 
 C’est Seretta Kem et je te salue cet après-midi.
 
@@ -29,7 +29,7 @@ Nous avons bien écrit, ma fille, et nous écrirons encore plus bientôt. Je t�
 
 Que Dieu te bénisse, cher enfant bien-aimé, et qu’il fasse naître tes prières avec une plus grande intensité et un désir ardent dans ta recherche de la vérité. Nous t’aimons et te saluons. Que Dieu te bénisse !
 
-[suite des messages le 6 Septembre 2020]
+*[Suite des messages le 6 Septembre 2020.]*
 
 Fille bien-aimée, je suis ici, Seretta Kem.
 

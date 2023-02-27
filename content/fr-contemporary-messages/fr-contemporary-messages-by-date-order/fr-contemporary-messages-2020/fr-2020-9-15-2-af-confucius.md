@@ -9,7 +9,7 @@ weight:
 ---
 ### Puissante bénédiction de guérison
 
-Confucius - reçu par Al Fike le 15 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 15 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je vous apporte une bénédiction de guérison. Je suis Confucius. Je touche chacun de vous avec un baume de guérison pour vous apporter la paix et l’élévation. Je vous berce tous, âmes précieuses, car vous êtes précieuses dans le monde, précieuses en effet, alors que vous continuez à lutter pour atteindre Dieu, pour trouver la lumière, la paix et la vérité dans vos vies, pour être aimants et chers à Dieu. Vous nous êtes donc chères, âmes bien-aimées. Vous nous êtes donc chers et nous vous aimons. Vous êtes des lumières dans le monde. Vous êtes belles et vous êtes aimées. Chaque âme ici est précieuse. Chaque âme a de nombreux cadeaux à donner, à exprimer dans le monde.
 

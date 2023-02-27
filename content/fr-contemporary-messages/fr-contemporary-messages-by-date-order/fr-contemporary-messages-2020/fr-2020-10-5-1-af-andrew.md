@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez cohérent dans vos prières pour être une lumière pour le monde
 
-André - reçu par Al Fike le 5 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 5 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 mes bien-aimées, je suis André. Il y a tant de privation et de manque dans votre monde, bien qu’une grande partie de votre monde ait un toit sur la tête, de la nourriture dans le ventre, toutes sortes de biens matériels, alors qu’il y en a beaucoup qui manquent de confort matériel mais qui ont souvent une spiritualité plus profonde que ceux de ce que vous appelez le monde occidental. Oui, le grand manque dans votre monde est celui d’une spiritualité solide, d’une compréhension profonde de leur véritable moi en relation avec Dieu et toutes les choses spirituelles. Ce manque de compréhension de la spiritualité, de l’amour, est une grande tragédie dans votre monde, car les choses matérielles peuvent toujours être fournies et données, surtout pour ceux qui sont en alignement avec Dieu, mais la partie spirituelle de l’homme, lorsqu’elle est ignorée et non présente à l’intérieur, colore tout de leur vie, de leur être et de leurs relations avec le monde.
 

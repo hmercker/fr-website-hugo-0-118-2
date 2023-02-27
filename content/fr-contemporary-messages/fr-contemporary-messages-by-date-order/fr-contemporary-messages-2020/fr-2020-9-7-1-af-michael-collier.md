@@ -9,7 +9,7 @@ weight:
 ---
 ### Conscience de l'âme et communication avec l'âme
 
-Michaël Collier - reçu par Al Fike le 7 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 7 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse mes amis, mon nom est Michaël Collier et je suis connu par certains d’entre vous. Je suis venu vous parler de la conscience de l’âme et de la communication avec l’âme. Je ne pense pas que beaucoup d’entre vous soient conscients des possibilités que vous ouvrez en priant pour l’Amour Divin de Dieu. Vous avez une lueur de certaines prises de conscience et expériences, des visions et des compréhensions, des sentiments et des intuitions, certaines de ces pensées profondes et de ces prises de conscience qui viennent lorsque vous priez, méditez et contemplez les vérités de Dieu. Pourtant, la puissance de l’Amour Divin qui pénètre dans votre âme entraîne une transformation fondamentale de votre être, de votre âme. Vous avez entendu vos professeurs parler des facultés de l’âme, qu’elles sont éveillées par l’Amour Divin. Il en est ainsi, mes amis, il en est ainsi.
 

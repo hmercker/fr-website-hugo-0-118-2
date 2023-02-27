@@ -9,7 +9,7 @@ weight:
 ---
 ### 100ème anniversaire de l’arrivée de Yogananda en Occident
 
-Yogananda - reçu par Al Fike le 18 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 18 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-yogananda.jpg)
 

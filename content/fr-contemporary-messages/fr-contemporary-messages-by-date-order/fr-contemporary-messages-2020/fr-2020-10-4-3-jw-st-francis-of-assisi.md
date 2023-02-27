@@ -9,7 +9,7 @@ weight:
 ---
 ### Le secret
 
-St François d'Assise - reçu par Jimbeau Walsh le 4 Octobre 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 4 Octobre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici, votre ami votre frère dans le Christ dans l’amour de Dieu, je suis François.
 

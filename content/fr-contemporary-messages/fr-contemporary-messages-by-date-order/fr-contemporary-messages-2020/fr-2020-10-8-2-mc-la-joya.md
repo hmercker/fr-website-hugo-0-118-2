@@ -9,7 +9,7 @@ weight:
 ---
 ### Éléments utilisés dans la guérison
 
-La Joya - reçu par Maureen Cardoso le 8 Octobre 2020, Abbotsford, Colombie-Britannique, Canada
+La Joya - reçu par Maureen Cardoso le 8 Octobre 2020, Abbotsford, Colombie-Britannique, Canada.
 
 Que la bénédiction de la grande Essence de Dieu coule dans vos âmes et vous remplisse profondément en vous rendant entier dans l’union avec Dieu. Je m’appelle La Joya et je suis l’une des guérisseuses Célestes qui ont travaillé avec vous. J’ai récemment commencé à travailler avec cet instrument dans son travail de guérison. C’est là que la bénédiction des esprits Célestes se réunit, apportant notre guérison et notre présence spirituelle au nom des belles âmes qui cherchent cet instrument et l’instrumentalité de son don de guérison.
 

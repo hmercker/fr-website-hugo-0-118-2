@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez Amour
 
-Marie - reçu par Al Fike le 1 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 1 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, chers et beaux enfants, je suis Marie. Là où il y a de l’amour, il y a de l’espoir. Là où il y a de l’amour, il y a une élévation. Pour ceux qui expriment leur amour les uns envers les autres, il y a la lumière, il y a la joie. Ainsi, vous devez porter l’amour partout où vous allez, mes beaux et bien-aimés enfants de Dieu. Lorsque vous regardez un autre, regardez-le avec amour. Lorsque vous rencontrez un de vos frères et sœurs, soyez là avec amour, servez avec amour, mettez de côté tout jugement, toute crainte ou toute réticence, et soyez l’amour. Car l’amour est ce qui changera votre monde. L’amour est ce qui apporte l’espoir à tous.
 

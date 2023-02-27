@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne maudissez pas l’obscurité, mais louez la lumière
 
-Yogananda - reçu par Jimbeau Walsh le 4 Septembre 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 4 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-ascension.jpg)
 

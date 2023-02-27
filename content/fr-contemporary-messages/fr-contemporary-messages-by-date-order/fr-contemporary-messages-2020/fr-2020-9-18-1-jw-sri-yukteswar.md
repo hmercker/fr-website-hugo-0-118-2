@@ -9,7 +9,7 @@ weight:
 ---
 ### Sri Yukteswar honors Yogananda
 
-Sri Yukteswar - reçu par Jimbeau Walsh le 18 Septembre 2020, Punalu’u, Oahu, Hawaii, USA
+Sri Yukteswar - reçu par Jimbeau Walsh le 18 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Yukteswar. Je fus l'enseignant de Paramahansa Yogananda alors qu’il était sur terre et je l’ai guidé dans son voyage en esprit. Je sais qu’il se demandait parfois *« pourquoi mon gourou m’a-t-il envoyé en Occident où il n’y a que le matérialisme, que le désir d’acquérir, que le désir de l’argent. »* Pourtant, il s’est rendu compte que si les réalités matérielles n’apportaient pas le bonheur ou l’épanouissement et toute forme d’illumination spirituelle, le message qu’il apporterait trouverait un écho auprès de beaucoup. J’ai vu ce potentiel en lui à travers les yeux de mon professeur, à travers les yeux de mon âme, et il a dépassé toutes les attentes que nous avions et très certainement les siennes. Ce Kriya yoga n’était pas sans la reconnaissance de Dieu et de son amour, ni sans l’adhésion aux enseignements du Maître Jésus, bien que notre compréhension soit quelque peu limitée.
 

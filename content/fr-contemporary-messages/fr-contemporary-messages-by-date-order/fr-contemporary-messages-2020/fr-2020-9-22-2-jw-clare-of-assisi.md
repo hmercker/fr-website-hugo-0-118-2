@@ -9,9 +9,9 @@ weight:
 ---
 ### L'Amour de Dieu est anti-gravitationnel
 
-Claire d'Assise - reçu par Jimbeau Walsh le 22 Septembre 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 22 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
-Je suis ici votre sœur en Christ, je suis Claire. Je suis ici avec le cher frère Judas, nous avons été avec vous, avec d’autres, et nous l’avons été le long du trajet, et le beau message de Jésus<sup id=”a1”>[1](#f1)</sup> qui nous touche aussi bien que vous.
+Je suis ici votre sœur en Christ, je suis Claire. Je suis ici avec le cher frère Judas, nous avons été avec vous, avec d’autres, et nous l’avons été le long du trajet, et le beau message de Jésus <sup id=”a1”>[1](#f1)</sup> qui nous touche aussi bien que vous.
 
 Lorsque vous vous réveillez le matin, si vous pouvez vous rappeler de fixer votre intention pour la journée dans une prière à Dieu : *« Cher Dieu, marche avec moi ce jour. Ouvre mon âme à Ton amour afin que je sois une bénédiction pour tous. Que Tes anges soient près de moi et me guident. »* Bien sûr, vous n’êtes pas obligé de prononcer ces mots exacts, mais j’espère que vous comprendrez l’intention et l’essentiel de ce que je souhaite communiquer.
 

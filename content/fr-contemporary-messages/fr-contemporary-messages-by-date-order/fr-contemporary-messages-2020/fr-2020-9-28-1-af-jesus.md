@@ -9,7 +9,7 @@ weight:
 ---
 ### Instructions à suivre pour recevoir des enseignements spéciaux
 
-Jésus - reçu par Al Fike le 28 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 28 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus. Je viens pour vous parler. Je souhaite que cet instrument et que vous deux réserviez une matinée par semaine pour que je puisse délivrer des messages importants au monde. Qu’il n’y ait pas de distractions ou de pressions de temps ou de conditions contraires à la réception de ces messages, afin que nous entrions dans une confiance sacrée et que nous nous efforcions de faire naître ces messages ensemble en permettant aux conditions de ce magnifique lieu et de ce Portail de Lumière de nous aider dans la transmission de vérités supérieures. Que cet engagement soit pris de manière cohérente, très sérieusement et bien préparé, afin que les conditions en ce lieu et en vous-mêmes soient les plus élevées que vous puissiez atteindre. Qu’il y ait un désir ardent dans votre âme de faire naître ces messages et qu’il y ait la paix autour de vous ainsi que la lumière et un profond désir d’Amour de Dieu pour imprégner chaque partie de ce lieu et chaque partie de vous-mêmes.
 

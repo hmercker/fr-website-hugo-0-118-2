@@ -9,7 +9,7 @@ weight:
 ---
 ### Être ouvert à l’essence du créateur
 
-Faith - reçu par Maureen Cardoso le 8 Octobre 2020, Abbotsford, Colombie-Britannique, Canada
+Faith - reçu par Maureen Cardoso le 8 Octobre 2020, Abbotsford, Colombie-Britannique, Canada.
 
 Bonsoir, chers amis. Je m’appelle Faith. Vous m’attirez vers vous alors que vous ouvrez vos âmes à l’afflux de l’Amour Divin, recevant l’essence et la substance même de Celui qui vous a créés et qui a créé l’univers et toutes les facultés, ces atouts dans votre monde et au-delà, la nature que vous ressentez, son toucher de grâce sur vous et autour de vous. Que chacun de vous sente la présence de l’ange Céleste qui se joint à votre vocation d’aider à élever, à apporter une condition d’amour et de lumière afin que vous puissiez plus facilement ressentir cette chaleur, cette lueur, cette bénédiction.
 

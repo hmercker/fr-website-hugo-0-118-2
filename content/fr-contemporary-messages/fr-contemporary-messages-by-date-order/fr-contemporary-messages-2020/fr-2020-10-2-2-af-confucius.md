@@ -9,7 +9,7 @@ weight:
 ---
 ### Un nouveau bail pour la vie
 
-Confucius - reçu par Al Fike le 2 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 2 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 J’ajoute mes prières à vos prières, âmes bien-aimées, je suis Confucius. J’ajoute mon amour à votre amour et à vos préoccupations pour vos frères et sœurs et pour ce monde. En effet, dans le Royaume Céleste, nous prions pour ces choses, pour tous ceux qui sont dans le besoin, pour tous ceux qui sont dans les ténèbres, tous ceux qui sont seuls et effrayés et incapables de trouver leur chemin hors des ténèbres. Les millions de personnes dans votre monde qui souffrent d’une myriade de façons ; les nombreuses âmes perdues qui, au sein de leur cœur, sont lourdes et sombres et qui pourtant continuent à chercher la distraction, à fuir ces sentiments de désespoir ; les nombreuses personnes qui sont mal guidées, les nombreuses personnes qui continuent à adhérer obstinément à une condition mentale qui n’aime pas facilement et ne reconnaît pas l’amour des autres.
 

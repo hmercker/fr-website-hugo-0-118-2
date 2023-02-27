@@ -9,7 +9,7 @@ weight:
 ---
 ### Les vérités de l’âme
 
-Jésus - reçu par Al Fike le 25 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 25 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu bénisse profondément vos âmes de Son Amour. Mes chers et bien-aimés frères et sœurs, je suis Jésus. Je viens vous parler de l’âme. Je souhaite vous dire que je viendrai aussi souvent que possible pour vous apporter d’autres enseignements, des enseignements qui ont commencé avec mon ministère sur le plan terrestre et qui ont été développés par la médiumnité de James Padgett. Maintenant, je vais utiliser cet instrument pour apporter d’autres enseignements à ce monde.
 

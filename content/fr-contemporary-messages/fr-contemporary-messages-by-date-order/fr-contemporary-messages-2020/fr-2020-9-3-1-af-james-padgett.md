@@ -9,7 +9,7 @@ weight:
 ---
 ### James Padgett affirme son engagement à atteindre le plus haut niveau
 
-James Padgett - reçu par Al Fike le 3 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+James Padgett - reçu par Al Fike le 3 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis James Padgett. Cet instrument a écrit quelque chose qui est une déclaration importante concernant ses dons et sa médiumnité. Lors de ma vie terrestre, comme vous le savez, j’ai été médium. À bien des égards, j’ai compromis mes dons en travaillant avec nos enseignants Célestes en acceptant de communiquer avec les esprits inférieurs, ceux qui étaient dans l’obscurité et ceux qui progressaient sur le chemin de la vie vers les sphères supérieures. Mes guides Célestes m’ont demandé de réduire cet effort et la communication avec eux, voire de tout arrêter. Mais j’ai persisté parce que je trouvais ces communications très divertissantes et engageantes, tout en continuant à explorer les domaines de la médiumnité et de l’écriture automatique.
 

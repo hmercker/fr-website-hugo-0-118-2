@@ -9,7 +9,7 @@ weight:
 ---
 ### Un petit conseil
 
-Judas - reçu par Jimbeau Walsh le 24 Septembre 2020, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 24 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère Judas et je viens dans la grâce de Dieu comme un disciple du maître. Je souhaite vous donner un petit conseil. Une pratique très simple pour se connecter avec Dieu, pour sentir Sa présence, ton âme et Son âme, et c’est la suivante :
 

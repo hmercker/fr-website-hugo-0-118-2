@@ -9,7 +9,7 @@ weight:
 ---
 ### Discernement de votre âme
 
-Augustin - reçu par Al Fike le 8 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 8 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant Augustin. Le discernement de l’âme est une faculté importante à exercer dans vos vies alors que vous commencez à grandir dans vos âmes et à connaître la capacité de votre âme à recevoir des informations, des bénédictions, de l’inspiration, des conseils. Cela éveillera également des dons de guérison, de médiumnité et de communication avec nous en esprit, de perception des choses spirituelles et des nombreux aspects de l’âme, que vous ne comprenez pas pour l’instant et que vous ne pourrez pas comprendre avant d’avoir acquis plus de maturité. Au fur et à mesure que vos âmes s’éveilleront à l’Amour du Père, votre compréhension et vos perceptions grandiront.
 

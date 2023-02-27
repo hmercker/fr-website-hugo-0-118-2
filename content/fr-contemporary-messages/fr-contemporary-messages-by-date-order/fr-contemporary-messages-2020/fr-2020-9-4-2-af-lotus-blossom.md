@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes à la fois récepteurs et donneurs
 
-Lotus Blossom - reçu par Al Fike le 4 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Lotus Blossom - reçu par Al Fike le 4 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions pour vous, âmes bien-aimées, je suis Fleur de Lotus. Je fais partie du rassemblement des guérisseurs qui sont venus travailler avec vous, pour apporter les bénédictions des prières et des guérisons à ceux que vous aimez et à ceux que vous savez être dans le besoin, et même à ceux que vous ne connaissez pas et dont nous savons qu’ils ont besoin de ces bénédictions. En travaillant ensemble, nous apportons chacun quelque chose à ce travail, que ce soit une pensée d’amour, une énergie de guérison apportée par vous en tant que guérisseurs, une prière ou une bénédiction. Chacun d’entre nous peut être un canal d’amour et de guérison pour les autres, pour que la Lumière des bénédictions de Dieu coule à travers nous dans ce monde et pour que chacun de vous reçoive également une bénédiction.
 

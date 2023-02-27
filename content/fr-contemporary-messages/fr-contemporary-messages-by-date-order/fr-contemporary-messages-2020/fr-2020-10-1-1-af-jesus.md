@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 1 : Introduction au Livre des vérités, au chemin de l’Amour Divin, au voyage de l’âme, à l’expiation
 
-Jésus - reçu par Al Fike le 1 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-conscience-et-eveil-spirituel.jpg)
 

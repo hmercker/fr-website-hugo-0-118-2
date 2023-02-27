@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce sera votre trésor
 
-Claire d'Assise - reçu par Jimbeau Walsh le 2 Octobre 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 2 Octobre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Mes chères souris Je suis ici, Claire votre sœur dans l’Amour de Dieu. J’ai été avec vous. Je souhaite que vous considériez ce sentiment d’Amour, la Présence du Créateur, et cette paix qui vient dans votre cœur et votre esprit lorsque votre âme est éclairée dans l’Amour de Dieu. Nous, dans les Cieux Célestes, nous vivons cette paix, nous vivons cet Amour et nous sommes si heureux de venir et d’être avec vous lorsque vous priez. Lorsque vous pensez à nous, lorsque vous vous interrogez, nous nous approchons et nous venons en Amour.
 

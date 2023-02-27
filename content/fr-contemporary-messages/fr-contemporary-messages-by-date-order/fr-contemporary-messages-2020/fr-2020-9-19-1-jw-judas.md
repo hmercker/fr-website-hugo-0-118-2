@@ -9,7 +9,7 @@ weight:
 ---
 ### Mettez Dieu à la première place
 
-Judas - reçu par Jimbeau Walsh le 19 Septembre 2020, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 19 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère en Christ, Judas, appréciant comme toujours que vous vous réunissiez pour étudier les enseignements que j’ai donnés à notre cher frère. Et je tiens à vous féliciter d’avoir choisi ces deux messages très complets aujourd’hui.
 

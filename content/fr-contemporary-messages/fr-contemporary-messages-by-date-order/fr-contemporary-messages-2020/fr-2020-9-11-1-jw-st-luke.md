@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisissez ce qui touche votre âme
 
-St Luc - reçu par Jimbeau Walsh le 11 Septembre 2020, Punalu’u, Oahu, Hawaii, USA
+St Luc - reçu par Jimbeau Walsh le 11 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère en Christ, Luc, et je suis venu pour suivre vos conversations et accompagner le bel esprit Care. Je souhaite m’adresser au jeune Michaël. Alors que tu explores les nombreuses facettes du chemin de l’Amour Divin, les routes et les chemins, les hauteurs et les profondeurs, souviens-toi de ton âme et de ce qui nourrit les désirs de ton âme. Bien que tu reçoives des informations avec ton esprit, notre souhait pour toi est de t’accrocher à ces choses qui touchent ton âme, et bien sûr, à cet égard, je m’adresse à vous tous.
 

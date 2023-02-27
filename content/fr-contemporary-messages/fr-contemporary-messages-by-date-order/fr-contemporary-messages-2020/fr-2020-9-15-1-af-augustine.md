@@ -9,7 +9,7 @@ weight:
 ---
 ### La tension entre la volonté de Dieu et la résistance de l’humanité
 
-Augustin - reçu par Al Fike le 15 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu bénisse profondément vos âmes, âmes bien-aimées, de Son Amour. À mesure que les conditions changent dans votre monde, les barrières envers Dieu se dissolvent. Dieu crée les conditions nécessaires dans le monde pour que davantage de vos frères et sœurs puissent avoir une expérience avec Dieu, puissent connaître les désirs de leur propre âme, puissent ressentir les bénédictions et le Toucher de Dieu. C’est la grande bénédiction de Dieu sur cette Terre qui est votre maison.
 

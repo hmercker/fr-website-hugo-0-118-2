@@ -9,7 +9,7 @@ weight:
 ---
 ### Se ressourcer dans la prière pour se préparer aux défis à venir
 
-Adriana - reçu par Al Fike le 6 Septembre 2020, Gibsons, Colombie-Britannique, Canada
+Adriana - reçu par Al Fike le 6 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, vous êtes fortes en effet, Dieu vous bénit, je suis Adriana. Je suis heureuse de voir ma chère et tendre âme dont je suis si proche, qui tend la main pour être avec ses compagnons d’âme sur ce chemin de lumière.
 

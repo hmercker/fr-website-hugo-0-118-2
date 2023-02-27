@@ -9,7 +9,7 @@ weight:
 ---
 ### Harmonie dans la nature et Amour Divin
 
-Yogananda - reçu par Jimbeau Walsh le 6 Septembre 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 6 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami dans l’Amour de Dieu, Yogananda.
 

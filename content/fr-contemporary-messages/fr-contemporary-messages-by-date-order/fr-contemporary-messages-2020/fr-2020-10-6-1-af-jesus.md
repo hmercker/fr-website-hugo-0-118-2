@@ -9,7 +9,7 @@ weight:
 ---
 ### Que l’amour de Dieu se déverse sur vous
 
-Jésus - reçu par Al Fike le 6 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 6 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées. Je viens. Je suis Jésus. Je viens pour prier avec vous parce que chacun de vous est précieux pour moi et précieux pour Dieu. Je viens pour vous dire que l’Esprit Saint apporte son don de l’essence de Dieu en votre présence et pour vous implorer d’ouvrir largement vos âmes, de mettre de côté toutes vos pensées, vos préoccupations et vos distractions et d’être avec Dieu en ce moment.
 

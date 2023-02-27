@@ -20,4 +20,4 @@ Que tous ceux qui lisent ce beau livre ne le digèrent pas seulement avec leur m
 Je suis Kahlil Gibran. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> La version originale de ce livre [peut être consulté ici](https://new-birth.net/other-stuff/books-we-love/books-other/#love_creation/) [ou sur son site internet](https://fortheloveofhisowncreation.ca/). La version française [peut-être lue ici](https://lanouvellenaissance.files.wordpress.com/2021/11/pour-lamour-de-sa-propre-creation.pdf).[↩](#a1)
+1. <large id=”f1”> La version originale de ce livre [peut être consulté ici](https://new-birth.net/other-stuff/books-we-love/books-other/#love_creation/) ou [sur son site internet](https://fortheloveofhisowncreation.ca/). La version française [peut-être lue ici](https://lanouvellenaissance.files.wordpress.com/2021/11/pour-lamour-de-sa-propre-creation.pdf).[↩](#a1)

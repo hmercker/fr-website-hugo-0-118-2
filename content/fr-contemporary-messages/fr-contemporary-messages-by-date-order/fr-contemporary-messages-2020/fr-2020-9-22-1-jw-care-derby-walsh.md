@@ -9,7 +9,7 @@ weight:
 ---
 ### Quel sera votre cadeau à Dieu ?
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 22 Septembre 2020, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 22 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre sœur et amie et une disciple du Maître, je suis Care. Dans le monde matériel, il est souvent difficile d’activer votre volonté et de la laisser ne faire qu’un avec Dieu, en harmonie avec Ses lois, et surtout, ouverte à recevoir Son Amour. Les divertissements du monde dans lequel vous vivez sont nombreux et ont de nombreuses facettes, certains sont comme des bijoux étincelants, qui brillent et attirent votre attention. D’autres sont comme des trous sombres et profonds qui vous invitent à entrer, et font appel à ce qui n’est pas le plus élevé, avec des désirs vils, la vengeance ou la violence. Je parle des autres comme étant des amusements plus positifs.
 
