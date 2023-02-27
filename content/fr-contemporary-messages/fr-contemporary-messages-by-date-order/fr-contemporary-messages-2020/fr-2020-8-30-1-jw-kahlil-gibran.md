@@ -9,7 +9,7 @@ weight:
 ---
 ### Mise à l'honneur du livre "Pour l'amour de sa création"
 
-Kahlil Gibran - reçu par Jimbeau Walsh le 30 Août 2020, Punalu’u, Oahu, Hawaii, USA
+Kahlil Gibran - reçu par Jimbeau Walsh le 30 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Kahlil Gibran. Je viens dans l’Amour de Dieu et je souhaite honorer cette chère âme qui a reçu une si belle histoire <sup id=”a1”>[1](#f1)</sup> et l’a si bien reçue. Et je parle par expérience car, bien que j’aie été un homme du monde, lorsque je me suis ouvert aux anges, ils ont écrit à travers moi, souvent au-delà de ma propre compréhension. Pourtant, ce que j’ai reçu a fini par toucher des millions de personnes.
 
@@ -20,4 +20,4 @@ Que tous ceux qui lisent ce beau livre ne le digèrent pas seulement avec leur m
 Je suis Kahlil Gibran. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> La version originale de ce livre peut être consulté ici (https://new-birth.net/other-stuff/books-we-love/books-other/#love_creation) ou sur son site internet : https://fortheloveofhisowncreation.ca/). La version française peut-être lue ici (https://lanouvellenaissance.files.wordpress.com/2021/11/pour-lamour-de-sa-propre-creation.pdf).[↩](#a1)
+1. <large id=”f1”> La version originale de ce livre [peut être consulté ici](https://new-birth.net/other-stuff/books-we-love/books-other/#love_creation/) [ou sur son site internet](https://fortheloveofhisowncreation.ca/). La version française [peut-être lue ici](https://lanouvellenaissance.files.wordpress.com/2021/11/pour-lamour-de-sa-propre-creation.pdf).[↩](#a1)

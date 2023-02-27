@@ -9,7 +9,7 @@ weight:
 ---
 ### Obtenir des conseils
 
-Joseph - reçu par Al Fike le 28 Août 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 28 Août 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Joseph, le père de Jésus. Dieu souhaite que vous connaissiez tous les conseils qui peuvent venir à chacun d'entre vous pour vous soutenir et vous amener à une plus grande harmonie dans le monde. En fait, la guidance afflue vers vous en permanence. Elle vient de Dieu et s'écoule vers votre âme. Sa douce et petite voix vous parle, souhaitant vous élever et vous montrer le chemin. C'est à vous de l'entendre lorsque vous ouvrez vos oreilles dans la foi, lorsque vous ouvrez votre cœur à Dieu dans la prière, lorsque vous marchez sur ce chemin de lumière et cherchez à être élevé et béni. Que Son Amour puisse effectivement se déverser dans votre âme est un don constant pour que vous puissiez être transformés et éveillés par ce don de Son Amour.
 
