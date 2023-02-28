@@ -9,7 +9,7 @@ weight:
 ---
 ### Allumer le feu de l'amour dans le monde
 
-Augustin - reçu par Al Fike le 9 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 9 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, enfants bien-aimés, c’est votre enseignant Augustin. L’abondance de l’Amour de Dieu qui vient dans ces Cercles de Lumière est en corrélation directe avec vos prières et les désirs de votre âme. Si vous venez à ces prières avec une tentative timide d’être impliqué et de faire partie de cet effort collectif, alors ce que vous recevrez reflétera cette attitude. Mais si vous venez avec une ferveur et un désir profond de recevoir les bénédictions de l’Amour du Père, de vous ouvrir largement et de désirer purement ce don, vous recevrez un grand afflux de cet Amour. Le grand exemple de la Pentecôte, que les disciples de Jésus ont reçu et vécu, était le reflet de l’intensité de leurs prières. Une telle bénédiction peut arriver à n’importe lequel d’entre vous, étant donné cette intensité, ce désir et cette aspiration <sup id=”a1”>[1](#f1)</sup>. Dieu ne limite pas son Amour à qui que ce soit. En fait, le désir ardent de Dieu est que chaque âme puisse recevoir un grand afflux de Son Amour, un afflux tel que toutes les conditions qui ne sont pas en harmonie avec cet Amour dans l’âme puissent être éradiquées et transformées par ce don.
 

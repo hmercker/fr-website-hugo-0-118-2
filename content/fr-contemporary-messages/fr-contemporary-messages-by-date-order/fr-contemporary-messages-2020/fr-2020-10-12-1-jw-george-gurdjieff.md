@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous ne pouvez pas vous révolter contre les ténèbres, mais vous pouvez embrasser tout ce qui est dans la lumière
 
-George Gurdjieff - reçu par Jimbeau Walsh le 12 Octobre 2020, Punalu’u, Oahu, Hawaii, USA
+George Gurdjieff - reçu par Jimbeau Walsh le 12 Octobre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-georges-gurdjieff.jpg)
 

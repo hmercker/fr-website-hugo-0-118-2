@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez Bénis
 
-St François d'Assise - reçu par Jimbeau Walsh le 10 Octobre 2020, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 10 Octobre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici et je suis votre frère et je suis votre ami et votre guide sur ce chemin. Je suis François. Heureux êtes-vous de prier pour l’Amour de Dieu. Heureux êtes-vous de pardonner à ceux qui vous ont offensé. Heureux êtes-vous de tendre la main aux moins fortunés. Heureux êtes-vous de ne pas juger, car c’est Dieu qui juge.
 
