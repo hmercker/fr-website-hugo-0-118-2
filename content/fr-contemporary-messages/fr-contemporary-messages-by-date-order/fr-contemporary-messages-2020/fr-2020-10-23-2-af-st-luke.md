@@ -9,7 +9,7 @@ weight:
 ---
 ### Facettes de l'âme
 
-St Luc - reçu par Al Fike le 23 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+St Luc - reçu par Al Fike le 23 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Enfants bien-aimés, le manteau de Dieu vous entoure, Sa Lumière se déverse sur vous, Ses Eaux Vives sont portées à vos lèvres. Puissiez-vous boire, âmes bien-aimées, boire avec constance et avec beaucoup d’ardeur. Car ces Eaux Vives sont les bénédictions qui formeront votre destin. Elles vous amèneront sur le chemin que Dieu a désigné pour chacun d’entre vous, pour être en alignement avec la Volonté de Dieu, pour servir Dieu dans l’amour, pour être un canal clair pour Son Amour.
 

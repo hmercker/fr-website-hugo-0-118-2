@@ -9,7 +9,7 @@ weight:
 ---
 ### Célébration du progrès pour l'Université de l'âme
 
-Professeur Salyards - reçu par Al Fike le 14 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 14 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, mes chers, je suis le professeur Salyards. Quelle belle leçon que de voir comment Dieu rassemblera les âmes individuelles pour créer quelque chose de lumineux dans votre monde et que Dieu a choisi chacun d’entre vous. Dieu a mis en chacun de vous de grands dons et capacités qui peuvent se rassembler et former un ensemble complet d’expression, de créativité, de compréhension et de vérité qui sera un moteur puissant pour réaliser cet effort visant à montrer à l’humanité la voie supérieure vers la lumière, la vérité de l’amour, la facilité de connaître Dieu à travers sa propre âme, ces choses qui sont nécessaires pour que l’humanité soit élevée. Dieu travaille avec beaucoup de gens dans votre monde pour aider à élever l’humanité, pour aider à éduquer, à inspirer, à montrer la voie. Et ainsi, vos expériences, votre compréhension de la vérité, vos dons de L’âme et le mental contribuent tous à créer une force puissante pour le bien dans le monde.
 

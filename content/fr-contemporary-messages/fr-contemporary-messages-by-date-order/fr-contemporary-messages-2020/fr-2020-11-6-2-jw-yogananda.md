@@ -9,7 +9,7 @@ weight:
 ---
 ### Répondre par l’Amour
 
-Yogananda - reçu par Jimbeau Walsh le 6 Novembre 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 6 Novembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-au-sujet-de-yognanda-1.jpg)
 

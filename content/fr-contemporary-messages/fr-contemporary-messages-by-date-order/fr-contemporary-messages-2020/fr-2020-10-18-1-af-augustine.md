@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Esprit Saint
 
-Augustin - reçu par Al Fike le 18 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 18 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je vous bénis dans vos voyages d’harmonisation avec Dieu, je suis votre enseignant Augustin. Je viens vous encourager à faire naître les émotions de votre âme combinées aux intentions que vous avez de recevoir le grand cadeau de l’Amour Divin. Car lorsque vous combinez ces forces en vous et les dirigez vers Dieu, elles pénètrent à travers les conditions terrestres vers la Grande Âme de Dieu. Ce faisant, elles déclenchent une réponse pour le grand intervenant et instrument de Dieu pour la transmission de son amour. Ce que nous appelons l’Esprit Saint vient alors en réponse à ces prières et remplit votre âme de l’Essence de Dieu, Son Amour.
 

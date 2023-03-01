@@ -9,7 +9,7 @@ weight:
 ---
 ### Libérer l'obstruction de nos esprits
 
-Augustin - reçu par Al Fike le 27 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 27 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que l’Amour du Père trouve un grand afflux dans vos âmes, mes chers et beaux amis, je suis votre enseignant, Augustin. Je vous demande de faire taire vos esprits afin que vos âmes puissent s’élever et que la conscience de vos âmes puisse devenir votre pain quotidien, ce qui vous soutient et vous guide dans la vie. Bien que la plupart des gens arrivent sur ce chemin avec un mental rempli de beaucoup de choses et d’idées qui sont prédominantes et puissantes, et c’est le mental qui demande souvent des preuves de ces vérités. Pourtant, la preuve vient avec l’ouverture de l’âme réceptive au profond Toucher de Dieu. Beaucoup doivent lutter pour trouver leur chemin vers ce lieu si innocent et si pur en eux, afin de pouvoir connaître la valeur, la puissance, la grâce et l’amour de leur propre âme. Car le Toucher de Dieu se reflète dans leur âme, et de bien des façons, le toucher de Dieu peut être reconnu par le mental. Mais le mental, en lui-même, a beaucoup de mal à atteindre Dieu, à connaître les désirs ardents qui atteindront Dieu et à être satisfait de l’expérience qui vient avec l’âme découverte et vulnérable et touchée par la grâce de Dieu, Son amour qui coule en elle.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le danseur de Dieu
 
-Hafiz - reçu par Jimbeau Walsh le 9 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
+Hafiz - reçu par Jimbeau Walsh le 9 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-haffiz.jpg)
 

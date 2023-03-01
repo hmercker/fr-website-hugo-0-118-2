@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettez à Dieu de vous changer
 
-Yogananda - reçu par Jimbeau Walsh le 10 Novembre 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 10 Novembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Yogananda, votre frère dans l’amour de Dieu. Je viens dans ce beau cercle de lumière en cette période de changement que connaît la terre. Je viens pour dire que tout dans l’univers de Dieu est vivant et en mouvement. L’univers est progressif.
 

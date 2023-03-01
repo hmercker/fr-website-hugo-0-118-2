@@ -9,7 +9,7 @@ weight:
 ---
 ### La transformation par l’Amour de Dieu
 
-Eileen Caddy - reçu par Jimbeau Walsh le 16 Novembre 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 16 Novembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre sœur dans l’amour de Dieu, je suis Eileen.
 

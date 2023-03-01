@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes tous appelés à faire partie du plan de Dieu pour le salut de l'humanité
 
-Jésus - reçu par Al Fike le 3 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 3 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je te remercie mon fils pour ta prière. Je viens, je suis Jésus et je viens vous assurer à tous que vous êtes dans la lumière, que vous portez la lumière et que vous exprimez la lumière dans vos vies. Beaucoup d’entre vous ont une profonde destinée à accomplir dans ce monde, un but que Dieu a semé dans vos âmes et qui vous amène et vous oblige à avancer dans le monde pour dire la vérité, pour être un canal de lumière et d’amour pour ceux que vous côtoyez quotidiennement. Ici, de cette manière merveilleuse, ensemble, vous créez et tissez un magnifique réseau de lumière. Car Dieu a l’intention de jeter un grand filet de lumière sur le monde. Pour que Dieu puisse le faire, il a besoin de ceux qui sont prêts à être les piliers de ce grand filet. Pour le maintenir en place avec leurs prières. Pour être en harmonie avec ce grand effort et le désir de Dieu d’envelopper tous ses enfants sur la terre avec un grand filet de lumière qui travaillera ses effets pour inspirer les âmes de beaucoup à s’ouvrir à la vérité de l’amour et de la présence de Dieu.
 

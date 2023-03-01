@@ -9,7 +9,7 @@ weight:
 ---
 ### Levez-vous et Brillez!
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 21 Novembre 2020, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 21 Novembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis là pour vous aider.
 

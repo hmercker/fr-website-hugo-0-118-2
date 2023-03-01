@@ -9,7 +9,7 @@ weight:
 ---
 ### Les couches de conscience dans l’âme, le mental et le matériel
 
-Flavius Josèphe - reçu par Al Fike le 6 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 6 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénis, mes amis bien-aimés. Oui, je suis Flavius Josèphe et je fus en effet un philosophe à l’époque de la vieille tradition juive. Je suis maintenant un habitant du Royaume Céleste. Je remercie cet instrument de m’avoir permis de parler et je vous remercie tous de m’avoir permis de vous parler aujourd’hui.
 

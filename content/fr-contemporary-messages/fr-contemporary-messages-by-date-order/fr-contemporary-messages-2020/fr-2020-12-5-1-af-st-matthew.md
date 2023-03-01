@@ -9,7 +9,7 @@ weight:
 ---
 ### Les fondations sont dans votre âme
 
-St Matthieu - reçu par Al Fike le 5 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 5 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Je voudrais encourager chacun d’entre vous à être introspectif et contemplatif en ce qui concerne vos propres dons, votre but et les conseils de Dieu. Car si vous ne savez pas clairement en vous-mêmes ce que vous êtes censés faire, ce qui est important pour votre âme en relation avec Dieu et en servant la Volonté de Dieu, alors vous ne serez pas en mesure d’exprimer avec clarté ce que vous êtes en train de créer ici ensemble. Car si vous devez construire une structure solide et substantielle, les fondations que vous voyez à la surface ne sont pas tout ce qui est nécessaire pour soutenir cette structure. Vous devez être capable de creuser profondément pour construire les fondations. Et ces fondations se trouvent dans votre âme – la clarté, la compréhension, l’intention aimante, les dons qui sont en vous et l’expression de ces dons dans le monde.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuez à vous considérer comme des instruments de la Volonté de Dieu
 
-Professeur Salyards - reçu par Al Fike le 5 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 5 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi votre professeur Salyards. Notre cher et bien-aimé Matthieu exprime une vérité profonde et des informations vitales pour la poursuite de ces efforts.
 

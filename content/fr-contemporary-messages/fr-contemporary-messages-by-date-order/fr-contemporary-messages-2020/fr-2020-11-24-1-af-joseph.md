@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Aube d’une ère nouvelle
 
-Joseph - reçu par Al Fike le 24 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 24 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Amis bien-aimés, je suis Joseph. Un nouveau jour se lève, une nouvelle ère pour l’humanité, pour redresser les torts, pour guérir l’erreur, pour apporter la lumière dans votre monde, non pas grâce à tous les plans et les efforts de l’homme seul, mais avec les bénédictions de Dieu qui se déversent sur votre Terre et qui réveillent l’humanité de ses somnambules.
 

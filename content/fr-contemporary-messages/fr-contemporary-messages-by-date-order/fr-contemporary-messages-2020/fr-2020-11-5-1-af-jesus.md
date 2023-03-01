@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 6 : L’âme
 
-Jésus - reçu par Al Fike le 5 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 5 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-argentine.jpg)
 

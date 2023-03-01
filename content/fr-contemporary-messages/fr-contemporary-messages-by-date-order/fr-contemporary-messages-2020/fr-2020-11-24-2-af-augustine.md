@@ -9,7 +9,7 @@ weight:
 ---
 ### Leadership et service
 
-Augustin - reçu par Al Fike le 24 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 24 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, votre enseignant Augustin. Je tiens à vous assurer que votre fils va guérir. Il n’y a pas de problèmes structurels dans sa jambe, seulement des foulures et des déchirures qui sont douloureuses et qui l’obligent à se reposer et à avoir la foi que tout ira bien avec le temps.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuer à avancer
 
-Kahlil Gibran - reçu par Jimbeau Walsh le 19 Octobre 2020, Punalu’u, Oahu, Hawaii, USA
+Kahlil Gibran - reçu par Jimbeau Walsh le 19 Octobre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-spiritualite-23.jpg)
 

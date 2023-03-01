@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce qui se passe pendant les cercles de lumière
 
-Augustin - reçu par Al Fike le 13 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 13 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que la bénédiction de Son Amour coule dans vos âmes, je suis votre enseignant, Augustin. Je viens vous expliquer un peu plus en détail comment nous pouvons utiliser chacun d’entre vous comme des canaux de lumière dans le monde. Lorsque vous vous réunissez comme vous le faites de cette façon, vous êtes si nombreux à vous unir dans la prière. Vous ajoutez donc une grande lumière et une grande intention d’apporter des bénédictions à vos proches, au monde. Dieu utilise chacun de vous en fonction de votre lumière, de vos désirs et de vos intentions. Oui, vous êtes tous sur ce chemin, ce voyage d’éveil, de lumière, d’harmonie et d’alignement avec Dieu et, conformément à cet alignement et à cette lumière en vous, vous êtes en mesure d’être une partie puissante de ce circuit, de ce réseau de lumière qui continue à se répandre dans le monde.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos efforts seront alignés sur la Volonté de Dieu
 
-Professeur Salyards - reçu par Al Fike le 21 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 21 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, c’est votre professeur Salyards et je vous salue et vous dit alléluia ! Si c’est ce que vous souhaitez, alors bien sûr, nous, dans le royaume céleste, sommes heureux de vous reconnaître, de vous donner cette tape sur l’épaule que vous désirez. Car en effet, vous travaillez tous ensemble, en explorant les possibilités et les potentialités de cette grande entreprise. Et chacun de vous, comme vous l’avez vu aujourd’hui, peut contribuer grandement à ces efforts. Vos perspectives et vos idées sont importantes et je vous invite tous à les partager autant que vous le pouvez. Car c’est dans ces collaborations et ces conversations que vous éveillez certains aspects de votre mental et de votre âme à ces aspects et éléments de ce qui est nécessaire pour poser les bases de cette belle entreprise. Cela vient lentement, mais en effet, cela vient avec une détermination résolue qui reflète la volonté de Dieu, que dans le plan de Dieu, il y a une force, il y a une puissance, il y a la capacité d’accomplir ces intentions, des intentions divines pour l’éveil de l’humanité. Permettez-vous d’être immergés dans ce fleuve, ce fleuve d’Amour, ce fleuve qui apportera l’accomplissement du dessein et l’expression du désir de servir de l’âme.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Sentir l’afflux de l’Amour Divin dans l’âme et sentir les barrières
 
-Augustin - reçu par Al Fike le 15 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Chers enfants, nous sommes très heureux, dans le Royaume Céleste, de vous voir ainsi réunis. Je suis votre enseignant Augustin. Je souhaite aborder un sujet qui constitue un obstacle très important vis à vis de votre relation avec Dieu et à la prise de conscience de votre relation avec Dieu et votre propre âme. C’est ce qui se trouve dans votre mental, vos pensées, que vous entretenez chaque jour, car votre mental devient souvent un grand obstacle à Dieu puisque Dieu vous demande de communiquer avec Lui par l’intermédiaire de votre âme, car Il vous a donné les facultés pour pouvoir le faire dans votre âme.
 

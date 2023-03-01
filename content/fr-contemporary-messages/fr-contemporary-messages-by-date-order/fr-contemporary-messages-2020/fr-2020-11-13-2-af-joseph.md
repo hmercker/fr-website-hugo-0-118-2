@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître les dons et les bénédictions des anges
 
-Joseph - reçu par Al Fike le 13 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Joseph - reçu par Al Fike le 13 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Joseph. Je viens vous dire que ceux d’entre vous qui sont sincères dans leurs prières et leurs efforts pour atteindre le Père Céleste afin de recevoir le don de Son Amour, ont à leur disposition et à leur soutien tout le Royaume Céleste. Nous faisons de grands efforts pour vous élever, pour vous amener à la lumière, pour vous protéger, pour vous guider et vous encourager et pour vous apporter l’inspiration. Nous pouvons faire beaucoup de choses pour vous soutenir, des choses qui autrement ne pourraient pas vous être d’un grand bénéfice, mais qui viennent de cette relation entre nous et vos belles âmes. Apprenez à le savoir. Venez savoir à quel point vous êtes profondément aimés et pris en charge, à quel point l’Amour de Dieu pour chacun d’entre vous et votre reconnaissance de cet amour et de cette bénédiction vous apportent de grands bénéfices de lumière, de paix, de guérison, de nombreuses bénédictions qui autrement ne seraient pas dans vos vies.
 

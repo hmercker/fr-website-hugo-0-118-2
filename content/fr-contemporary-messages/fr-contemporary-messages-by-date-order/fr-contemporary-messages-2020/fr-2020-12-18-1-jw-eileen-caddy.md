@@ -9,9 +9,9 @@ weight:
 ---
 ### Votre volonté et la Volonté de Dieu
 
-Eileen Caddy - reçu par Jimbeau Walsh le 18 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 18 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
-Je suis ici Tante Eileen, votre sœur en Christ. Je souhaite vous dire quelques mots sur le libre arbitre et la Volonté de Dieu. Vous pouvez réfléchir au nombre de fois où vous utilisez l’expression « je veux » ou « je ne veux pas ». Par exemple, lorsqu’on vous demande de faire une tâche, une tâche que vous aimez et que vous attendez avec impatience, vous dites : *« Oui, je serai là. »*
+Je suis ici Tante Eileen, votre sœur en Christ. Je souhaite vous dire quelques mots sur le libre arbitre et la Volonté de Dieu. Vous pouvez réfléchir au nombre de fois où vous utilisez l’expression *« je veux »* ou *« je ne veux pas »*. Par exemple, lorsqu’on vous demande de faire une tâche, une tâche que vous aimez et que vous attendez avec impatience, vous dites : *« Oui, je serai là. »*
 
 Bien sûr, à l’opposé de cela, il y a le fait de devoir ou de devoir faire des choses que vous n’aimez pas ou dont vous ne pensez pas qu’elles vous apporteront quelque chose, surtout de manière positive. Tout ceci est bien sûr dans le domaine de vos vies terrestres.
 

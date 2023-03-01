@@ -9,7 +9,7 @@ weight:
 ---
 ### Orientation pour l'Université de l'âme
 
-Professeur Salyards - reçu par Al Fike le 31 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 31 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, chères âmes, je suis le professeur Salyards. Vous formez tous les quatre une équipe puissante qui va en effet aplanir ces rides, ces problèmes et ces énigmes qui vous sont présentés afin que vous puissiez créer une belle chose. Cette université de l’âme peut être utilisée par Dieu pour toucher de nombreuses âmes. C’est dans la façon dont vous la présentez au monde que vous le faites, sans exciter trop de préjugés et de pensées contraires à ce que vous souhaitez partager.
 

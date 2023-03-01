@@ -9,7 +9,7 @@ weight:
 ---
 ### L'interconnexion de nos âmes
 
-André - reçu par Al Fike le 20 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 20 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu bénisse vos âmes, je suis André. Chacun de vous est connecté à Dieu, comme l’est chaque âme que Dieu a créée. Tous sont reliés à la grande âme de Dieu. Mais beaucoup ne le réalisent pas et ne comprennent pas la signification de cette connexion et les possibilités que cette connexion peut apporter à chaque âme. Car c’est ainsi que Dieu vous bénit et communique avec vous, à travers cette connexion lumineuse qui existe entre vous et votre Créateur. Votre défi est de dégager le chemin, ces obstructions à la connaissance de cette belle connexion synergique entre vous et Dieu. Alors que vos prières coulent vers Lui et que Ses Bénédictions coulent vers vous, le flux et le reflux des énergies d’Amour, de Lumière, de guérison et de paix vous apportent tous l’élévation et la Lumière qui apportent une bénédiction à vos vies.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Levez vos voiles sur l’océan de l’amour de Dieu
 
-Eileen Caddy - reçu par Jimbeau Walsh le 8 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 8 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre sœur et votre amie Tante Eileen. J’espère que les mots que j’ai reçus et qui ont guidé ma vie et, en fait, celle de beaucoup de personnes, continueront d’être une bénédiction. Car ils sont réels et ils sont vrais. L’essentiel est d’être ouvert à Dieu. Que vous entendiez ou non une petite voix fixe ou la voix d’un Ange, ou que vous ayez ou non une vision, je vous dis que si vous laissez votre cœur s’ouvrir pour que Dieu puisse le toucher et remplir votre âme d’Amour, la guidance viendra. Car, comme je l’ai écrit, on ne peut pas remplir un récipient entier.
 

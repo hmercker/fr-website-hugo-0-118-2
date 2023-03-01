@@ -9,7 +9,7 @@ weight:
 ---
 ### Appel à élargir les cercles de lumière
 
-Keea Atta Kem - reçu par Al Fike le 17 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 17 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu bénisse vos belles âmes de Son Amour. Je suis Keea Atta Kem. Je viens vous encourager dans vos prières, vous dire que ce que vous faites ensemble est important, utile et puissant car lorsque des individus se réunissent dans l’unité et la prière pour implorer le Père Céleste de recevoir Son don d’Amour, d’être des canaux d’amour et de lumière pour le monde, d’aider et d’assister ceux que vous aimez, vous rendez un grand service à l’humanité et à vous-mêmes.
 

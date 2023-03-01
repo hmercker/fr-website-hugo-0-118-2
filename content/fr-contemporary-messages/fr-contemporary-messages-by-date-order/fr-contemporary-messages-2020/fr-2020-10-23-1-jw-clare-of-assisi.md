@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour en action
 
-Claire d'Assise - reçu par Jimbeau Walsh le 23 Octobre 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 23 Octobre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-claire-dassise.jpg)
 

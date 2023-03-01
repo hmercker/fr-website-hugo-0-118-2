@@ -9,7 +9,7 @@ weight:
 ---
 ### Inclure les femmes dans l'université de l'âme et d'autres orientations
 
-Keea Atta Kem - reçu par Al Fike le 31 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 31 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes bien-aimées, je veux simplement faire remarquer que de nombreuses femmes seront impliquées dans ce grand effort et projet. Car ce sont souvent les femmes qui ont des intuitions spirituelles et une grande sensibilité et elles peuvent présenter divers voyages de vérité, des idées et des intuitions d’une manière plus douce qui encouragera les autres à explorer ces avenues et à être réconfortées, élevées et encouragées par la perspective féminine. Bien que je sois sûre que de nombreux hommes seront également impliqués, je suis enthousiaste à l’idée que les femmes de votre monde trouveront de merveilleuses opportunités à travers cette université, comme vous l’appelez, et qu’elles trouveront une profonde satisfaction et une gratification spirituelle dans ce travail.
 

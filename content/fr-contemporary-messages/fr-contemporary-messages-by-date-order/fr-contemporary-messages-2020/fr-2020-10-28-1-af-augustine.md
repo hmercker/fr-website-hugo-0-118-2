@@ -9,7 +9,7 @@ weight:
 ---
 ### Barb est passée dans la Cinquième Sphère
 
-Augustin - reçu par Al Fike le 28 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 28 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Barbara, que vous appelez votre mère et votre amie, est entrée dans les royaumes de l’esprit avec facilité et nous l’assistons comme vous le souhaitez et le désireriez. Elle trouve sa place et est heureuse d’être libérée des contraintes physiques. Elle a été accueillie par de très nombreux esprits qui l’ont connue et observée dans sa vie. De nombreux anges l’ont également accueillie alors qu’elle trouvait son chemin vers la vie d’esprit.
 
@@ -20,4 +20,4 @@ Elle ne vous a pas quitté. Elle a seulement quitté son corps charnel et sera p
 Que Dieu vous bénisse tous dans vos voyages. Je suis votre enseignant Augustin et je viens vous assurer que tout est bien et que tout sera bien et rempli de joie et d’amour. Puissiez-vous ressentir la grande rêverie de ces moments de passage. La lumière de son âme l’a amenée à une plus grande lumière dans le monde de l’esprit. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse et vous garde bien portants et proches de votre amour l’un pour l’autre et pour cette chère Barbara. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Barbara a donné plus de détails ultérieurement par [ce message](//fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/)[↩](#a1)
+1. <large id=”f1”> Barbara a donné plus de détails ultérieurement par [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/)[↩](#a1)

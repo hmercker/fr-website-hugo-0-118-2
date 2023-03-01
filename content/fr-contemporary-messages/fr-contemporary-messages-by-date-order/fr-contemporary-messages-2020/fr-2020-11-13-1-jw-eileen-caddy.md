@@ -9,7 +9,7 @@ weight:
 ---
 ### Commencez votre journée en vous ouvrant à Dieu
 
-Eileen Caddy - reçu par Jimbeau Walsh le 13 Novembre 2020, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 13 Novembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Eileen. Vous pouvez me considérer comme votre chère Tante Eileen qui veille sur vous, et bien que cela fasse un certain temps que je n’ai pas communiqué avec celui-là, je n’ai pas été absente de vos vies et de vos conversations.
 

@@ -24,4 +24,4 @@ Comme vous le dites, « détendez-vous ». Je l’ai fait. C’est mon souhait
 Je vous remercie. Je vous aime plus que vous ne le pensez. Je suis votre sœur, je suis votre grand-mère, je suis votre amie, je suis ta bien-aimée. Je suis Care. Que Dieu vous bénisse !
 <small>
 
-1. <large id=”f1”> référence à la chanson « tiny gods ».[↩](#a1)
+1. <large id=”f1”> Référence à la chanson « tiny gods ».[↩](#a1)

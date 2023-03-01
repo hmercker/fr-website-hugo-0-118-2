@@ -9,7 +9,7 @@ weight:
 ---
 ### Pas une petite chose pour le monde entier
 
-Claire d'Assise - reçu par Jimbeau Walsh le 28 Novembre 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 28 Novembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre sœur Claire.
 

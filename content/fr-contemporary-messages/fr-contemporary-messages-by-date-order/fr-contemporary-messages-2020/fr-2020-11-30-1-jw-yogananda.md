@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chemin du cœur
 
-Yogananda - reçu par Jimbeau Walsh le 30 Novembre 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 30 Novembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Yogananda et je viens dans l’Amour de Dieu.
 

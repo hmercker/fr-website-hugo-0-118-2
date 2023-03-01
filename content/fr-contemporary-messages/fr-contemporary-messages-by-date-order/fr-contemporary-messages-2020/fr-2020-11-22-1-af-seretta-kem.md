@@ -9,7 +9,7 @@ weight:
 ---
 ### Le don de voix directe se rapproche - Voix Directe
 
-Seretta Kem - reçu par Al Fike le 22 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 22 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, Seretta Kem. Vous vous rapprochez de la réalisation de ce don d’expressions et de manifestations matérielles en alignement avec l’Amour de Dieu et la Volonté de Dieu. Vous aurez l’occasion d’être des instruments de cette manière alors que vous continuez à exprimer et à réaliser les potentiels intérieurs de vos âmes qui s’éveillent toujours plus lentement, s’éveillant à la vérité, s’éveillant au plan de Dieu, s’éveillant à votre propre connaissance intérieure et à vos dons qui sont allumés par la bénédiction de l’Amour Divin.
 

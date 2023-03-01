@@ -9,7 +9,7 @@ weight:
 ---
 ### Vivre l'instant présent
 
-Claire d'Assise - reçu par Jimbeau Walsh le 28 Octobre 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 28 Octobre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Mes chers amis, c’est moi, Claire. Je suis ici dans le moment présent. Et comme ces mots sont sages, d’être ici dans le moment, de vivre dans le moment. Les autres créatures de Dieu, dans le règne animal, sont souvent ravies de s’observer les unes les autres, et d’être dans le moment présent. En effet, en règle générale, ils sont simplement présents. Ils ont leurs routines pour manger et s’accoupler, parfois chasser et chercher de la nourriture.
 

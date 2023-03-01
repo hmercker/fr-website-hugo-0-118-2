@@ -9,7 +9,7 @@ weight:
 ---
 ### Faites de la prière à Dieu une priorité afin de surmonter vos obstacles
 
-Augustin - reçu par Al Fike le 22 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 22 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse de Son Amour. Mes chers étudiants, je suis Augustin. Je viens vous entretenir de votre vie de prière en dehors de ce cercle. Bien que ces cercles auxquels vous participez ensemble soient importants, nous avons exprimé notre profond désir que vous continuiez à vous réunir de cette manière car vous faites une lumière puissante dans le monde, une lumière que nous pouvons utiliser et que Dieu peut utiliser afin d’atteindre de nombreuses âmes dans votre monde. Et c’est en effet un effort important et une belle pratique alors que vous priez ensemble pour l’afflux de l’Amour du Père et que vous priez pour être utilisés comme instruments de Son Amour et de Ses soins dans le monde, mais nous souhaitons que vous voyiez vos efforts ici, ces Cercles de Lumière que vous formez, comme des actes de service pour l’humanité et une autre occasion de recevoir le don de l’Amour du Père.
 

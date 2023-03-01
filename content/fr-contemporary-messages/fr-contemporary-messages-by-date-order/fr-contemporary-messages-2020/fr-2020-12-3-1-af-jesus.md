@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 10 : Un monde en mutation et un appel à l’unité
 
-Jésus - reçu par Al Fike le 3 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 3 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, c’est moi, votre frère et ami, Jésus, qui vient une fois de plus pour parler, pour parler à toutes les âmes bénies qui sont prêtes à ouvrir leurs oreilles et leurs esprits et leurs âmes à la vérité. Car je ne peux dire que la vérité, mes bien-aimés, et je ne le ferai qu’à travers cet instrument qui se veut être mon canal d’amour et d’encouragement et de partage des perceptions de la vérité dans le monde.
 

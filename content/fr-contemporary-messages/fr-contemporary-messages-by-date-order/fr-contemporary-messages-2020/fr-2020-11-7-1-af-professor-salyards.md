@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils pour l'Université de l'âme
 
-Professeur Salyards - reçu par Al Fike le 7 Novembre 2020, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 7 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Je suis le professeur Salyards. Vous allez explorer de nouveaux paradigmes de pensée et d'approche. Vous serez guidé dans la mise en œuvre de ces nouvelles idées, pensées et expressions créatives. Cela vous viendra de plusieurs façons. Parfois, ce sera dans un rêve, parfois dans une prière, parfois dans vos conversations. Nous travaillerons avec vous et vous apporterons l'inspiration dans ces nombreuses façons et facettes de votre vie et de l'expression de votre vie. Attendez-vous à l'inattendu, attendez-vous à être surpris, à être éveillé à de nouvelles idées, à être inspiré, à agir de nouvelles manières qui sont inhabituelles pour vous dans votre vie. C'est l'innovation qui apportera les nouvelles compréhensions, les dialogues et les enseignements d'un nouveau monde qui est sur le point d'émerger.
 

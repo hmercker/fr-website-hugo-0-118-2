@@ -9,7 +9,7 @@ weight:
 ---
 ### Le miracle de la transformation de l'âme
 
-Yogananda - reçu par Jimbeau Walsh le 14 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 14 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère et ami dans l’Amour de Dieu. Je suis Yogananda. Je viens à ce rassemblement attiré par vos prières, chaque âme aspirant à être touchée, à recevoir l’essence du Créateur. Le miracle qu’est la transformation de chaque âme dans l’Amour de Dieu. Vous n’avez pas besoin de quitter votre corps, seulement de mettre votre âme en premier. Quand vous faites cela, quand vous laissez votre cœur être touché et que Dieu ouvre votre âme, et vous êtes soulevés, et vous pouvez être guéris.
 

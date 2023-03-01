@@ -9,7 +9,7 @@ weight:
 ---
 ### Libre Arbitre et Perfectionnisme
 
-Augustin - reçu par Al Fike le 27 Octobre 2020, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 27 Octobre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Oui, le don du libre arbitre a été un dilemme pour l’humanité depuis le début. Avoir le pouvoir de choisir est un grand don et pourtant ce pouvoir de choisir crée de nombreuses conditions et situations qui ne sont pas en harmonie avec les Lois de Dieu. Bien que, sans ce don, la possibilité d’un grand progrès et de l’évolution de l’humanité n’aurait pas été possible.
 
