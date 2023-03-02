@@ -9,7 +9,7 @@ weight:
 ---
 ### Accrochez-vous à l'espoir
 
-Claire d'Assise - reçu par Jimbeau Walsh le 30 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 30 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis heureuse d’être avec mes gentilles souris. Alors que nous approchons d’une nouvelle aube, vous pouvez vous sentir comme sur un précipice avec la vue d’un nouveau monde, mais aussi les dangers de la chute, et ce qui est demandé au monde pour changer. Si vous pouvez retenir cette vision et sentir l’amour, l’Amour de Dieu et la bonté du changement, vous pouvez laisser tomber vos peurs, vos préoccupations, vos trépidations qui remplissent le monde de la pensée et des émotions de l’humanité à l’heure actuelle. Tant de craintes, et pourtant il y a tant d’espoir. Je demande à chacun d’entre vous de garder cet espoir dans son cœur et de l’apporter aux autres. Le monde a besoin d’être relevé en cette période de transition et de grands changements. Ne perdez pas l’espoir, ne perdez pas de vue la belle vallée en dessous depuis le sommet de l’Amour Divin que vous portez dans votre âme, envisagez, comme c’est votre souhait, que le monde soit changé dans l’amour et la paix ; un nouveau monde d’égalité, de durabilité.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous serons à vos côtés à tout moment
 
-Professeur Salyards - reçu par Al Fike le 19 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 19 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Et je n’ajouterai que quelques mots, je suis le professeur Salyards. Mon engagement envers vous est d’assister chacun d’entre vous dans ce grand effort et ce voyage pour découvrir les moyens de servir l’humanité par les dons de votre âme. Moi-même et beaucoup d’autres personnes du Royaume Céleste sommes avec vous dans ce voyage. Nous serons à vos côtés à tout moment et à votre disposition. N’oubliez pas cela lorsque vous pensez à ces opportunités et à cette conversation et que vous avez des questions ou que vous doutez ou que vous vous sentez réticent, demandez-nous de vous aider, de vous guider, de vous informer afin que vous puissiez obtenir des réponses à ces questions, afin que vous puissiez voir au-delà des limites de votre pensée afin de voir la vérité au sein de votre âme.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### C’est à vous de connaître la volonté de Dieu
 
-St Matthieu - reçu par Al Fike le 19 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 19 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 La Volonté de Dieu est toujours avec vous, âmes bien-aimées, je suis Matthieu. C’est à vous de connaître la volonté de Dieu et vous comprenez les voies et moyens qui vous permettent de connaître la volonté de Dieu : c’est l’ouverture et le développement de votre âme dans l’Amour de Dieu. Ainsi vous arriverez à savoir ce que Dieu souhaite que vous fassiez, ce qui est dans le plan de Dieu pour chacun de vous. Aujourd’hui, vous avez écouté la Volonté de Dieu, n’est-ce pas ? Vous avez fait l’effort de vous rassembler, de reconnaître vos frères et sœurs, de dire *« Je suis prêt à me réunir en harmonie et à travailler ensemble en harmonie avec la Volonté et le plan de Dieu ; je reconnais que c’est l’Amour Divin, la puissance de l’Amour qui m’éveille à ces possibilités et opportunités de servir l’humanité. »*
 

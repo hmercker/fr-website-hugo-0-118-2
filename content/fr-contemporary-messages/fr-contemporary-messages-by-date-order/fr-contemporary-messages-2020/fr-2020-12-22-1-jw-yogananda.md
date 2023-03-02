@@ -9,7 +9,7 @@ weight:
 ---
 ### Célébration de la naissance de Jésus
 
-Yogananda - reçu par Jimbeau Walsh le 22 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 22 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je viens dans l’Amour de Dieu. Je suis Yogananda.
 

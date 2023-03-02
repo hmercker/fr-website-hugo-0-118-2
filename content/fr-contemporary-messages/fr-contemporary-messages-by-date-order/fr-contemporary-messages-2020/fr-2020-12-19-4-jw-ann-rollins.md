@@ -9,7 +9,7 @@ weight:
 ---
 ### Croyances erronées et Amour Divin
 
-Anne Rollins - reçu par Jimbeau Walsh le 19 Décembre 2020, Punalu’u, Oahu, Hawaii, USA
+Anne Rollins - reçu par Jimbeau Walsh le 19 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Anne Rollins. Comme vous me connaissez, je ne vois pas la nécessité de me présenter davantage. Je voudrais parler de la façon dont il est possible de croire en des réalités moindres que l’amour tout en étant dans l’Amour de Dieu, car vous savez qu’il n’est pas possible d’être à la fois dans la haine et dans l’amour. Je vous dis que lorsque quelqu’un prie et demande à Dieu d’ouvrir son âme à Son grand Amour, il ne fait pas de distinction selon que cette personne est un pécheur ou un saint, qu’il soit riche ou pauvre, Catholique ou Juif ou Musulman. Le monde est rempli de croyances mentales et parfois ceux qui ont le sentiment de ne pas avoir leur mot à dire, vont soutenir ceux qui semblent avoir une voix forte, et dans un sens, donner une partie de leur identité à cette voix pour se protéger. Si cette voix n’est pas amoureuse, de l’amour, alors cette accroche est simplement le mental dans la peur. Cependant, lorsqu’une âme s’écarte pour permettre à ses aspirations et à ses désirs profonds de s’unir au Père Céleste dans son amour, il n’y a pas de haine, d’inimitié ou de négativité au moment de la réception. Aussi vexé que cet esprit ait pu être, il est maintenant en condition et en harmonie avec l’amour de Dieu et ses lois.
 

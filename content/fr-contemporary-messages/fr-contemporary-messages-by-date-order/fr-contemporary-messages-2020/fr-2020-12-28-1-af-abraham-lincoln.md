@@ -9,7 +9,7 @@ weight:
 ---
 ### Abraham Lincoln parle de la condition de l’Amérique et nous implore d’atteindre la lumière
 
-Abraham Lincoln - reçu par Al Fike le 28 Décembre 2020, Gibsons, Colombie-Britannique, Canada
+Abraham Lincoln - reçu par Al Fike le 28 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-abraham-lincoln-1.jpg)
 
