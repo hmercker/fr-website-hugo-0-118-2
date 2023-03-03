@@ -16,6 +16,3 @@ Je ne pense pas que vous puissiez obtenir un soutien plus important que cela, me
 Vous continuerez à être guidés, élevés et inspirés. Nous sommes également avec vous. Nous sommes tous à vos côtés. Si seulement vous pouviez voir le nombre de personnes réunies autour de vous, priant pour votre succès, désireuses de vous soutenir, désireuses d’utiliser leurs dons pour rehausser et éveiller vos dons afin d’apporter au monde la clarté et la vérité et tout ce qui est bon et de lumière.
 
 Que Dieu vous bénisse, mes amis. Je suis humble et joyeux de vos efforts et de nos efforts pour le bien de l’humanité. Que Dieu vous bénisse profondément, mes amis. Je suis moi aussi avec vous dans l’amour, la reconnaissance et la joie. Que Dieu vous bénisse.
-
-
-

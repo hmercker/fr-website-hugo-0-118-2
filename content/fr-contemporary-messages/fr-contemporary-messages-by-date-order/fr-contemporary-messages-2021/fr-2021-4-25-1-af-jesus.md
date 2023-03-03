@@ -30,6 +30,3 @@ Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Je suis votre frère et 
 Que Dieu vous bénisse, mes bien-aimés. Je viens à vous une fois de plus, dans la prière et les mots d’encouragement et d’amour. Sachez que je marche avec vous, que des centaines d’anges marchent avec chacun d’entre vous sur ce chemin d’amour.
 
 Dieu vous bénit, je suis avec vous, Dieu vous bénit, âmes bien-aimées.
-
-
-

@@ -22,6 +22,3 @@ Nous vous remercions tous d’avoir participé à cet effort et nous vous encour
 Oui, il y a beaucoup de choses qui peuvent être faites et certainement beaucoup de choses qui doivent être faites pour aider à éclairer votre monde. Vos efforts, votre temps, votre dévouement sont très nécessaires et très appréciés. En effet, Dieu bénit ceux qui sont prêts à être des serviteurs de la bénédiction pour les autres. Je vous le dis donc, continuez à vous élever vers la plus haute de toutes les conditions, à être une lumière dans le Monde et à permettre à Dieu de vous utiliser comme ses instruments pour éclairer le monde.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem et puisse la grande Essence de l’âme de Dieu remplir votre âme d’un amour toujours plus grand, éveillant tout ce qui est en vous. Que Dieu vous bénisse, mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

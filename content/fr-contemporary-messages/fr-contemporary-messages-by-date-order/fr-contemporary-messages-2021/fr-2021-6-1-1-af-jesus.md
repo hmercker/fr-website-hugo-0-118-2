@@ -22,6 +22,3 @@ Nous apportons donc l’amour, le pouvoir de l’amour pour guérir et apporter 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Mon amour est avec vous et de nombreux anges sont avec nous aujourd’hui alors que nous continuons à prier pour votre monde et pour tous ceux qui l’habitent. Nous continuons à prier pour la paix et l’harmonie, pour que tout ce qui est censé être dans ce monde se réalise, pour que tout ce qui est dans ce monde puisse atteindre une plus grande harmonie et lumière. Nous prions donc ensemble. Ainsi, nous sommes ensemble des agents de Dieu, travaillant pour le bénéfice de l’humanité, travaillant pour apporter plus de lumière et d’harmonie, travaillant pour enseigner aux autres et démontrer aux autres le pouvoir de l’amour, le grand amour de l’âme de Dieu qui peut effectivement transformer votre âme et toutes les âmes sur cette Terre et dans les mondes de l’esprit.
 
 Ces bénédictions viennent, mes bien-aimés. Ces bénédictions viennent avec vos prières, avec vos désirs, avec vos efforts pour atteindre Dieu et être dans cette grande lumière, cette touche bénie et sainte qu’est l’Esprit Saint sur vous qui recherchez l’afflux de l’Essence de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Que Dieu vous bénisse.
-
-
-

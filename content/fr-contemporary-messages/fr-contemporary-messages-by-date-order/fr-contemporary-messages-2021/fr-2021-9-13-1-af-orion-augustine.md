@@ -1,13 +1,13 @@
 ---
-title: "Décrit plus en détail son travail avec ce projet VD "
+title: "Décrit plus en détail son travail avec ce projet VD"
 menu_title: ""
-description: "Décrit plus en détail son travail avec ce projet VD "
+description: "Décrit plus en détail son travail avec ce projet VD"
 date: 2022-06-01 06:00:01+00:1638
 draft: False
 hidden: True
 weight:
 ---
-### Décrit plus en détail son travail avec ce projet VD 
+### Décrit plus en détail son travail avec ce projet VD
 
 Orion & Augustin - reçu par Al Fike le 13 Septembre 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -36,6 +36,3 @@ Nous pouvons le faire pour vous, mais vous devez aligner votre âme avec Dieu po
 Ayez une attitude de prière, mes amis. Venez voir que c’est vraiment un voyage de changement, de transformation, alimenté par l’amour, alimenté par les bénédictions de Dieu sur nous tous. Puissions-nous continuer à voyager ensemble et nous trouverons notre chemin de manière surprenante, délicieuse, joyeuse et merveilleuse.
 
 Merci d’aller de l’avant et de permettre à ces efforts d’être faits sur vous et avec vous. Les récompenses seront grandes, mes amis. Le réveil sera vraiment merveilleux. Que Dieu nous bénisse tous alors que nous continuons à travailler ensemble. Que Dieu vous bénisse et vous garde dans Son Amour. Je suis Orion. Mon amour pour vous est grand. Mes frères et sœurs éloignés, c’est merveilleux d’être avec vous, d’apprendre à vous connaître, d’apprendre à apprécier la race humaine à travers vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous, âmes bien-aimées.
-
-
-

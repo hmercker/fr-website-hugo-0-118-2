@@ -20,6 +20,3 @@ Je bénis chacun d’entre vous, mes bien-aimés. Mon amour et ma reconnaissance
 Bien-aimés, continuez à rechercher le grand cadeau de l’Amour de Dieu, à vous éveiller à ce cadeau pour que vos âmes puissent connaître le voyage qu’elles doivent faire, pour que vous voyiez tous les efforts que vous ferez, et vous trouverez votre chemin sur cette voie qui est la volonté et le désir de Dieu pour vous. Ensemble, vous formez une force formidable qui aura effectivement ses effets sur votre monde. Continuez à être ensemble en harmonie, à marcher ensemble en vous faisant confiance les uns aux autres et en permettant à chacun d’exprimer ses dons, ses idées et ses capacités pour le bénéfice de cette grande entreprise.
 
 Vous êtes bénis, mes bien-aimés, vous êtes bénis et entourés de Lumière. L’Amour de Dieu est avec vous, Sa grâce repose sur vous, la paix profonde de Sa présence est avec vous, bien-aimés. Dieu vous bénit. Je suis toujours avec vous, car partout où une âme cherche à être en alignement avec la Vérité et avec Dieu, en recevant Son Amour, je suis avec elle, son frère sur la route. Que Dieu vous bénisse, mes bien-aimés, mon amour est avec vous.
-
-
-

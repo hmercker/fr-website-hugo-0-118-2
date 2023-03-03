@@ -16,6 +16,3 @@ Oh mes beaux amis, si seulement vous pouviez passer une journée au ciel et comp
 Ne ressentez pas de frustration ou d'inadéquation ou le sentiment que vous devez faire tout cela parfaitement et en alignement avec la Volonté de Dieu, car nous comprenons que ce n'est pas possible. Mais nous vous encourageons, mes amis, à vous efforcer d'atteindre cet alignement qui est si nécessaire en vous et avec toute l'humanité. Dans cet alignement, les enseignements, qui doivent passer par vous et toucher de nombreuses âmes, seront clairs, puissants et beaux. Cela arrive. Accordez-vous l'amour, la patience et la persistance. Soyez avec Dieu autant que vous le pouvez. Priez et priez encore et tout se déploiera dans des expressions glorieuses, belles et aimantes.
 
 Que Dieu vous bénisse, mes beaux amis. Je suis votre serviteur, votre professeur, votre soutien affectueux. Votre propre professeur Salyards est avec vous. Que Dieu vous bénisse.
-
-
-

@@ -9,7 +9,8 @@ draft: False
 hidden: True
 weight:
 ---
-### 
+### Vous ferez la connaissance de nombreux frères et sœurs d'autres mondes
+
 Vous ferez la connaissance de nombreux frères et sœurs d'autres mondes
 
 Michaël Colliers - reçu par Al Fike le 24 Août 2021, Gibsons, Colombie-Britannique, Canada
@@ -50,6 +51,3 @@ Mes amis, c’est étape par étape. Étant donné les conditions de votre monde
 Puissiez-vous être conscients. Puissiez-vous recevoir. Puissiez-vous libérer ces conditions de l’esprit qui bloquent cette réception et cette prise de conscience et venir connaître la douceur de l’Amour de Dieu, ce goût, ce goût merveilleux et l’élixir qui vient dans l’âme, Ses Eaux Vives qui vous nettoient, vous éveillant à tout ce qui est merveilleux et joyeux et de lumière.
 
 Que Dieu vous bénisse, mes amis. Je suis Michael Collier. Je suis très heureux de vous parler aujourd’hui de choses qui peuvent vous surprendre mais qui font effectivement partie de l’ouverture de la vérité. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
-
-
-

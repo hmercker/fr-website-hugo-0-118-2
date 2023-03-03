@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 18 Février 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/lumiere-spirituelle.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-lumiere-spirituelle.jpg)
 
 Que le grand Amour de Dieu continue à trouver un afflux dans vos âmes, chers et beaux amis. Je viens de nouveau vers vous. Je viens pour répondre aux questions que mes frères et sœurs ont posées. Je suis un peu déconcerté par cet instrument qui est un peu nerveux par rapport à son rôle et à sa capacité d’agir comme mon instrument de communication. Je tiens à lui assurer que notre relation est forte et qu’il est tout à fait capable d’être utilisé comme un instrument de cette manière. Il n’y a pas lieu de s’inquiéter. En fait, son attitude reflète son humilité et c’est une qualité attachante de cet instrument, mon ami et frère bien-aimé qui continue à se rendre disponible pour ces séances et ces communications.
 
@@ -90,6 +90,3 @@ Bien que vous soyez humain et donc que vous entreteniez de nombreuses pensées e
 Libérez-vous, âmes bien-aimées. Libérez-vous de tout ce qui n’est pas en harmonie avec l’amour. Permettez à l’amour d’être la grande vérité de votre existence. Permettez à votre âme d’être l’expérience prédominante de la vie. Permettez-vous les grands bénéfices qui viennent avec ceux qui marchent sur le Chemin Divin. Ils sont nombreux et plus puissants que les ténèbres.
 
 C’est ainsi que je vais conclure notre première session de questions. J’espère que nous avons réussi à inspirer, informer, éduquer et soulager les inquiétudes de mes frères et sœurs afin qu’ils puissent s’engager dans la vie sur ce monde avec joie, compréhension, sagesse et détermination. Que Dieu vous bénisse tous, âmes bien-aimées. Que Son Amour continue à vous réveiller pleinement et à vous apporter toute la vérité qu’Il souhaite donner à chacun de Ses enfants sur cette Terre et dans le monde de l’esprit et des Cieux Célestes. La vérité continue de couler de la Grande Âme de Dieu vers les âmes des hommes et des femmes de votre monde et du prochain. Que Dieu vous bénisse. Dieu vous bénisse tous, âmes bien-aimées, et vous remercie.
-
-
-

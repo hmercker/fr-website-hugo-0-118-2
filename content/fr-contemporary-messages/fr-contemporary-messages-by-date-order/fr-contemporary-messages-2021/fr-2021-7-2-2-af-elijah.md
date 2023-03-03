@@ -32,8 +32,3 @@ L’amour sera le fondement de tout ce qui est et sera dans votre monde. Ensembl
 Vous êtes destinés à être dans la lumière, âmes bien-aimées. Vous êtes destinés à vivre une vie qui est en harmonie avec toute la création de Dieu. Vous trouverez votre chemin vers cet endroit, ce bel endroit où tout est en grande harmonie, paix et amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Élie et je viens à vous avec amour et avec le désir de vous assurer que le grand plan de Dieu pour l’humanité est en train d’être mis en œuvre en ce moment même et qu’il continuera à être exprimé de nombreuses, belles et merveilleuses manières. A travers vous et à travers beaucoup d’autres, le plan de Dieu sera accompli. Tout sera en harmonie. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
-
-
-
-
-

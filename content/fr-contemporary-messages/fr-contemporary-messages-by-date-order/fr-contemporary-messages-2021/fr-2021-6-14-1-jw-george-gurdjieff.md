@@ -18,6 +18,3 @@ J’ai vu l’omniprésence du sommeil et toute l’auto-gratification, l’auto
 Les religions conventionnelles ont développé des rituels pour rappeler aux gens Dieu, l’amour, leur distance, et amener leur conscience et leur concentration de la distraction à la prière. J’ai pu constater à mon époque, qui s’est étendue jusqu’au 20e siècle, que ce qui avait commencé comme une merveilleuse façon de se réveiller était devenu un rituel vide avec tous les pièges du matérialisme spirituel, à quelques exceptions près. Ainsi donc, puisque vous ne vivez pas dans un monastère, un temple ou une grotte, voici votre défi.
 
 Vous avez choisi de venir dans ce sanctuaire et d’ouvrir vos cœurs pour que Dieu puisse apporter Son essence dans chacune de vos âmes. C’est une merveille à contempler. J’ai été attiré dans votre cercle par la prière de mon petit-fils spirituel, par le désir ardent de chaque âme et par la lumière que je pouvais voir émaner. Ne désespérez pas, restez dans votre prière et continuez à apporter cette lumière dans le monde. Car il y a une multitude dans ce royaume de Lumière et d’Amour, le royaume du Christ, qui vous soutient et vous influence. Merci de m’avoir permis de venir. Je vais me retirer pour être dans votre bénédiction. Que Dieu vous couvre d’amour Divin. Je suis votre frère dans le Christ, George Gurdjieff. Allez en paix.
-
-
-

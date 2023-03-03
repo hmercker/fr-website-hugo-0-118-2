@@ -20,6 +20,3 @@ Considérez que, même à mon époque, il y avait une hiérarchie très puissant
 Et à partir de ces humbles débuts, de grands changements se sont produits et jusqu’à ce jour, beaucoup choisissent de suivre la simplicité de mon ordre et de celui des Clarisses, et nous veillons sur eux, nous les influençons, nous les guidons, comme nous le faisons avec vous. Je souhaite seulement ajouter que lorsque vous êtes dans l’amour de Dieu, dans Sa Grâce, vous pouvez sentir le flux et l’harmonie de Ses lois et oui, l’étreinte de l’humanité, et l’influence des sphères célestes. Ceci, mes chers amis, vaut la peine d’être poursuivi.
 
 Je vous le dis de tout mon cœur, avec tout mon amour, et je soutiens vos efforts pour être transformés, car nous sommes tous Un en Dieu, bénis à jamais. Et sachez que votre amour fera une différence, et c’est le cas. Ainsi soit-il ! Je vous laisse dans la paix et la prière. Je suis votre frère et ami éternel dans l’amour de Dieu. Je suis Francis. Que Dieu vous bénisse.
-
-
-

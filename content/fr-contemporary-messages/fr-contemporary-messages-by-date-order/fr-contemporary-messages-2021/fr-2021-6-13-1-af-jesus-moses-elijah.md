@@ -11,7 +11,9 @@ weight:
 
 Jésus & Moïse & Elie - reçu par Al Fike le 13 Juin 2021, Gibsons, Colombie-Britannique, Canada
 
-**Bénédictions à vous tous, âmes bien-aimées. Je suis Moïse.** Je viens aujourd’hui prier pour ce monde avec vous. Je viens aujourd’hui parce que votre monde a grand besoin de toutes les bénédictions que Dieu a à donner à chaque âme sur votre monde et sur le monde de l’esprit, car chaque âme continue sur cette route de progrès et de lumière. Bien que beaucoup soient perdus dans l’obscurité et ne comprennent pas ou ne reconnaissent pas la route vers la lumière, mais en effet, chacun d’entre vous aspire et se languit de ce grand cadeau de Lumière et d’Amour.
+**Bénédictions à vous tous, âmes bien-aimées. Je suis Moïse.**
+
+Je viens aujourd’hui prier pour ce monde avec vous. Je viens aujourd’hui parce que votre monde a grand besoin de toutes les bénédictions que Dieu a à donner à chaque âme sur votre monde et sur le monde de l’esprit, car chaque âme continue sur cette route de progrès et de lumière. Bien que beaucoup soient perdus dans l’obscurité et ne comprennent pas ou ne reconnaissent pas la route vers la lumière, mais en effet, chacun d’entre vous aspire et se languit de ce grand cadeau de Lumière et d’Amour.
 
 Ainsi, je prie avec vous, âmes bien-aimées, car vous êtes l’espoir de votre monde. Vous portez la clé pour comprendre cette route. Vous cherchez Dieu à la manière des âmes humbles qui cherchent à être reconquises par l’Amour de Dieu et refaites par les bénédictions de Son Amour en vous. De mon temps, nous ne connaissions pas cette vérité. Il en a fallu un autre pour nous l’apporter à tous en esprit. Mais vous qui marchez sur la Terre en ce moment, vous avez appris à connaître une grande vérité, la plus puissante de toutes. Vous êtes donc porteurs de quelque chose de très précieux et de très important.
 
@@ -42,6 +44,3 @@ Je suis avec vous, comme votre frère et ami. Je suis avec vous dans l’Amour. 
 Lumière sur le monde, mes bien-aimés, je suis Elie. Moi aussi je viens pour être avec vous dans vos prières et pour répondre en tant que serviteur de Dieu à votre demande d’apporter la Lumière sur le monde. Et c’est ainsi que Dieu envoie Ses instruments comme de puissants canaux de bénédiction sur votre monde. Je viens avec mes frères et mes sœurs qui sont nombreux à prier avec vous aujourd’hui pour apporter la Lumière sur le monde.
 
 Dieu vous bénit, âmes bien-aimées. Que Dieu vous bénisse profondément, puissamment, magnifiquement dans la Lumière et l’Amour. Que Dieu vous bénisse.
-
-
-

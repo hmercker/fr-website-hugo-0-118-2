@@ -20,6 +20,3 @@ Apprenez à connaître votre Créateur, car il désire ardemment vous connaître
 Lorsque vous êtes en alignement avec l’amour et en alignement avec la grande âme de Dieu qui est l’amour, ces choses, ces éléments puissants de la vie et les éléments de la grande âme de Dieu seront exprimés à travers vous et autour de vous, apportant une grande joie et une grande paix, apportant la vérité, apportant une force et une foi qui vous porteront à travers toutes les circonstances et les situations que vous pouvez rencontrer dans le monde.
 
 Que Dieu bénisse chacun d’entre vous. Que vous soyez vraiment ses enfants. Puissiez-vous connaître la joie de votre propre âme éveillée par l’amour. Que Dieu vous bénisse. Je m’appelle Mark. Je suis heureux d’être avec vous aujourd’hui au service de l’amour et de la lumière. Que Dieu vous bénisse.
-
-
-

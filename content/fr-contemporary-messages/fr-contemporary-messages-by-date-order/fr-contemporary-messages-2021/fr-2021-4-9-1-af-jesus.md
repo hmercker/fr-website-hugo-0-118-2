@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 9 Avril 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/dove-3426187_640.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-dove-3426187_640.jpg)
 
 Que les plus hautes bénédictions de Dieu soient sur vous, mes bien-aimés. Je viens. Je suis Jésus. Je viens pour prier avec vous, pour être avec vous, pour partager ma sagesse avec vous, pour marcher ensemble sur ce chemin dans l’amour.
 
@@ -38,8 +38,3 @@ Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Puissiez-vous en veni
 Ainsi, Ses bénédictions se déversent sur vous, âmes bien-aimées. Ainsi, le monde ressent la chaleur nourricière et les bénédictions du toucher de Dieu sur lui, revigorant et guérissant ces parties endommagées. Ainsi, vous parviendrez à faire véritablement partie de ce monde, de l’Univers de Dieu et de la grande famille d’âmes de Dieu qui marchent dans la lumière, faisant partie d’un endroit merveilleux et d’une expression de la Création de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément, que vos facultés s’ouvrent, que vous puissiez vous abreuver aux Eaux Vives de l’Amour de Dieu, nourrissant et étanchant la soif de votre âme, que vous puissiez vraiment connaître et vous éveiller à Son Toucher profond sur vous. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous et je vous aime tendrement. Je suis avec vous et je suis proche. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-
-
-

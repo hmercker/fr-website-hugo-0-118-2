@@ -26,8 +26,3 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous dans la lumière, l�
 *« Père, touche mes frères et mes sœurs dans Ta grâce, Ton Amour, coulant profondément à l’intérieur et guérissant tout ce qui n’est pas de la lumière, ouvrant tout ce qui est Ta bénédiction sur eux et Tes dons pour eux, que Ton amour puisse couler librement, abondamment et ouvertement avec chacun de ces précieux enfants. Père, fais pleuvoir ta lumière sur eux, Ta guérison, Tes bénédictions, Ta présence dans ce grand et sacré cadeau de lumière. Merci, Père. »*
 
 Et merci à vous, mes bien-aimés, mon amour est avec vous, toujours. Que Dieu vous bénisse.
-
-
-
-
-

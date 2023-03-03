@@ -17,7 +17,7 @@ Je suis venu pour soutenir la vision de la chère fille qu’elle a partagée au
 
 Une telle structure est établie dans les maisons où ceux qui résident dans ces maisons sont bien établis, ce qui signifie qu’ils sont solidement établis par leur vie spirituelle et leur dévouement et le temps qu’ils ont passé dans cette maison et qu’ils passeront dans cette maison. Une structure aussi profonde et large est donnée pour l’établissement des chères âmes qui résident dans ces maisons et elle est stable et a une longévité.
 
-D’autres portails de lumière ont été mentionnés. L’un d’entre eux est celui où nous venons et développons rapidement un portail pour aider notre présence dans un cercle que vous avez expérimenté dans vos voyages et oui, ces structures sont démontées par la suite, pour ainsi dire, car elles ont servi leur objectif. Ensuite, il y a ces portails établis pour ceux dont la vie est dédiée à Dieu et au service et peut-être dont la vie est dans une certaine forme de transition là où ils résident et aussi le travail que Dieu les appelle à faire les déplace autour du monde.<sup id=”a1”>[1](#f1)</sup> Il y a des portails structurés pour les guérisseurs qui sont dévoués et travaillent à travers leur don de guérison. Cela permet aux anges célestes de se rapprocher et aux énergies de guérison et de lumière de circuler librement à travers le portail pour atteindre et aider le guérisseur et la personne qui est venue chercher la guérison.
+D’autres portails de lumière ont été mentionnés. L’un d’entre eux est celui où nous venons et développons rapidement un portail pour aider notre présence dans un cercle que vous avez expérimenté dans vos voyages et oui, ces structures sont démontées par la suite, pour ainsi dire, car elles ont servi leur objectif. Ensuite, il y a ces portails établis pour ceux dont la vie est dédiée à Dieu et au service et peut-être dont la vie est dans une certaine forme de transition là où ils résident et aussi le travail que Dieu les appelle à faire les déplace autour du monde <sup id=”a1”>[1](#f1)</sup>. Il y a des portails structurés pour les guérisseurs qui sont dévoués et travaillent à travers leur don de guérison. Cela permet aux anges célestes de se rapprocher et aux énergies de guérison et de lumière de circuler librement à travers le portail pour atteindre et aider le guérisseur et la personne qui est venue chercher la guérison.
 
 Il existe de nombreuses façons pour Dieu d’apporter des bénédictions à Ses enfants bien-aimés sur Terre. Il y a des portails autour de la Terre que vous sentez dans la terre. Ces structures se déplacent très profondément dans la Terre. Vous connaissez certains de ces endroits car vous en avez entendu parler et vous avez ressenti les énergies qui en émanent lorsque vous visitez ces lieux. Ces portails de lumière aident à servir Dieu et son désir que l’humanité vive en paix et en harmonie les uns avec les autres.
 
@@ -29,7 +29,3 @@ Je suis Keea Atta Kem, si heureuse de venir vous parler et de partager mon amour
 <small>
 
 1. <large id=”f1”> Une référence à un portail établi pour l’individu dont le travail l’appelle à voyager, une telle structure reste avec l’individu.[↩](#a1)
-
-
-
-

@@ -20,6 +20,3 @@ Et plus choquante que ma disparition soudaine et mon entrée en esprit fut la d�
 Alors, je veux vous donner une prière très simple. Cher Dieu, touche mon âme, prends mon cœur tout entier dans Tes bras d’amour. Remplis-moi de grâce pour que je ne fasse qu’un avec Toi. Réveille-moi à Ta Présence. Guéris-moi dans Ton amour. Et transforme-moi dans Ta Grâce. Amen.
 
 Je vais prendre du recul dans le silence de cette prière et dans la joie de la Grâce de Dieu, et en compagnie d’âmes si merveilleuses. Merci. Que Dieu vous bénisse. Je m’appelle Thomas.
-
-
-

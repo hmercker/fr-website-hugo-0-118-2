@@ -22,6 +22,3 @@ Ainsi, tout ce qui a été dit aujourd’hui se résume à la connexion de votre
 Je souhaite vous remercier tous de vous être réunis pour étudier ce que j’ai reçu il y a si longtemps. Je suis honoré, et j’espère que ces messages que j’ai reçus, dont beaucoup étaient incompréhensibles pour mon mental, mais finalement transparents pour mon âme, vous seront bénéfiques à tous. Ils ne sont qu’un modèle, le reste dépend de vous, et de vos désirs, car Dieu répondra. C’est le chemin de la joie et du vrai bonheur au-dessus et au-delà du plan terrestre.
 
 Venez et rejoignez-nous dans l’amour de Dieu. Car nous sommes tous Ses enfants. Avec tout mon amour, ma gratitude et les bénédictions de tous ici, je vais me retirer. Je suis James Padgett. Que Dieu vous bénisse.
-
-
-

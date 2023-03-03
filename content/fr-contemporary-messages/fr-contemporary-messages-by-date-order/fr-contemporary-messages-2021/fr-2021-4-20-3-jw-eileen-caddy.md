@@ -30,6 +30,3 @@ Cependant, je dirai ceci : lorsque les choses ne sont plus en harmonie, même da
 La communauté locale demande maintenant de l’aide financière. Et le monde qui est au courant de ces événements aura un grand élan d’amour et de sympathie. J’espère que la reconstruction inclura la demande de conseils auprès de Dieu et des anges, ceux d’entre nous qui sont dans le royaume Céleste. Jusqu’à présent, nous ne l’avons ni vu ni entendu, mais nous sommes là et toujours prêts à aider. C’est notre profond désir que Findhorn renaisse de ses cendres comme un phénix sur les ailes de l’amour et de la grâce divins.
 
 Mes chers, je vous remercie d’avoir écouté mon long message et je remercie celui-ci. Je suis heureux de la réception. Vous êtes de belles âmes et je vous aime et vous remercie. Que Dieu vous bénisse et que Dieu bénisse mon cher Findhorn et la terre et toutes les âmes avec Son amour. Allez en paix. Je suis votre sœur dans le Christ, Eileen Caddy.
-
-
-

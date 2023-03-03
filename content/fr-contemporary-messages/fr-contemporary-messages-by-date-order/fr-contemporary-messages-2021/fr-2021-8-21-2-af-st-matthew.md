@@ -54,6 +54,3 @@ Chacun de vous est profondément béni. Chacun de vous est digne, car aucun des 
 Donc, je crois que j’en ai assez dit aujourd’hui. Oui, nous parlons sérieusement. Nos paroles peuvent être un défi pour certains, mais nous devons parler de la vérité car c’est la vérité que vous avez choisi de vivre. C’est en effet une porte ouverte à chacun d’entre vous pour vous examiner et agir en conséquence selon des méthodes que vous n’ignorez pas, mais que vous comprenez et connaissez bien.
 
 Que Dieu vous bénisse au cours de ce voyage. Chaque jour, puissiez-vous vous développer dans la lumière et l’amour et l’exprimer dans tout ce que vous faites. Que Dieu vous bénisse. Je suis Matthieu et je travaille aussi avec vous dans ces grands efforts. Que Dieu vous bénisse.
-
-
-

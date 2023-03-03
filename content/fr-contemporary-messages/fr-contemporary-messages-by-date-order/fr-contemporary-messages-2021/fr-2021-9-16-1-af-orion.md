@@ -20,6 +20,3 @@ Vous êtes en sécurité mes amis, en sécurité dans ce processus. Si vous ête
 Vous poursuivez ce processus et il y aura parfois de la douleur, à la fois physique et émotionnelle, mais à mesure qu’elle vous traverse, elle est libérée. Ainsi, chacun de vous aura ses défis, mais aussi de nombreuses bénédictions en réponse à ce qui a été donné.
 
 Que Dieu vous bénisse mes amis, je suis Orion, que Dieu vous bénisse profondément.
-
-
-

@@ -16,6 +16,3 @@ Je suis ici, Claire. Comme il est important d’avoir la foi. J’ai parlé de c
 Cette liberté que vous souhaitez tant avoir est vôtre. Faites-en usage. Plus votre prière sera profonde, plus vous lui accorderez du temps, plus vous serez étonné par la réponse du Créateur. Tout comme vous êtes quelque peu étonné d’avoir choisi des messages à lire qui semblent être en harmonie les uns avec les autres, vous serez toujours plus étonné de marcher dans le flux de la grâce et de l’Amour de Dieu, de voir les choses non pas avec des lunettes noires mais à travers le prisme de la clarté de l’amour de Dieu. Que ce cadeau soit le vôtre.
 
 Je suis votre sœur dans l’Amour de Dieu et dans le Christ. Mes chères souris, je vous souhaite toutes les bénédictions. Allez dans la paix, allez dans la grâce, allez dans l’amour de Dieu, mes chers amis. Je suis Claire d’Assise. Que Dieu vous bénisse.
-
-
-

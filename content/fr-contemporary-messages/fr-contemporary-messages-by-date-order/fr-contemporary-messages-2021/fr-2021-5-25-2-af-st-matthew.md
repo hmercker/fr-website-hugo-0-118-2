@@ -26,6 +26,3 @@ Vous verrez dans les mois et les années à venir une grande différence dans vo
 Puissiez-vous continuer à forger ce lien entre votre moi conscient, votre mental et la conscience de votre âme, renforcée par la conscience de Dieu. Ces choses, lorsqu’elles sont réunies dans une puissante synchronicité, dans une belle proximité et une belle harmonie, alors vous reconnaîtrez ces choses dont je parle d’une manière qui est puissante et claire et belle. Cela vous procurera une grande joie, âmes bien-aimées, de connaître ces choses, de les ressentir, de les exprimer dans votre vie.
 
 Beaucoup de choses vont s’épanouir, car Dieu fait de grands efforts pour utiliser vos dons et vos capacités comme lumière, comme un beau canal d’amour pour le monde. Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu. Je suis heureux d’être avec vous, de vous parler et de prier avec vous, comme beaucoup de ceux de notre beau Royaume des Cieux qui sont venus pour être avec vous, pour prier avec vous, pour vous aimer et vous servir, nous tous qui faisons l’œuvre de Dieu, bien-aimés, nous tous dans la lumière. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-

@@ -18,6 +18,3 @@ Je vois mon petit-fils tourner une page et commencer à percevoir son propre voy
 Je dois dire, pour reprendre vos mots, qu’il y a un grand sentiment de fierté dans mon cœur pour le travail que vous faites ici et pour les bénédictions qu’il apporte.
 
 Je vais maintenant prendre du recul. Comme je vous aime ! Comme je vous aime ! Je suis Care.
-
-
-

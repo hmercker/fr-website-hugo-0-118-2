@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par Jimbeau Walsh le 26 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/le-bon-samaritain.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-le-bon-samaritain.jpg)
 
 Je suis ici et je reviens dans ce beau cercle. Je suis Judas. Pendant le temps que j’ai passé sur terre à marcher avec le Maître et mes frères et nos sœurs, nous avons été les témoins directs de la façon dont Dieu travaille à travers ceux qui sont ouverts et bénis par Son amour comme Jésus l’était et l’est. Partout où nous sommes allés, une sorte de bonté, une touche de l’amour de Dieu, une guérison, une histoire résonnante, ont été transmises par le Maître aux affamés. Nous n’avions pas le genre de médias dont vous disposez et qui vous permettent, en un instant, de partager une merveille et de toucher le monde.
 
@@ -24,6 +24,3 @@ Il y a beaucoup de choses que chacun d’entre vous peut faire pour apporter cet
 Lorsque vous jetez un regard en arrière sur vos vies, et parfois avec quelques remords sur le temps perdu, je vous dis, à partir de maintenant, considérez comment vous allez utiliser chaque moment, en marchant sur le chemin de l’Amour Divin, en avançant dans la grâce de Dieu, dans la joie, dans la gratitude, dans le service, dans la bonté, en apportant la paix et l’espoir, dans la connaissance de l’avenir glorieux qui vous attend, vous et tous dans l’Amour de Dieu.
 
 Je vous remercie, ainsi que mon frère ici présent qui aime raconter des histoires. Je vais prendre du recul pour vous remercier de m’avoir permis de m’avancer. Je serai dans cette prière, avec vous, pour l’Amour de Dieu. Je suis votre frère et votre ami éternel dans les Cieux Célestes. Je suis Judas, autrefois de Kérioth, maintenant votre frère angélique. Que Dieu vous bénisse.
-
-
-

@@ -1,13 +1,13 @@
 ---
-title: "Encouragement à parler de l'amour de Dieu à ses amis et à sa famille "
+title: "Encouragement à parler de l'amour de Dieu à ses amis et à sa famille"
 menu_title: ""
-description: "Encouragement à parler de l'amour de Dieu à ses amis et à sa famille "
+description: "Encouragement à parler de l'amour de Dieu à ses amis et à sa famille"
 date: 2022-06-01 06:00:01+00:1589
 draft: False
 hidden: True
 weight:
 ---
-### Encouragement à parler de l'amour de Dieu à ses amis et à sa famille 
+### Encouragement à parler de l'amour de Dieu à ses amis et à sa famille
 
 Augustin - reçu par Al Fike le 3 Août 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -24,6 +24,3 @@ De nombreuses bénédictions arrivent de différentes manières, et parfois, mê
 Que Dieu vous bénisse alors que vous continuez à soutenir vos proches, vos familles et ceux qui vous entourent. Car c’est ainsi que Dieu travaille, c’est la Lumière de Dieu qui brille à travers Ses instruments, Ses canaux d’Amour. Puissiez-vous être bénis alors que vous continuez à être ces canaux d’Amour pour Dieu. Vous êtes beaux dans vos âmes. Vous continuez à fusionner et à intégrer ces vérités dans tout votre être, une bénédiction, une vérité et une lumière qui se manifeste à travers vous alors que le pouvoir de l’Amour de Dieu continue à travailler ses bénédictions sur vous. Dieu vous bénit, âmes bien-aimées, et vous garde dans Sa Lumière.
 
 Je suis votre professeur, Augustin. Je viens prier avec vous, je viens parce que je vous aime, je viens parce que je ne suis qu’un ange de plus parmi les anges du ciel qui vous regardent avec grand amour et désirent vous servir et vous soutenir. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

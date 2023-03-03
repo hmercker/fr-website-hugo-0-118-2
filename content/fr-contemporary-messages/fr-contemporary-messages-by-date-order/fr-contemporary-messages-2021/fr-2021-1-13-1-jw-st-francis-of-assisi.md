@@ -11,7 +11,7 @@ weight:
 
 St François d'Assise - reçu par Jimbeau Walsh le 13 Janvier 2021, Punalu’u, Oahu, Hawaii, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/spiritualite_7.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-spiritualite_7.jpg)
 
 Je suis ici votre frère François. Je viens dans l’Amour de Dieu et dans la paix qui dépasse l’entendement. Permettez à vos cœurs, à vos esprits et à vos corps d’être en paix. Permettez à l’amour de Dieu d’illuminer votre âme pour dissiper les ténèbres et les nuages troublants, afin que vous soyez un rayon de soleil. Lorsque vous êtes confrontés à la négativité, parlez d’amour ; parlez d’amour. Soyez en paix. Ne laissez pas vos cœurs se troubler car nous sommes avec vous et nous vous protégeons.
 
@@ -20,6 +20,3 @@ Chaque fois que vous êtes troublés, prenez un moment, comptez jusqu’à dix s
 Je suis votre frère et ami en Christ.
 Je suis François.
 Allez avec Dieu.
-
-
-

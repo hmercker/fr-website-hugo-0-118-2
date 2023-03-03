@@ -16,6 +16,3 @@ Je suis votre frère François. Je m’avance car je souhaite vous féliciter, c
 Car cette « Sainte Communion », la vraie communion, est le don de l’Amour de Dieu qui coule dans vos âmes. Il vous élève au-dessus de ce monde de préoccupations, de doutes et de problèmes. Ouvrir vos cœurs pour servir et avoir de la compassion pour chaque âme parce que tous sont des enfants précieux du Père. Vous êtes mes frères et vous aurez toujours mon soutien. Comme on dit dans votre monde, « Je vous soutiens », et croyez-moi, vous avez mon amour.
 
 Alors, avec tout mon amour et mes bénédictions, allez en paix et continuez à faire briller la lumière. Que Dieu vous bénisse. Je suis votre frère dans le Christ. Je suis François d’Assise. Que la paix soit avec vous.
-
-
-

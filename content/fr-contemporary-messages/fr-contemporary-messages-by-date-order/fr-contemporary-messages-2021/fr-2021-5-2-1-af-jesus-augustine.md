@@ -34,6 +34,3 @@ Ceux d’entre vous qui ont des familles, même si elles ne sont pas en aligneme
 Je vous exhorte, âmes bien-aimées, à poursuivre ces efforts, car ils ont en effet une grande portée et continueront à avoir des effets sur le bien-être de votre monde, de tous vos frères et sœurs. C’est un puissant canal de Lumière qui est créé et donné par vous et vos engagements. En effet, comme le dit Jésus, les enfants de l’amour sont bénis et vous êtes bénis, mes bien-aimés. Puissiez-vous continuer à connaître cette bénédiction, à la ressentir au plus profond de vous et à savoir que vous marchez sur une route de lumière, d’objectif et de service à l’humanité.
 
 Que Dieu vous bénisse. Je suis votre enseignant Augustin. Mon amour est également avec vous. Comme nous nous réunissons avec vous dans la prière, nous travaillons ensemble pour aider à élever le monde. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
-
-
-

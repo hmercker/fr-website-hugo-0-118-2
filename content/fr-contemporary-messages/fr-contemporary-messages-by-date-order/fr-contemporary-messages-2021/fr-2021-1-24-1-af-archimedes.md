@@ -11,7 +11,7 @@ weight:
 
 Archimède - reçu par Al Fike le 24 Janvier 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/archimede.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-archimede.jpg)
 
 Salutations de notre côté de la vie. Que Dieu vous bénisse au plus profond de vos âmes. Je m’appelle Archimède et je fus un philosophe et un scientifique de longue date. Je continue à grandir dans mon développement en tant qu’âme alignée sur Dieu, absorbant toutes les expériences et les bénédictions qui viennent en tant qu’habitant du Royaume Céleste.
 
@@ -40,6 +40,3 @@ Si nous pouvions avoir beaucoup plus de cercles puissants comme celui-ci dans le
 Beaucoup vous est donné, mes beaux amis, parce que vous êtes prêts à recevoir, vous êtes prêts à être ensemble dans cette atmosphère d’amour. C’est le pouvoir de l’amour qui donne le pouvoir à tout ce que nous faisons et à tout ce que vous faites pour apporter la lumière dans le monde. Continuez à prier pour ce don d’Amour Divin qui transforme et guérit et apporte un grand bénéfice et une grande puissance au travail que nous partageons ensemble.
 
 Mon amour est avec vous tous, de belles âmes qui brillent, de belles âmes réunies dans l’unité, de belles âmes qui sont ouvertes et qui permettent l’échange de lumière et d’énergies merveilleuses et de bénédictions, les unes avec les autres, Dieu avec tous. Que Dieu vous bénisse. Je suis Archimède. Je suis heureux de vous parler aujourd’hui de ce qui se passe alors que vous priez ensemble. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
-
-
-

@@ -20,6 +20,3 @@ Vous êtes tous bénis, ceux qui ont consacré beaucoup de temps à cela et ceux
 Vous trouverez tous votre chemin, mes bien-aimés. En effet, les barrières qui peuvent se dresser sur vos chemins tomberont, car Dieu bénit vos efforts, car Dieu intervient en votre faveur, et les anges travaillent diligemment pour assurer votre participation et faire en sorte que vous soyez profondément bénis et que vous soyez pleinement préparés.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je suis heureux de vous parler aujourd’hui, d’être avec vous en ce temps béni de prière, de dévouement et de service au nom de la vérité et de l’amour. Que Dieu vous bénisse.
-
-
-

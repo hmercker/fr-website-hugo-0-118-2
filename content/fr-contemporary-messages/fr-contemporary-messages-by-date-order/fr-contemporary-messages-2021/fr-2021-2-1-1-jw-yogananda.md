@@ -20,6 +20,3 @@ Car un jour, vous vous débarrasserez de ce corps physique pour voyager en espri
 Dans ce lieu, dans ce sanctuaire, vous pouvez laisser vos préoccupations et vos problèmes, vos prières et vos demandes aller à Dieu et être élevés dans son amour. Quel miracle que vous soyez réunis ! Beaucoup veillent sur vous et je souhaite vous rappeler, comme je le fais souvent, que lorsque vous appelez, nous venons. Nous ne vous abandonnerons jamais.
 
 Que chacun, ici et au-delà de ce cercle, se laisse embrasser par notre Créateur aimant et s’ouvre à Son Amour. Tout le reste vous sera donné. Que chaque âme soit bénie et transformée dans l’Amour de Dieu. Avec tout mon amour et les bénédictions de tous ceux qui sont ici, dans la grâce du Créateur tout-puissant, glorieux et aimant, je me joins à vous maintenant dans une prière silencieuse. Je suis votre frère et ami dans l’Amour de Dieu et dans le Christ. Je suis Yogananda. Que Dieu vous bénisse. Paix.
-
-
-

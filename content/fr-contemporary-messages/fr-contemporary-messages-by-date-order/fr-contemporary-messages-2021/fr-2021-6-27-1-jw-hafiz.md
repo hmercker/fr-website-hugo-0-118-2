@@ -81,6 +81,3 @@ Partage toujours
 Et donne toujours
 A ses loyaux sujets
 Si chers à son cœur.
-
-
-

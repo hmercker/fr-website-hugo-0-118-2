@@ -72,6 +72,3 @@ Mes prières sont avec vous, afin que ces barrières soient reconnues et libér�
 Une réaction physique dans la prière est absolument inutile, donc je ne m’inquiète pas de la capacité à exprimer des larmes, c’est plutôt l’émotion derrière les larmes qui est importante. Quant à ceux qui pratiquent une activité physique pendant la prière, je leur laisse le soin de décider s’ils obtiennent effectivement les résultats qu’ils souhaitent dans ces activités. Une prière à Dieu pour recevoir Son Amour peut être exaucée en toute circonstance, à condition qu’elle soit sincère et exprimée à Dieu avec clarté et force.
 
 Je dois maintenant vous dire au revoir, et je reviendrai une autre semaine pour vous parler à tous. Merci et que Dieu vous bénisse. Que Dieu vous bénisse tous, âmes bien-aimées, dans la paix et l’amour. Que Dieu vous bénisse.
-
-
-

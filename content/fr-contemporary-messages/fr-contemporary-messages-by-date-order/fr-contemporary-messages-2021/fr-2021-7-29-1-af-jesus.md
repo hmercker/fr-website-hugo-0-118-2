@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 29 Juillet 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/eveil-spirituel-1.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-eveil-spirituel-1.jpg)
 
 Âmes bien-aimées, je suis Jésus. Je viens une fois de plus pour donner une leçon. Le sujet de cette leçon concerne les changements qui se produiront au sein de l’individu et, à plus grande échelle, au sein de la Terre lorsque la lumière et les bénédictions de Dieu pénétreront dans de nombreuses âmes sur cette planète et dans de nombreux aspects de ce monde.
 
@@ -66,6 +66,3 @@ Cela vous attend, âmes bien-aimées, ainsi que toute âme qui vient à Dieu de 
 Rejoignez-moi sur cette route et nous connaîtrons ensemble les merveilles et les gloires de Dieu. Le don de Dieu pour vous est Son Amour. Ce don s’exprimera sous de nombreuses formes et manières, expressions, manifestations qui seront de lumière et de vérité. Puissiez-vous continuer à connaître la paix de la Présence de Dieu avec vous. Puissiez-vous continuer sur ce chemin, ce voyage. Je suis toujours avec vous comme vote frère et ami Jésus. Je continuerai à parler des merveilles de l’Amour transformateur de Dieu et comment cela vous apportera une grande joie.
 
 Que Dieu vous bénisse. Dieu vous bénisse, bien-aimés. Mon amour est avec vous.
-
-
-

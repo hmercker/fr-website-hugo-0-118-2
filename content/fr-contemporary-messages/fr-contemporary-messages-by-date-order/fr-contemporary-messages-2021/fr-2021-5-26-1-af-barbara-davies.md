@@ -44,6 +44,3 @@ Je suis sur le point d’entrer dans ce royaume. J’ai un si grand amour et une
 Mes amis, nous sommes tous en voyage vers Dieu et dans ce voyage nous trouverons en effet l’épanouissement, un épanouissement profond, profond et la joie. Puissiez-vous voir cela plus clairement chaque jour, mes amis. Car chaque jour, Dieu envoie ses anges pour vous élever. Chaque jour vous avez l’opportunité de vous éveiller et de grandir dans l’Amour. Soyez avec Dieu maintenant, mes amis. Nous sommes tous dans la Grâce de Dieu, la paix qui dépasse toute compréhension. Nous sommes tous ensemble dans ce lieu de lumière où Dieu pose sa main sur chacun de nous et dit :  *« Tu es mon enfant. Je t’aime. Viens et sois embrassé par ton Père qui t’aime tant et connais la paix dans mon étreinte. »* Nous sommes ici ensemble. Nous sommes ici pour recevoir Son amour. Ainsi, nous le ferons, mes amis. Nous le ferons.
 
 Que Dieu vous bénisse. Je m’appelle Barbara. Je suis si heureuse d’être avec vous aujourd’hui par l’intermédiaire de mon fils bien-aimé que j’aime tant, qui a appris et grandi beaucoup au fil des ans et sa lumière continue de grandir comme avec son compagnon, comme avec sa sœur, ses deux sœurs, mes chères sœurs. Que Dieu vous bénisse tous. Que Dieu vous bénisse.
-
-
-

@@ -11,7 +11,7 @@ weight:
 
 Abdullah Latif - reçu par Al Fike le 14 Mars 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/angess11.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-angess11.jpg)
 
 Que le grand amour de Dieu continue d’entrer dans vos âmes, mes amis. Mon nom est Abdul Latif. J’ai déjà parlé à travers cet instrument auparavant. Pour ceux qui ne me connaissent pas, je fus un philosophe et un mathématicien dans le monde antique, le monde arabe d’autrefois. Je poursuis mon voyage vers la vérité, mon voyage vers Dieu, et mes efforts pour trouver intérieurement et extérieurement une harmonie, et je suis un habitant du Royaume Céleste.
 
@@ -26,6 +26,3 @@ Comme la Grande Essence de Dieu continue de se déverser en vous, elle se déver
 C’est une tâche formidable, mes amis. Une tâche qui exige un dévouement et une foi profonds, de grands efforts et de l’amour ; l’amour pour l’humanité, l’amour pour vos frères et sœurs, l’amour pour votre propre moi – votre âme, l’amour pour Dieu. Ce sont ces choses qui vont ouvrir les possibilités de guérison pour votre monde. L’amour est le grand générateur, le grand guérisseur, le grand transformateur d’âmes. Que cela soit votre expérience dans la vie, votre expérience dans la prière, votre expérience avec Dieu, afin que Son Amour puisse transformer tout en vous et tout autour de vous en lumière. Ce cadeau est donné sans aucune condition, sans aucune restriction. Il est donné gratuitement, abondamment, et il est disponible pour chacun de vous à chaque instant de votre vie, à condition que vous vous ouvriez à ce Don.
 
 Puissiez-vous le faire souvent. Buvez à ces Eaux Vives qui rafraîchiront votre âme et réveilleront tout ce qui est lumière en vous. Que Dieu vous bénisse mes amis. Je suis Abdul Latif. Je suis heureux de venir vous parler aujourd’hui d’un sujet important. Pour neutraliser l’obscurité dans le monde, vous devez prier et vous rassembler comme une formidable force de lumière, et le faire avec unité, avec amour, avec la reconnaissance de la vérité, et une connexion profonde avec votre Créateur. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse profondément. Nous sommes tous avec vous dans la prière. Que Dieu vous bénisse.
-
-
-

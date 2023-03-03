@@ -24,6 +24,3 @@ Je vous le dis, plus vous consacrez votre temps à la prière et à recevoir le 
 Je souhaite donc seulement ajouter que vous avez choisi le chemin de Dieu, de l’amour et de la lumière et croyez-moi, cela vous élèvera, alors n’ayez pas peur de traverser et sachez que si vous recevez suffisamment d’amour et de grâce de Dieu, cette transition sera facile, aimante et belle. Il y aura beaucoup de gens pour vous embrasser. Je ne dis pas cela pour susciter la peur ou pour suggérer que quelqu’un ici va passer ce soir, mais pour que vous concentriez votre attention sur l’amour éternel de Dieu et votre accueil lorsque vous passerez. Vous quitterez la vie terrestre comme un mirage.
 
 Je vous souhaite toutes les bénédictions, tous les cadeaux, toutes les libertés sur ce chemin et je vous rappelle encore une fois que lorsque vous appelez, nous venons. Alors n’oubliez pas d’appeler – contre vents et marées, nous sommes vos frères et sœurs dans l’Amour de Dieu, en Christ. Nous vous aimons. Nous vous aimons vraiment et Dieu vous aime tellement. Gardez cela dans votre cœur, dans vos âmes et soyez de bonne humeur et joyeux. Je suis Judas de Kerioth. Que Dieu vous bénisse.
-
-
-

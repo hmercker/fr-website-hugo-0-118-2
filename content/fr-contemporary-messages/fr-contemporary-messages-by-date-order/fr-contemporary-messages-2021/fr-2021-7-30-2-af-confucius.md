@@ -20,6 +20,3 @@ Vous êtes vraiment bénis, vous êtes vraiment bénis dans votre monde, un mond
 Ainsi, nous sommes ensemble dans cette poursuite et ainsi nous serons toujours, pour toute l’éternité, ensemble, les enfants de Dieu dans la lumière de Son Amour. Bénédictions pour vous, âmes bien-aimées, bénédictions de guérison, de paix et d’amour, lumière se déversant, se déversant sur chacun de vous, lumière se déversant sur votre monde, lumière se déversant sur tous ceux qui la cherchent. Bien-aimés, vous êtes aimés, profondément, profondément aimés. Mon amour est avec vous. L’amour de vos anges amis vous entoure, et l’Amour de Dieu à travers son grand Esprit Saint vous touche en ce moment. Ouvrez grand vos âmes, mes bien-aimés, et buvez profondément les eaux vives de l’Amour. Que Dieu vous bénisse. Que Dieu vous bénisse. Vous êtes élevés, grandement élevés dans Sa Lumière.
 
 Paix, paix, bien-aimés.
-
-
-

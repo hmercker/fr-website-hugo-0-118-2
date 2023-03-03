@@ -28,8 +28,4 @@ Vous êtes tous prêts pour cette nouvelle étape et vous trouverez tous des sur
 Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous continuer à trouver votre chemin ensemble. Puissiez-vous continuer à tendre la main aux nombreuses âmes qui sont impatientes de se joindre à vous, de servir avec vous, de faire partie de cette belle floraison qui est un arbre merveilleux poussant avec toutes ses branches, bourgeonnant, s’épanouissant et se déployant dans toute l’harmonie, la gloire et la beauté de la création de Dieu. Dieu vous bénisse, mes amis, je suis votre professeur Salyards. Je suis avec vous, proche, souvent très proche. Puissiez-vous sentir ma présence, puissiez-vous sentir l’allumage de votre âme dans l’amour, dans l’inspiration, dans la lumière, dans la direction et l’élan vers ces grands objectifs communs que Dieu nous a inspirés. Que Dieu vous bénisse, mes amis. Mon amour, mes prières, mes efforts sont avec vous, chacun de vous. Que Dieu vous bénisse. Que Dieu vous bénisse profondément.
 <small>
 
- 1. <large id=”f1”> Allusion au proverbe chinois : “Don’t push the river, it flows by itself ((https://sophia.smith.edu/blog/wordsofwisdom/2010/06/30/dont-push-the-river-it-flows-by-itself-chinese-proverb/).”.[↩](#a1)
-    
-
-
-
+ 1. <large id=”f1”> Allusion au proverbe chinois : « [Don’t push the river, it flows by itself](https://sophia.smith.edu/blog/wordsofwisdom/2010/06/30/dont-push-the-river-it-flows-by-itself-chinese-proverb/). » [↩](#a1)

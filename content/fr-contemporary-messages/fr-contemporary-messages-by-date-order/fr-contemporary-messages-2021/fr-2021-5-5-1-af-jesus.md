@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 5 Mai 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/lumiere-spirituelle1.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-lumiere-spirituelle1.jpg)
 
 Âmes bien-aimées, je suis Jésus. Je viens faire un commentaire sur une question que vous avez étudiée, à savoir vos efforts en matière de voix directe dans le monde. Il y a certains individus et groupes dans le monde qui sont sérieux dans ces efforts. Divers esprits du monde spirituel et certains d’entre nous qui sommes au Royaume Céleste travaillons avec ces individus afin de développer ce don. En effet, ces dons peuvent être d’une grande utilité pour vos efforts visant à enseigner à l’humanité le grand don de l’Amour Divin, car lorsque cela est fait aux niveaux les plus élevés, ceux d’entre nous qui sont au Royaume Céleste peuvent se matérialiser devant une foule d’individus en plein jour. C’est notre objectif et je sais que c’est le vôtre à cet égard.
 
@@ -70,10 +70,3 @@ Mais en effet, votre contribution est importante et nécessaire pour que ces cho
 Que Dieu vous bénisse dans vos efforts, âmes bien-aimées, et sachez que je ne dis pas ces choses pour diminuer votre enthousiasme ou vos tentatives de marcher dans le monde de l’Amour et de la Vérité de Dieu sur Son Chemin Divin, mais plutôt pour vous informer et vous éclairer sur ce qui est requis et ce qui vient lorsque vous vous engagez à ouvrir cette porte pour servir Dieu. Cette porte est l’avenue vers de vastes ressources, une vaste lumière, un amour et une grâce puissants et des bénédictions qui peuvent couler à travers vous vers les autres. Elle est le fruit de l’humilité, de la prière, de la compréhension de l’immensité de l’univers de Dieu. Cela vient parce que vous avez appris à vous aimer, à être humble, et dans la Grâce de Dieu toujours. De cette façon, beaucoup de choses, beaucoup de bénédictions viendront à vous, à travers vous, et tout autour de vous.
 
 Que Dieu vous bénisse. Je suis votre frère, votre ami, Jésus. Mon amour est avec vous. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-
-
-
-
-

@@ -11,7 +11,7 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 27 Mai 2021, Gibsons, Colombie-Britannique, Canada
 
-Mon cher frère est plutôt surpris de me voir tel que j’étais sur Terre, et d’avoir la peau foncée, car j’étais Nubien<sup id=”a1”>[1](#f1)</sup> lorsque j’ai vécu votre planète, il y a plusieurs milliers d’années. Maintenant, ma peau est plus claire, comme c’est le cas pour tous ceux qui sont dans le Royaume Céleste. Nous avons un teint qui est d’une couleur commune lorsque nous choisissons de revêtir nos corps spirituels, car il y a des moments où nous ne le faisons pas et où nous sommes purement de la lumière de l’âme existant dans ces plans si infinis et merveilleux par nature.
+Mon cher frère est plutôt surpris de me voir tel que j’étais sur Terre, et d’avoir la peau foncée, car j’étais Nubien <sup id=”a1”>[1](#f1)</sup> lorsque j’ai vécu votre planète, il y a plusieurs milliers d’années. Maintenant, ma peau est plus claire, comme c’est le cas pour tous ceux qui sont dans le Royaume Céleste. Nous avons un teint qui est d’une couleur commune lorsque nous choisissons de revêtir nos corps spirituels, car il y a des moments où nous ne le faisons pas et où nous sommes purement de la lumière de l’âme existant dans ces plans si infinis et merveilleux par nature.
 
 Âmes bien-aimées, je suis très heureux que vous considériez et parliez de ces temps à venir où nous travaillerons ensemble une fois de plus pour l’établissement de la Voix Directe. Je suggère que ceux qui sont intéressés et qui ont souscrit à ce programme, comme vous l’appelez, se réunissent chaque semaine pour prier, où qu’ils soient dans le monde. Vous pouvez réserver une heure pour prier pour la préparation et l’établissement de la Voix Directe. De cette façon, ceux qui viendront seront en harmonie les uns avec les autres et un travail préliminaire a été établi parmi vous. Je vois qu’à l’avenir, il y aura un groupe central d’individus qui assureront la poursuite de ce développement pendant de nombreuses années et qu’il y aura un cercle extérieur d’individus qui viendront de différentes parties du monde et qui seront aidés à développer ce don en eux. Cet engagement ne sera donc pas seulement de quelques semaines, mais de très nombreux mois et années, afin que nous puissions établir ce don sur Terre par le biais de nombreux individus dispersés dans le monde entier.
 
@@ -27,7 +27,3 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis proche comme beaucoup d’en
 <small>
 
 1. <large id=”f1”> 1e peuple nubien vit aujourd’hui dans ce qui est le nord du Soudan et le sud de l’Égypte. Il s’agissait d’une ancienne civilisation africaine issue des premiers habitants de la vallée du Nil. Les rois nubiens ont régné sur l’Égypte en tant que pharaons pendant près de 100 anLs.[↩](#a1)
-
-
-
-

@@ -36,6 +36,3 @@ Ces choses se mettent en place. Elles peuvent être subtiles au début. Vous ne 
 Il en sera toujours ainsi, âmes bien-aimées, quelles que soient les conditions qui peuvent survenir dans votre monde, sachez que vous serez soutenus dans la lumière et l’amour. Vous serez en sécurité et enrichis et vous serez un grand canal pour la vérité, pour la guérison, pour la paix et le confort pour beaucoup. L’amour enveloppera tout ce que vous faites et ce que vous êtes, car telle est votre destinée, âmes bien-aimées, votre destinée. Puissiez-vous continuer en tant qu’enfants de Dieu, en sachant et en ressentant cela dans chaque fibre de votre être, en exprimant cela dans chaque aspect de ce que vous êtes, en étant vraiment les instruments de Dieu sur ce monde, car vous l’êtes, mes bien-aimés, et vous continuerez à le faire.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse. Notre amour, notre gratitude, notre reconnaissance sont pour vous, chaque bien-aimée et belle âme. Nous sommes avec vous et nous ne vous quitterons jamais. Que Dieu vous bénisse. Je suis votre professeur, Augustin, et mon amour pour vous est grand, âmes bien-aimées, vraiment grand. Que Dieu vous bénisse.
-
-
-

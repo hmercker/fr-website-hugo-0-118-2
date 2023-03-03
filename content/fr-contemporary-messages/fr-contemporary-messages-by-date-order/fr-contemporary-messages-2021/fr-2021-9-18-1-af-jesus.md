@@ -26,6 +26,3 @@ Permettez-vous de fusionner vraiment avec cette lumière, d’être vraiment en 
 Âmes bien-aimées, nous sommes unifiés dans ces efforts. Puissiez-vous vraiment ressentir le pouvoir de cette unité, le pouvoir du toucher de Dieu sur nous tous et la beauté de ce qui se déploie à chaque souffle et à chaque instant dans la prière et la collaboration, dans tout ce qui vient du toucher profond de Dieu sur nous. Frères et sœurs bien-aimés, nous sommes vraiment ensemble dans cette grande aventure. Puisse Son Amour continuer à se déverser en abondance dans votre âme, vous élever, vous transformer et vous guérir, apportant une grande joie à votre cœur, une profonde compréhension à votre esprit, et l’amour, un amour pur et puissant à vos âmes.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je viens pour être avec vous dans la prière et reconnaître vos efforts, vos beaux efforts pour apporter la lumière, pour apporter l’amour, pour apporter les bénédictions de Dieu à votre monde, à vous-mêmes. Ainsi, nous nous régalons des bénédictions et de la générosité de Dieu pour chacun d’entre nous. Ce flux d’amour sans fin est à notre disposition pour toujours. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés, mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-

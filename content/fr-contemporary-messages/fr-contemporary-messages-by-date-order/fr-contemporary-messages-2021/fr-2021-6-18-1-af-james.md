@@ -18,6 +18,3 @@ Ainsi, ensemble, nous prions pour le don des Bénédictions de Dieu sur nous afi
 Nous apportons notre sagesse, notre force, notre amour, afin de vous aider dans votre voyage vers Dieu. C’est notre grande joie et notre opportunité de service d’être avec vous sur cette route. Nous sommes vos amis, vos frères, vos sœurs, et nous sommes vraiment là pour chacun d’entre vous. Alors que vous continuez à chercher Dieu et à recevoir Son Amour, nous vous entourons en essayant d’éveiller votre compréhension, de vous encourager et de vous inspirer, de jeter notre amour autour de vous comme un manteau qui vous protégera des forces obscures de votre monde. Dieu nous donne le pouvoir de le faire et vous nous donnez le pouvoir de travailler avec vous par vos prières. Ainsi, nous voyageons ensemble sur ce beau chemin et nous sommes unis dans l’amour, véritablement vus et connus de vos âmes.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Jacques votre frère, Jacques votre aide, Jacques qui prie avec vous et cherche avec vous un plus grand Amour. Que Dieu vous bénisse tous sur ce chemin, âmes bien-aimées. Que Dieu vous bénisse profondément. Mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-

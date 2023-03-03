@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 13 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/spiritualite-13.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-spiritualite-13.jpg)
 
 Âmes bien-aimées, je viens une fois de plus délivrer un message au monde. Aujourd’hui, je souhaite parler des luttes personnelles que beaucoup ont à mener pour comprendre et mettre en œuvre les désirs de leur âme en contradiction avec ce que sont souvent les désirs du mental.
 
@@ -86,6 +86,3 @@ Beaucoup d’entre vous seront effectivement avec Dieu. Certains d’entre vous 
 Avec le temps, c’est notre désir, et souvent le vôtre, d’être ce pur canal d’amour. Nous travaillons avec diligence pour vous aider dans ce voyage d’éveil, de purification et de réalignement de votre mental et de votre âme avec la Vérité de l’Amour de Dieu. Nous continuerons à le faire, mes bien-aimés. Nous continuerons à le faire, en persistant toujours, toujours avec vous. En effet, notre désir est d’aider l’humanité et toute âme qui vient et le désir peut en effet recevoir les avantages, l’élévation, les bénédictions que Dieu souhaite donner en grande abondance. De manière infaillible, dans un amour inconditionnel, Il donne toujours à Ses enfants. Ainsi vous pouvez bénéficier de Ses dons et de Ses bénédictions.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis avec vous dans ce voyage, comme beaucoup d’autres qui résident dans le Royaume Céleste. Nous voyagerons ensemble, frères et sœurs, tous aimés de Dieu et faisant partie de cette grande famille d’amour. Que Dieu vous bénisse, mes bien-aimés, et merci d’écouter ce que j’ai à dire aujourd’hui au sujet de vos grandes luttes de l’âme. J’ai une profonde compassion pour vous tous. Ce n’est pas une vie facile, mais il y a effectivement des rayons de lumière partout dans votre vie qui apporteront la joie, la paix, l’amour. Cela va croître et persister dans votre vie, à condition que vous soyez prêts à poursuivre la Vérité et le Chemin de l’Amour Divin. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

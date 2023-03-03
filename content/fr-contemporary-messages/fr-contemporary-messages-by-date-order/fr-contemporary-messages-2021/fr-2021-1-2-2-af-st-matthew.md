@@ -1,13 +1,13 @@
 ---
-title: "Comment cela s'aligne-t-il sur la volonté de Dieu ? "
+title: "Comment cela s'aligne-t-il sur la volonté de Dieu?"
 menu_title: ""
-description: "Comment cela s'aligne-t-il sur la volonté de Dieu ? "
+description: "Comment cela s'aligne-t-il sur la volonté de Dieu?"
 date: 2022-06-01 06:00:01+00:1363
 draft: False
 hidden: True
 weight:
 ---
-### Comment cela s'aligne-t-il sur la volonté de Dieu ? 
+### Comment cela s'aligne-t-il sur la volonté de Dieu?
 
 St Matthieu - reçu par Al Fike le 2 Janvier 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -28,7 +28,3 @@ Cherchez à vous trouver dans cet endroit, au-delà du mental, où tout est âme
 Et donc vous devez aller prier. Apprenez à connaître profondément, sûrement dans vos âmes, ce que Dieu souhaite que vous fassiez. Puisse Son Amour continuer à éveiller vos âmes et continuer à ouvrir les portes de la compréhension, continuer à être cette force directrice, cette lumière directrice, ce merveilleux sentiment d’amour et de joie qui vient avec Ses bénédictions intérieures.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Matthieu, et nous continuons à vous élever, à vous soutenir, à vous guider dans ces efforts. Notre amour est avec vous tous. Que Dieu vous bénisse. Je suis Matthieu.
-
-
-
-

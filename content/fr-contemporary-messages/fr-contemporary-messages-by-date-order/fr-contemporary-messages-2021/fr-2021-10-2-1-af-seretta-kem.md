@@ -1,13 +1,13 @@
 ---
-title: "L'intégration et le développement se poursuivent "
+title: "L'intégration et le développement se poursuivent"
 menu_title: ""
-description: "L'intégration et le développement se poursuivent "
+description: "L'intégration et le développement se poursuivent"
 date: 2022-06-01 06:00:01+00:1667
 draft: False
 hidden: True
 weight:
 ---
-### L'intégration et le développement se poursuivent 
+### L'intégration et le développement se poursuivent
 
 Seretta Kem - reçu par Al Fike le 2 Octobre 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -26,6 +26,3 @@ Sur votre plan terrestre, ces choses ne s’accomplissent pas facilement, mais e
 Que ce soit le centre de votre vie et que vous ne retombiez pas dans vos vieilles habitudes. Comme vous êtes dans vos maisons et vos vies familières, le défi est grand. Mais lorsque vous le surmonterez, les récompenses seront encore plus grandes. Puissiez-vous continuer sur le Chemin Divin, le chemin où l’Amour est la réponse à tous les dilemmes et situations et aspects de votre vie qui ont besoin d’harmonisation et d’expression de la vérité et de l’amour. Ainsi, il sera donné, âmes bien-aimées. Dieu vous élève. Les anges et tous ceux qui font partie de cette grande aventure sont avec vous. C’est seulement votre volonté, votre désir d’être désynchronisé et en désaccord avec cette nouvelle façon d’être qui contournera tout ce qui est censé être dans vos vies.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je suis avec vous comme toujours. Je suis avec vous comme le sont les anges du Ciel. Tout ce qui est lumière et bonté, tout ce qui est en harmonie avec la Volonté de Dieu est avec vous. Puissiez-vous ressentir cette force et ce soutien, cet amour et cette joie. Puissiez-vous savoir en vous-même ce qui est en harmonie et ce qui est vraiment sur le chemin qui a été tracé devant vous. Puissiez-vous connaître et trouver la joie dans votre cœur et être en alignement avec tout ce qui est en vous et tout ce que Dieu souhaite vous donner. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

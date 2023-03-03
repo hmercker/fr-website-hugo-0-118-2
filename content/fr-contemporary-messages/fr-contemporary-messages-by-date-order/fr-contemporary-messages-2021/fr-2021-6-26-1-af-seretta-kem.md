@@ -1,13 +1,13 @@
 ---
-title: "Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II) "
+title: "Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II)"
 menu_title: ""
-description: "Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II) "
+description: "Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II)"
 date: 2022-06-01 06:00:01+00:1554
 draft: False
 hidden: True
 weight:
 ---
-### Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II) 
+### Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II)
 
 Seretta Kem - reçu par Al Fike le 26 Juin 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -68,6 +68,3 @@ Puissiez-vous continuer à vous efforcer d’être les instruments de lumière, 
 Puissiez-vous continuer à vous ouvrir à cela et à être ce véritable canal. Mon amour est avec vous. Tous ceux d’entre nous qui travaillent avec vous, et il y en a beaucoup, beaucoup qui vous entourent en ce moment même, sont avec vous dans un amour profond et un soutien, dans la prière et l’action, et continueront à le faire à chaque instant. Nous sommes avec vous, mes bien-aimés. Dieu est avec vous. Dieu vous bénit. Dieu vous bénit profondément de son amour. Sachez que vous êtes vraiment aimés, vraiment par Dieu, par les anges, par tous les esprits de lumière et d’amour. Que Dieu vous bénisse.
 
 Je suis Seretta Kem. Dieu vous bénit et je vous aime.
-
-
-

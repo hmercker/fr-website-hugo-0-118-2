@@ -62,6 +62,3 @@ C’est l’essence du plan de Dieu, pour que l’humanité puisse changer de di
 Puissiez-vous en venir à le savoir et à comprendre combien chacun de vous est merveilleux et combien les potentiels que vous portez sont magnifiques dans leur portée et dans leur expression. Consacrez-vous à Dieu, mes amis bien-aimés, et parcourez le monde dans la lumière et tout le reste suivra à mesure que votre âme grandira dans Son Amour.
 
 Merci de m’avoir écouté. Nous sommes avec vous. Nous sommes avec vous dans vos efforts. Que Dieu nous bénisse tous alors que nous allons de l’avant. Je suis John Wesley. Moi aussi, je me suis consacré à vos efforts, à nos efforts pour apporter une plus grande vérité à l’humanité. Merci de m’avoir écouté. Mon amour est avec vous. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

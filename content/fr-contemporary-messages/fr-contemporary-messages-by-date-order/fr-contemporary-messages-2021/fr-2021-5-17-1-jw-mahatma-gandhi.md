@@ -22,6 +22,3 @@ Ce que je souhaite vraiment vous transmettre à tous dans ce cercle de paix, de 
 Je vous demande donc à chacun d’entre vous d’envisager d’envoyer au monde ce message d’amour, d’Amour Divin et de paix qui dépasse vraiment l’entendement humain, chacun à votre manière. Car ce serait une grande bénédiction, car dans ce cercle, il y a une grande bénédiction.
 
 La Paix ! Paix à tous ! Je suis votre ami, dans le grand amour de Dieu, je suis Gandhi. La paix.
-
-
-

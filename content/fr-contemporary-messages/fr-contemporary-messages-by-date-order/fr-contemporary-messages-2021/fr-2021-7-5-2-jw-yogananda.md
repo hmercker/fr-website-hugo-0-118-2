@@ -22,6 +22,3 @@ Ok, donc ces choses sont bien connues, et tout le monde peut apprécier le solei
 Cette voie de l’éveil de l’âme à travers ses désirs d’unité avec son Créateur, cette voie de l’Amour Divin, non seulement transcende la création physique mais transforme l’âme. Et si l’on peut être impressionné par l’immensité de l’Univers et, par conséquent, prendre conscience du caractère merveilleux de son Créateur, cette même âme peut apprécier l’ouverture d’une fleur ou la fabrication de miel par une abeille, ou même la simplicité du souffle qui soutient le corps humain.
 
 Pourtant, la magnificence et l’ampleur de ce grand cadeau de votre âme alignée avec le grand cadeau de l’essence du Créateur, Son amour, c’est le cadeau des cadeaux, c’est la merveille des merveilles, c’est la bénédiction que Dieu souhaite pour tous Ses enfants, et je le souhaite pour vous tous. Alors, priez, ouvrez-vous à l’amour, soyez soulevés et réveillés afin que nous puissions tous être en harmonie avec notre Créateur bien-aimé. L’amour de Dieu apporte l’unité pour tous. Merci, mon frère, d’avoir pris mon message. Que Dieu vous bénisse et tous. Je suis votre frère en Christ dans l’amour de Dieu et ton ami éternel. Je suis Yogananda.
-
-
-

@@ -20,8 +20,3 @@ Ne sentez-vous pas l’innocence en vous, bien qu’elle soit souvent vulnérabl
 Lorsque vous tendez la main à Dieu, nous la tendons avec vous et ensemble nous sommes dans cette Lumière qui est la Présence de Dieu. Nous sommes tous ouverts à l’afflux de Sa grande Essence, qui nous transforme, nous éveille. Bien-aimées et belles âmes, nous nous réjouissons de votre lumière et de votre désir. En cela, nous sommes capables de nous retirer et de nous rapprocher de Dieu. Puissiez-vous porter cette condition pour toute votre vie. Ce lieu d’émerveillement, de joie, d’ouverture et d’amour où les mots de votre âme atteignent votre esprit et apportent sa sagesse et le savoir de votre âme qui communie avec Dieu apporte la joie à votre cœur et le battement de l’Esprit Saint de Dieu sur vous alors que Dieu souffle dans Son Amour, cette chaleur, le beau cadeau qui vous dit *« tout est bien et tout ce que vous êtes est aimé. »*
 
 Que Dieu vous bénisse, mes amis. Buvez dans ses eaux aimantes. Buvez dans ses bénédictions. Ainsi, nous allons continuer ce voyage ensemble. Dieu vous bénisse, mes amis bien-aimés. Sachez que l’amour des anges vous entoure et que l’Amour de Dieu entre en vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-
-
-

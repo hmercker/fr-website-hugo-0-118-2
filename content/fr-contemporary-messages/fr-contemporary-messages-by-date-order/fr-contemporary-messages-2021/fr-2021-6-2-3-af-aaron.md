@@ -32,6 +32,3 @@ Un nouveau jour commence, âmes bien-aimées. Chaque jour est un nouveau jour es
 C’est le voyage, mes bien-aimés. C’est le voyage vers la connaissance de votre vrai moi, votre moi complet, la connaissance de Dieu, la connaissance de tout ce qui est de Dieu et l’expression de cela et être un grand exemple pour les autres dans cette expression.
 
 Que Dieu vous bénisse, bien-aimés et belles âmes. Je suis Aaron et je suis heureux d’être ici ce soir. Puissiez-vous être résolus à aller vers la lumière, la vérité et l’amour avec chaque jour, que cette résolution puisse se renforcer avec chaque jour, que vous puissiez arriver à l’alignement, à la plénitude, à la joie, à l’amour de toutes les manières que vous êtes, que vous avez été créés et que vous arriverez à être dans le temps. Dieu vous bénisse, âmes bien-aimées, mon amour est avec vous et beaucoup sont ici avec de l’amour pour chacun d’entre vous du Royaume Céleste et beaucoup qui ont été votre famille, vos ancêtres, et les âmes en quête qui continuent à regarder et à absorber de votre exemple et de ces efforts que vous faites dans ces prières ensemble. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément en vous et que cette bénédiction rayonne dans tout ce que vous êtes et tout ce que vous faites. Merci, mes bien-aimés. Merci de m’avoir écouté aujourd’hui. Que Dieu vous bénisse.
-
-
-

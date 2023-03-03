@@ -72,6 +72,3 @@ Les vieilles idées de pouvoir et d’adulation ne peuvent être maintenues dans
 Je vous exhorte à aller de l’avant, âmes bien-aimées. Je vous exhorte à aller de l’avant. Continuez à prier, à rechercher une plus grande lumière, à vous préparer, et à être dans la joie et la lumière de la vie telle qu’elle est en ce moment, un cadeau pour vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et ami, Jésus. Que Dieu vous bénisse.
-
-
-

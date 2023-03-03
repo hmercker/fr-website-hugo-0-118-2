@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 28 Mai 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/spiritualite-14.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-spiritualite-14.jpg)
 
 Dieu vous bénisse, âmes bien-aimées, je suis Jésus. Je viens une fois de plus pour parler des choses de l’âme afin d’aider à vous élever, vous inspirer et vous enseigner ce voyage vers l’union avec Dieu. Alors que vous recevez le don de l’Amour Divin, Son Essence, ainsi l’âme s’éveille et devient un véritable partenaire dans votre vie et vous pouvez expérimenter des choses de nature spirituelle à partir des véritables perceptions de votre âme et des expériences qui viennent avec une âme éveillée.
 

@@ -24,9 +24,3 @@ Tout est un voyage vers la communion avec Dieu et nous voyageons ensemble, n’e
 Que Dieu continue à vous bénir, âmes bien-aimées, vous portant toujours plus haut, vous élevant et vous guérissant, et vous transformant pour que vous soyez vraiment ce que vous êtes censés être, des enfants bien-aimés de Dieu exprimant tous les dons, la beauté et la gloire qu’une âme peut posséder.
 
 Que Dieu vous bénisse. Je suis votre frère. Je suis votre ami. Je marche toujours avec vous. Bien-aimés, vous n’êtes jamais seuls, vous n’êtes jamais seuls car Dieu est avec vous et Ses anges sont à vos côtés. Ainsi vous cheminez comme beaucoup qui sont en effet en alignement avec Dieu. Ceux qui souhaitent être en alignement recevront en effet ces bénédictions et connaîtront ce confort, ce compagnonnage d’Amour. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse et vous garde dans Sa Lumière, l’Amour vous entourant. Buvez profondément cette Essence, buvez autant que vous le pouvez car en ce moment même Dieu déverse Son Amour comme une grande cascade sur chacun de vous. Buvez profondément, recevez cette Essence et ainsi nous accomplirons la promesse de Dieu à l’humanité. Dieu vous bénit, âmes bien-aimées. Mon amour est avec vous, mon amour est avec vous. Que Dieu vous bénisse.
-
-
-
-
-
-

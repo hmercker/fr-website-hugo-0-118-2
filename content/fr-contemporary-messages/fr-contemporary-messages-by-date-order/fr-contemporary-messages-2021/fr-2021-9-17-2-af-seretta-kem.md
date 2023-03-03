@@ -24,6 +24,3 @@ Comme beaucoup d’entre vous le savent bien, le début de la lumière et de l�
 Puissiez-vous continuer à vous aligner avec Dieu. Que vos âmes continuent à absorber toutes les bénédictions qui sont possibles dans ce Cercle de Lumière et que Son Amour continue à éveiller votre âme, à éveiller votre intention, à éveiller votre désir, à éveiller votre amour pour tout ce qui est, tout ce que Dieu a créé.
 
 Dieu vous bénisse mes amis, nous continuons à servir ensemble et à renforcer cette grande intention et cette prière pour apporter la guérison à votre monde et la guérison à vous-mêmes et à tous ceux que vous aimez. Que Dieu vous bénisse, je suis Seretta Kem, mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

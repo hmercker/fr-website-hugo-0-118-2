@@ -22,8 +22,3 @@ Nous marchons tous avec notre frère et Maître bien-aimé, Jésus, qui ouvre la
 Nous sommes tous des enfants de Dieu, âmes bien-aimées, portez cette lumière avec vous. Sachez que vous êtes aimés et que nous aussi nous marchons ensemble sur ce chemin vers l’expiation avec Dieu. Je suis avec vous. Je suis heureux de prier avec vous aujourd’hui. Un des nombreux, nombreux anges qui viennent pour être avec vous, pour vous assister dans ce voyage, pour réaffirmer la vérité que vos âmes ne connaissent que trop bien et que vos esprits continuent à s’éveiller et à comprendre dans toute sa gloire et ses ramifications, qui vous êtes et ce que vous allez devenir, anges bien-aimés de Dieu. Il en sera ainsi alors que nous marchons ensemble sur ce chemin.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Simon et je marche et prie avec vous, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-
-
-

@@ -66,6 +66,3 @@ Beaucoup de choses se préparent. Vous avez besoin de grandes bénédictions, d�
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je viens parce que je souhaite poursuivre ce que je souhaite dire au monde. Je viens parce que je peux actuellement profiter de l’opportunité et de l’avantage de la condition de ce beau canal pour transmettre des messages plus complexes. Je continuerai à le faire. De cette façon, il n’est pas nécessaire de réserver du temps comme je l’ai indiqué dans le passé, mais d’être ouvert à l’opportunité de recevoir de tels messages. Avec votre ouverture et votre désir, ces choses viendront en leur temps et en bonne mesure.
 
 Que Dieu vous bénisse dans vos cheminements, âmes bien-aimées. Je suis votre frère et votre ami. Je suis Jésus, Maître des Cieux Célestes. Je continue à être avec vous tous alors que vous faites l’expérience de la grande transformation de votre monde et de chaque individu qui s’y trouve. Que Dieu vous bénisse. Mon amour est avec vous. Je suis avec vous. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-

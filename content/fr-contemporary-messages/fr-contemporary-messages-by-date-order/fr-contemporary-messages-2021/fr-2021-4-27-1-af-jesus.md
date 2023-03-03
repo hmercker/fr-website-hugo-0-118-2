@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 27 Avril 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/lumiere-spirituelle.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-lumiere-spirituelle.jpg)
 
 Je souhaite parler des désirs et des aspirations de l’âme et de la façon dont ils sont souvent ignorés et méconnus par l’individu. J’ai longuement parlé de la condition humaine et de ces énergies, pensées et choses qui sont contraires aux lois de Dieu et au bien-être de l’âme, car chaque individu s’aventure dans le monde encombré par les influences, les pensées et les inclinations qui lui sont imposées par la condition humaine. Ainsi, l’âme est enterrée sous des couches de conditions que nous appelons des incrustations qui étouffent le désir de l’âme de sa véritable expression et de sa communion avec Dieu, car chaque âme a été créée avec la capacité de communiquer et d’être en communion avec Dieu.
 

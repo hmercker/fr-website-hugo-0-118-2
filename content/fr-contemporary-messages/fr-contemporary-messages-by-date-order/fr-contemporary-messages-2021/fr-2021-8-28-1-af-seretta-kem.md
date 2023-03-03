@@ -30,6 +30,3 @@ Nous nous préparons pour les temps à venir. Nous travaillons ensemble avec vou
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu soit avec vous alors que vous continuez à découvrir l’émerveillement de la Présence de Dieu dans votre vie et de l’Essence de Dieu dans votre âme. Nous sommes avec vous. Nous serons proches dans ces prochains jours. Je dirais que vous ressentirez tous cette proximité et reconnaîtrez notre présence à un certain degré. Que les bénédictions de Dieu continuent de couler sur vous, chers amis, chers amis. Puissiez-vous être dans la Lumière de Dieu à chaque respiration alors que vous continuez à vous préparer pour votre rassemblement.
 
 Que Dieu vous bénisse. Je suis Seretta Kem et je suis avec vous, avec vous tous. Que Dieu vous bénisse.
-
-
-

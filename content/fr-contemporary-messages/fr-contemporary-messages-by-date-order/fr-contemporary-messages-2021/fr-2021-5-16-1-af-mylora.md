@@ -30,6 +30,3 @@ Avec le temps, vous serez dans le monde mais pas du monde. De cette façon, vous
 Que Dieu vous bénisse, mes bien-aimés. Je suis Mylora. Puissiez-vous continuer à aller de l’avant dans la lumière, à être dans l’amour, à vraiment sentir et connaître l’Amour de Dieu, à être dans ce lieu de joie, ce lieu de connaissance, ce sentiment ferme et merveilleux que vous êtes réclamés par Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés, une bénédiction pour chacun d’entre vous pour apporter le confort et la guérison à votre être, pour être dans la lumière et élevé dans l’amour. Dieu est avec nous tous. Sachez-le, ressentez-le, respirez-le, et sachez que vous êtes Ses enfants. Dieu vous bénit, Dieu vous bénit mes bien-aimés. Merci de m’avoir écouté aujourd’hui et de m’avoir permis de venir. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

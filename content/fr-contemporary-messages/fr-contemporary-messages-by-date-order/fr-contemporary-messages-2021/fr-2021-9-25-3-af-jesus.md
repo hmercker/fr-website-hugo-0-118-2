@@ -16,10 +16,3 @@ Oui, je suis avec vous, je suis Jésus, je continuerai à être avec vous sur le
 Nous vous remercions pour vos efforts, car vous avez fait de grands progrès. Des progrès que nous avons désiré faire dans le monde depuis des millénaires, et vous atteignez le seuil, âmes bien-aimées, au-delà duquel un tout nouveau monde vous attend.
 
 Les gracieuses bénédictions de Dieu vous apporteront des richesses inouïes de l’âme, une lumière inouïe. Que la paix soit avec vous, mes bien-aimés. Sachez que nous sommes toujours reconnaissants pour ce que vous faites, et nous voyons ce que vous ferez et cela nous donne une plus grande joie. Que Dieu vous bénisse. Je suis toujours avec vous. Que Dieu vous bénisse.
-
-
-
-
-
-
-

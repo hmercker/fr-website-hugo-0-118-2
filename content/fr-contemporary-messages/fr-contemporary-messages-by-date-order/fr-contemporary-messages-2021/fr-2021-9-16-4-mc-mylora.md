@@ -11,7 +11,7 @@ weight:
 
 Mylora - reçu par Maureen Cardoso le 16 Septembre 2021, Abbotsford, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/le-soutien-de-dieu.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-le-soutien-de-dieu.jpg)
 
 Dieu vous bénisse, âmes bien-aimées, et bienvenue dans ce cercle de développement. Mon nom est Mylora. Je n’ai pas encore parlé à travers cet instrument et je la remercie d’être disposée à recevoir ma présence et le message que je désire partager avec vous.
 
@@ -26,4 +26,3 @@ Vous, très chers, examinez les opportunités où vous pouvez offrir votre aide 
 Je demande qu’au cours des prochains jours, jusqu’à ce que vous vous réunissiez à nouveau, vous preniez note de la façon dont vous voyez le fonctionnement de cette loi dans votre vie. Concentrez-vous sur le don et observez la façon dont Dieu manifeste les bénédictions de Sa Grande Âme en retour vers vous. L’accent est mis sur le don, mais je souhaite également vous demander d’observer la réception et ce qui vient à vous. Car je sens que cela vous incitera à donner plus profondément de vous-même. Offrez-vous à Dieu dans tout ce que vous faites et permettez à Dieu d’être avec vous à tout moment en ayant la conscience de la présence de Dieu avec vous. Lorsque vous donnez de vous-même, Dieu vous donne et vous recevez. C’est un flux infini.
 
 J’espère que vous êtes capable de remarquer tout ce qui s’écoule vers vous et que vous vous engagez et vous concentrez sur le flux sortant de vous vers Dieu, parce que, âmes bien-aimées, c’est une existence des plus profondes lorsque l’union entre votre âme et l’âme de Dieu manifeste de grandes merveilles. Je suis heureux de vous parler aujourd’hui et, alors que nous travaillons sur votre don de guérison que vous désirez tant que Dieu vous utilise, nous allons apporter nos bénédictions et donner nos dons. Comme vous vous donnez à Dieu et que vous vous ouvrez à nous, c’est maintenant à vous de recevoir ces nombreuses bénédictions que les anges Célestes déversent sur vous et l’Amour de Dieu qui coule vers vous. Je suis Mylora, Que Dieu vous bénisse.
-

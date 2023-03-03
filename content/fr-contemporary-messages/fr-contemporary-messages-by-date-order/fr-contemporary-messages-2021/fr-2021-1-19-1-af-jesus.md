@@ -30,6 +30,3 @@ Soyez les exemples de la vérité, âmes bien-aimées, partagez les uns avec les
 Allez de l’avant, toujours de l’avant, et tous se rassembleront et se fondront dans un groupe puissant d’âmes dévouées exprimant la vérité de l’Amour de Dieu, étant des exemples brillants, de beaux instruments de la Volonté de Dieu et du désir et des bénédictions pour beaucoup. Tout ce que cela demande est un effort de votre part, une reconnaissance et une concentration pour vous rassembler dans une intention d’amour, pour avoir la foi que Dieu vous guide, que vous découvrirez ensemble des vérités et des intentions plus profondes et plus grandes que Dieu a pour chacun de vous et que dans ce rassemblement il y aura une grande floraison de compréhension, d’efforts, d’initiatives qui sont en harmonie avec la volonté et le plan de Dieu.
 
 Vous êtes Ses enfants et Dieu va en effet poser Sa main sur vous et vous apporter toutes les bénédictions, tout ce qui est nécessaire pour que vous puissiez accomplir vos missions, votre but et l’éveil de votre propre âme dans une plus grande mesure d’Amour. Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère, je marche avec vous, mon amour est avec vous, mes prières sont avec vous et je vous aime. Que Dieu vous bénisse, je suis Jésus.
-
-
-

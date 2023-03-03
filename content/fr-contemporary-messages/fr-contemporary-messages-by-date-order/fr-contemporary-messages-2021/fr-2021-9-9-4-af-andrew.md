@@ -22,6 +22,3 @@ Ce qui vous est donné ici est une opportunité de changer vraiment et d’être
 Ne sous-estimez pas le pouvoir de l’âme que Dieu a implantée en vous. Ne sous-estimez pas la multiplicité des dons qui résident dans chaque âme. Rappelez-vous que chaque âme est unique, que chaque voyage est unique, et que nous marchons tous main dans la main. Pourtant, vous n’êtes pas perdus dans ce mélange, au contraire, nous nous renforçons les uns les autres, nous nous éveillons les uns les autres, et nous nous honorons les uns les autres pour leur caractère unique.
 
 Que Dieu vous bénisse. Je suis André, je fais aussi partie de cet effort car je suis celui qui a voyagé avec cette âme pendant de nombreuses années. Que Dieu vous bénisse. Que Dieu vous bénisse tous, âmes bien-aimées.
-
-
-

@@ -24,6 +24,3 @@ Lorsque vous ressentez l’amour de l’âme sœur ou un amour profond pour une 
 Ainsi, alors que vous explorez ce chemin vers le royaume Céleste, permettez à vos âmes d’être touchées afin que vous puissiez ressentir l’éclat, la gloire, la magnifique et éternelle félicité que le Créateur a pour chacun de vous. Laissez vos âmes s’élever et être soulevées. Vous pouvez laisser votre mental se reposer pendant que vous lisez le sujet traité et je vous encourage à ressentir la substance, l’essence des vérités contenues dans ce que vous connaissez comme les messages de James Padgett. Et oui, j’ai été profondément honoré de les recevoir et d’être transformé par les vérités qu’ils contiennent.
 
 Avec tout mon amour, mes bénédictions et mon soutien du royaume Céleste, je suis votre humble serviteur et frère dans l’amour de Dieu, James Padgett. Que Dieu vous bénisse.
-
-
-

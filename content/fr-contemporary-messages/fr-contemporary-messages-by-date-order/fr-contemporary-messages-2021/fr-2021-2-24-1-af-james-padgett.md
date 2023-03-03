@@ -18,6 +18,3 @@ Lorsque j’ai assumé ma responsabilité il y a tant d’années, je n’ai pas
 De cette façon, il n’y a pas de barrières présentes, pas de doutes, simplement une volonté et c’est idéal pour que nous, dans le Royaume Céleste, puissions passer à travers. Car son âme est remplie de l’Amour du Père, son esprit est ouvert, il est prêt à passer du temps et à consacrer ses efforts à ces vérités et, en tant que tel, il représente une ressource précieuse, qui a besoin de soutien et d’amour et je souhaite que vous continuiez à soutenir ces efforts, car c’est une chaîne d’amour, n’est-ce pas ? Une chaîne de désir et de dévouement à la vérité. Chacun de vous est lié à cette chaîne et en tant que tel, vous êtes des maillons précieux et dans les temps à venir, vous verrez par vous-même combien ce travail est important et vous bénéficierez personnellement de ces efforts, car Dieu vous bénit alors que vous avancez dans l’amour.
 
 J’ai fait connaître ma paix, âmes bien-aimées. Je vous remercie de m’avoir écouté et je vous souhaite de continuer à travailler ensemble. Sachez que nous sommes proches et que Dieu bénit vos efforts. Que Dieu vous bénisse. Je suis James Padgett. Mon amour et mon engagement envers vous sont toujours là. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
-
-
-

@@ -62,6 +62,3 @@ Ces choses sont facilement accessibles à toutes les âmes, à condition qu’el
 Puissiez-vous trouver votre chemin, âmes bien-aimées. Puissiez-vous arriver à connaître Dieu qui est tout amour, pardon, guérison, paix et vérité. C’est ce qui est prévu pour tous, s’accorder avec Dieu et recevoir les grandes bénédictions qui en découlent. Les portes sont ouvertes à ce voyage de vérité. Puissiez-vous être éveillés et connaître le véritable voyage que Dieu a prévu pour Ses enfants sur cette Terre et dans les royaumes de l’esprit.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Jésus et je viens une fois de plus pour enseigner, pour apporter la vérité à l’humanité. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

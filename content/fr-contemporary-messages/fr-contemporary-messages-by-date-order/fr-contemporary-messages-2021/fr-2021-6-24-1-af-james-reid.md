@@ -41,6 +41,3 @@ Je sais que vous me rejoindrez un jour dans ce grand paradis d’amour, et nous 
 Je vous aime tous les deux, et je vous remercie tous les deux pour vos efforts, pour votre dévouement, pour votre amour. Puissiez-vous continuer à libérer ces conditions du monde matériel en faveur de votre âme, éveillée, libérée, et remplie de joie.
 
 Que Dieu vous bénisse, mes amis. Je suis votre ami, James, et je vous aime. Que Dieu vous bénisse. Je suis proche. Sachez que je suis proche. Que Dieu vous bénisse.
-
-
-

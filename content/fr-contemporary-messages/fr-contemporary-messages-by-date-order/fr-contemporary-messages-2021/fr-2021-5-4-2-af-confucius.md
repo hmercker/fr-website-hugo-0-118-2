@@ -16,6 +16,3 @@ J’apporte une bénédiction de guérison pour vous, âmes bien-aimées, je sui
 Que vos grands potentiels d’âme s’éveillent et se fassent connaître dans le monde, car vous désirez servir l’humanité dans l’amour. Que tout ce que Dieu a implanté en vous s’éveille et s’exprime dans toute sa beauté, sa gloire et sa lumière. Dieu vous bénisse, mes bien-aimés, je suis Confucius et je viens vous assurer combien vous êtes tous aimés, vraiment, vraiment aimés, âmes bien-aimées, vraiment aimés dans le monde.
 
 Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Que la paix soit avec vous, la joie dans vos cœurs, la compréhension et la perspicacité qui viennent de l’âme, jaillissant dans vos esprits. Bien-aimés, bien-aimés, que Dieu vous bénisse.
-
-
-

@@ -11,7 +11,7 @@ weight:
 
 Robert James Lees - reçu par Jimbeau Walsh le 9 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
 
-Je suis Robert J. Lees. J’ai écouté votre discussion d’aujourd’hui et toutes ses considérations en réfléchissant à ce que j’ai reçu.<sup id=”a1”>[1](#f1)</sup> Aphraar essayait de brosser un tableau très large afin que chaque âme, à sa manière, puisse comprendre non seulement le fonctionnement du libre arbitre, mais aussi l’ignorance volontaire, car Dieu ne punit pas. Les humains font leur propre lit et Dieu attend qu’ils se réveillent et sortent du rêve de la mort, des ravages du péché, pour entrer dans la lumière de Son amour et de Sa compassion et dans le glorieux voyage à travers les sphères, jusqu’à la source de Son amour et de Sa Grâce.
+Je suis Robert J. Lees. J’ai écouté votre discussion d’aujourd’hui et toutes ses considérations en réfléchissant à ce que j’ai reçu <sup id=”a1”>[1](#f1)</sup>. Aphraar essayait de brosser un tableau très large afin que chaque âme, à sa manière, puisse comprendre non seulement le fonctionnement du libre arbitre, mais aussi l’ignorance volontaire, car Dieu ne punit pas. Les humains font leur propre lit et Dieu attend qu’ils se réveillent et sortent du rêve de la mort, des ravages du péché, pour entrer dans la lumière de Son amour et de Sa compassion et dans le glorieux voyage à travers les sphères, jusqu’à la source de Son amour et de Sa Grâce.
 
 Il suffit de lire ces écrits avec votre âme. Il n’est pas nécessaire de trop réfléchir à ces choses et, en fait, le langage dans lequel ils sont écrits est conçu pour déconcentrer le mental, dans une certaine mesure, afin que l’âme puisse saisir le sens profond des vérités présentées. N’est-ce pas merveilleux ? Ce fut un grand cadeau pour moi et comme je l’ai dit, je suis plus que ravi que vous le partagiez entre vous et que vous souhaitiez le partager avec d’autres.
 
@@ -23,8 +23,3 @@ Mes chers amis, c’est un honneur et une joie pour moi d’être avec vous. Que
 <small>
 
 1. <large id=”f1”> Se référant à La vie élyséenne, chapitre 6, pages 79-84.[↩](#a1)
-
-
-
-
-

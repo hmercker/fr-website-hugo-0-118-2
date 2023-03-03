@@ -9,7 +9,7 @@ weight:
 ---
 ### Rappelez-vous l’importance de guider les enfants
 
-Fred Rogers<sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 5 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+Fred Rogers <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 5 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
 
 Je suis votre frère et ami en Christ. Je suis Fred Rogers.1 Bonjour à tous ! Aloha Jimbeau !
 
@@ -21,8 +21,3 @@ Je vais prendre du recul et me joindre à vous dans votre prière pour l’amour
 <small>
 
 1. <large id=”f1”> **Fred McFeely Rogers** (20 mars 1928 – 27 février 2003), également connu sous le nom de Mister Rogers, était un animateur de télévision, auteur, producteur et ministre presbytérien américain. Il fut le créateur, le directeur de l’émission et l’animateur de la série télévisée pour enfants d’âge préscolaire, Mister Rogers’ Neighborhood, qui a été diffusée de 1968 à 2001.[↩](#a1)
-
-
-
-
-

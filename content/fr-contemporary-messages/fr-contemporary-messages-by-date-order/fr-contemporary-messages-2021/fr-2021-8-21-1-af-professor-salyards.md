@@ -24,6 +24,3 @@ Que l’amour soit insufflé dans tous vos efforts. Que la joie vienne de ces ef
 Que Dieu vous bénisse, mes amis. Profitez de votre temps ensemble, profitez d’un peu de liberté par rapport aux responsabilités qui vous ont été imposées. Profitez de la vie et soyez toujours avec Dieu. Que Dieu vous bénisse, mes chers amis, je suis le professeur Salyards. Je suis heureux d’être avec vous aujourd’hui et je vais continuer. Rappelez-vous que lorsque nous sommes ensemble dans le monde spirituel, communiquant, planifiant et profitant des idées que chacun a à donner, beaucoup de choses sont accomplies de cette manière, de sorte que les progrès qui sont faits et continueront à être faits ne seront pas interrompus, mais se poursuivront à un niveau différent. De cette façon, vos idées viendront en rêve et en méditation, des idées et des révélations pendant que vous priez.
 
 Que Dieu vous bénisse sur le chemin de l’éveil. Puissiez-vous vous trouver en paix et être en joyeuse compagnie avec vos frères et sœurs alors que vous continuez à écouter la Parole de Dieu, la Volonté de Dieu, l’Amour de Dieu qui se déverse sur vous. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse. Je continuerai à être toujours avec vous et avec beaucoup d’autres qui ont consacré leur temps et leurs efforts pour vous soutenir. Que Dieu vous bénisse et vous garde, âmes bien-aimées.
-
-
-

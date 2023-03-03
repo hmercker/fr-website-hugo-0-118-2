@@ -23,11 +23,10 @@ Donc, je me suis senti très bien. Renouvelé, joyeux, énergique. Hier, je me s
 
 Ensuite, j’ai commencé à avoir des visions. Elizabeth, je t’ai vu dans le futur et tu faisais un TED Talk. Pas seulement un petit TED Talk dans une petite communauté. C’est comme l’un de ces grands discours qui sont diffusés à la télévision ou autre et beaucoup, beaucoup de gens le regardent. Tu faisais un exposé sur les dimensions subtiles du corps ou quelque chose comme ça, où vous parlez de la façon dont le corps réagit aux choses dans le sens métaphysique plutôt que dans le sens physique. Tu faisais cette conférence parce que tu avais écrit un livre et que ce livre était en fait assez populaire. Il se vendait et te rapportait de l’argent. Ce qui était intéressant pour moi, c’est que lorsque tu te tenais debout pour parler, tu avais l’air très professionnelle. Tu portais un ensemble gris, comme une jupe et un joli blazer avec un chemisier blanc. D’une manière ou d’une autre, j’ai fait une fixation sur ton collier qui descendait, s’enroulait et descendait un peu ici. C’était une perle ou quelque chose comme ça. Tu avais des lunettes différentes et tes cheveux étaient d’ailleurs d’une couleur différente. C’était une couleur claire, un peu comme ceux de Darlène, cette couleur, et ils étaient enroulés dans un, tu sais comment les femmes ont ce genre de chignon dans le dos qui est un peu oblong. Je ne sais pas comment le décrire mais tu sais de quoi je parle. Donc, tu avais l’air très professionnelle. Je pensais que c’était quelqu’un qui ferait une présentation dans une salle de réunion, ce genre de look. Rouge à lèvres rouge foncé et lunettes différentes. Elles étaient un peu comme ces vieilles lunettes des années 60, pas en strass mais de couleur rose. Tu étais superbe. J’espère que c’est vrai.
 
-Terry : Nous pourrons dire, *« Nous te connaissions à l’époqu.e »*
+*[Terry : Nous pourrons dire, « Nous te connaissions à l’époqu.e »]*
 
 Al : Exactement. Je pense que cette amitié va perdurer. Pas *« on te connaissait à l’époque »*, mais *« on te CONNAIT. »* Nous te soutiendrons dans cette affaire et tu nous soutiendras. Et ça continuera.
 
-Judy : Je peux te visualiser dans cette situation.
+*[Judy : Je peux te visualiser dans cette situation.]*
 
 Al : C’était une belle façon de…. il s’est passé quelques choses. Je ne me souviens pas de tous les détails. Ils n’étaient pas si dramatiques. C’était une belle façon de terminer la prière, juste cette vision. J’espère vraiment que c’est réel. Donc, pour être tout à fait honnête, pour le premier jour avec VD, je me sens vraiment excité et enthousiaste. Avant, je me disais « c’est bien ». Nous verrons comment ça se passe.
-

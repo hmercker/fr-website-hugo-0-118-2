@@ -11,11 +11,11 @@ weight:
 
 Jésus - reçu par Al Fike le 25 Février 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/citation-maxime-handela.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-citation-maxime-handela.jpg)
 
 Nous revenons donc, chers frères et sœurs, à notre temps de conversation et de communication. Je suis heureux d’être avec vous aujourd’hui pour partager la sagesse de mon âme et pour être un canal clair de vérité à travers cet instrument car c’est toujours notre but, apporter la vérité à l’humanité, apporter l’amour à tous, élever et bénir nos frères et sœurs sur cette Terre. Nous pouvons donc commencer.
 
-*Questions 8, 9 et 10 : Merci, Jésus. Il nous reste quatre questions sur l’âme, puis beaucoup d’autres questions sur la prière et les changements de la Terre. Je vais commencer par lire trois questions. Numéro 8 : l’avortement est-il acceptable à tout moment après la conception pour des raisons purement personnelles ? À quel stade, à quelle semaine, l’âme pénètre dans le fœtus et comment cela se fait-il ? Numéro 9 : les avortements peuvent-ils être pratiqués sans les mêmes conséquences avant que l’âme ne pénètre dans le fœtus qu’après que l’âme y soit entrée ? Numéro 10 : quel sera l’impact d’un avortement sur la femme dans sa prochaine vie?*<sup id=”a1”>[1](#f1)</sup>
+*[Questions 8, 9 et 10 : Merci, Jésus. Il nous reste quatre questions sur l’âme, puis beaucoup d’autres questions sur la prière et les changements de la Terre. Je vais commencer par lire trois questions. Numéro 8 : l’avortement est-il acceptable à tout moment après la conception pour des raisons purement personnelles ? À quel stade, à quelle semaine, l’âme pénètre dans le fœtus et comment cela se fait-il ? Numéro 9 : les avortements peuvent-ils être pratiqués sans les mêmes conséquences avant que l’âme ne pénètre dans le fœtus qu’après que l’âme y soit entrée ? Numéro 10 : quel sera l’impact d’un avortement sur la femme dans sa prochaine vie?]* <sup id=”a1”>[1](#f1)</sup>
 
 Ce sont des questions morales, n’est-ce pas ? Je suis plus enclin à parler de l’âme et de l’interaction de l’âme avec Dieu. Pourtant, je sais que sur ce plan matériel, beaucoup se posent des questions sur la vie ici. Mais plutôt que de répondre directement à ces questions, je souhaite aborder la moralité et le comportement de l’humanité sur ce monde. Plus précisément, je voudrais aborder la vie dans le monde moderne, dans le monde occidental, car cette vie est très différente de celle de ceux qui vivent de manière plus traditionnelle et au sein de religions plus traditionnelles.
 
@@ -57,7 +57,7 @@ J’espère avoir répondu à ces questions dans une certaine mesure et que vous
 
 Puissiez-vous tous continuer à prier pour cela et à rechercher l’amour et la compassion de Dieu pour ces chères âmes qui sont effectivement perdues. Je vous remercie.
 
-*Question 11 : Merci, Jésus. Notre dernière question relative à l’âme, numéro 11, existe-t-il des circonstances dans lesquelles une mort médicalement assistée par injection létale est en harmonie avec la volonté de Dieu ?*<sup id=”a2”>[2](#f2)</sup> 
+*[Question 11 : Merci, Jésus. Notre dernière question relative à l’âme, numéro 11, existe-t-il des circonstances dans lesquelles une mort médicalement assistée par injection létale est en harmonie avec la volonté de Dieu ?]* <sup id=”a2”>[2](#f2)</sup>
 
 Dans votre monde, il existe de nombreuses façons pour une personne de passer de la vie matérielle à la vie spirituelle. Il y a très peu de cas où l’individu décide de réduire cette vie, mais cela se produit effectivement. Ceux qui se suicident pour résoudre leurs problèmes savent très bien, lorsqu’ils atteignent le monde de l’esprit et libèrent leur corps, qu’il n’y a pas de différence dans leur état d’esprit et leur condition. Par conséquent, ils ont en effet gâché une occasion de vivre dans le monde matériel et ont décidé qu’il n’y avait ou qu’il n’y a pas d’autre solution à leur dilemme. Pourtant, cette solution n’est pas apparue au moment de la mort.
 
@@ -90,21 +90,6 @@ C’est à l’humanité de s’élever au-delà de cette condition humaine et d
 Merci, âmes bien-aimées. Que Dieu vous bénisse profondément de Son Amour. Mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Ces questions ont été posées auparavant avec des informations légèrement différentes. Peut-être que l’apport humain des médiums est la cause de la différence ? Ou peut-être que le sujet est simplement un peu fluide ?
+1. <large id=”f1”> Ces questions ont été posées auparavant avec des informations légèrement différentes. Peut-être que l’apport humain des médiums est la cause de la différence ? Ou peut-être que le sujet est simplement un peu fluide ? 1. [Jésus parle de l’avortement et de l’abandon d’enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/), 2. [Jésus parle de l’avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/), 3. [Quand l’âme s’incarne-t-elle ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/)[↩](#a1)
 
-[1] [Jésus parle de l’avortement et de l’abandon d’enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/)
-
-[2] [Jésus parle de l’avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/)
-
-[3] [Quand l’âme s’incarne-t-elle ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/)[↩](#a1)
-<small>
-
-2. <large id=”f2”>Là encore, d’autres médiums ont eu une saveur quelque peu différente de la mort assistée. D’autres messages sur le suicide et la mort assistée sont disponibles ici :
-
-[1] [Suicide assisté et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/)7
-
-[2] [Jésus : Sur le suicide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/)[↩](#a2)
-
-
-
-
+2. <large id=”f2”> Là encore, d’autres médiums ont eu une saveur quelque peu différente de la mort assistée. D’autres messages sur le suicide et la mort assistée sont disponibles ici : 1. [Suicide assisté et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/), 2. [Jésus : Sur le suicide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/)[↩](#a2)

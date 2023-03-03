@@ -16,5 +16,3 @@ André - reçu par Al Fike le 28 Février 2021, Gibsons, Colombie-Britannique, C
 Vous êtes profondément bénis en ce moment et aussi utilisés efficacement et puissamment comme instruments de Dieu. L’efficacité de ces bénédictions qui peuvent couler à travers vous est déterminée par votre désir et la condition de l’amour dans votre âme. De cette façon, la puissance peut être amplifiée, les bénédictions peuvent couler et tout mon être vient dans des vagues de lumière profondes et puissantes. Puissent les bénédictions continuer à couler dans vos âmes et à travers vos âmes pour le bénéfice de vos frères et sœurs dans le monde.
 
 Que Dieu vous bénisse, mes bien-aimés, je suis André et je prie aussi avec vous. Je suis toujours ici et je prie avec vous. Car il est important que l’humanité vienne à Dieu et cherche les bénédictions de Dieu. Car comment la guérison profonde de ce monde pourra-t-elle avoir lieu autrement qu’avec les intentions et les efforts de chaque individu pour tenter de changer, d’être guéri et transformé dans la Grâce de Dieu, dans Son Amour. Ainsi, il viendra vous changer tous et apportera une paix profonde au monde.
-
-

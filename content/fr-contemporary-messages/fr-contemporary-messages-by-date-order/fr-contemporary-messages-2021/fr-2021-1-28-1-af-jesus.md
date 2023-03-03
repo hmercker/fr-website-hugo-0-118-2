@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 28 Janvier 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/spiritualite_8.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-spiritualite_8.jpg)
 
 Que Dieu vous bénisse, frères et sœurs du plan terrestre. Je viens une fois de plus pour parler de questions spirituelles et de vérité afin de vous inspirer à venir à la lumière et à l’amour et à Dieu afin de nourrir votre âme et de vous préparer à la prochaine étape de votre voyage de la vie. Je suis votre frère et ami, Jésus. Je continue à avoir un grand amour et à me concentrer sur ceux du plan de la Terre, car ce plan est une étape cruciale pour former les débuts de son voyage vers Dieu. Chaque âme doit, d’une manière ou d’une autre, sur un chemin quelconque, arriver à Dieu à temps. Que vous le fassiez sur ce plan terrestre ou que vous en veniez à comprendre ce voyage lors de votre transition vers le monde des esprits, vos âmes vous attireront invariablement vers Dieu, car Dieu a créé en vous une âme qui connaît Dieu, qui peut connaître Dieu profondément à condition d’être éveillée dans Son Amour.
 
@@ -80,6 +80,3 @@ Ayez la foi, âmes bien-aimées, que tout va bien dans le monde de Dieu et que l
 Il en sera ainsi, mes amis, il en sera ainsi. Nous attendons avec impatience. Nous continuons à vous informer, à vous guider et à vous aimer. La Main de Dieu est fermement sur ce monde. Les changements que Dieu apportera seront d’une grande sagesse et d’une grande vérité afin que la lumière l’emporte dans votre monde et que l’amour soit sa monnaie d’échange.
 
 Que Dieu vous bénisse alors que vous prenez davantage conscience du grand don que Dieu fait à l’humanité, des grandes bénédictions qui s’annoncent et qui sont déjà venues sur vous. Puissiez-vous connaître la joie de cette compréhension, de cette vérité et de cet épanouissement alors que votre âme s’éveille et en vient à connaître la gloire de Dieu. Mon amour est avec vous, âmes bien-aimées, mon amour est avec vous. Je suis avec vous. Je marche avec vous. Je prie avec vous et je vous aime. Que Dieu vous bénisse. Je suis Jésus, Maître des Cieux Célestes, gardien de la flamme de la vérité qu’est l’Amour Divin. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
-
-
-

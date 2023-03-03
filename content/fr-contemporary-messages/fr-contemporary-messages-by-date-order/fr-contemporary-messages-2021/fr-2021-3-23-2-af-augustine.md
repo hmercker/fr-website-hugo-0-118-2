@@ -11,7 +11,7 @@ weight:
 
 Augustin - reçu par Al Fike le 23 Mars 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/basilique-st-augustin.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-basilique-st-augustin.jpg)
 
 Mes chers et beaux élèves, je suis votre enseignant Augustin. Les nombreuses religions de ce monde contribuent à réconforter le mental en apportant des idées, des concepts et des structures qui aident à naviguer dans la vie avec de nombreux concepts moraux et des principes de comportement sur ce plan terrestre. Cependant, à bien des égards, ces idées recouvrent l’âme d’une couverture qui empêche le libre échange de la connaissance et de la vérité de l’âme avec le mental. Les idées prédéterminées et ordonnées transmises dès l’enfance façonnent l’expérience de l’individu de telle sorte qu’elles sont dirigées d’une manière particulière et qu’elles ne sont pas nécessairement propices à la compréhension de l’âme. Elles sont plutôt destinées à apporter uniformité et homogénéité à la pensée de ceux qui font partie d’une certaine culture ou croyance.
 
@@ -28,6 +28,3 @@ Si vous souhaitez emprunter un chemin véritablement spirituel, il est essentiel
 Comme toujours, c’est votre choix, chers étudiants, mais je vous dis que le chemin difficile de la recherche de la vérité par le mental est difficile et long. Pour ceux qui tiennent compte de mes paroles et s’ouvrent à leur propre âme et cherchent une relation durable et contraignante avec Dieu pour recevoir la bénédiction de Son Amour, ils trouveront la route droite et courte vers le but de la vérité. Puissiez-vous trouver votre chemin, âmes bien-aimées. Puissiez-vous libérer ce manteau de considération minutieuse et permettre l’ouverture et la liberté expansives qui viennent lorsque l’âme est éveillée dans l’amour et la vérité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je suis toujours à vos côtés, cherchant à vous guider dans la direction de l’âme et de la vérité de l’amour que Dieu a fourni à chacun sur ce monde et tous les mondes. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

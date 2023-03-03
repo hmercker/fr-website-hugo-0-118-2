@@ -22,6 +22,3 @@ Ne laissez pas votre compréhension de ce monde matériel vous empêcher d’aim
 J’espère que vous vous soutiendrez tous les uns les autres dans l’amour, car avoir cette communauté, ce groupe de lumières dans le monde fera une différence dans le monde, apportera une mesure de changement dans le monde et une plus grande lumière dans le monde. Cela dépend de vous, individuellement et ensemble, pour travailler avec Dieu, pour apporter la guérison qui est nécessaire. Les bénédictions qui pleuvront sur vous et à travers vous sur beaucoup d’autres.
 
 Cela arrive mes amis, belles âmes, pour vous tous. Je vous aime tous. Je vous aime tous et je continuerai à travailler avec vous tous alors que vous continuez à chercher la guidance de Dieu et à être un canal de Son Amour dans le monde. Que Dieu vous bénisse dans ce voyage, mes beaux et bien-aimés amis. Je vous aime et je vous remercie tous pour vos efforts et votre soutien dans la création de cette belle organisation qui est conçue pour aider à soutenir et à apporter la Vérité de l’Amour de Dieu à beaucoup. Que Dieu vous bénisse et merci de m’avoir écouté. Merci, que Dieu vous bénisse.
-
-
-

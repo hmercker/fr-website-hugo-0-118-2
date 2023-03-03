@@ -40,4 +40,3 @@ Cela vous ouvrira la porte pour parler de ces vérités, pour parler de ce qui a
 Une perception, une grande perception peut venir à votre conscience, un grand amour peut venir à votre cœur, une connaissance et une vision profondes peuvent venir aux facultés qui s’ouvrent dans votre âme afin que vous puissiez vraiment comprendre les mots que j’ai prononcés et que beaucoup ont prononcés sur ce qui est à venir car vous êtes puissamment bénis, préparés puissamment, élevés dans la lumière.
 
 Puissiez-vous continuer à être dans cette lumière et absorber tout ce que vous pouvez pour apporter des changements à vous-même et à votre monde. Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem et mon amour est avec vous, âmes bien-aimées, toujours avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
-

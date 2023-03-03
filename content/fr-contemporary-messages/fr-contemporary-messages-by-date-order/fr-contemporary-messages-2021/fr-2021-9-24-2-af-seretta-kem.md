@@ -21,7 +21,3 @@ Pensez les uns aux autres au cours de votre journée, envoyez votre amour à vos
 Nous continuons le voyage, un voyage qui, comme vous l’avez appris, ne se terminera jamais, seulement des étapes sur cette route, alors que vos dons s’ouvrent et se révèlent. Nous continuons comme toujours dans le service, dans la vérité, dans l’amour, servant notre Créateur, exprimant l’amour à l’humanité, aidant à apporter une plus grande lumière à votre monde. Tout s’écoule en accord avec le plan de Dieu. Nous marcherons donc ensemble sur cette route, et ensemble nous ferons de grands progrès, de grands progrès, car nous sommes utilisés pour exprimer la volonté de Dieu dans le monde.
 
 Que Dieu vous bénisse, mes amis. Que l’amour soit toujours votre expression. Je suis votre serviteur, votre ami, votre guide dans ce voyage. Que Dieu vous bénisse.
-
-
-
-

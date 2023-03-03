@@ -32,6 +32,3 @@ C’est pourquoi Dieu vous rassemble pour vous soutenir les uns les autres, pour
 Marchez avec Dieu, mes bien-aimés. Pendant que vous êtes ici ensemble, marchez avec Dieu, dans un dévouement aimant, en vous affirmant mutuellement que c’est bien Dieu qui apporte toutes ces bénédictions et ouvre les portes à ce que vous cherchez à expérimenter et à exprimer en tant qu’instruments de sa volonté. La sagesse qui est en vous va grandir, la capacité d’aimer tout le monde va grandir en vous. La manière dont vous pourrez servir et réaliser ce grand dessein que Dieu a mis en vous, viendra d’une manière qui sera claire et sans équivoque dans sa vérité.
 
 Que Dieu vous bénisse dans ce voyage, mes amis bien-aimés, comme il est merveilleux de marcher ensemble dans la lumière. Comme il est merveilleux pour nous de voir une floraison progressive de votre âme et quelle joie cela nous donne lorsque vous acceptez et embrassez, tout ce qui est de votre âme et tout ce qui est dans votre relation avec Dieu. De plus en plus, vous devenez l’un d’entre nous et laissez cette condition humaine derrière vous, et il en sera ainsi, il en sera ainsi. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse. Je suis votre amie et votre aide, Seretta Kem. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

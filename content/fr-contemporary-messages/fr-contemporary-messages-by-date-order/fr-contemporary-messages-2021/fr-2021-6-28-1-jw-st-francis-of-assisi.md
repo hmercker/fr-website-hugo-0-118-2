@@ -18,6 +18,3 @@ Si vous donnez quelque chose par obligation, par exemple à une église ou à un
 Il n’est pas nécessaire d’être riche en termes de monde matériel pour donner. Parfois, un sourire peut faire plus pour la journée d’une personne que toutes les richesses dont vous pourriez imaginer qu’elle a besoin, quelles que soient les choses matérielles. Bien sûr, il est toujours bon de fournir à ceux qui sont dans le besoin. J’ai moi-même une certaine expérience en la matière et je continue à encourager non seulement mes frères, mais tout le monde à nourrir les affamés, à vêtir ceux qui sont nus ou dans le besoin, et à fournir un abri. Je dis que si vous pouvez le faire personnellement avec l’Amour de Dieu dans votre cœur et votre âme, ce don bénira à la fois celui qui le reçoit et celui qui le donne et vous élèvera tous les deux.
 
 Lorsque vous quitterez ce sanctuaire aujourd’hui, je vous suggère de rester dans la lueur, dans la lumière et dans la grâce de cette prière, si bénie par Dieu, afin que vous puissiez être un canal de Sa lumière et de Son amour comme vous le souhaitez. Avec tout mon amour et les bénédictions d’En Haut. Allez en paix. Je suis votre frère et ami dans le Christ. Je suis François d’Assise, maintenant ange Céleste. Que Dieu vous bénisse.
-
-
-

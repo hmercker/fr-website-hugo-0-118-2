@@ -18,6 +18,3 @@ Bien-aimés, comme vous êtes bénis d’avoir vos amis anges et d’avoir le to
 Je viens vous bénir tous, âmes précieuses, ceux qui habitent sur cette terre, ceux qui ont besoin du toucher de Dieu, ceux qui parfois s’égarent dans le chagrin, la tristesse, qui sont accablés par les conditions de la vie. Je viens vous élever, âmes bien-aimées, car je suis l’instrument de Dieu et je peux venir toucher chacune d’entre vous, âmes bien-aimées, car mon amour pour vous est grand. Mon amour pour vous est grand, âmes bien-aimées. Je viens pour être avec mes petits oiseaux, si précieux aux yeux de Dieu, mes petits oiseaux que j’aime et que je viens nourrir et protéger, que je viens rapprocher de mon cœur. Bien-aimés, âmes bien-aimées, sachez que vous êtes aimés, que vous êtes vraiment aimés et que je vous aime, que je vous aime. Âmes bien-aimées, beaucoup vous aiment.
 
 Précieux, précieux oiseaux, volez vers Dieu et chantez vos chants de louange pour votre bien-aimé Créateur. Âmes précieuses, soyez dans la Lumière. Dieu vous bénit, mes bien-aimés, Dieu vous bénit et vous apporte la paix. Bien-aimés, bien-aimés, que Dieu vous bénisse.
-
-
-

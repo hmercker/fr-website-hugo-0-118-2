@@ -22,6 +22,3 @@ Cette simple vérité peut être présentée de nombreuses façons par beaucoup 
 Je vous encourage donc à poursuivre vos efforts et à ne pas vous préoccuper outre mesure des détails. Car dans ce simple message, il n’est pas nécessaire d’établir des structures et des plans compliqués, mais simplement l’intention de faire la volonté de Dieu et le travail de Dieu, et c’est ainsi que vous trouverez votre chemin. Ce qui sortira de votre bouche sera beau, touchant et aimant.
 
 Nous serons avec vous, tous, pour continuer à faire ce travail. Puissiez-vous vous efforcer d’atteindre le plus haut niveau. Puissiez-vous vous efforcer d’être un canal aussi clair que possible pour permettre à Dieu de travailler à travers vous, à Son Amour de circuler, à vos mots de dire la vérité et à votre étreinte d’être sincère et puissante. Et tout le reste suivra, âmes bien-aimées, tout le reste suivra. Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem. Je suis heureuse de m’adresser à vous aujourd’hui, nos beaux amis sur terre, que nous nous efforçons de soutenir et d’appuyer, d’aimer et de soigner, alors que nous nous tournons tous vers notre Père céleste pour obtenir Ses bénédictions d’amour, Ses bénédictions sur nous dans tout ce que nous faisons. Que Dieu vous bénisse.
-
-
-

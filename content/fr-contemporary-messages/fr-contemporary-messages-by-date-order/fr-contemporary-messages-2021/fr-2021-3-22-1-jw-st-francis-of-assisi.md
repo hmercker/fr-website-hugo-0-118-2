@@ -20,8 +20,3 @@ Mes frères et moi, comme vous le savez, avons prié et chanté, puis nous avons
 Marchez dans la Grâce ! C’est simple. En fait, c’est tellement simple que cela semble être difficile. Rien n’est requis, si ce n’est le désir ardent de votre âme d’être libre, d’être changée, de ressentir l’Amour et la Lumière de la Grâce de Dieu, donnés librement et de la plus belle manière dans ce cercle de prière aimant, ce cercle de lumière.
 
 Je vais me joindre à vous maintenant dans une prière silencieuse avec tant d’autres personnes qui sont avec vous. Nous vous aimons et vous avez nos bénédictions et la grande bénédiction du Créateur. Allez en paix. Allez en paix. Je suis François.
-
-
-
-
-

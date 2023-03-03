@@ -26,6 +26,3 @@ Bien-aimées et belles âmes, je suis avec vous et mon amour pour vous est éter
 Bien-aimées et belles âmes, je suis avec vous. Et mon amour pour vous est éternel comme l’Amour de Dieu est éternel et l’Amour qui grandit en vous est éternel. La flamme deviendra de plus en plus brillante, c’est une lumière qui arrivera effectivement. Comme la puissance des étoiles et de toute la Création de Dieu, cette lumière grandit pour toujours, mes bien-aimés, car nous sommes ensemble dans le pouvoir de l’Amour de Dieu, et ensemble nous irons de l’avant, comme une lumière qui éclaire le pouvoir de notre instrumentalité, pour apporter les bénédictions de Dieu à travers nous. Et elle grandira comme nous avons marché ensemble dans Sa lumière, comme nous sommes ensemble dans votre lumière.
 
 Père bien-aimé, bénis mes frères et sœurs, bénis-les, déploie-les dans l’amour et maintiens-les dans Tes soins affectueux. Âmes bien-aimées, âmes bien-aimées, mon amour est avec vous. Que Dieu vous bénisse, que Dieu vous bénisse tous dans sa grâce et son toucher.
-
-
-

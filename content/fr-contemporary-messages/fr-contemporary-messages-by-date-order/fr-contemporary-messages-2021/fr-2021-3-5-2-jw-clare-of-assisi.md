@@ -18,6 +18,3 @@ Mes sœurs et moi chantions tous les jours en louange, en prière, en requête p
 Je vous en conjure, suivez avant tout les désirs d’amour de votre cœur, les désirs de votre âme de ne faire qu’un avec Dieu, dans Son amour. Tout le reste vous sera donné. Une fois que vous êtes dans cette grâce, vous commencez à voir le flux, le travail de Dieu dans la nature, et le travail des anges, qui est le travail qui bénéficie à l’âme. Faites cette faveur à vos âmes, et vous en bénéficierez tous. Je vous souhaite à tous une guérison du corps, de l’esprit et de l’âme, afin que votre esprit soit touché par le Saint-Esprit de Dieu. C’est l’amour, c’est l’amour.
 
 Que Dieu vous bénisse et soit avec vous et que cette Grâce dans ce cercle reste avec vous. Je t’aime. Je suis Claire, votre sœur et amie en Christ. Sois en paix mes aimables souris, sois dans la joie.
-
-
-

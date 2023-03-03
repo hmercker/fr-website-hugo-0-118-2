@@ -39,6 +39,3 @@ Je vous exhorte à trouver ces dons en vous. Trouvez ce but que Dieu a placé en
 Soyez audacieux, mes beaux amis. Soyez toujours dans la lumière de l’Amour de Dieu. Ne négligez pas les besoins de votre âme. Mettez toujours cela en premier à chaque jour et ensuite permettez aux désirs de Dieu, à la Volonté de Dieu de s’exprimer à travers vous. Mes précieux et beaux amis, chacun de vous est une lumière. Chacun de vous a beaucoup à donner au monde. Ne vous cachez pas, mais donnez de n’importe quelle manière, à n’importe quel moment, afin que vous sachiez et reconnaissiez que Dieu vous donne l’opportunité de servir dans l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Faith et mon amour pour vous est profond et durable, car n’aimons-nous pas tous Dieu ? Que Dieu vous bénisse. Que Dieu vous bénisse, mes chers amis.
-
-
-

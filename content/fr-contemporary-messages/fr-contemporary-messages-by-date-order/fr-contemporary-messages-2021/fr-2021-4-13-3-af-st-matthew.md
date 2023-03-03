@@ -22,6 +22,3 @@ Puissiez-vous en venir à voir les possibilités de vos rassemblements, que beau
 Puissiez-vous continuer à prier ensemble, âmes bien-aimées, car c’est une étape vitale dans une série de résultats et d’expressions merveilleux qui sont orchestrés et utilisés par Dieu et Ses anges bien-aimés du Royaume Céleste. Vous faites vraiment partie de ces efforts et vous faites votre part en tant que participant au plan de Dieu pour le salut de l’humanité. Sachez que ce que vous faites a de nombreux aspects et que plus vous approfondissez la conscience de votre âme, plus vous verrez et connaîtrez les grandes bénédictions qui peuvent se manifester à travers vous.
 
 Puissiez-vous être bénis dans ce voyage d’éveil, d’amour, de vérité de l’âme et d’expression de l’âme. Au cours de ce voyage, de nombreux aperçus et expériences viendront alors que Dieu continue à vous bénir, âmes bien-aimées, à vous bénir magnifiquement, merveilleusement et gracieusement dans Son Amour. Dieu vous bénisse, je suis Matthieu et je vous remercie d’avoir écouté cette leçon aujourd’hui. Dieu vous bénisse, âmes bien-aimées, nous sommes avec vous, chacune d’entre vous, nous sommes avec vous. Que Dieu vous bénisse.
-
-
-

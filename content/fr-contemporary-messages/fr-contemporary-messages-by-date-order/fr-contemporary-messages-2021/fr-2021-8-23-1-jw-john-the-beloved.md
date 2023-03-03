@@ -18,6 +18,3 @@ Vous pouvez compter sur votre Père Céleste pour vous faire traverser des eaux 
 On vous a beaucoup parlé des lois de Dieu, du travail de vos âmes, de la nécessité de la prière pour apporter l’expiation. Et maintenant, mes frères et sœurs, actualisez cet amour sur la terre. Car vous êtes la promesse d’un nouveau monde. Et pendant que vous êtes encore sur cette terre, vous pouvez servir de tout votre cœur ceux qui sont tellement dans le besoin, tellement privés de la connexion avec leur Créateur que vous possédez. Apportez la joie, apportez la guérison, apportez un sourire, des mots d’amour et la lumière de vos âmes à tous.
 
 Puissiez-vous rester dans l’amour, l’amour de Dieu, alors que vous vaquez à vos occupations sur terre et que vous savez dans vos âmes que vous portez cet amour et que vous êtes tous sur le pont vers les cieux célestes de Dieu. Que Son Amour et Sa Lumière soient les vôtres. Je suis votre frère et ami dans l’Amour de Dieu. Je suis Jean. Allez en paix.
-
-
-

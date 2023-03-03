@@ -72,6 +72,3 @@ Beaucoup de choses arrivent, âmes bien-aimées, comme vous le sentez et le save
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Qu’il soit clair. Qu’il soit joyeux. Qu’il soit rempli de sagesse et d’amour car c’est le désir de Dieu pour vous tous, que la vie soit un éveil, une connaissance, un voyage joyeux vers un plus grand alignement et une plus grande harmonie avec Dieu. Je suis avec vous dans ce voyage et je serai toujours avec vous.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus. Que Dieu vous bénisse.
-
-
-

@@ -54,6 +54,3 @@ Puissiez-vous continuer à trouver votre chemin, âmes bien-aimées. Pour ceux q
 Que Dieu vous bénisse et vous garde sur ce chemin d’amour, de vérité et de lumière. Puissiez-vous trouver votre chemin à travers toutes les leçons, les tests, les épreuves et les tribulations qui accompagnent votre vie. Ce faisant, puissiez-vous trouver votre chemin dans la grande lumière et la joie, dans les bras de Dieu recevant Son Amour comme un afflux constant dans vos âmes. Nous sommes toujours avec vous et vous n’êtes jamais seuls.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse profondément dans vos âmes. Je suis Seretta Kem. Je suis heureux de vous parler aujourd’hui et j’espère que cela répond à vos questions, ma fille bien-aimée. Bien que j’aie emprunté un chemin plutôt détourné, c’était en effet une excellente occasion de parler des leçons qui sont importantes dans la vie. Ces opportunités, nous les prenons comme un cadeau et une possibilité d’informer vos âmes avec plus de sagesse et de compréhension. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
-
-
-

@@ -30,6 +30,3 @@ Ce n’est pas que nous vous mettons la pression, car la pression ou un sentimen
 Alors, allons-nous prier ? J’ai certainement assez parlé pour le moment. Ouvrons nos âmes à ce grand afflux de l’Essence de Dieu, en invitant l’Esprit Saint à toucher chacun de vous. Pensez à ce moment où les apôtres ont été profondément touchés par l’Esprit Saint lors de la Pentecôte, comme on l’appelle. Pensez à Jésus marchant avec Dieu sur cette Terre, cherchant Sa guidance et manifestant les nombreuses bénédictions qui sont venues à travers lui. Pensez aux nombreux maîtres spirituels qui ont marché sur cette Terre. Vous, âmes bien-aimées, pouvez être l’un de ces enseignants qui aideront à changer votre monde et à l’amener à plus d’amour et d’harmonie.
 
 Puissions-nous recevoir le cadeau, cher Dieu, le cadeau que nous désirons tous, le cadeau qui sauvera ce monde de ses problèmes et de ses peines de cœur, et qui vous sauvera tous de tous ces moments difficiles que vous avez connus et que vous connaîtrez, car c’est ainsi que va le monde. Prions maintenant, mes bien-aimés, et soyons dans la grande paix de la Présence de Dieu. Dieu vous bénisse, je suis votre Seretta Kem et mon amour est avec vous tous. Que Dieu vous bénisse.
-
-
-

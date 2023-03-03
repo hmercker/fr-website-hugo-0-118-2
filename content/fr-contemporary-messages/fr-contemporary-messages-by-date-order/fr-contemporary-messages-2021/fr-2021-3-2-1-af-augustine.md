@@ -26,6 +26,3 @@ En esprit, nous répondons rarement aux questions définitives concernant la gui
 Ce que Dieu a en réserve pour vous, son plan pour votre vie, se déploiera invariablement dans toute sa beauté et sa joyeuse expression. Ainsi, vous trouverez votre chemin. Vous connaîtrez votre chemin, et vous saurez de tous les aspects de votre être la route à prendre, les décisions à prendre, et comment vos dons peuvent se déployer pour bénir vos frères et sœurs comme un canal de la Volonté et de l’Amour de Dieu et le désir de bénir Ses enfants.
 
 Dieu vous bénisse, âmes bien-aimées, je suis votre enseignant Augustin. Je suis heureux de m’adresser à vous aujourd’hui afin que vous puissiez examiner les différences entre les expériences de l’âme et celles que le mental interprète et vit en tant que tel. Que Dieu vous bénisse de son amour. Mon amour est avec vous pour toujours. Je suis votre enseignant Augustin. Que Dieu vous bénisse.
-
-
-

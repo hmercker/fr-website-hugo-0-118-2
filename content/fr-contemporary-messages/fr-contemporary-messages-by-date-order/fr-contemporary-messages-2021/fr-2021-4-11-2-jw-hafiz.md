@@ -11,7 +11,7 @@ weight:
 
 Hafiz - reçu par Jimbeau Walsh le 11 Avril 2021, Punalu’u, Oahu, Hawaii, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/haffiz.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-haffiz.jpg)
 
 Attente.
 Vous vous tenez devant la porte
@@ -48,8 +48,3 @@ et un lieu sans regrets
 Dans l’étreinte de Dieu.
 Je suis Hafiz
 Allez en paix mon frère.
-
-
-
-
-

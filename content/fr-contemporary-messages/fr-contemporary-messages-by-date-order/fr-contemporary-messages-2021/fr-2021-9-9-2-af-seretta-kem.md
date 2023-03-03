@@ -1,13 +1,13 @@
 ---
-title: "Notre magnifique voyage ensemble "
+title: "Notre magnifique voyage ensemble"
 menu_title: ""
-description: "Notre magnifique voyage ensemble "
+description: "Notre magnifique voyage ensemble"
 date: 2022-06-01 06:00:01+00:1631
 draft: False
 hidden: True
 weight:
 ---
-### Notre magnifique voyage ensemble 
+### Notre magnifique voyage ensemble
 
 Seretta Kem - reçu par Al Fike le 9 Septembre 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -28,6 +28,3 @@ Ce n’est pas une affaire compliquée. Bien que certains d’entre vous aient v
 Il y a beaucoup plus à venir, alors que nous commençons juste ce voyage ensemble, mais je ne souhaite pas que vous soyez trop anxieux ou concentrés sur les détails de cette expérience, mais plutôt que vous vous ouvriez, comme des enfants, à quelque chose de nouveau. Absorbez-la avec cette innocence et ce désir d’embrasser, d’être dans ce lieu de repos, mais d’impatience et d’ouverture pour ce que Dieu a à donner à chacun d’entre vous. Être à l’aise et savoir que vous êtes magnifiquement pris en main et conduits dans ce voyage particulier, que vos besoins sont satisfaits, qu’en effet vous partagez avec amour avec vos amis, vos amis dans la chair et vos amis dans l’esprit, et cette conscience, cette proximité aimante et cette unité ne feront que croître alors que nous continuons.
 
 Âmes bien-aimées et belles, comme vous êtes gratifiées des bénédictions de Dieu, comme vous êtes élevées dans l’amour de Dieu, comme vous êtes embrassées dans tout ce qui est de son amour, de sa volonté et de sa lumière. Âmes bien-aimées, nous allons continuer ce magnifique voyage ensemble et nous sommes avec vous, si proches, si proches. Que Dieu vous bénisse. Je suis votre Seretta Kem. Mon amour est avec vous. Qe Dieu vous bénisse.
-
-
-

@@ -80,6 +80,3 @@ Nous voyageons tous ensemble sur cette route en anticipant ce que Dieu a à appo
 Que l’Amour de Dieu continue de couler dans vos âmes. Pour ceux qui s’éveillent, qu’ils puissent connaître le confort et la force qui viennent de Dieu, car cela est disponible pour chaque âme. C’est la prière et le désir fervents qui vous amènent à Dieu. Permettez à ceci d’être prononcé par vos lèvres, exprimé par vos esprits, et d’émaner de vos âmes. C’est ainsi que vous connaîtrez vraiment Dieu et que vous parviendrez vraiment à connaître ces choses dont je parle, vous conduisant à la communion avec Dieu.
 
 Que Dieu vous bénisse tous, âmes bien-aimées. Je suis votre frère et ami, Jésus, et je suis heureux de venir une fois de plus vous parler de la condition humaine et du chemin qui la dépasse vers la lumière, la vérité et l’amour. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse profondément. Je vous aime.
-
-
-

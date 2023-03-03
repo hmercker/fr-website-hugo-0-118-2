@@ -1,13 +1,13 @@
 ---
-title: "Ce que vous créez ensemble nourrit ce grand chêne "
+title: "Ce que vous créez ensemble nourrit ce grand chêne"
 menu_title: ""
-description: "Ce que vous créez ensemble nourrit ce grand chêne "
+description: "Ce que vous créez ensemble nourrit ce grand chêne"
 date: 2022-06-01 06:00:01+00:1423
 draft: False
 hidden: True
 weight:
 ---
-### Ce que vous créez ensemble nourrit ce grand chêne 
+### Ce que vous créez ensemble nourrit ce grand chêne
 
 St Matthieu - reçu par Al Fike le 27 Février 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -19,7 +19,7 @@ Pensez que dans un champ, Dieu a fait appel à un gland qui a créé un chêne p
 
 Ainsi, l’image que je peins est celle d’une belle scène, resplendissante des créations de Dieu apportées par vos efforts, vos prières et vos désirs de servir. Et qui ne serait pas attiré par un endroit aussi beau ? Qui n’en verrait pas la beauté ? Qui n’y trouverait pas du réconfort et des bénédictions, du réconfort pour l’âme, du réconfort pour l’esprit, et le sentiment de percevoir le grand Amour de Dieu à travers toutes ces manifestations dont je parle ? En effet, beaucoup seront attirés vers votre lieu de refuge, de vérité, d’amour. Et là, vous communierez ensemble, partageant les uns avec les autres la beauté de la vérité de votre propre âme, partageant les uns avec les autres le désir d’élever, d’aimer et de soutenir vos frères et sœurs, partageant parce que Dieu vous a profondément bénis, vous a dotés de la perspicacité et de la vérité, et a infusé en vous l’Amour afin que ces éléments puissent effectivement s’exprimer dans toute leur beauté, leur émerveillement et leur unicité. Sous cette grande étreinte de Dieu, il vous apporte une telle joie, une telle perspicacité, et une capacité d’aimer toujours plus grande.
 
-Vous êtes entrés dans la prairie. Vous avez reconnu le grand arbre, ce beau chêne de la vérité. Vous venez pour prier et parler ensemble, pour communier. Et dans votre adoration des grandes bénédictions et de la création de Dieu, vous venez attirer vos frères et sœurs pour dire : *« Nous voici dans cette grande cathédrale de la création de Dieu, ce beau lieu de paix. Et donc nous allons tous bénéficier et être bénis alors que nous nous rassemblons en ce lieu. »* 
+Vous êtes entrés dans la prairie. Vous avez reconnu le grand arbre, ce beau chêne de la vérité. Vous venez pour prier et parler ensemble, pour communier. Et dans votre adoration des grandes bénédictions et de la création de Dieu, vous venez attirer vos frères et sœurs pour dire : *« Nous voici dans cette grande cathédrale de la création de Dieu, ce beau lieu de paix. Et donc nous allons tous bénéficier et être bénis alors que nous nous rassemblons en ce lieu. »*
 
 Vous voyez donc que ce que vous créez est quelque chose d’une grande beauté, puissance, amour et joie. Vous le faites non pas parce que vous avez eu l’intention de le créer, mais parce que vos yeux sont ouverts à ce que Dieu a créé et qu’il vous invite à avancer vers ce bel endroit où tout sera en harmonie et où il y aura un beau déploiement de la Volonté de Dieu dans vos vies, dans les vies de tous ceux qui se rassemblent pour être dans la grande vérité de l’amour de Dieu.
 
@@ -28,6 +28,3 @@ Que Dieu vous bénisse, belles âmes bien-aimées, qui commencez à voir, qui se
 Je m’appelle Matthieu et je suis heureux de vous voir continuer à ouvrir votre conscience, à partager vos pensées, vos désirs, votre inspiration, car de cette façon vous suscitez le soutien des uns et des autres, la sagesse qui peut être partagée, les idées qui viendront s’ajouter aux vôtres et vous amener plus profondément dans ce que Dieu veut par vos efforts. Que Dieu vous bénisse. Je suis souvent avec vous.
 
 Que Dieu vous bénisse, âmes bien-aimées, soyez en paix et sachez que Dieu vous embrasse dans cette vérité. Que Dieu vous bénisse.
-
-
-

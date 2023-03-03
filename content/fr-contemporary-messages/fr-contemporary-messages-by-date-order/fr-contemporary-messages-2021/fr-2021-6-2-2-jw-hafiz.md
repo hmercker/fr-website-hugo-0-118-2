@@ -30,6 +30,3 @@ De l’Éternel
 Sur l’océan infini
 De l’amour
 Ne vous joindrez-vous pas à moi pour une baignade ?
-
-
-

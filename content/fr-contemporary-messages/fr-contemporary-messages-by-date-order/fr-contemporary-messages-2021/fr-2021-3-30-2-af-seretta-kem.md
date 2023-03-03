@@ -30,6 +30,3 @@ Que Dieu vous bénisse alors que vous continuez à servir, à grandir, à prier,
 Dieu vous bénisse, je suis Seretta Kem. Je suis heureuse d’être avec vous aujourd’hui. Je vous remercie pour votre service, âmes bien-aimées, chacune étant utilisée à sa manière et dans son flux unique. Comme c’est beau. Comme il est rassurant que tout se déroule en harmonie avec la volonté de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse profondément de Son Amour, qu’Il vous garde dans Sa Lumière, qu’Il vous enveloppe de paix, qu’Il vous élève de Son Toucher guérisseur et qu’Il vous réveille de Son Grand Amour. Que Dieu vous bénisse.
-
-
-
