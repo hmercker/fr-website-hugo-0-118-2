@@ -1,13 +1,13 @@
 ---
-title: "Abstenez-vous de toute discussion politique ou relative aux changements terrestres "
+title: "Abstenez-vous de toute discussion politique ou relative aux changements terrestres"
 menu_title: ""
-description: "Abstenez-vous de toute discussion politique ou relative aux changements terrestres "
+description: "Abstenez-vous de toute discussion politique ou relative aux changements terrestres"
 date: 2022-06-01 06:00:01+00:193
 draft: False
 hidden: True
 weight:
 ---
-### Abstenez-vous de toute discussion politique ou relative aux changements terrestres 
+### Abstenez-vous de toute discussion politique ou relative aux changements terrestres
 
 Augustin - reçu par Al Fike le 7 Octobre 2022, Menifee – Californie
 
@@ -18,5 +18,3 @@ Dans le Nouveau Monde qui vient, de telles choses ne seront pas pertinentes, mê
 Je vous invite à pratiquer l’abstinence de ces pensées, perceptions et jugements. Être libre dans l’Amour de Dieu, d’avoir confiance dans la voie de Dieu, dans le plan de Dieu, n’est-ce pas plus excitant que toute information ou condition qui fait partie du monde matériel en ce moment ? Cela ne vous intrigue-t-il pas et ne vous amène-t-il pas à poser davantage de questions et à adresser des prières à votre Père céleste ?
 
 N’est-ce pas plus fascinant de connaître la Volonté de Dieu, d’être en harmonie avec la Volonté de Dieu, d’être en harmonie avec l’Amour de Dieu, d’être avec Dieu dans son désir d’apporter toujours plus d’harmonie à votre engagement avec l’humanité, d’apporter ce qui n’est pas que la condition humaine ? Que Dieu vous bénisse mon ami. Poursuivez la conversation reçue aujourd’hui et demain.
-
-

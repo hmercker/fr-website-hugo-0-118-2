@@ -1,13 +1,13 @@
 ---
-title: "Le monde a besoin de plus de cercles de lumière d'Amour Divin "
+title: "Le monde a besoin de plus de cercles de lumière d'Amour Divin"
 menu_title: ""
-description: "Le monde a besoin de plus de cercles de lumière d'Amour Divin "
+description: "Le monde a besoin de plus de cercles de lumière d'Amour Divin"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True
 weight:
 ---
-### Le monde a besoin de plus de cercles de lumière d'Amour Divin 
+### Le monde a besoin de plus de cercles de lumière d'Amour Divin
 
 Seretta Kem - reçu par Al Fike le 27 Août 2022, Gibsons, Colombie-Britannique, Canada.
 
@@ -23,7 +23,7 @@ Alors que le monde continue à réagir à la grande influence que l'humanité a 
 
 Mais en effet, chaque fois que vous sortez vous aventurer dans le monde, n'est-ce pas une occasion de vous exercer et de vous exprimer en tant qu'instruments de Dieu tendant la main à ceux qui vous entourent ? De cette façon, vous affinez vos compétences et vos capacités à communiquer et à être les canaux de Dieu. De cette façon, vous devenez plus conscient de votre capacité et de votre niveau de compréhension de la vérité. Je ne suggère pas que vous puissiez connaître, grâce à ces expériences, le niveau de lumière de votre âme, car c'est une toute autre chose. Mais en effet, cette lumière doit briller à travers votre esprit, votre être, comme un canal de vérité et d'amour.
 
-Alors que vous essayez d'être ce canal, clair et beau à sa manière, vous découvrirez que Dieu vous guidera vers l'avant et que vous aurez de nombreuses occasions de le faire. Vous vous engagez plus complètement sur le chemin de la vérité et de l'amour et, à mesure que vous le faites, Dieu vous demandera davantage. Dieu vous offrira une grande variété d'occasions d'être ce canal dans le monde. 
+Alors que vous essayez d'être ce canal, clair et beau à sa manière, vous découvrirez que Dieu vous guidera vers l'avant et que vous aurez de nombreuses occasions de le faire. Vous vous engagez plus complètement sur le chemin de la vérité et de l'amour et, à mesure que vous le faites, Dieu vous demandera davantage. Dieu vous offrira une grande variété d'occasions d'être ce canal dans le monde.
 
 Pour certains, il s'agira d'une manière très intense de communiquer avec les autres, de toucher un grand nombre de personnes. Pour d'autres, ce sera une façon de marcher dans le monde tranquillement et humblement, mais le flux d'amour sera intense et vous atteindrez de nombreuses âmes avec ce beau flux d'amour.
 

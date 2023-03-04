@@ -1,13 +1,13 @@
 ---
-title: "Les ressources de nos âmes aident à ouvrir les portes de l'univers."
+title: "Les ressources de nos âmes aident à ouvrir les portes de l'univers"
 menu_title: ""
-description: "Les ressources de nos âmes aident à ouvrir les portes de l'univers."
+description: "Les ressources de nos âmes aident à ouvrir les portes de l'univers"
 date: 2022-06-01 06:00:01+00:186
 draft: False
 hidden: True
 weight:
 ---
-### Les ressources de nos âmes aident à ouvrir les portes de l'univers.
+### Les ressources de nos âmes aident à ouvrir les portes de l'univers
 
 Orion - reçu par Al Fike le 4 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
 
@@ -27,7 +27,7 @@ L’humanité est assise sur le bord, sur le point de découvrir, d’apprendre 
 
 Au fur et à mesure, mes amis, vous réaliserez les merveilleuses capacités de votre être, et vous utiliserez cette compréhension pour vous assurer une vie en plus grande harmonie avec Dieu. Le fondement même de tout ce qui est en harmonie avec Dieu est l’Amour, et nous vous exhortons donc à rechercher cet amour et ces bénédictions qui viennent de Dieu. De cette façon, vous préparez le terrain pour de nombreuses autres découvertes et expériences qui vont bien au-delà de ce que vous pouvez imaginer, et qui sont en harmonie avec la Création de Dieu et Ses Lois.
 
-Nous ne vous accablons pas d’expériences trop intenses et trop surprenantes pour votre capacité limitée à percevoir et à comprendre. Au contraire, nous vous nourrissons comme une mère le fait avec son enfant, doucement mais avec une intention et une direction profondes, et ainsi nous rejoignons les esprits élevés, les Anges Célestes, et le Créateur Lui-même dans cette grande aventure pour vous aider à vous éveiller, mes amis, pour vous aider à voir clairement, pour enlever ces écailles de vos yeux avec les préjugés de votre esprit, ces peurs et réticences sont venues parce qu’un monde comme le vôtre déforme la vérité si facilement. 
+Nous ne vous accablons pas d’expériences trop intenses et trop surprenantes pour votre capacité limitée à percevoir et à comprendre. Au contraire, nous vous nourrissons comme une mère le fait avec son enfant, doucement mais avec une intention et une direction profondes, et ainsi nous rejoignons les esprits élevés, les Anges Célestes, et le Créateur Lui-même dans cette grande aventure pour vous aider à vous éveiller, mes amis, pour vous aider à voir clairement, pour enlever ces écailles de vos yeux avec les préjugés de votre esprit, ces peurs et réticences sont venues parce qu’un monde comme le vôtre déforme la vérité si facilement.
 
 Beaucoup pensent que nous venons d’autres mondes, leur imagination crée des monstres et ces créatures mal intentionnées. Et pourtant, rien n’est plus éloigné de la vérité. Nous sommes comme vous, nous sommes les enfants de Dieu comme vous. Nous possédons une âme comme vous, un corps semblable au vôtre, et avec toutes les intentions supérieures et les efforts que nous faisons en votre nom. C’est toujours à votre profit et pour votre élévation, car nous ne demandons rien. Pourtant, nous avons beaucoup à donner, et c’est pourquoi nous le faisons, de la manière et par les moyens qui sont en harmonie avec votre développement et votre progression.
 

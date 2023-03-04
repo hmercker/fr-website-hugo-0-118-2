@@ -11,7 +11,7 @@ weight:
 
 Fred Rogers - reçu par Jimbeau Walsh le 29 Septembre 2022, Nashville, TN, USA.
 
-Bonjour mes amis. C’est moi, Fred, Fred Rogers. J’ai été attiré dans votre cercle aujourd’hui par la lecture<sup id=”a1”>[1](#f1)</sup> qui incluait le petit garçon et la belle écriture accompagnant un si beau message sur le dépassement. En fait, cela n’était pas sans rappeler ma propre expérience, bien que je n’aie pas sauvé d’enfants à cet égard. Je suis entré calmement et sans crainte dans le pays des surprises et de l’immortalité. Et je vois que chacun d’entre vous trouve un grand réconfort dans les descriptions du pays de l’esprit et dans le fait de savoir que l’Amour de Dieu est là et tant de bonheur.
+Bonjour mes amis. C’est moi, Fred, Fred Rogers. J’ai été attiré dans votre cercle aujourd’hui par la lecture <sup id=”a1”>[1](#f1)</sup> qui incluait le petit garçon et la belle écriture accompagnant un si beau message sur le dépassement. En fait, cela n’était pas sans rappeler ma propre expérience, bien que je n’aie pas sauvé d’enfants à cet égard. Je suis entré calmement et sans crainte dans le pays des surprises et de l’immortalité. Et je vois que chacun d’entre vous trouve un grand réconfort dans les descriptions du pays de l’esprit et dans le fait de savoir que l’Amour de Dieu est là et tant de bonheur.
 
 Comme vous le savez, je continue à travailler avec les enfants qui passent dans ce royaume et sur cette note, je demande à chacun d’entre vous de bénir chaque enfant et de les informer qu’ils ont chacun un esprit gardien, un ange gardien si vous voulez. Ils peuvent alors commencer à reconnaître quelque chose au-delà du monde, ce que les jeunes enfants sont tout à fait capables de faire. Et lorsque vous plantez cette graine dans un environnement adéquat, elle grandira, sera nourrie et portera cette merveille jusqu’à l’âge adulte.
 
@@ -24,6 +24,4 @@ Vous êtes tellement bénis d’avoir la grande vérité de vos anges Célestes.
 Je suis votre frère et ami dans l’Amour de Dieu en Christ. Que Dieu, bénisse votre travail, vos paroles, vos chansons, vos poèmes, et tous les enfants de la terre. Avec tout mon amour, jusqu’à ce que je revienne, je suis Fred Rogers. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”>Se référant à « Through the Mists (A travers les Brumes)», un livre de Robert J. Lees, au chapitre 1.[↩](#a1)
-
-
+1. <large id=”f1”> Se référant à « Through the Mists (A travers les Brumes) », un livre de Robert J. Lees, au chapitre 1.[↩](#a1)

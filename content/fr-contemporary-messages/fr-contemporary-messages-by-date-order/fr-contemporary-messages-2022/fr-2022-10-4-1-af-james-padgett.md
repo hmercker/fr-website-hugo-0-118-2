@@ -1,13 +1,13 @@
 ---
-title: "Le monde connaîtra ces vérités à temps."
+title: "Le monde connaîtra ces vérités à temps"
 menu_title: ""
-description: "Le monde connaîtra ces vérités à temps."
+description: "Le monde connaîtra ces vérités à temps"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True
 weight:
 ---
-### Le monde connaîtra ces vérités à temps.
+### Le monde connaîtra ces vérités à temps
 
 James Padgett - reçu par Al Fike le 4 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
 
@@ -27,7 +27,7 @@ Ainsi, la chaîne continue, cette chaîne de service, de l’un à l’autre, tr
 
 Oui, il y a beaucoup de travail à faire, beaucoup d’efforts à fournir, beaucoup d’attention à porter à ce travail. Chacun d’entre vous est à la hauteur de cette tâche à sa manière, vous accomplirez une partie de ce vaste plan que Dieu a mis en mouvement et qui trouvera son expression et son application sur le monde. Oui, le monde entier viendra à connaître le choix de la Voie Divine et celui de l’homme naturel.
 
-En effet, le plan de Dieu est grand, complexe et puissant. C’est comme un courant de fond dans l’océan, mais ce courant de fond dirige la direction du flux, et il en est ainsi avec l’humanité. Vous devenez une expression palpable et véritable de ce courant de vérité, de cette Volonté de Dieu. Et vous serez renforcés chaque jour en priant et en continuant à aspirer au Don d’Amour, et à mesure que vous grandissez de cette manière, que vos âmes se développent et sont nettoyées et transformées de cette manière, le Plan de Dieu devient plus évident à travers vous, et il atteindra en effet beaucoup d’autres personnes. 
+En effet, le plan de Dieu est grand, complexe et puissant. C’est comme un courant de fond dans l’océan, mais ce courant de fond dirige la direction du flux, et il en est ainsi avec l’humanité. Vous devenez une expression palpable et véritable de ce courant de vérité, de cette Volonté de Dieu. Et vous serez renforcés chaque jour en priant et en continuant à aspirer au Don d’Amour, et à mesure que vous grandissez de cette manière, que vos âmes se développent et sont nettoyées et transformées de cette manière, le Plan de Dieu devient plus évident à travers vous, et il atteindra en effet beaucoup d’autres personnes.
 
 Car Dieu ne gaspille aucune ressource ou opportunité pour aider à élever l’humanité. La seule chose qui restreint l’expression du Plan et de la Volonté de Dieu à travers un individu, ce sont les constrictions de l’esprit, ce sentiment de limitation qui accompagne une âme qui continue à se développer, mais qui est encore tendre et doit gagner en force.
 

@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 5 Août 2022, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-27.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite-27.jpg)
 
 Je viens. Je suis Jésus, votre ami et votre frère qui s’empresse de parler à ceux qui ont des oreilles pour écouter, des esprits et des âmes pour recevoir et intégrer les mots que je prononce et la vérité que je partage. Que tous ceux qui cherchent la vérité découvrent la vérité dans ce que je partage avec vous et qu’ils puissent appliquer ces leçons en conséquence.
 
@@ -84,5 +84,3 @@ De cette façon, la grandeur peut venir à vous. Une grandeur qui est très diff
 Puissiez-vous accepter mon invitation car ce n’est pas seulement moi qui vous invite, mes bien-aimés, c’est Dieu qui invite tous Ses enfants à prendre part aux fruits de son âme, à la beauté de son âme et aux bénédictions de son âme. Pour chacun d’entre vous, cela peut être donné par une simple prière et un simple désir, en déplaçant, même légèrement, votre conscience vers quelque chose de plus élevé, de plus grand et de plus nourrissant.
 
 Cherchez et vous trouverez, mes chers amis. Frappez et la porte s’ouvrira à vous. Elle vous attend et vous attendra. Puissiez-vous prier pour ces cadeaux en ce moment même et rechercher leurs bénédictions auprès de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis votre ami, votre professeur, votre frère. Je suis avec vous, je serai toujours avec vous, âmes bien-aimées, ceux qui recherchent ce qu’il y a de plus élevé, ceux qui cherchent à nourrir leur vrai moi, ceux qui sont insatisfaits de la vie matérielle mondaine et qui souhaitent aller plus loin, aller au-delà de ces limitations. Je continue à prier pour vous, mes bien-aimés. Je cherche à vous élever. Je cherche à vous montrer le chemin. Puissiez-vous connaître le chemin et chercher la voie de l’Amour de Dieu. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-

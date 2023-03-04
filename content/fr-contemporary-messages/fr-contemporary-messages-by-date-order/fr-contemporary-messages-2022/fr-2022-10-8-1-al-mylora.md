@@ -1,13 +1,13 @@
 ---
-title: "Soyez dans la grâce de Dieu ; cherchez son amour maintenant "
+title: "Soyez dans la grâce de Dieu ; cherchez son amour maintenant"
 menu_title: ""
-description: "Soyez dans la grâce de Dieu ; cherchez son amour maintenant "
+description: "Soyez dans la grâce de Dieu ; cherchez son amour maintenant"
 date: 2022-06-01 06:00:01+00:194
 draft: False
 hidden: True
 weight:
 ---
-### Soyez dans la grâce de Dieu ; cherchez son amour maintenant 
+### Soyez dans la grâce de Dieu ; cherchez son amour maintenant
 
 Mylora - reçu par Al Fike le 8 Octobre 2022, Menifee, CA.
 
@@ -23,4 +23,4 @@ C’est la véritable rédemption, âmes bien-aimées. Car avec cette guérison 
 
 Mes amis bien-aimés, soyez dans la grâce de Dieu. Cherchez Son Amour maintenant. Ouvrez-vous à Son contact et toutes ces choses dont je parle seront vôtres. Avec le temps, vous trouverez votre chemin et vous en connaîtrez la joie, l’émerveillement et la beauté. Votre âme s’anime, s’éveille et se transforme dans l’amour.
 
-Que Dieu vous bénisse, âmes bien-aimées. Je suis Mylora, et je viens prier avec vous. Je suis votre amie. Je suis avec vous et je le serai alors que nous faisons ce voyage ensemble, âmes bien-aimées. Que Dieu vous bénisse. Dieu vous bénit profondément dans Son Amour, et je vous aime. 
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Mylora, et je viens prier avec vous. Je suis votre amie. Je suis avec vous et je le serai alors que nous faisons ce voyage ensemble, âmes bien-aimées. Que Dieu vous bénisse. Dieu vous bénit profondément dans Son Amour, et je vous aime.

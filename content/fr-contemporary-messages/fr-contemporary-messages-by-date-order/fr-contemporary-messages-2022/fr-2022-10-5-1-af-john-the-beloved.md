@@ -1,13 +1,13 @@
 ---
-title: "Nos chemins seront marqués par le nombre d'âmes que nous toucherons."
+title: "Nos chemins seront marqués par le nombre d'âmes que nous toucherons"
 menu_title: ""
-description: "Nos chemins seront marqués par le nombre d'âmes que nous toucherons."
+description: "Nos chemins seront marqués par le nombre d'âmes que nous toucherons"
 date: 2022-06-01 06:00:01+00:190
 draft: False
 hidden: True
 weight:
 ---
-### Nos chemins seront marqués par le nombre d'âmes que nous toucherons.
+### Nos chemins seront marqués par le nombre d'âmes que nous toucherons
 
 Jean le Bien Aimé - reçu par Al Fike le 5 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
 
@@ -25,10 +25,10 @@ Pourtant, pour vous, Dieu ouvre la porte en grand, Il trace le chemin, et Il vou
 
 Libérez vraiment ces conditions qui vous retiendraient de ce chemin de service, car vous demandez votre avenir, vous demandez ce voyage, et tout ce que l’on peut dire, c’est qu’avec le dévouement, la persévérance, la foi et la confiance, Dieu vous conduira sur un chemin miraculeux, une expression si magnifique et inattendue que lorsque votre heure viendra d’entrer dans le monde de l’esprit, vous regarderez en arrière avec joie et satisfaction et comprendrez pourquoi Dieu vous a conduit ainsi.
 
-Abandonnez vos réticences, vos peurs et vos préjugés, et suivez Dieu. Car c’est vraiment le voyage qui durera toujours, et vous marquerez votre chemin par le nombre de personnes que Dieu a utilisées pour les toucher et les éveiller à la vérité. Vous connaîtrez votre chemin car la sagesse de votre âme vous transmettra ce que vous devez savoir pour avancer une fois de plus. 
+Abandonnez vos réticences, vos peurs et vos préjugés, et suivez Dieu. Car c’est vraiment le voyage qui durera toujours, et vous marquerez votre chemin par le nombre de personnes que Dieu a utilisées pour les toucher et les éveiller à la vérité. Vous connaîtrez votre chemin car la sagesse de votre âme vous transmettra ce que vous devez savoir pour avancer une fois de plus.
 
 Âmes sincères, ne cherchez-vous pas cela ? Ne sentez-vous pas l’attraction vers elle ? Votre âme le sait. Votre âme a été incarnée dans ce monde pour remplir ce but. Visualisez-le clairement, mes amis. Apprenez à le connaître pleinement. Venez le vivre de telle manière que tout soit en harmonie et en lumière, et vous serez vraiment un instrument de Dieu qui touchera de nombreuses âmes et en amènera beaucoup à leur salut.
 
 Soyez en paix, mes bien-aimés, soyez en paix. Sachez que vous êtes parvenus à ce lieu d’éveil et de manifestation véritable de la lumière de votre âme. Bien-aimés, marchez sur le chemin de Dieu et voyez vous sur ce chemin pleinement et ouvert à tout ce que Dieu guide, qui vous montre sa volonté, l’accomplissement de son plan, l’éveil de l’humanité.
 
-Je suis avec vous, âmes bien-aimées, comme beaucoup. Faites confiance à ce qui vous parle, vous montre le chemin, car c’est votre âme qui reflète la volonté de Dieu. Dieu vous bénit, âmes bien-aimées, et vous garde dans la lumière au cours de ce voyage.  Je vous aime, je suis Jean, et je vous aime, mes frères et sœurs pour Dieu. 
+Je suis avec vous, âmes bien-aimées, comme beaucoup. Faites confiance à ce qui vous parle, vous montre le chemin, car c’est votre âme qui reflète la volonté de Dieu. Dieu vous bénit, âmes bien-aimées, et vous garde dans la lumière au cours de ce voyage.  Je vous aime, je suis Jean, et je vous aime, mes frères et sœurs pour Dieu.

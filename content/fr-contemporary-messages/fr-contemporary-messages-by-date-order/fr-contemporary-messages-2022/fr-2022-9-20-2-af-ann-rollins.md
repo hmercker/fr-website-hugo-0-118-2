@@ -24,5 +24,3 @@ Je vous exhorte, mes amis bien-aimés, à parler à vos frères et sœurs et à 
 Comme nous sommes bénis, mes amis, dans ce voyage si magnifique. Comme nous serons bénis alors que ce voyage nous transporte à travers toute l’éternité, grandissant dans la joie, grandissant dans l’amour, grandissant dans la vérité, grandissant dans toutes les choses qui sont de Dieu. Ainsi nous continuerons ensemble, la grande famille de la Vérité et de l’Amour de Dieu. Nous sommes donc frères et sœurs dans ce voyage.
 
 Que Dieu nous bénisse tous profondément avec ce cadeau. Puissions-nous continuer à partager notre joie et notre vérité avec les autres et être dans la grâce de Dieu, toujours. Mes amis bien-aimés, sachez que je prie pour vous et que parfois je marche avec vous, et que je continuerai à faire tous les efforts possibles pour alléger votre charge et vous aider sur le chemin vers une plus grande lumière, une plus grande vérité et un plus grand amour. Je suis votre amie, je suis avec vous, je suis Anne Rollins et je vous aime. Chacun d’entre eux est une âme précieuse sur le chemin de l’union avec Dieu. Que Dieu vous bénisse, mes amis bien-aimés, que Dieu vous bénisse.
-
-
