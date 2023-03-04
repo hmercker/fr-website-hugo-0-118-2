@@ -11,7 +11,7 @@ weight:
 
 Nicolas Tesla - reçu par Al Fike le 15 Mai 2022, Lee Chapel Monet, Guernesey
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite_8.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite_8.jpg)
 
 L’univers est un endroit tellement vaste, mes amis. Les connaissances de l’humanité sont bien maigres en comparaison de ce qu’est l’univers. Je suis Nicolas Tesla et vous m’avez demandé de venir aujourd’hui pour vous parler, pour vous assurer que vous contribuez effectivement à l’évolution et au progrès de l’humanité.
 

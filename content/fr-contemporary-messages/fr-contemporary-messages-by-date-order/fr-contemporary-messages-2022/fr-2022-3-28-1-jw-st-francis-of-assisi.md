@@ -9,9 +9,9 @@ weight:
 ---
 ### S’épanouir dans la générosité de l’Amour de Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 28 Mars 2022, Nashville, TN, USA.         
+St François d'Assise - reçu par Jimbeau Walsh le 28 Mars 2022, Nashville, TN, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/energie-joie.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-energie-joie.jpg)
 
 Mes chers frères et sœurs dans l’Amour de Dieu. Je vous demande de considérer comme le maître a demandé à ses disciples de considérer, et comme j’ai demandé à mes frères et sœurs de considérer, les Lys des champs. Sans aucun soin, et pourtant, comme le disait le maître, Salomon dans toute sa gloire ne reflétait pas la beauté de ces fleurs. Et il nous a rappelé à tous les oiseaux, qui ne travaillent ni ne peinent, et pourtant le Père Céleste pourvoit à tous leurs besoins et quelle joie c’est d’entendre leur chant, de les contempler. Bien sûr, le message derrière tout cela était en fait d’avertir gentiment tout le monde de ne pas s’inquiéter de sa fortune ou de son destin, de la façon dont on prendra soin de soi, des vêtements que l’on portera ou de la nourriture que l’on mangera.
 

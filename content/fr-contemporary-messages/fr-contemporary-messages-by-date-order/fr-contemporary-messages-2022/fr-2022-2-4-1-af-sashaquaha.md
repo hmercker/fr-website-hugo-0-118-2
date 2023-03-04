@@ -9,9 +9,9 @@ weight:
 ---
 ### Honorer la Terre Mère
 
-Sashaquaha - reçu par Al Fike le 4 Février 2022, Gibsons, Colombie-Britannique, Canada.   
+Sashaquaha - reçu par Al Fike le 4 Février 2022, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-24-1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite-24-1.jpg)
 
 Que le Grand Esprit Blanc vous bénisse tous. Je suis Sashaquaha, une personne que vous ne connaissez pas, mais qui est aussi une habitante du Royaume Céleste, l’une des millions de personnes qui font partie de ce Royaume mais que vous ne connaissez pas bien, mais qui continue à ajouter ses prières et sa lumière à vos efforts pour être de la Lumière.
 

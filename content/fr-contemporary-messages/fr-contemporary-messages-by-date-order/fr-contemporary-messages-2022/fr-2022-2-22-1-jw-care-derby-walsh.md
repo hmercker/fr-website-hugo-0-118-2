@@ -18,5 +18,3 @@ Qu’est-ce que le courage ? Le vrai courage dépend de la foi. Lorsque vous mar
 Permettez à votre cœur d’être ouvert et à Dieu d’éclairer le chemin. Marchez dans la foi et sachez que nous, qui vous aimons dans l’Amour de Dieu, marchons avec vous. Si vous gardez cela dans votre conscience, tout ce dont vous avez besoin, tout ce qui est nécessaire se manifestera. Ne permettez pas à votre peur de bloquer une bénédiction, mais permettez à votre foi de l’apporter. C’est simple, tellement simple.
 
 Que l’Amour de Dieu soit avec vous tous et vous porte dans un avenir glorieux. Je vous aime. Je suis Care.
-
-

@@ -18,4 +18,3 @@ Je vous remercie donc de vous être réunis pour prier pour ce pays et pour ce m
 [Partie 2 – deuxième audio d’environ 30 secondes].
 
 Et gardez-vous dans la lumière et sachez que j’ai une grande foi en vos capacités à vous amener vous-même dans la lumière. Je vous remercie d’être venus ensemble et d’être ensemble.
-

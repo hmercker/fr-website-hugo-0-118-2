@@ -26,4 +26,3 @@ Je vous invite donc tous à saisir chaque jour comme un cadeau de Dieu et à vou
 Puissiez-vous travailler à ces fins, mes amis. Trouvez votre chemin vers Dieu, je vous en conjure, trouvez votre chemin vers Dieu, et de cette façon vous serez guidés et éveillés afin de pouvoir vraiment servir, vous pourrez vraiment être les serviteurs de Dieu et être efficaces pour changer le monde.
 
 Merci de m’avoir écouté. Je m’appelle George, et je suis heureux de revenir en ce lieu. Bien sûr, là où je demeure, je ne suis pas un roi. Je ne suis pas un saint. Je ne suis qu’une autre âme de Dieu, qui cherche à servir et à être un serviteur. Que Dieu vous bénisse, mes amis, et qu’il vous apporte du courage, car vous avez tous besoin de courage pour avancer à contre-courant de la vie, qui est contraire à cela. Le courage vient de Dieu, et avec le courage viendra l’amour, abondant et beau. Que Dieu vous bénisse et vous garde dans l’amour.
-

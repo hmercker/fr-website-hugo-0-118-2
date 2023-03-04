@@ -78,5 +78,3 @@ Je vous encourage à prier pour cela, à accepter un nouvel esprit, une nouvelle
 Cette conscience grandira avec chaque jour. Dans cette conscience de Dieu, viendra ce dont vous avez besoin pour vraiment inspirer et élever vos frères et sœurs. Ils répondront, trouvant un grand soulagement dans votre contact, vos paroles et ces manifestations de vos dons. Vous serez un être de lumière, éclairant le monde, éclairant l’obscurité, et apportant l’espoir à beaucoup.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et ami, Jésus, et je continue à être avec vous sur vos chemins de vie, de service et d’amour. Je suis avec vous car vous êtes vraiment mes frères et sœurs. Vous comprenez ce que c’est que de cheminer vers l’union avec Dieu et nous cheminerons ensemble, mes bien-aimés, toujours ensemble. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
-
-

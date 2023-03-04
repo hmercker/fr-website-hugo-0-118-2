@@ -1,17 +1,17 @@
 ---
-title: "L'âme touchée par Dieu est la vraie preuve "
+title: "L'âme touchée par Dieu est la vraie preuve"
 menu_title: ""
-description: "L'âme touchée par Dieu est la vraie preuve "
+description: "L'âme touchée par Dieu est la vraie preuve"
 date: 2022-06-01 06:00:01+00:141
 draft: False
 hidden: True
 weight:
 ---
-### L'âme touchée par Dieu est la vraie preuve 
+### L'âme touchée par Dieu est la vraie preuve
 
 Thomas l’Apôtre - reçu par Jimbeau Walsh le 25 Juillet 2022, Nashville, TN, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/spiritualite-18.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite-18.jpg)
 
 Je suis Thomas l’Apôtre. Je viens dans l’Amour de Dieu, disciple du Maître et votre frère en Christ. Je souhaite parler de la preuve et de l’évidence, qui sont nécessaires dans tant de domaines de la vie. Même dans le domaine de la médiumnité, ceux qui canalisent sont souvent appelés des médiums évidentiels.
 

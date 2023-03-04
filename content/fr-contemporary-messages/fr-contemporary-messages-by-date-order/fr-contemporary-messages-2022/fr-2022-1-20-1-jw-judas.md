@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par Jimbeau Walsh le 20 Janvier 2022, Nashville, TN, USA.
 
-C'est moi, votre frère en Christ, Judas. C'est une question de foi dans vos prières pour l'Amour de Dieu. 
+C'est moi, votre frère en Christ, Judas. C'est une question de foi dans vos prières pour l'Amour de Dieu.
 
 Ces prières deviennent des choses, une substance réelle, l'essence de l'Amour du Créateur dans vos âmes. Lorsque le désir de ce don dépasse tout le reste, il est donné.
 

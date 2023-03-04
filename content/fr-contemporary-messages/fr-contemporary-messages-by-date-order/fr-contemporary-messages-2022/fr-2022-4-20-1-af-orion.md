@@ -9,9 +9,9 @@ weight:
 ---
 ### Discussion sérieuse sur l’effondrement économique et l’élévation de la conscience sur Terre
 
-Orion - reçu par Al Fike le 20 Avril 2022, Holland America Retreat (Mer Mediterranée)       
+Orion - reçu par Al Fike le 20 Avril 2022, Holland America Retreat (Mer Mediterranée).
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/le_saut_quantique.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-le_saut_quantique.jpg)
 
 Je vous salue, mes amis. Je suis Orion. Vous avez des questions sur les changements à venir sur la Terre. Je suis venu pour répondre à certaines de ces questions et pour donner quelques détails sur la façon dont les structures de la Terre qui sont créées par l’homme vont tomber. Votre Terre est dirigée par des systèmes, des systèmes que des personnes individuelles et des collectifs ont créés afin de soutenir les économies et le fonctionnement de chaque pays et, collectivement, de votre monde.
 

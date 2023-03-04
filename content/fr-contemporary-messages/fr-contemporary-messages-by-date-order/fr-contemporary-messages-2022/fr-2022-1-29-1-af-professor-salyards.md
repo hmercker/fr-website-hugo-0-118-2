@@ -22,5 +22,3 @@ Tant de choses dépendent de vos choix, car nous ne pouvons pas interférer avec
 Mes amis bien-aimés, puissiez-vous trouver votre chemin à travers le seuil, cette porte que Dieu vous présente, puissiez-vous trouver l’accomplissement et la joie dans votre service à Dieu. Cela viendra de manière surprenante, mais cela ne peut venir que lorsque votre regard est fixé sur le désir de servir, d’être prêt à ce que la Volonté de Dieu soit mise en œuvre à travers vous. Cherchez à être les instruments et les canaux de lumière de Dieu. Cherchez à ce que Son Amour coule souvent dans vos âmes et recherchez avec humilité les opportunités que Dieu place devant vous pour dire la vérité, pour servir dans l’amour, pour voir et contempler l’acte simple qui est la Volonté de Dieu alors qu’Il vous place sur la route du service et de l’amour.
 
 Bénédictions à vous, mes amis, bénédictions alors que nous continuons ce beau voyage ensemble. Je suis le professeur Salyards. Sachez que je travaille en étroite collaboration avec vous tous. Mon amour est avec vous. Que Dieu vous bénisse, que Dieu vous bénisse tous.
-
-

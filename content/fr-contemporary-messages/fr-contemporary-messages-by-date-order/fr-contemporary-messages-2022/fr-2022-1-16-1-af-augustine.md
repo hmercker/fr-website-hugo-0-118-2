@@ -9,9 +9,9 @@ weight:
 ---
 ### Dieu frappe à la porte de votre âme (2022 Cercles de prière en ligne)
 
-Augustin - reçu par Al Fike le 16 Janvier 2022, Gibsons, Colombie-Britannique, Canada. 
+Augustin - reçu par Al Fike le 16 Janvier 2022, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/nepal1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-nepal1.jpg)
 
 Que la paix qui dépasse toute compréhension soit un manteau sur chacun de vous, enfants bien-aimés. Je suis votre enseignant Augustin, et je viens vous encourager à écouter Dieu et à faire de Dieu le centre de vos vies.
 

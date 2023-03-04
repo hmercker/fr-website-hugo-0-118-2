@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Message pour l’année à venir 
+### Message pour l’année à venir
 
-Seretta Kem - reçu par Al Fike le 1 Janvier 2022, Gibsons, Colombie-Britannique, Canada. 
+Seretta Kem - reçu par Al Fike le 1 Janvier 2022, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/eveil-spirituel8.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-eveil-spirituel8.jpg)
 
 Beaux enfants de Dieu, je suis Seretta Kem. Je viens vous assurer que l'année qui vient sera une année productive, surprenante et unique dans son déroulement. Ce que vous pouvez anticiper pour cette année à venir ne sera pas nécessairement les résultats qui seront exprimés. Cette année dépendra plutôt de vos efforts quotidiens dans la foi, dans la prière et dans la réception des conseils que Dieu a à vous donner.
 

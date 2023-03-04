@@ -26,5 +26,3 @@ Permettez-vous d'avoir la foi, d'avoir la patience et la persévérance à cet �
 Puissiez-vous être bénies dans l'Amour de Dieu, et puisse cette bénédiction ouvrir les nombreux portails de dons, les canaux de lumière, les beaux flux d'énergies et de bénédictions, pour vous dans votre vie, pour vos proches, pour les nombreux que vous pouvez rencontrer sur votre chemin.
 
 Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse. Confucius est avec vous dans ce voyage d'éveil et de connaissance de votre vrai moi. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Âmes bien-aimées de Dieu.
-
-

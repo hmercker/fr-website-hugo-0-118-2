@@ -17,10 +17,9 @@ Mon frère ici présent envisage, si je puis dire, de se heurter à une certaine
 
 En partageant votre Amour Divin, vous êtes bénis dans la réception de l’Essence du Père Céleste.
 
-Permettez-le ! Ne soyez pas troublé. Marchez dans l’amour, parlez dans l’amour, chantez dans l’amour, enseignez dans l’amour. Plantez ces graines afin qu’elles puissent tomber sur un sol fertile. Laissez les sirènes<sup id=”a1”>[1](#f1)</sup> vous rappeler que Dieu vient à la rescousse chaque fois que vous l’appelez. Chantez un chant de joie au Seigneur. Louez Dieu !
+Permettez-le ! Ne soyez pas troublé. Marchez dans l’amour, parlez dans l’amour, chantez dans l’amour, enseignez dans l’amour. Plantez ces graines afin qu’elles puissent tomber sur un sol fertile. Laissez les sirènes <sup id=”a1”>[1](#f1)</sup> vous rappeler que Dieu vient à la rescousse chaque fois que vous l’appelez. Chantez un chant de joie au Seigneur. Louez Dieu !
 
 Je vous aime. Allez en paix et dans la grâce de Dieu. Je suis Tante Eileen. Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”>Une sirène d’un véhicule d’urgence a été entendue en arrière-plan.[↩](#a1)
-
+1. <large id=”f1”> Une sirène d’un véhicule d’urgence a été entendue en arrière-plan.[↩](#a1)

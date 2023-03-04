@@ -51,7 +51,7 @@ En effet, il doit y avoir des précurseurs, ceux qui sont assez forts, ceux qui 
 
 Cela ne peut être, car Dieu chérit chacune de ces belles perles de vie dans l'univers et ne permettra pas la dissolution de Sa précieuse création aux mains de l'humanité. Ainsi, l'humanité doit recevoir de nombreuses et dures leçons, ainsi qu'une transformation et un réveil puissants. Pourtant, comme nous vous l'avons dit, un choix sera donné à chaque âme. Ce choix sera crucial pour savoir si elles resteront sur le plan terrestre ou si elles continueront dans les autres réalités de l'existence, c'est-à-dire dans votre monde spirituel.
 
-Toutes les réalités humaines dont j'ai parlé doivent être transformées et se dissoudre dans la vérité avec le temps. Le plan et la réalité de la Terre sont les précurseurs et tout le reste suivra. L'idée que la transformation sera instantanée et qu'elle se produira en un instant est fausse, car cela prendra du temps. 
+Toutes les réalités humaines dont j'ai parlé doivent être transformées et se dissoudre dans la vérité avec le temps. Le plan et la réalité de la Terre sont les précurseurs et tout le reste suivra. L'idée que la transformation sera instantanée et qu'elle se produira en un instant est fausse, car cela prendra du temps.
 
 Dieu donne à chaque âme le temps de s'adapter et d'aller de l'avant car les lois doivent être respectées. Les lois d'activation, les lois de progression, les lois vers la lumière et l'harmonie seront toujours ce qui doit être exprimé et devenir une réalité dans toute vie.
 
@@ -61,7 +61,7 @@ Vous êtes forts. Vous êtes tous capables. Vous êtes tous dévoués. Mais il e
 
 Beaucoup sera donné pour vous soutenir et vous élever, pour vous aider à vous défaire de l'erreur et à avancer dans la vérité de telle sorte que vous deviendrez une lumière puissante et belle dans le monde. Vous émanerez toutes les caractéristiques de l'âme que vous avez pensées et comprises et que vous recherchez. Tous les dons que Dieu a implantés en vous brilleront et seront utilisés afin d'aider l'humanité à avancer vers une plus grande lumière et une plus grande harmonie.
 
-Ces choses arrivent au seuil d'un nouveau monde. Vous avez été incarnés à ce moment pour aider à inaugurer cette grande et merveilleuse transformation. Vous ressentez en vous un but. Beaucoup d'entre vous ont ressenti cela dès le début de leur vie, que vous avez un but spécial dans le monde. 
+Ces choses arrivent au seuil d'un nouveau monde. Vous avez été incarnés à ce moment pour aider à inaugurer cette grande et merveilleuse transformation. Vous ressentez en vous un but. Beaucoup d'entre vous ont ressenti cela dès le début de leur vie, que vous avez un but spécial dans le monde.
 
 Reconnaissez-le plus pleinement et soyez en alignement avec lui, car il est temps de devenir sérieux, comme vous diriez, de vous engager pleinement, d'être en alignement, d'être fidèle à votre vrai moi et à votre Créateur.
 

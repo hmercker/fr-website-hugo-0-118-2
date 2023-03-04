@@ -11,7 +11,7 @@ weight:
 
 Charlie Chaplin - reçu par Jimbeau Walsh le 11 Juillet 2022, Nashville, TN, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/charlie-chaplin3.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-charlie-chaplin3.jpg)
 
 Cela fait longtemps que je n’ai pas parlé par l’intermédiaire de mon frère ici, mais je viens ce soir pour vous apporter de la bonne humeur et vous rappeler que j’ai vécu une époque de grande turbulence, avec deux guerres mondiales, la dépression, et une enfance dans marquée par la pauvreté et les privations où, heureusement, j’ai découvert que j’avais des dons. Et les encouragements de ma chère mère m’ont donné le courage d’explorer ces dons à un âge précoce.
 

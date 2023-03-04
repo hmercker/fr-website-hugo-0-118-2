@@ -11,7 +11,7 @@ weight:
 
 André - reçu par Al Fike le 29 Avril 2022, Holland America Retreat (Malaga).
 
-Que Dieu vous bénisse, âmes bien-aimées, je suis André. Dieu continuera à ouvrir de nombreuses portes pour vous. Comme vous désirez servir Dieu, ainsi ces choses seront rendues possibles. Comprenez que, grâce à la bénédiction du libre arbitre, il y aura de nombreuses portes que vous pourrez franchir selon votre désir et votre choix, mais chaque porte, quelle que soit la situation, mènera au même endroit. Les choix que vous faites et la route que vous emprunterez dépendent de votre choix et de votre libre arbitre. 
+Que Dieu vous bénisse, âmes bien-aimées, je suis André. Dieu continuera à ouvrir de nombreuses portes pour vous. Comme vous désirez servir Dieu, ainsi ces choses seront rendues possibles. Comprenez que, grâce à la bénédiction du libre arbitre, il y aura de nombreuses portes que vous pourrez franchir selon votre désir et votre choix, mais chaque porte, quelle que soit la situation, mènera au même endroit. Les choix que vous faites et la route que vous emprunterez dépendent de votre choix et de votre libre arbitre.
 
 Telle est la perfection de la Volonté de Dieu pour chacun d'entre vous. Il n'insiste pas sur une voie particulière, mais vous laisse le choix et prescrit en fonction de votre être unique, de vos qualités et de votre perspective. Il fait de même avec chaque âme, en lui laissant la latitude du choix, la voie qu'elle peut suivre dans Ses ministères d'amour envers Ses enfants. Il donne ainsi à chacun la joie du libre arbitre, cette bénédiction si puissante et si belle.
 

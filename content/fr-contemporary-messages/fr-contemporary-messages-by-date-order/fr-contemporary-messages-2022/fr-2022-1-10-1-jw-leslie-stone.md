@@ -9,9 +9,9 @@ weight:
 ---
 ### Ne vous laissez pas distraire par des questions secondaires
 
-Leslie Stone - reçu par Jimbeau Walsh le 10 Janvier 2022, Nashville, TN, USA.
+Leslie Stone <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Janvier 2022, Nashville, TN, USA.
 
-C’est moi, votre frère en Christ, Leslie Stone<sup id=”a1”>[1](#f1)</sup>. J’ai souvent été présent auprès de James Padgett lorsqu’il recevait ce qu’on appelle des messages Célestes de Jésus et de tant d’autres.
+C’est moi, votre frère en Christ, Leslie Stone. J’ai souvent été présent auprès de James Padgett lorsqu’il recevait ce qu’on appelle des messages Célestes de Jésus et de tant d’autres.
 
 Nous étions des spiritualistes débutants, car nous avions reçu des conseils à Lily Dale et dans d’autres endroits. Nous avions lu quelques livres spirituels et James recevait des messages de sa bien-aimée Hélène. Il suffit de dire que nous avons testé les esprits parce que nous voulions la vérité. Nous voulions être sûrs que la connexion que nous avions était réelle. Et vous pouvez vous demander « Comment l’avons-nous su » ? Surtout Jacques, qui, souvent n’avait souvent aucune idée de ce qu’il avait reçu, et il était étonné que cela ne soit pas nécessairement en accord avec ce qu’il croyait. Car la croyance est une chose, la vérité et l’être, une autre.
 

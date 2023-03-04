@@ -19,9 +19,9 @@ Je transmettais à mon cher ami que lorsque le cœur est ouvert et que l’âme 
 
 Dans ce cercle merveilleux, aussi petit que vous puissiez le penser, mais aussi grand qu’il soit vraiment, vous avez l’intimité de l’esprit, vous avez la confiance.
 
-Et je veux que mon cher petit-fils<sup id=”a1”>[1](#f1)</sup>, que j’aime profondément et sur lequel j’ai veillé pendant de nombreuses années, utilise cette confiance pour se diriger toujours plus vers un lieu de sécurité et de liberté. Car, ce faisant, son cœur rayonnera et son âme sera transformée. Et il n’a pas besoin de renoncer à quoi que ce soit, sauf à sa réticence et à sa peur. Et je souhaite qu’il sache que tout ce qu’il faut pour être dans ce lieu de sécurité vaudra la peine d’être reçu par son âme dans l’Amour de Dieu. Et s’il le choisit, sa destinée sera d’être une grande bénédiction pour le monde.
+Et je veux que mon cher petit-fils <sup id=”a1”>[1](#f1)</sup>, que j’aime profondément et sur lequel j’ai veillé pendant de nombreuses années, utilise cette confiance pour se diriger toujours plus vers un lieu de sécurité et de liberté. Car, ce faisant, son cœur rayonnera et son âme sera transformée. Et il n’a pas besoin de renoncer à quoi que ce soit, sauf à sa réticence et à sa peur. Et je souhaite qu’il sache que tout ce qu’il faut pour être dans ce lieu de sécurité vaudra la peine d’être reçu par son âme dans l’Amour de Dieu. Et s’il le choisit, sa destinée sera d’être une grande bénédiction pour le monde.
 
-Et je souhaite remercier mes chères sœurs<sup id=”a2”>[2](#f2)</sup> qui sont des gardiennes. L’une à l’égard de tous ceux qu’elle rencontre et l’autre envers sa famille et chaque fois qu’elle est inspirée. C’est un phénomène naturel d’une âme qui est bénie par l’Amour de Dieu, l’empathie divine envers les autres. Et vous êtes tous deux attirées par ceux qui sont les plus vulnérables. Dans un sens, c’est leur difficulté dans le monde, mais dans un autre sens, un sens spirituel, cette vulnérabilité les aide à être ouvertes au message de vérité et d’amour que vous apportez.
+Et je souhaite remercier mes chères sœurs <sup id=”a2”>[2](#f2)</sup> qui sont des gardiennes. L’une à l’égard de tous ceux qu’elle rencontre et l’autre envers sa famille et chaque fois qu’elle est inspirée. C’est un phénomène naturel d’une âme qui est bénie par l’Amour de Dieu, l’empathie divine envers les autres. Et vous êtes tous deux attirées par ceux qui sont les plus vulnérables. Dans un sens, c’est leur difficulté dans le monde, mais dans un autre sens, un sens spirituel, cette vulnérabilité les aide à être ouvertes au message de vérité et d’amour que vous apportez.
 
 Ainsi, je vous remercie et je remercie celui-ci car je voulais que ce message soit court, mais dans ma joie d’être ici, j’ai senti que je devais parler avec mon cœur.
 
@@ -31,5 +31,5 @@ Je suis votre sœur en Christ, votre grand-mère, votre bien-aimée, et comme no
 <small>
 
 1. <large id=”f1”> Message personnel à Michael Willey.[↩](#a1)
-2. <large id=”f2”> Messages personnels à Ruth Duvall et Melissa Goyak.[↩](#a2)
 
+2. <large id=”f2”> Messages personnels à Ruth Duvall et Melissa Goyak.[↩](#a2)

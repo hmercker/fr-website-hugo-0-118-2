@@ -11,7 +11,7 @@ weight:
 
 Marie-Madeleine - reçu par Jimbeau Walsh le 12 Juillet 2022, Nashville, TN, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/priere.png)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-priere.png)
 
 Je suis Marie-Madeleine. Je vis dans une sphère élevée dans les Royaumes Célestes. Je suis venue dans votre discussion sur le discernement et la perception des vérités du Royaume de Dieu avec l’âme. La plupart sont conscients de mon occupation sur terre et certains sont conscients de mon statut dans ma communauté de Magdala. Vous pouvez trouver étrange que j’étais l’amie de nombreuses femmes, des femmes au foyer, des prostituées bien sûr, et des jeunes et vieilles femmes de ma communauté, mais c’est la vérité.
 
