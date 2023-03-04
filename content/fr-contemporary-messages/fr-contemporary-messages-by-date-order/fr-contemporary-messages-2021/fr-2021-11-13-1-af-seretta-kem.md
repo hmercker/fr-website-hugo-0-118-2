@@ -38,4 +38,3 @@ C’est la vérité qui est exprimée et vécue par la force de l’amour. Puiss
 Que Dieu vous bénisse de tout cœur, mes amis bien-aimés. Que Dieu vous guide sur ce chemin de lumière et de vérité. Libérez-vous des contraintes de votre mental et éveillez-vous aux possibilités et à l’immensité de votre âme.
 
 Je suis votre frère et ami, Seretta Kem, et je viens à vous pour vous élever et vous inspirer. Je suis votre véritable frère et je suis avec vous tous alors que vous continuez à avancer sur ce chemin et que vous vous efforcez de servir Dieu dans le cadre de son plan de salut pour l’humanité. Nous sommes unis dans l’unité, âmes bien-aimées, et nous renforcerons ces liens à chaque jour qui passe, à chaque moment passé en prière, à chaque pensée et désir de servir Dieu. Que Dieu vous bénisse, bien-aimés. Que Dieu vous bénisse ! Mon amour est avec vous.
-

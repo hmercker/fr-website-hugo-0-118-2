@@ -78,6 +78,3 @@ Puissiez-vous aller au-delà des barrières, des distorsions et des peurs de vot
 Que Dieu vous bénisse tous au cours de ce voyage. Puissiez-vous entendre mes paroles avec la sincérité, le pouvoir de la vérité et de l’amour qu’elles représentent, car j’aime chaque âme de ce monde, chaque âme que Dieu a créée. Lorsque l’on est en alignement avec Dieu, cet amour pour tous grandit et grandit et ne cessera pas. C’est la vérité qui vient avec les grandes bénédictions de l’Amour du Père.
 
 Que Dieu vous bénisse, chers amis. Qu’Il vous garde dans Sa sollicitude et Sa Lumière. Qu’Il vous guide et vous montre le chemin vers le salut de votre âme où vous serez récupérés dans l’amour, baignés dans l’amour, guéris dans l’amour. Tout cela est donné dans la grande et merveilleuse puissance de l’Amour qui est l’Âme de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami Jésus et je vous aime. Que Dieu vous bénisse.
-
-
-

@@ -1,13 +1,13 @@
 ---
-title: "Continuer à bâtir sur les fondations de l'amour de Dieu (2021 Groupe des douze) "
+title: "Continuer à bâtir sur les fondations de l'amour de Dieu (2021 Groupe des douze)"
 menu_title: ""
-description: "Continuer à bâtir sur les fondations de l'amour de Dieu (2021 Groupe des douze) "
+description: "Continuer à bâtir sur les fondations de l'amour de Dieu (2021 Groupe des douze)"
 date: 2022-06-01 06:00:01+00:1705
 draft: False
 hidden: True
 weight:
 ---
-### Continuer à bâtir sur les fondations de l'amour de Dieu (2021 Groupe des douze) 
+### Continuer à bâtir sur les fondations de l'amour de Dieu (2021 Groupe des douze)
 
 Seretta Kem - reçu par Al Fike le 5 Novembre 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -20,6 +20,3 @@ Vous continuez à progresser dans les efforts de la Voix Directe. Vous êtes bie
 Mais chacun d’entre vous brûle en lui la belle et brillante lumière de l’amour, et cela influencera votre voyage pour toute l’éternité. Elle continuera à croître et aura des effets profonds sur votre conscience, votre pensée, votre action dans le monde. Des dons vont émerger et se manifester de manière surprenante, de manière inattendue. L’amour circulera, circulant à travers vous profondément et en profondeur. Cet amour sera votre fondement. Il influencera tout ce que vous faites, tout ce que vous pensez et tout ce que vous êtes. Cette puissante bénédiction, l’Essence de Dieu, est capable de vous changer, et une fois qu’elle vous aura changé, vous et un certain nombre d’autres personnes, elle changera le monde.
 
 Je vous invite donc à poursuivre vos prières, vos contemplations, vos réflexions, toutes ces choses qui vous amènent à une plus grande conscience. Parce que le temps presse, mes chers et beaux amis, le temps presse. Je vous exhorte à utiliser ce temps et à considérer chaque jour, chaque instant, comme précieux et plein de promesses. Vous êtes en train de devenir de véritables enfants de Dieu. Vous continuerez à vous éveiller à ce fait et à réaliser les grands avantages et les bénédictions qui découlent de la connaissance de votre Saint-Père, de la connaissance de qui vous êtes, de la connaissance de votre propre âme. Ces choses constituent le fondement de votre vie et orienteront votre progression. Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem et je vous aime tous. Que Dieu vous bénisse.
-
-
-

@@ -52,6 +52,3 @@ Vous êtes Ses enfants et nous sommes tous Ses enfants. Dieu nous a demandé à 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Que Dieu vous aide chaque jour à voir au-delà des ombres de l’esprit et à venir à la pure lumière de l’âme non encombrée par la condition humaine, libre des incrustations qui englobent chaque âme, éclatant dans la lumière, la vérité et l’amour, éclatant avec une grande vitalité, créant un charisme de vérité, de confiance, d’amour où beaucoup seront attirés et viendront à vous et vous chercheront.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus. Je vous aime. Je vous aime tendrement. Je suis avec vous sur ce chemin, pour ne jamais vous quitter, toujours à vos côtés, toujours en prière pour votre élévation, pour votre croissance et le développement de l’âme dans l’Amour de Dieu. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
-
-
-

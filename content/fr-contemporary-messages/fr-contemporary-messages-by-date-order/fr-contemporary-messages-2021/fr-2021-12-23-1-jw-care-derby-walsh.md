@@ -28,6 +28,3 @@ Nous sommes avec vous, pour ne jamais vous quitter, pour nous rapprocher toujour
 Âmes bien-aimées, sachez que vous êtes aimées, nourries, soignées, que l’Amour de Dieu pour vous est immense, que vous n’êtes ni abandonnées ni oubliées. Mais en effet, toute opportunité qui est disponible pour nous et pour vos amis anges est utilisée à votre avantage. Puissiez-vous voir cela clairement et le choisir souvent et systématiquement. Nous sommes avec vous, âmes bien-aimées. Que Dieu vous bénisse, mes amis.
 
 Je suis Orion. Mon amour pour vous est grand. J’ai de la compassion pour vos luttes. Vous êtes en effet forts. Vous êtes en effet des lumières et vous continuerez à briller de plus en plus fort sur le chemin de l’amour. Je vous bénis. Je vous aime, belles âmes, tous enfants de Dieu. Que Dieu vous bénisse.
-
-
-

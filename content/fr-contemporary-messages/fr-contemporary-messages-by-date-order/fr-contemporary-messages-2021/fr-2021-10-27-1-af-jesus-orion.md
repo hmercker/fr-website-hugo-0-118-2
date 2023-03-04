@@ -53,9 +53,3 @@ En effet, l’amour grandit en vous. Vous commencez à accepter l’amour pour v
 Puissiez-vous continuer à grandir sur votre chemin vers Dieu. Puissiez-vous partager votre sagesse avec les autres, de quelque manière que ce soit. Vous serez guidés. Vous avez tout l’amour, le soutien et les bénédictions de Dieu sur vous. Lorsque vous vous heurterez à l’erreur, qu’elle soit en vous ou chez un autre, vous saurez, vous verrez, et vous la corrigerez comme la sagesse de votre âme vous en informe, comme les bénédictions de Dieu sur vous assurent que la vérité grandira en vous.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Jésus et je suis avec vous dans vos efforts, toujours, toujours avec vous, mes âmes bien-aimées. Les bénédictions de Dieu sur vous, un flux puissant qui ne cessera jamais. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous.
-
-
-
-
-
-

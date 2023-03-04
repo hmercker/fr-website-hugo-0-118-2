@@ -20,6 +20,3 @@ Puissiez-vous trouver votre chemin dans ce qui est une période confuse et diffi
 Suivez ce chemin, mes bien-aimés, suivez ce chemin de l’amour. Ne désespérez pas de toutes ces choses qui ont besoin de guérison et d’harmonie, mettez plutôt l’amour devant vous, mettez l’amour derrière vous, mettez l’amour tout autour de vous et vous trouverez des solutions. La guidance que vous demandez sera la vôtre, donnée librement, et l’amour grandira et s’épanouira en vous, mes chères, chères âmes.
 
 Mon amour est avec vous, je suis Mylora. Et ainsi nous allons prier ensemble pour le monde et prier les uns pour les autres, pour tous ceux que vous aimez, afin que Dieu puisse nous toucher tous en ces moments. Dieu vous bénisse, Dieu vous bénisse et soyez avec vous maintenant dans l’amour.
-
-
-

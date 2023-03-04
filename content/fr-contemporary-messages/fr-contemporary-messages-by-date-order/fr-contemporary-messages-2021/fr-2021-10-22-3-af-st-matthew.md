@@ -38,6 +38,3 @@ Tous ces niveaux d’amour, ces aspects de l’amour, ces manifestations d’amo
 Puissiez-vous tous trouver votre place dans le grand flux de la volonté de Dieu, Son grand plan pour le salut de l’humanité. Puissiez-vous en venir à prier pour que Son Amour vous transforme plus complètement chaque jour. Puissiez-vous en venir à accepter cette transformation et à en faire véritablement une partie de vous-même afin que vous puissiez vivre et agir en harmonie avec les Lois de l’Amour.
 
 Âmes bien-aimées, vous connaissez la clé. Vous avez la clé. Puissiez-vous être vraiment en alignement avec cette merveilleuse vérité. Que Dieu vous bénisse à chaque respiration. Mon amour est avec vous. Je suis Matthieu. Mon amour est avec vous tous. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
-
-
-

@@ -20,6 +20,3 @@ Et bien que vous puissiez considérer avec votre esprit matériel que je ne fais
 Qu’est-ce qui fait bondir votre cœur et sourire votre âme ?
 
 Je vous remercie encore une fois de m’avoir permis de venir et de partager ce que j’ai reçu avec les uns et les autres et avec les autres. Cela apporte à mon cœur une grande joie. Mais enfin, sachez que l’Amour de Dieu reçu par la prière dans la méditation de l’Amour Divin, est le plus grand des cadeaux. Et ce cadeau vous emmènera au-delà de la terre vers les rivages célestes et le Royaume de l’amour de Dieu. Avec tout mon amour et ma gratitude, je suis votre frère en Christ toujours prêt à être à votre service. Je suis Robert J. Lees. Que Dieu vous bénisse !
-
-
-

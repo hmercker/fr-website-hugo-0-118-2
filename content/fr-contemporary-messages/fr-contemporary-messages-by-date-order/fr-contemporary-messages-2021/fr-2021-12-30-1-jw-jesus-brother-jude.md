@@ -11,7 +11,7 @@ weight:
 
 Jude, le frère de Jésus - reçu par Jimbeau Walsh le 30 Décembre 2021, Punalu’u, Oahu, Hawaii, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/eveil-spirituel2.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-eveil-spirituel2.jpg)
 
 Que la lumière de Dieu soit sur vous, qu’elle illumine vos âmes afin que vous puissiez porter votre lumière dans le monde.
 
@@ -20,4 +20,3 @@ Il est dit que chaque voyage commence par un premier pas. Lorsque vous considér
 Alors, ayez la foi, prenez courage, faites ce pas. Dieu ouvrira la voie pour vous au cours de votre voyage.
 
 Je ne suis pas venu auparavant auprès de celui-ci, mais je lui ai fait connaître ma présence ces derniers jours. Je suis Jude, frère de Jacques, Joseph, Simon et de Yeshua, notre frère bien-aimé Jésus. Je vous remercie et je reviendrai, avec votre permission. Avec tout mon amour et la grâce de Dieu, que la paix soit sur vous.
-

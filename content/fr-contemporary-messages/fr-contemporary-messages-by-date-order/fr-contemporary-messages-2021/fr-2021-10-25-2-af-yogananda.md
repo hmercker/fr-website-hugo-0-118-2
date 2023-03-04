@@ -36,6 +36,3 @@ Le monde est une réalité tellement superficielle dans l’esprit de l’humani
 Je sais que si vous regardez votre vie en arrière, vous pouvez être sûrs que vous avez changé, que vous avez grandi et que vous avez une foi plus profonde, car l’amour de Dieu vous a marqué et vous a transformé en ce que vous êtes aujourd’hui et vous transformera encore demain. C’est le chemin de la Vérité de Dieu, de l’Amour de Dieu pour vous, et c’est un merveilleux voyage vers la paix, la vérité, la vraie compréhension et l’amour.
 
 Puissiez-vous trouver votre chemin, mes amis, puissiez-vous trouver votre chemin. Puissiez-vous être patients et persévérants. Puissiez-vous être priants et dévoués à la vérité. Puissiez-vous trouver Dieu dans tout ce que vous faites et dans tout ce qui est dans le monde. Car ce monde est la création de Dieu et Dieu y a laissé sa marque, comme vous êtes sa création, et Dieu vous a donné tout ce dont vous avez besoin pour vivre une vie en harmonie avec ses lois et son amour. Dieu vous bénit profondément dans vos âmes, mes amis. Nous continuons ensemble dans l’amour. Que Dieu vous bénisse. Je suis Yogananda, je suis heureux d’être avec vous aujourd’hui. Que Dieu vous bénisse.
-
-
-

@@ -20,6 +20,3 @@ Ces amitiés que vous créez avec les gens sur votre chemin d’Amour Divin, qui
 Il y a beaucoup de travail à faire pour chacun à sa manière et nous venons à vous pour vous apporter de l’énergie, des conseils, de l’inspiration et toute influence aimante que nous pouvons vous accorder tout en respectant votre libre arbitre. Alors, voyagez avec nous sur ce beau, sur ce beau chemin qui mène aux royaumes éternels de l’amour de Dieu.
 
 Avec tout mon amour et mes bénédictions et au nom de tous vos amis Célestes, frères et sœurs qui se réjouissent de votre travail, au nom du Royaume, Dieu vous bénisse. Je suis votre frère et ami dans l’amour de Dieu et votre guide, je suis Arthur Conan Doyle. Fais briller la lumière.
-
-
-

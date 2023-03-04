@@ -18,6 +18,3 @@ Soyez humbles dans votre démarche, ayez la foi et croyez en sachant que Dieu ai
 Une communion d’âmes dans l’Amour de Dieu est la grande famille à laquelle tous appartiennent. Laissez vos aspirations s’élever, pardonnez-vous comme vous pardonnez aux autres. Demandez à Dieu de vous guérir, de vous accorder le don de son grand Amour car nous sommes tous un, frères et sœurs, dans l’Amour de Dieu. C’est une grande vérité, c’est indéniable. Et lorsque vous êtes dans la Grâce de Dieu, tout ce qui n’est pas amour tombe. Tous sont frères, tous sont sœurs, dans cette famille de l’Amour Divin. Nous accueillons tout le monde, afin que Dieu puisse tous les bénir. Venez et rejoignez-nous.
 
 Avec tout mon amour et mes bénédictions dans le grand Amour du Père, je suis votre frère dans le Christ, François d’Assise, maintenant habitant des Cieux Célestes et Ange Divin. Que Dieu vous bénisse.
-
-
-

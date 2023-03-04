@@ -22,6 +22,3 @@ Je vous le dis avec tout l’amour de mon cœur, lorsque vous demandez ce dont v
 Considérez la liberté dans tous ces domaines, et connaissez la joie, l’exaltation, et finalement, la gloire d’être libre dans l’Amour de Dieu. Chaque âme, une création unique, comme vous l’êtes.
 
 Je suis là pour vous, s’il vous plaît, rappelez-vous le. Avec tout mon amour dans les Saintes Bénédictions du Créateur, je vous souhaite un voyage très béni dans la nouvelle année avec de nombreux changements en harmonie, guidés et bénis. Il n’y a pas de mauvais choix faits dans l’Amour. Je vous aime. Je suis Care.
-
-
-

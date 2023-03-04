@@ -20,6 +20,3 @@ Lorsque vous demandez, demandez avec un cœur ouvert et un esprit ouvert. Demand
 Chacun d’entre vous peut y contribuer. Chacun de vous a le grand potentiel d’être ce canal d’amour dans le monde. Exercez votre foi et votre désir de servir Dieu. Faites-en un désir ardent. Faites en sorte qu’il soit au premier plan de votre conscience, de vos pensées et de vos désirs. Par votre désir ardent de recevoir le grand don de l’amour de Dieu, vous rendez possible le déversement à travers vous de Son Amour et de Ses bénédictions pour les autres.
 
 Nous sommes tous des maillons de la chaîne, la grande chaîne de lumière qui vient de la grande âme de Dieu à travers beaucoup de ses instruments et beaucoup d’instruments à travers l’univers, qui aspirent à aider leurs frères et sœurs et à les élever en tant que canaux de Dieu, instruments de Dieu, fournisseurs d’Amour de Dieu. Vous êtes toutes ces belles âmes qui peuvent faire de cette promesse une réalité, qui peuvent apporter l’accomplissement à vos prières et à vos désirs. Soyez avec Dieu, âmes bien-aimées, soyez avec Dieu. Je suis avec vous, votre frère en amour, je suis Étienne. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
-
-
-

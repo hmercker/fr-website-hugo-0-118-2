@@ -11,7 +11,7 @@ weight:
 
 Orion - reçu par Al Fike le 5 Octobre 2021, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/orion-constellation.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-orion-constellation.jpg)
 
 Âmes bien-aimées, je suis Orion. Je suis venu parce que vous avez parlé de moi et que vous êtes curieux de me connaître, ainsi que mes amis qui m’accompagnent. Comme je l’ai indiqué, nous habitons une planète différente de la vôtre et pourtant nous vous ressemblons beaucoup, dans la mesure où nous avons une forme humaine et avons une âme, comme vous avez une âme. Par conséquent, nos objectifs et nos aspirations sont similaires ; nous souhaitons exprimer notre plein potentiel en tant qu’âmes individuelles, nous souhaitons être dans la lumière, être proches de Dieu. Ces choses, vous souhaitez également y aspirer et y travailler dans vos efforts quotidiens. Notre grand avantage est que lorsque nous sommes nés sur notre planète, la condition humaine, comme vous l’appelez, n’existe pas. C’est un endroit avancé et rempli de lumière qui est en harmonie avec les lois de Dieu, en harmonie avec Dieu.
 
@@ -30,6 +30,3 @@ Il s’agit plutôt de s’émerveiller, d’être inclusif et d’avoir un espr
 Mais cela vient. Cela viendra quand le moment sera venu, quand Dieu le jugera possible et ouvrira les portes à nos efforts, à notre lumière et à notre partage avec vous. En attendant, nous prierons avec vous, nous nous joindrons à vous dans ces beaux moments de communion avec Dieu, et nous sommes heureux de le faire et heureux que vous nous ayez invités à le faire. Nous vous remercions pour votre invitation. Nous vous remercions pour votre plaisir, votre curiosité et votre désir de mieux nous connaître.
 
 Ainsi, je vous ai donné quelques informations sur nous, en partageant une partie de notre présence et de nos désirs d’être présents avec vous et de vous assister dans la lumière. Comme le disent vos amis Célestes, que Dieu vous bénisse profondément dans vos âmes avec le grand cadeau de l’Amour du Père, car c’est ce qui lie l’univers ensemble. Dans les voies supérieures de l’univers, c’est le pouvoir de l’Amour de Dieu qui rend tant de choses possibles, qui transforme l’univers d’une simple chose matérielle et solide en quelque chose de multidimensionnel, de beau et de merveilleux à contempler. L’amour est la puissance, la gloire et la lumière par lesquelles nous vivons, que nous exprimons, qui nous donne tout ce que nous sommes capables d’exprimer et de manifester sur le plan matériel. Que Dieu vous bénisse, mes chers et beaux amis, qu’il vous garde dans Sa lumière, qu’il vous garde dans la paix, dans l’amour, dans la vérité. Merci, je suis Orion. Que Dieu vous bénisse.
-
-
-

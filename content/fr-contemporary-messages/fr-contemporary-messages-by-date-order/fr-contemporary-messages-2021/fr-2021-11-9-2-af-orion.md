@@ -20,6 +20,3 @@ Cela ne peut être que la vérité de la situation, car il y a beaucoup de chose
 Puissiez-vous vous trouver dans la grâce et l’amour, la beauté et la lumière qui est votre âme en relation avec la Grande Âme, le Grand Créateur. Soyez en paix, mes amis, et sachez que vous continuez à progresser et que nous continuons à travailler avec vous tous. Il n’y a pas de retards ou d’interruptions, mais plutôt un flux continu d’efforts, non seulement de la part de vos amis stellaires, mais de tous les amis et de tous les niveaux d’assistance qui continuent à ouvrir la voie et à vous éveiller comme vous devez et avez besoin d’être éveillés. La vérité viendra à vos esprits par le biais de vos âmes qui continuent à être nourries et éveillées.
 
 Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse. Je suis Orion et mon amour pour vous est grand. De nombreuses personnes de mon monde natal participent à ces efforts. Que Dieu vous bénisse et vous garde dans sa lumière.
-
-
-

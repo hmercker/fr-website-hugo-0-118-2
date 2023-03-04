@@ -1,13 +1,13 @@
 ---
-title: "Les manifestations ne viendront pas tant que vous n'êtes pas préparés "
+title: "Les manifestations ne viendront pas tant que vous n'êtes pas préparés"
 menu_title: ""
-description: "Les manifestations ne viendront pas tant que vous n'êtes pas préparés "
+description: "Les manifestations ne viendront pas tant que vous n'êtes pas préparés"
 date: 2022-06-01 06:00:01+00:1692
 draft: False
 hidden: True
 weight:
 ---
-### Les manifestations ne viendront pas tant que vous n'êtes pas préparés 
+### Les manifestations ne viendront pas tant que vous n'êtes pas préparés
 
 Seretta Kem - reçu par Al Fike le 26 Octobre 2021, Gibsons, Colombie-Britannique, Canada
 
@@ -44,6 +44,3 @@ Chacun de vous a une grande lumière. Votre âme renferme une grande lumière. Q
 Que Dieu vous bénisse dans ce voyage et vous garde toujours dans Son Amour. Nous sommes avec vous. Nous ne vous abandonnerons jamais, âmes bien-aimées, mais nous continuerons à voyager avec vous. Nous attendons vos choix, vos efforts, vos prières, vos désirs d’être en alignement avec Dieu plus pleinement et complètement.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je suis avec vous, toujours avec vous pour vous aider, pour vous guider, pour vous assister. Que Dieu vous bénisse, âmes bien-aimées.
-
-
-
