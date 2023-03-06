@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu rassemble des lumières du monde entier
 
-Ézéchiel - reçu par Al Fike le 16 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Ézéchiel - reçu par Al Fike le 16 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que le grand amour de Dieu continue d’entrer dans vos âmes, mes amis. Mon nom est Abdul Latif. J’ai déjà parlé à travers cet instrument auparavant. Pour ceux qui ne me connaissent pas, je fus un philosophe et un mathématicien dans le monde antique, le monde arabe d’autrefois. Je poursuis mon voyage vers la vérité, mon voyage vers Dieu, et mes efforts pour trouver intérieurement et extérieurement une harmonie, et je suis un habitant du Royaume Céleste.
 

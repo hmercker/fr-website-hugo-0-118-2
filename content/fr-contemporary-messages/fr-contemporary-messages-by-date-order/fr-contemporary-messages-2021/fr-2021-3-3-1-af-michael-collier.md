@@ -9,7 +9,7 @@ weight:
 ---
 ### Priez pour être utilisé comme des canaux d’amour et de lumière
 
-Michaël Collier - reçu par Al Fike le 3 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Michaël Collier - reçu par Al Fike le 3 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que l’amour de Dieu continue de bénir vos âmes, mes amis. Je suis Michaël Collier et je suis venu parce que vous avez mentionné mes chers et bien-aimés protégés, Susan et Michaël, que je côtoie souvent et que j’essaie d’aider dans tous leurs efforts spirituels et leur désir de servir l’humanité.
 

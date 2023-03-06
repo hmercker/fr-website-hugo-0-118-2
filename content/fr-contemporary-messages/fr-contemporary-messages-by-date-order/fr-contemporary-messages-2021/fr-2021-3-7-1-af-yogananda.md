@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez à connaître les dons que Dieu vous a donnés
 
-Yogananda - reçu par Al Fike le 7 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 7 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je vous salue tous du monde de l’esprit. Je suis Yogananda et je suis très heureux que vous ayez lu et parlé de ces lois et des possibilités de progresser spirituellement. La prière est l’activation de l’âme. Lorsque la prière est exprimée avec un véritable sentiment et un désir ardent de l’âme, cela déclenche les mécanismes que Dieu a mis en place pour l’éveil de l’âme afin que la bénédiction de l’Amour Divin, cette Essence de Dieu, puisse entrer dans l’âme. Ainsi, lorsque l’on prie sincèrement et profondément, on reçoit la grande bénédiction de l’Amour Divin. Bien que je n’aie pas été conscient à ce moment-là que je priais alors que j’étais sur Terre en train de méditer, cette bénédiction est en effet entrée dans mon âme et a éveillé mon âme aux gloires de mon moi conscient intérieur et aux gloires de Dieu.
 

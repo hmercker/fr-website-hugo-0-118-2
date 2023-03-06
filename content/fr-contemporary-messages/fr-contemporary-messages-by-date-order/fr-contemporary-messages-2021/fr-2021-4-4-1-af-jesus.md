@@ -9,7 +9,7 @@ weight:
 ---
 ### Cette flamme d’amour nettoiera tous les mondes
 
-Jésus - reçu par Al Fike le 4 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 4 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je viens à vous, âmes bien-aimées, je viens reconnaître que vous êtes vraiment mes frères et sœurs sur la Terre et que vous portez en vous la Vérité de l’Amour de Dieu. Je viens vous dire que je suis heureux que la vérité de ma mission soit finalement bien établie sur cette Terre à travers chacun de vous et à travers ceux qui viennent s’éveiller à cette Vérité. Je viens parce que vous avez ouvert cette porte de la Vérité. Une simple fente de Lumière la traverse et elle s’ouvrira davantage, permettant à une plus grande Vérité de se répandre dans votre monde, et, dans les sphères obscures de l’esprit, cette Vérité se manifestera. Je viens pour montrer ma Lumière, pour montrer le pouvoir de l’Amour de Dieu à travers moi, en tant que votre frère aîné qui ouvre la voie à la rédemption de votre âme, qui ouvre la voie à la Nouvelle Naissance qui est la transformation de votre âme dans l’Amour de Dieu.
 

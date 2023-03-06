@@ -9,7 +9,7 @@ weight:
 ---
 ### Que votre amour soit un baume de guérison
 
-Kahlil Gibran - reçu par Jimbeau Walsh le 29 Janvier 2021, Punalu’u, Oahu, Hawaii, USA
+Kahlil Gibran - reçu par Jimbeau Walsh le 29 Janvier 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère en Christ, je suis Kahlil Gibran et vous m’honorez en lisant ce que j’ai reçu et en permettant que cela touche vos cœurs. Car je vivais comme entre deux mondes, une existence très humaine, très terrestre et pourtant mon âme était sur le pont du ciel, reliée aux anges. En tant qu’humain, j’ai cherché l’unité entre ces mondes et j’ai souvent écrit sur l’humain et le Divin. Je savais au fond de mon âme que nous pouvions être un avec notre Créateur. Et ce qui était autrefois mystérieux pour moi, est maintenant clair et dans ma vision et vraiment beaucoup plus.
 

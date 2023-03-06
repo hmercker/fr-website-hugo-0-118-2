@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaissez votre but
 
-Jacques - reçu par Al Fike le 2 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 2 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes chers, je suis Jacques. Vivre une vie remplie de buts, c’est vivre une vie riche et généreuse. Lorsque ce but et ce sens du but viennent de l’âme et des désirs de l’âme d’accomplir ce que Dieu a placé en elle, une expression qui est déterminée et puissante, alors la joie qui accompagne cette expression est grande et l’accomplissement est le résultat d’une telle vie.
 

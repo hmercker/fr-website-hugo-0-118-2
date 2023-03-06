@@ -9,7 +9,7 @@ weight:
 ---
 ### Changements Terrestres – Suivi des 20 Leçons
 
-Jésus - reçu par Al Fike le 9 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 9 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-dove-3426187_640.jpg)
 

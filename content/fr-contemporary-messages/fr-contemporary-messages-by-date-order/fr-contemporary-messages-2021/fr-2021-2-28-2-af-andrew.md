@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes tous nécessaires dans le cadre du plan de Dieu
 
-André - reçu par Al Fike le 28 Février 2021, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 28 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes aimées, je suis André. Aujourd’hui, nous faisons quelque chose de différent de nos rassemblements habituels, en vous unissant dans une condition de lumière qui vous apporte élévation et bénédiction. Aujourd’hui, chacun d’entre vous reste à sa place sur cette Terre et a avec lui plusieurs anges qui se rassemblent autour de vous et vous élèvent dans cette lumière. Ce faisant, vous êtes utilisés comme un instrument, un canal de lumière pour les régions dans lesquelles vous vivez, les personnes avec lesquelles vous êtes connectés, et certains que vous ne connaissez pas mais qui sont effectivement connectés, d’âme à âme. Nous multiplions donc nos efforts ensemble, en aidant à renforcer et à augmenter l’étendue du treillis de lumière qui est destiné à couvrir le monde.
 

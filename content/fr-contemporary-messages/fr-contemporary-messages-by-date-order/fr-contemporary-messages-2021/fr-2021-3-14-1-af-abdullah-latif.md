@@ -9,7 +9,7 @@ weight:
 ---
 ### L’importance du treillis de lumière pour percer les ténèbres
 
-Abdullah Latif - reçu par Al Fike le 14 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Abdullah Latif - reçu par Al Fike le 14 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-angess11.jpg)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes unis par l’amour de Dieu
 
-Marie - reçu par Al Fike le 9 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 9 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Marie. Je suis si heureuse que vous soyez réunis pour prier, pour implorer Dieu pour son grand don d’amour, car c’est ce don qui vous unit. Peu importe où vous êtes dans le monde, vous êtes liés en ce moment par la Grâce de l’Amour de Dieu qui vous élève et vous transporte dans la Lumière, afin que vous puissiez vous libérer de toutes ces conditions qui sont sur le plan terrestre et trouver un répit dans les Bras de Dieu. Que Sa Grâce et Son Amour vous enveloppent, vous guérissent, et vous amènent dans ce lieu de joie et d’élévation.
 

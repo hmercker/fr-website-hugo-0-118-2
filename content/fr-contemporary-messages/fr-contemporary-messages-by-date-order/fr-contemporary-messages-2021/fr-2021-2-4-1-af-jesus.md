@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 19 : La nature de l’univers et la place de l’humanité en son sein
 
-Jésus - reçu par Al Fike le 4 Février 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 4 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que la grande bénédiction d’Amour Divin de Dieu coule dans vos âmes afin que vous soyez transformés et éveillés dans cette plus haute et plus sainte des bénédictions sur vous. Je suis Jésus. Je suis venu une fois de plus pour parler au monde et pour apporter des vérités au monde. Je souhaite ardemment que mes paroles soient entendues et prises en considération, que ce dont je parle pour favoriser la progression spirituelle de l’humanité soit pris au sérieux et appliqué afin que les âmes de cette Terre puissent aspirer à une vérité plus élevée et à une plus grande lumière en elles, car c’est un moment très important dans l’histoire de l’humanité, il est crucial pour qu’un grand changement se produise.
 

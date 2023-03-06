@@ -9,7 +9,7 @@ weight:
 ---
 ### Toutes les choses faites dans l'Amour de Dieu sont bonnes
 
-Yogananda - reçu par Jimbeau Walsh le 22 Février 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 22 Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère et ami dans l’Amour de Dieu. Je suis Yogananda. Soyez en paix. Laissez vos cœurs s’ouvrir pour que Dieu puisse toucher vos âmes afin que les choses qui vous ont lié à la terre et vous ont empêché de vous élever au-dessus d’elle, soient dissoutes dans le grand Amour de Dieu, et que votre âme puisse être en harmonie avec le Créateur.
 

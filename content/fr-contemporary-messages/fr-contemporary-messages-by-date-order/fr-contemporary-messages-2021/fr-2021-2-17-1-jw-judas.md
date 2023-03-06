@@ -9,7 +9,7 @@ weight:
 ---
 ### Faire face aux menaces de préjudice
 
-Judas - reçu par Jimbeau Walsh le 17 Février 2021, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 17 Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici ton frère et ami dans la grâce et la paix de Dieu. Que Son amour soit déversé sur toi.
 

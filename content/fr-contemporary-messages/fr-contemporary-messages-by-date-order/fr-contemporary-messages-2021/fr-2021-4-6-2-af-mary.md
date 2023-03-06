@@ -9,7 +9,7 @@ weight:
 ---
 ### Consacrez-vous à Dieu, mes bien-aimés
 
-Marie - reçu par Al Fike le 6 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 6 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Marie. Je veux vous assurer que le monde viendra à la lumière en temps voulu. Que bien qu’il puisse y avoir des périodes sombres dans l’évolution et les événements de votre monde dans le futur, le monde viendra à la lumière. Chacun de vous tient et devient un grand pilier de force et de lumière, tenant cette grande lumière au sein du monde, ce treillis qui continue de croître. Dans votre persistance et votre force, vous maintiendrez cette lumière en place. Quelles que soient les conditions qui prévalent dans votre monde, vous maintiendrez cette lumière en place. Et votre force, vos prières, votre dévouement seront bénis et soutenus par Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Pensez à l'éternité et non à la mort
 
-Judas - reçu par Jimbeau Walsh le 12 Février 2021, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 12 Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami Judas. J’ai été très heureux d’entendre et de participer à l’écoute des messages que vous avez tous lus aujourd’hui. Les belles paroles d’Eileen Caddy qu’elle a reçues, les merveilleuses descriptions du monde des esprits et de sa nature éternelle (Owen), et le rappel que si l’on souhaite être en relation avec le Royaume Céleste, la chose la plus importante est la prière.
 

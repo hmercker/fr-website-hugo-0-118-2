@@ -9,7 +9,7 @@ weight:
 ---
 ### Marchez dans la grâce ! C'est simple
 
-St François d'Assise - reçu par Jimbeau Walsh le 22 Mars 2021, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 22 Mars 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, François. Que la grande paix de l’Amour de Dieu soit sur vous. Que son Esprit Saint apporte son amour dans chaque âme. Que le baume guérisseur de la grâce et la vibration de l’Amour Divin imprègnent chacun d’entre nous ici, afin que chacun puisse être élevé au-dessus de ses préoccupations, au-dessus de ses doutes, au-dessus de ses problèmes. Puissions-nous être dans nos âmes afin que Dieu puisse nous toucher. Car il n’y a pas de plaisir terrestre comparable à la joie et à la bénédiction de l’Amour de Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### D'abord et avant tout, soyez l'amour
 
-Keea Atta Kem - reçu par Al Fike le 21 Février 2021, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 21 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je vous bénis, mes sœurs et frères bien-aimés, je suis Keea Atta Kem. Je pense que vous savez ce que je vais dire, car vers quoi vous guidons-nous chaque jour lorsque vous demandez à être guidés ? C’est d’abord et avant tout d’être l’amour, d’exprimer l’amour dans tout ce que vous faites. Je sais que vous avez des choses à régler, des questions techniques, des choses relatives aux canaux que vous utilisez pour établir votre communication avec les autres. En effet, ces choses seront réglées et appliquées en conséquence.
 

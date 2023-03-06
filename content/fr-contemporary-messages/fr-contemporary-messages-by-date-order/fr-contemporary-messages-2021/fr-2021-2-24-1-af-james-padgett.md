@@ -9,7 +9,7 @@ weight:
 ---
 ### L'importance de notre travail d'enregistrement des messages des anges Célestes
 
-James Padgett - reçu par Al Fike le 24 Février 2021, Gibsons, Colombie-Britannique, Canada
+James Padgett - reçu par Al Fike le 24 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je serai bref, mais je souhaite vous reconnaître et vous remercier tous pour vos efforts, pour continuer à faire en sorte que les efforts des anges fassent partie de la conscience du plan terrestre. Ces documents seront maintenus et partagés pendant de nombreuses années à venir et constituent un ensemble important de travaux qui ont exigé beaucoup d’efforts de la part des anges pour les faire passer et un grand dévouement de la part de cet instrument et de vous afin de documenter ces messages. Il est important que vous continuiez à vous engager dans ce processus et que vous réalisiez combien il est vital de continuer à transmettre ces messages au monde.
 

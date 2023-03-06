@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils de discernement
 
-Augustin - reçu par Al Fike le 2 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 2 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c’est votre enseignant Augustin. Quel plaisir de vous voir ensemble dans la prière, mes beaux et bien-aimés amis, sincères dans vos efforts, dans votre désir de servir vos frères et sœurs, et de servir la volonté de Dieu.
 

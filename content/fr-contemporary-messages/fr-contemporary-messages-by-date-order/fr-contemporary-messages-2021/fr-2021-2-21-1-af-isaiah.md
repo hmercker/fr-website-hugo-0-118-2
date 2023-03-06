@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous serez une lumière brillante pour la condition humaine
 
-Isaïe - reçu par Al Fike le 21 Février 2021, Gibsons, Colombie-Britannique, Canada
+Isaïe - reçu par Al Fike le 21 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Isaïe. Dieu lève un voile entre Lui et vos âmes, alors que vous priez ensemble de cette façon. Vous formez un puissant cri vers Dieu et Dieu répond par son toucher sur vos âmes. Toutes les conditions de votre Monde ne peuvent vous empêcher d’être avec Dieu, âmes bien-aimées. Quelles que soient vos circonstances, quelles que soient les situations sur votre Plan terrestre, Dieu répondra toujours à vos prières à condition qu’elles viennent de votre cœur et soient ressenties profondément. La profondeur de vos prières déterminera la puissance de la réponse que Dieu leur apportera. Je vous invite à prier profondément et à vous concentrer sur le grand don qu’Il doit faire à chaque âme, à savoir que Son Essence coule dans vos âmes. Que nous, dans le Royaume Céleste, venons vers vous afin de vous encourager à prier pour ce grand cadeau afin d’éveiller votre âme à l’afflux de l’Amour de Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Remarquable sera en effet ce voyage
 
-Professeur Salyards - reçu par Al Fike le 30 Janvier 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 30 Janvier 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je vous bénis, mes amis, je suis votre professeur Salyards. Je pense que vous découvrirez, au fil du temps, qu’il y aura un resserrement, puis une expansion de vos idées et expressions explorant les possibilités et les directions de vos efforts. Vos esprits se concentreront sur un aspect particulier et seront quelque peu restreints, mais au fur et à mesure que vous avancerez, ils s’élargiront à d’autres idées et à d’autres possibilités. Ainsi, vous vous concentrerez et vous recevrez différentes inspirations de vos guides spirituels qui élargiront et extrapoleront vos idées et ouvriront votre esprit à différentes possibilités.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez toujours des canaux de l'Amour de Dieu
 
-Professeur Salyards - reçu par Al Fike le 3 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 3 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bonsoir, mes amis bien-aimés. C’est le Professeur Salyards qui vient une fois de plus vous parler de vos efforts, de nos efforts mutuels pour apporter la vérité de l’Amour Divin à votre monde, ce monde qui a tant besoin de vérité, de comment trouver son chemin vers la vérité, de comment mettre en œuvre la vérité dans sa vie. En effet, nous travaillons très dur pour interconnecter les différentes âmes avec lesquelles nous sommes entrés en contact sur votre plan terrestre qui cherchent, qui désirent dans leurs âmes ce grand afflux d’Amour de Dieu bien que souvent ils n’aient pas dans leur esprit une compréhension claire de ce désir.
 

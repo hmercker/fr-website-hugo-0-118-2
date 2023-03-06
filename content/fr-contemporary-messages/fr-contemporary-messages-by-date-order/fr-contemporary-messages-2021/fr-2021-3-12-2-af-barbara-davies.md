@@ -9,7 +9,7 @@ weight:
 ---
 ### Exprimez vos émotions
 
-Barbara Davies - reçu par Al Fike le 12 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Barbara Davies - reçu par Al Fike le 12 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Barbara et je suis la mère de ce fils qui parle aujourd’hui. Je souhaite dire qu’il est important d’ouvrir vos cœurs, mes beaux et bien-aimés amis du plan terrestre ; que lorsque vos cœurs sont ouverts, alors vos prières à Dieu sont plus intenses et atteignent leur but plus complètement à cause des sentiments de votre âme et de votre cœur, exprimés avec toute leur vulnérabilité et toute leur puissance d’émotion. L’émotion est une partie importante de chaque individu. C’est quelque chose qui est souvent réprimé, craint ou mal compris. Lorsque les émotions d’une personne se manifestent de manière inattendue, il y a un sentiment de vulnérabilité et un désir de contrôler ces sentiments qui surgissent. Mais lorsque vos âmes sont éveillées, mes amis, à l’Amour de Dieu, vous pouvez vous attendre à ce que vos sentiments soient exacerbés, que ces choses en vous, dans votre âme, émergent et viennent à la conscience.
 

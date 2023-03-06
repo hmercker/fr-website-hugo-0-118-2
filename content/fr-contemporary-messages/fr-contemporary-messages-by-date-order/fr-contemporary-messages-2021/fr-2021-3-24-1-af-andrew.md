@@ -9,7 +9,7 @@ weight:
 ---
 ### Le portail de la lumière est ouvert par vos prières
 
-André - reçu par Al Fike le 24 Mars 2021, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 24 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Vous avez ouvert le portail de la lumière et de l’amour par vos prières et Dieu utilise ces conditions et votre intention pour apporter des bénédictions à vos frères et sœurs, à beaucoup de ceux qui sont dans le besoin. Continuez avec ces prières, âmes bien-aimées. Continuez à voir que vous recevez non seulement pour vous-mêmes, mais que par vos prières et vos désirs, vous êtes un canal de lumière pour les autres.
 

@@ -9,9 +9,9 @@ weight:
 ---
 ### Ce que vous créez ensemble nourrit ce grand chêne
 
-St Matthieu - reçu par Al Fike le 27 Février 2021, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 27 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
-*Message reçu pendant la prière après une réunion de l’équipe centrale de LightBringers qui s’est concentrée sur les mises à jour des projets actuels de LightBringers et d’autres projets prévus qui découlent des idées de cette équipe et d’autres personnes associées au mouvement LightBringers. Matthew décrit une belle image que nous créons tous ensemble par notre désir de suivre la volonté et la guidance de Dieu et de partager les bénéfices et les bénédictions avec nos frères et sœurs.*
+*[Message reçu pendant la prière après une réunion de l’équipe centrale de LightBringers qui s’est concentrée sur les mises à jour des projets actuels de LightBringers et d’autres projets prévus qui découlent des idées de cette équipe et d’autres personnes associées au mouvement LightBringers. Matthew décrit une belle image que nous créons tous ensemble par notre désir de suivre la volonté et la guidance de Dieu et de partager les bénéfices et les bénédictions avec nos frères et sœurs.]*
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Je souhaite vous peindre une image qui pourrait décrire adéquatement le processus dans lequel vous êtes engagés et combien d’idées créatives émergent de vos efforts et de vos communications ensemble et avec les autres.
 

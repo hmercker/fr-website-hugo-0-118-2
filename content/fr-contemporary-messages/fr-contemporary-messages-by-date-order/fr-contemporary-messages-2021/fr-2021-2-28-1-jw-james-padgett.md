@@ -9,7 +9,7 @@ weight:
 ---
 ### Guide pour la planification du groupe d'étude : Un peu de théâtralité fait la différence
 
-James Padgett - reçu par Jimbeau Walsh le 28 Février 2021, Punalu’u, Oahu, Hawaii, USA
+James Padgett - reçu par Jimbeau Walsh le 28 Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami James Padgett. Comme toujours, je donne ma bénédiction à ce travail et je suis honoré que vous ayez choisi ma vie et mon travail comme modèle pour présenter l’Amour Divin au monde.
 

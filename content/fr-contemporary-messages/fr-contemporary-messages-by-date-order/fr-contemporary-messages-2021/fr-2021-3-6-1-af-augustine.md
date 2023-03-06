@@ -9,7 +9,7 @@ weight:
 ---
 ### Franchir le seuil
 
-Augustin - reçu par Al Fike le 6 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 6 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, mes chers élèves, c’est votre enseignant Augustin. La puissance de l’Amour de Dieu est votre grande force et votre alliée. C’est ce qui donnera l’élan et le mouvement à vos efforts pour amener les autres à cette vérité.
 

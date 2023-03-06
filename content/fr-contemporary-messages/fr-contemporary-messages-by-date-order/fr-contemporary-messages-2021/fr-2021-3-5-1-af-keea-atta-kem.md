@@ -9,7 +9,7 @@ weight:
 ---
 ### Guérison pour la Terre Mère
 
-Keea Atta Kem - reçu par Al Fike le 5 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 5 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Keea Atta Kem. Dieu a créé ce monde en harmonie. Il a créé tout ce qui s’y trouve et y a déposé Son Souffle de Vie. Au cours des éons de temps pendant lesquels cette Terre a existé, les vagues d’animaux et de créations se sont succédées dans ce monde jusqu’à ce moment présent, ont toutes été dirigées par Dieu et Sa volonté, alors que ce monde évolue dans l’amour, dans toute sa diversité, sa beauté et son émerveillement. Aujourd’hui, l’humanité est venue sur ce monde pour en modifier l’équilibre, et plutôt que l’amour gouverne ce monde, c’est la condition de l’homme sur ce monde qui le fait chuter, perturbe son harmonie et n’apporte pas la paix.
 

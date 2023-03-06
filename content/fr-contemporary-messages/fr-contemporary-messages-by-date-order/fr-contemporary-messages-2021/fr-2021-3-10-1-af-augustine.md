@@ -9,7 +9,7 @@ weight:
 ---
 ### Les anges seront avec nous pendant les changements terrestres
 
-Augustin - reçu par Al Fike le 10 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 10 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que l’Amour de Dieu entre dans vos âmes, afin que vous puissiez recevoir ce cadeau en grande abondance. Je suis votre maître Augustin. Je viens vous assurer que peu importe les circonstances, peu importe ce qui peut se passer sur votre plan terrestre, nous continuerons à forger notre relation avec vous et à être là à vos côtés, à condition que vous continuiez à rechercher le don le plus élevé, le don de l’Amour du Père, pour vous-même.
 

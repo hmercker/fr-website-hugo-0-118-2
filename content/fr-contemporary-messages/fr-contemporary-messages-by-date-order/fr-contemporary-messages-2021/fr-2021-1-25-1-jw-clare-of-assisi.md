@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez une trace d’amour
 
-Claire d'Assise - reçu par Jimbeau Walsh le 25 Janvier 2021, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 25 Janvier 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre sœur dans le Christ, Claire d’Assise. Lorsque mon bien-aimé François, aimé de tant de personnes, est passé en esprit, il était tellement absorbé par l’amour de Dieu que le passage de son esprit quittant son corps fut en un sens indétectable, car l’énergie entourant son corps imprégnait l’endroit où il se trouvait, bien que son esprit soit parti, si béni. Ceci (était) la manifestation physique de l’Amour Divin <sup id=”a1”>[1](#f1)</sup>. Car si vous ne pouviez pas le sentir, s’il ne se manifestait pas dans la lumière et dans une belle énergie, vous pourriez ne pas connaître son existence. Il est possible de recevoir l’amour de Dieu sans ressentir une grande présence physique car il est au-delà du monde. Cependant, lorsque vous ressentez l’amour, autour de votre cœur, dans votre âme, c’est la confirmation de Dieu que oui, vous ressentez Son amour et vous êtes transformé dans la Grâce. Car beaucoup quittent le plan terrestre sans cette compréhension, sans bénéficier de la connaissance de la Vérité Divine, de l’Amour Divin. Ainsi, la plupart entrent dans le monde des esprits dans le même état qu’ils étaient sur terre, nécessitant beaucoup d’assistance, exigeant un certain niveau d’éducation afin qu’ils sachent maintenant qu’ils sont en esprit. Ceux qui ont reçu l’amour de Dieu, dans un sens, ils entrent eux aussi dans le monde des esprits dans la même condition mais leurs âmes sont élevées au-dessus du plan terrestre et sans les attachements qui retiennent tant de personnes.
 

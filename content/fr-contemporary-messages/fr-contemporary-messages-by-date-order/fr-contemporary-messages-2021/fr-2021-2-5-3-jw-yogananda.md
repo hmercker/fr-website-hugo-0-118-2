@@ -9,7 +9,7 @@ weight:
 ---
 ### Élevez votre vibration pour guérir
 
-Yogananda - reçu par Jimbeau Walsh le 5 Février 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 5 Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami dans l’Amour de Dieu. Je viens à ce cercle de guérison et je demande à chacun d’entre vous de prendre les vibrations de lumière et d’amour afin que vous puissiez être soulevés et guéris. Plus particulièrement pour les afflictions du cœur où l’âme se sent stagnante.
 

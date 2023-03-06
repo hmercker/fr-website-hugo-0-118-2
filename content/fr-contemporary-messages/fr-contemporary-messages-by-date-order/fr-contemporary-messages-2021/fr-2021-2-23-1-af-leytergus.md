@@ -9,7 +9,7 @@ weight:
 ---
 ### Prier avec intention
 
-Leytergus - reçu par Al Fike le 23 Février 2021, Gibsons, Colombie-Britannique, Canada
+Leytergus - reçu par Al Fike le 23 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que la gloire de l’Amour de Dieu touche vos âmes. Précieux frères et sœurs bien-aimés sur terre, je suis Leytergus et je viens parler de l’intention et du pouvoir de l’intention dans votre vie spirituelle. Derrière l’intention se cache toujours votre désir. L’intention est votre désir mis en avant, articulé à la fois par votre esprit matériel et votre âme. Sur votre chemin spirituel, vous avez le contrôle, vous avez le don du libre arbitre, le don de la pensée, le don du désir. Toutes ces choses se conjuguent pour ouvrir la voie à Dieu pour vous bénir et informer votre âme de son amour. Mais sans votre intention, sans présenter votre intention à Dieu, vous faites partie du grand flux et reflux de l’humanité qui reçoit et exprime également des aspects de la condition humaine qui ne sont pas tous bénéfiques. Lorsque vous exprimez vos intentions, vous ouvrez la porte aux bénédictions de Dieu par la prière. Vous concentrez vos pensées, vos sentiments, vos désirs sur Dieu et sur votre propre âme afin que Dieu puisse vous répondre. Car lorsque vos intentions sont formulées et mises en œuvre, les lois d’activation sont en mouvement. Avec les Lois d’Activation, tout est possible parce que vous l’avez permis et désiré.
 

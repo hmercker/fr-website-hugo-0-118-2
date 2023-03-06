@@ -9,9 +9,9 @@ weight:
 ---
 ### Les défis de l'âme dans un monde de pleine conscience - LightBringers Guidance
 
-Professeur Salyards - reçu par Al Fike le 27 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 27 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
-Je suis votre professeur Salyards et je suis heureux d’être avec vous aujourd’hui. En effet, en regardant les symboles que vous avez montrés, il est intéressant de constater que cette interprétation reflète très bien les conditions dans le monde et le fait que tant de personnes ne comprennent pas ce que vous souhaitez transmettre. Ils projettent sur vos mots les symboles et les significations de leur vie religieuse, ou du moins ce qu’ils pensent être le stéréotype d’une vie religieuse.
+Je suis votre Professeur Salyards et je suis heureux d’être avec vous aujourd’hui. En effet, en regardant les symboles que vous avez montrés, il est intéressant de constater que cette interprétation reflète très bien les conditions dans le monde et le fait que tant de personnes ne comprennent pas ce que vous souhaitez transmettre. Ils projettent sur vos mots les symboles et les significations de leur vie religieuse, ou du moins ce qu’ils pensent être le stéréotype d’une vie religieuse.
 
 C’est à vous de transmettre quelque chose de différent, quelque chose qui incite les gens à mettre de côté cette délimitation entre la pensée et l’action religieuses et la vie quotidienne, afin que ces choses, celles de l’âme et de l’esprit en relation avec Dieu et avec la vie que Dieu a créée pour chacun d’entre vous, puissent se réunir dans une intégration harmonieuse, un flux continu de compréhension, d’expérience, de vérité. Car c’est cela que vous offrez vraiment à vos frères et sœurs, pas une autre religion, pas une autre façon d’interpréter la pensée biblique ou les idées qui viennent de l’interprétation de l’homme qui sont basées sur des considérations attentives de ce qui est de l’âme et de Dieu. Il s’agit plutôt de dépasser ces limites de la pensée pour atteindre ce lieu où l’âme est libérée de la domination de l’esprit, des concepts spirituels et des repères sociaux dans lesquels ces idées sont cataloguées et limitées par des mots et des attentes qui reflètent entièrement la condition humaine.
 

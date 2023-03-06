@@ -9,7 +9,7 @@ weight:
 ---
 ### Les pièges de la médiumnité
 
-Augustin - reçu par Al Fike le 9 Février 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 9 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Ah les pièges de la médiumnité, ils sont grands et nombreux. Pourtant, ce service particulier apporte avec lui une mesure d’adulation et d’appréciation de la part des autres, ce qui vous motive effectivement sur ce plan terrestre à poursuivre ce service et cette activité. Nous, dans les royaumes des Cieux Célestes, l’apprécions également, car cela semble être le moyen le plus efficace d’atteindre ceux de votre plan terrestre. Mais la connexion entre nous dans les Cieux Célestes et vous sur le plan terrestre est parfois ténue, car nous venons de très loin pour être avec vous. Comme vous avez été instruits de ce qui est requis, il est important de maintenir votre pratique de prier pour l’Amour Divin comme un effort quotidien, un effort sincère et profond. De cette façon, un rapport plus étroit peut être obtenu, et nous avons travaillé diligemment pour assurer que cette connexion soit vivante et vitale, en construisant des portails de lumière, en inspirant et en étant avec cet instrument et d’autres autant que possible afin d’assurer une connexion étroite et une protection puissante.
 

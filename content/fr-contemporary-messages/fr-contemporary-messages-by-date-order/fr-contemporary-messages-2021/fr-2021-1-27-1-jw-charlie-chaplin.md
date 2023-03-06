@@ -9,7 +9,7 @@ weight:
 ---
 ### Visez le plus haut
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 27 Janvier 2021, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 27 Janvier 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère sur le chemin de l’Amour Divin. Je suis Charles. Les films, la musique, la danse, les histoires, la poésie et les photographies ont tous le pouvoir de changer les pensées, d’aider les gens à changer de direction et pourtant, tant de choses sont gaspillées en frivolités et en plaisirs sensoriels. C’est pourquoi le fait d’entendre quels films vous inspirent me ravit.
 

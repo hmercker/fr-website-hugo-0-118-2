@@ -9,7 +9,7 @@ weight:
 ---
 ### La vie spirituelle requiert du courage
 
-Eileen Caddy - reçu par Jimbeau Walsh le 3 Février 2021, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 3 Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C'est moi Eileen Caddy, tante Eileen. Vous avez découvert beaucoup de choses sur ma vie sur terre et sur les luttes auxquelles j’ai été confronté et vous avez peut-être réalisé que la vie spirituelle demande beaucoup de courage et d’attention. Souvent, dans la vie, les circonstances se présentent alors que vous avez l’impression de ne pas avoir de contrôle sur le résultat ou d’être une victime de ces circonstances. Lorsque cela se produit, il est très important d’aller vers Dieu en prière, de demander de l’aide et d’écouter pour être guidé. Souvent, cette guidance se présente sous la forme d’un sentiment dans votre âme, d’une connaissance dans votre cœur de la voie à suivre. Je vous dis que c’est toujours la voie de l’amour.
 

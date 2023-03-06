@@ -9,7 +9,7 @@ weight:
 ---
 ### La pratique rend parfait
 
-Claire d'Assise - reçu par Jimbeau Walsh le 5 Mars 2021, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 5 Mars 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Claire. Mes chères souris, comme on dit, la pratique rend parfait. Si vous pouvez trouver du temps, si vous pouvez trouver un endroit, pour simplement parler à Dieu et ouvrir votre cœur, cela vous serait très utile. Car une conversation avec Dieu élève l’âme. C’est un pont entre votre état et celui où vous souhaitez être en recevant l’amour de Dieu. Ces choses qui vous aident à être calme, à être en paix, à toucher votre cœur, peuvent être très utiles.
 

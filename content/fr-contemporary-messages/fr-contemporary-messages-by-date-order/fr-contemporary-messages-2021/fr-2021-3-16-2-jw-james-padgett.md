@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce qui est important
 
-James Padgett - reçu par Jimbeau Walsh le 16 Mars 2021, Punalu’u, Oahu, Hawaii, USA
+James Padgett - reçu par Jimbeau Walsh le 16 Mars 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère James Padgett. Lorsque j’ai commencé à recevoir des messages de l’esprit, toute ma quête était d’entendre ma chère Hélène. J’étais rempli de culpabilité, de honte et de remords pour la façon dont je l’avais traitée. Je sentais que je l’avais abandonnée, et je voulais qu’elle sache que j’étais désolé et que je l’aimais. Ainsi, lorsqu’elle m’a communiqué son grand amour pour moi, et le fait qu’elle veillait sur moi, je me suis soudainement ouvert à la sensation de sa présence qui guérissait mon chagrin, et son amour était un baume sur mes blessures et tous mes problèmes. Mais j’ai été tout simplement choqué d’entendre le Maître me dire que j’avais été choisi pour recevoir les vérités de sa mission, de sa vie, des lois de Dieu et de son grand Amour pour nous.
 

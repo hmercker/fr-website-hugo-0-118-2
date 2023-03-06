@@ -9,7 +9,7 @@ weight:
 ---
 ### Mon engagement envers vous est absolu
 
-St Matthieu - reçu par Al Fike le 10 Avril 2021, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 10 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Que Dieu continue à soutenir Ses enfants comme Il le fait depuis des millénaires. Il a soutenu ses enfants de la Lumière, les a soutenus et élevés, et s’est assuré qu’ils puissent effectivement parcourir ce chemin de vie sous la protection et les bénédictions de Dieu. Et il en sera de même pour vous, mes amis bien-aimés. Vous serez guidés, élevés et soutenus.
 

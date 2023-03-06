@@ -9,7 +9,7 @@ weight:
 ---
 ### Désir de servir et d’être dans l’Amour de Dieu
 
-Barbara Davies - reçu par Al Fike le 6 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Barbara Davies - reçu par Al Fike le 6 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Puisque vous avez tous parlé de moi, je suis là, je suis Barbara. Je suis si heureuse de pouvoir parler à travers cet instrument, de mon bien-aimé Albert que j’ai nourri et avec qui je me suis liée d’amitié il y a de très nombreuses années, et de voir maintenant comment il est devenu une belle lumière avec sa compagne, Jeanne.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Dernier message de Jésus au monde
 
-Jésus - reçu par Al Fike le 18 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 18 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que les bénédictions de l’amour du Père continuent de couler sur vous, mes frères et sœurs bien-aimés. Je viens une fois de plus, votre frère et votre ami Jésus. Je suis ici pour être avec vous dans la prière et pour terminer ce chapitre de nos conversations ensemble. Bien que ce ne soit pas la fin de nos communications, c’est la fin d’un groupe de communications que j’avais l’intention de donner au monde. Il est maintenant temps de rassembler ces communications et de les publier afin qu’elles soient disponibles pour ceux qui souhaitent lire les mots que j’ai prononcés à travers cet instrument.
 

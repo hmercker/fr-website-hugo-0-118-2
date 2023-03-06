@@ -9,7 +9,7 @@ weight:
 ---
 ### En grandissant dans l'Amour Divin
 
-Claire d'Assise - reçu par Jimbeau Walsh le 24 Février 2021, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 24 Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre sœur dans le Christ. Je suis Claire. Mes chères gentilles souris, je vous appelle gentilles parce qu’au fur et à mesure que vous grandissez dans l’Amour Divin, il devient de plus en plus difficile de trouver un os méchant dans votre corps. La compassion coule et vous prenez les caractéristiques que vous associez à Dieu, qui est la source de la miséricorde, se déversant de la fontaine de Son Amour pour tous, se déversant de la source de la compassion. L’éveil de l’âme dépend d’abord de la bonté envers soi-même. À mesure que vous vous pardonnez vos défauts et que vous demandez à ceux que vous avez offensés de vous pardonner si nécessaire, il devient de plus en plus facile de pardonner. Et vous vous rendez compte à quel point cela est difficile pour la nature humaine, qui n’est même pas en harmonie avec son véritable soi dans l’amour naturel, la gentillesse envers les autres, le soin de la terre, la non-violence, la fraternité et la solidarité, la compassion et l’empathie.
 

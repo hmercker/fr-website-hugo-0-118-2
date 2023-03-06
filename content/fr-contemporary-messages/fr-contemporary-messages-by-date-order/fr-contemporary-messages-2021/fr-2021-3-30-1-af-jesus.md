@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus visitera le plan terrestre à Pâques
 
-Jésus - reçu par Al Fike le 30 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 30 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-jonquilles-paques.jpg)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La dynamique des cercles de lumière
 
-Archimède - reçu par Al Fike le 24 Janvier 2021, Gibsons, Colombie-Britannique, Canada
+Archimède - reçu par Al Fike le 24 Janvier 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-archimede.jpg)
 

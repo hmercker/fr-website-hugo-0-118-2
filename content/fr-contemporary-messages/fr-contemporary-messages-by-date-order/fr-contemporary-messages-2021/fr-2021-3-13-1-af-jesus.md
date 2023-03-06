@@ -9,7 +9,7 @@ weight:
 ---
 ### Sentez la sûreté de vos pas
 
-Jésus - reçu par Al Fike le 13 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 13 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Une bénédiction sur vous, mes bien-aimés, je suis votre frère et ami, Jésus. Je viens pour vous bénir dans vos efforts, pour vous élever, pour vous inspirer afin que la Lumière puisse effectivement se déverser sur chacun de vous, que Dieu puisse effectivement toucher profondément vos âmes avec Son Amour.
 

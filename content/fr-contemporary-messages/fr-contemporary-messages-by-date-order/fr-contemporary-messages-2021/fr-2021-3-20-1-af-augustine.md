@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils pour accueillir des cercles de lumière
 
-Augustin - reçu par Al Fike le 20 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 20 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, mes beaux et bien-aimés amis, je suis votre enseignant Augustin.
 

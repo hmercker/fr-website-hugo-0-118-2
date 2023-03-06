@@ -9,7 +9,7 @@ weight:
 ---
 ### Découvrez vos dons
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 23 Mars 2021, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 23 Mars 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami Charles, Charlie Chaplin. Je viens à vous dans l’amour de Dieu sur le chemin Divin. C’est tellement merveilleux de voir l’humour retrouvé, de voir la joie qui vous envahit dans votre beau cercle, auquel participent de très nombreuses âmes. Mais que cela ne vous décourage pas car elles ne sont pas obligées de venir mais sont attirées par vos discussions, vos prières et la lumière dans vos âmes. Lorsque vous êtes dans l’amour, l’amour de Dieu, l’humour est restauré, la joie et la félicité sont vôtres. Vous pouvez danser, vous pouvez chanter. Parfois, c’est aussi simple que de raconter une histoire drôle pour apporter un sourire à ceux qui en ont besoin.
 

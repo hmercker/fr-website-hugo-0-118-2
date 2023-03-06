@@ -9,7 +9,7 @@ weight:
 ---
 ### Les expériences de votre âme seront intégrées à la tapisserie de votre vie
 
-Augustin - reçu par Al Fike le 16 Février 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 16 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis votre enseignant Augustin. La vie est une telle tapisserie d’expériences, mes amis bien-aimés. Chacun d’entre vous a bien vécu sa vie, a fait beaucoup de choses et a vécu de nombreuses situations. Vous avez répondu aux désirs de vos familles, de vos proches de participer à la vie, de vous rassembler, de vous soutenir dans l’amour, d’être ensemble dans cette expérience de la vie.
 

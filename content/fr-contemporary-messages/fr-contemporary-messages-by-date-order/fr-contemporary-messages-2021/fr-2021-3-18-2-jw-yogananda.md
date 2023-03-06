@@ -9,7 +9,7 @@ weight:
 ---
 ### Joie et guérison
 
-Yogananda - reçu par Jimbeau Walsh le 18 Mars 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 18 Mars 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami dans l’Amour de Dieu. Je suis Yogananda. Mes chers, je ne viens généralement pas à ce groupe, car Judas est l’animateur avec Claire et d’autres. Mais je suis passé aujourd’hui, et je n’ai pas pu m’empêcher d’entendre votre discussion et ce que vous lisiez, et je voulais faire un commentaire sur quelque chose.
 

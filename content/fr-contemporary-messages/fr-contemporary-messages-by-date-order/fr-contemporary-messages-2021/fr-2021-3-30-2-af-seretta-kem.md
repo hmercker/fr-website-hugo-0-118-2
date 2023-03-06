@@ -9,7 +9,7 @@ weight:
 ---
 ### Le fleuve d’Amour de Dieu
 
-Seretta Kem - reçu par Al Fike le 30 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 30 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 La rivière de l’Amour de Dieu continue de nous porter, n’est-ce pas ? Mes beaux amis, je suis Seretta Kem. En effet, ses eaux douces nous nourrissent, nous portent en avant alors que nous mettons notre confiance dans la volonté de Dieu, alors que nous permettons à Dieu de nous guider en avant.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment nous sommes utilisés et bénéficions d'être les instruments de Dieu
 
-Seretta Kem - reçu par Al Fike le 5 Février 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 5 Février 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem. Aujourd’hui, nous vous avons rassemblées pour créer une lumière qui profitera au monde et à vous-mêmes. Dans ce rassemblement au-dessus du plan terrestre, nous vous avons attirés dans une condition, un espace, un lieu où vous pouvez tous vous réunir et devenir une sorte de chaîne de lumière que nous avons arrangée, afin qu’il y ait un grand flux de lumière et de bénédictions à travers vous vers le monde.
 

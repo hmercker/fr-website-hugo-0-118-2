@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 18 : L’avenir de l’humanité est fixé dans le plan de Dieu
 
-Jésus - reçu par Al Fike le 28 Janvier 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 28 Janvier 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-spiritualite_8.jpg)
 

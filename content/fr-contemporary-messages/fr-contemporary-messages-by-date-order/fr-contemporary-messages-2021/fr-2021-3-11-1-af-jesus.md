@@ -9,11 +9,11 @@ weight:
 ---
 ### Session de questions et réponses n° 4 : Changements de la Terre
 
-Jésus - reçu par Al Fike le 11 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 11 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus. Que les vents du changement soufflent des bénédictions sur vos vies, éveillant davantage vos âmes et vos mentaux à tout ce qui est vérité, lumière et amour, afin que ces changements qui balaient la Terre puissent apporter leur côté positif, leur bénédiction à chacun d'entre vous. Puissiez-vous en venir à voir sans l'ombre d'un doute que ce qui se passe dans votre monde, ces choses qui se manifestent dans votre monde en ce moment, sont à la fois un reflet de la condition humaine et les bénédictions de Dieu sur ce monde dans les efforts pour contrer la condition humaine et la destruction que cette condition apporte à votre planète bien-aimée. Nous pouvons commencer nos questions.
 
-*Question : Merci, Jésus. La première question est la suivante : y aura-t-il plus de bouleversements géographiques comme des tremblements de terre, des volcans, des tsunamis, et plus de maladies balayant le monde et des conséquences économiques, des guerres, des troubles civils, ou plus de réveil pout ceux qui sont impliqués dans les forces obscures qui causent tant de douleur, de souffrance et d'inégalité ?*
+*[Question : Merci, Jésus. La première question est la suivante : y aura-t-il plus de bouleversements géographiques comme des tremblements de terre, des volcans, des tsunamis, et plus de maladies balayant le monde et des conséquences économiques, des guerres, des troubles civils, ou plus de réveil pout ceux qui sont impliqués dans les forces obscures qui causent tant de douleur, de souffrance et d'inégalité ?]*
 
 La croûte Terrestre est toujours en mouvement et en évolution. Par conséquent, il y aura sans doute plus de manifestations de cela sous la forme de tremblements de terre, de volcans, de changements de toutes sortes qui se produiront sur votre plan terrestre. Oui, la condition humaine affecte l'intensité et la fréquence de ces changements, car l'humanité ne réalise pas le pouvoir de sa propre pensée, le pouvoir de sa propre action pour influencer la couche superficielle de votre Terre et provoquer des conséquences imprévues. Ainsi, même si la fluidité des changements dans la croûte terrestre se poursuit et se poursuivra aussi longtemps que la Terre restera une planète active et viable, l'humanité, si elle en a l'opportunité et les moyens, affectera ces changements et ces déplacements sur la Terre.
 
@@ -29,7 +29,7 @@ Bien que l'humanité ait un grand pouvoir, elle est également très faible dans
 
 Je suis prêt à recevoir une autre question.
 
-*Question : Merci, Jésus. La deuxième question est la suivante : l'énergie que Dieu déverse sur la Terre rendra-t-elle les personnes dans l'obscurité plus volatiles, plus en colère ou plus tristes ? Est-ce que cela rendra les gens avec beaucoup d'amour plus aimants et compatissants ? Et pourquoi Dieu a-t-il attendu jusqu'à maintenant, si longtemps semble-t-il, pour apporter une correction ?*
+*[Question : Merci, Jésus. La deuxième question est la suivante : l'énergie que Dieu déverse sur la Terre rendra-t-elle les personnes dans l'obscurité plus volatiles, plus en colère ou plus tristes ? Est-ce que cela rendra les gens avec beaucoup d'amour plus aimants et compatissants ? Et pourquoi Dieu a-t-il attendu jusqu'à maintenant, si longtemps semble-t-il, pour apporter une correction ?]*
 
 La vision de Dieu est quelque chose qu'aucun d'entre vous sur ce plan terrestre ne peut comprendre entièrement. Le sens du timing de Dieu, le sens de la planification de Dieu, et l'avancement de Ses plans se font dans une perspective qui n'est pas celle des années et du temps tels que vous les connaissez, mais en réponse aux énergies collectives et aux expressions de l'humanité qui continue à progresser le long des lignes de l'évolution humaine et de la progression spirituelle en accord avec les Lois de Progression vers l'harmonie. Avec le pouvoir de l'humanité de déterminer son destin, le pouvoir de choisir à chaque instant, l'humanité a donc, dans une certaine mesure, dicté le moment des interventions de Dieu.
 

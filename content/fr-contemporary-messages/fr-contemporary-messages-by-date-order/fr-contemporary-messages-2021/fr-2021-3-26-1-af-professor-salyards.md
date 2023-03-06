@@ -9,7 +9,7 @@ weight:
 ---
 ### La différence entre l’Amour Divin et la voie de l’amour naturel
 
-Professeur Salyards - reçu par Al Fike le 26 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 26 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 Salutations et bénédictions de notre côté de la vie, je suis le professeur Salyards. Bien que vous n’ayez pas eu souvent de mes nouvelles, je tiens à vous dire que je participe souvent à vos cercles et que je suis très heureux de le faire. En effet, bien que votre nombre puisse sembler faible, je tiens à vous assurer qu’il y a beaucoup de personnes de mon côté de la vie qui assistent à vos cercles, et bien sûr, de nombreux anges sont là avec vous en ce moment et à chaque fois que vous priez de cette façon.
 

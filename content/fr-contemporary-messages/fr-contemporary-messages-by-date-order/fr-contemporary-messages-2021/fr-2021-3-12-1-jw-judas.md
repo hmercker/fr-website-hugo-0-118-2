@@ -9,7 +9,7 @@ weight:
 ---
 ### Lâcher prise et laisser faire, s'en remettre à Dieu pour tout
 
-Judas - reçu par Jimbeau Walsh le 12 Mars 2021, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 12 Mars 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère et ami, Judas. Comme toujours, je suis ravi lorsque vous vous réunissez en prière, en étude, pour considérer les grandes vérités qui sont venues par le Maître. La plus grande étant la vérité de l’Amour de Dieu.
 

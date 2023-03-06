@@ -9,7 +9,7 @@ weight:
 ---
 ### L'importance de la foi
 
-Claire d'Assise - reçu par Jimbeau Walsh le 5 Février 2021, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 5 Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici, Claire. Comme il est important d’avoir la foi. J’ai parlé de courage et aujourd’hui vous avez mentionné d’avoir un saut dans la foi. Lorsque vous faites ce saut, qui est une chose courageuse, et que vous marchez dans la foi, et que vous vous ouvrez à l’Amour de Dieu, toutes les choses se mettent en place dans le temps de Dieu et dans le flux de l’harmonie dans Son univers, sur la terre et dans les cieux. Lorsque vous vous alignez dans la foi en l’amour, toutes les choses deviennent possibles.
 

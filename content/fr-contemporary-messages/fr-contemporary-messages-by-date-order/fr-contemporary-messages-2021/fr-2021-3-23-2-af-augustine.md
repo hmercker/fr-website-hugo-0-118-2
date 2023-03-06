@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité se découvre à travers votre âme et non votre esprit
 
-Augustin - reçu par Al Fike le 23 Mars 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 23 Mars 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-basilique-st-augustin.jpg)
 
