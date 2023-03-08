@@ -9,7 +9,7 @@ weight:
 ---
 ### Nos prières sont importantes pour le service de Dieu
 
-Keea Atta Kem - reçu par Al Fike le 28 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 28 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Keea Atta Kem. Je viens prier avec vous ce soir, pour vous encourager dans vos prières, car je pense que parfois vous perdez de vue le travail que vous faites. Je souhaite vous encourager à voir et à reconnaître que les moments que vous passez ensemble en prière sont très bénéfiques pour votre plan terrestre. En effet vous continuez à alimenter ce feu d’amour, cette grande lumière qui vient en réponse à vos prières. Dieu utilise chacun d’entre vous pour refléter la lumière de Ses bénédictions, non seulement pour vous et vos proches, mais aussi pour de nombreuses autres personnes dans votre monde. Lorsque vous vous réunissez pour consacrer votre temps de cette manière, que vous présentez humblement vos prières et que vous venez en unité et avec le désir d’être des canaux d’amour et de lumière dans le monde, vous rendez service à Dieu, vous rendez service aux anges et vous rendez service à l’humanité.
 

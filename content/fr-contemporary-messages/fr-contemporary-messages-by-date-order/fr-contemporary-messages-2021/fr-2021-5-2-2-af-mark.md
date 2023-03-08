@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité de l’Amour Divin
 
-Marc - reçu par Al Fike le 2 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 2 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Marc. Je suis le protecteur et le gardien de votre église. Je réside au sein du Royaume Céleste et je viens vous parler aujourd’hui.
 
@@ -23,7 +23,7 @@ Pourtant, cette lumière n’est pas le Royaume Céleste, mais simplement le ref
 
 Je vous exhorte à parcourir ce chemin et à essayer de voir par vous-mêmes ce qui est possible, ce qui peut se manifester dans vos vies et dans vos âmes, sachant que nous, dans le Royaume céleste, nous vous accompagnerons dans vos efforts concertés. Nous serons donc avec vous. Nous espérons que vous ressentirez notre présence, un état d’amour et de lumière, d’élévation, de paix qui vient lorsque Dieu envoie ses anges à vos côtés.
 
-Je vous exhorte donc tous à marcher sur ce chemin droit. Il n’est pas difficile. Il requiert simplement un effort concerté de votre part. Écoutez vos âmes, car ce désir bat en elles. Mettez de côté vos doutes et vos peurs, votre scepticisme, toutes ces choses du mental qui vous diraient « oh non, ne suivez pas cette voie, car cette voie ne m’inclut pas en tant que leader et en contrôle.
+Je vous exhorte donc tous à marcher sur ce chemin droit. Il n’est pas difficile. Il requiert simplement un effort concerté de votre part. Écoutez vos âmes, car ce désir bat en elles. Mettez de côté vos doutes et vos peurs, votre scepticisme, toutes ces choses du mental qui vous diraient *« oh non, ne suivez pas cette voie, car cette voie ne m’inclut pas en tant que leader et en contrôle »*.
 
 Pourtant, mes chers et beaux amis, le mental n’est pas si sage. Il y a une plus grande sagesse qui réside dans l’âme. Cette sagesse est implantée par Dieu, et elle grandit avec le don de Son amour. Venez connaître cette sagesse, cette merveilleuse connaissance qui englobe la vérité d’une manière que le mental ne peut vraiment pas, et qui vous donnera beaucoup de choses que le mental n’est pas capable de comprendre ou de manifester. Lorsque vous avez en vous, en temps voulu, une fusion de votre esprit et de votre âme, vous êtes vraiment un canal puissant qui manifestera une grande lumière, une grande sagesse et une grande vérité dans le monde.
 

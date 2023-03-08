@@ -9,7 +9,7 @@ weight:
 ---
 ### Démarrage et engagement des anges
 
-Seretta Kem - reçu par Al Fike le 5 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 5 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Et ainsi, nous commençons une nouvelle aventure, une extension d’anciennes aventures afin que nous puissions multiplier nos efforts dans le monde et qu’un jour nous venions effectivement nous manifester à vos frères et sœurs qui cherchent la Vérité. Quelle aubaine pour l’humanité ce serait. Quel grand pas en avant, bien que ce ne soit pas l’antidote à toutes les erreurs et les ténèbres dans votre monde, car il y aura beaucoup de gens qui refuseront de croire que nous sommes réels et présents. Mais en effet, il y en aura beaucoup qui sentiront dans leur cœur que c’est un vrai signe de Dieu, que Ses anges peuvent venir et parler et se manifester afin qu’ils puissent voir avec leurs yeux physiques, entendre avec leurs oreilles physiques, et savoir par la perception de leur esprit que Dieu ne les a pas abandonnés, qu’ils sont en effet aimés, qu’il y a quelque chose de bien plus important dans la vie que ce que tant de gens ont compris.
 

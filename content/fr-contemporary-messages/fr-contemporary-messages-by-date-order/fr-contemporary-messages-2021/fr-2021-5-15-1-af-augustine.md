@@ -9,7 +9,7 @@ weight:
 ---
 ### En fait, vous êtes sur la bonne voie
 
-Augustin - reçu par Al Fike le 15 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 15 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 En effet, il y a un plan, bien-aimés. Je suis votre enseignant Augustin et, comme nous l’avons suggéré, vos efforts se combineront pour former un grand courant de service et d’amour pour beaucoup de personnes dans le monde. Il n’y a rien dont vous deviez vous inquiéter quand il s’agit de permettre et d’alimenter ce courant, car nous sommes fermement responsables de ce résultat, car la volonté de Dieu agit ici.
 

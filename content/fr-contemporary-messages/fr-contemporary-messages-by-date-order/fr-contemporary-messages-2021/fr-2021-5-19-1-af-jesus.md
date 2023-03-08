@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 8 : La vie sur d’autres planètes prête à nous aider sur Terre
 
-Jésus - reçu par Al Fike le 19 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 19 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis venu énoncer une autre leçon et un autre enseignement pour l’édification et l’intérêt de ceux qui souhaitent lire ces leçons sur la vérité spirituelle. Je suis Jésus. Je suis avec vous aujourd’hui pour vous parler de ces choses.
 

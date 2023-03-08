@@ -9,7 +9,7 @@ weight:
 ---
 ### Cet amour vous transportera à la fontaine de la grâce
 
-Yogananda - reçu par Jimbeau Walsh le 3 Mai 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 3 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je viens dans cette église sans murs, sans grand édifice, sans tous les pièges du matérialisme spirituel, seulement cette prière très simple et directe pour l’Amour de Dieu. Vous n’êtes pas attirés ici pour rechercher des signes magiques, des manifestations spirituelles, mais vous venez surtout pour ne faire qu’Un avec Dieu dans la simple ouverture de vos âmes par le très Saint Esprit de Dieu.
 

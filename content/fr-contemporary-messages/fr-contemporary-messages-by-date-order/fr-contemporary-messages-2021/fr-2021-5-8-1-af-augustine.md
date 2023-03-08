@@ -9,7 +9,7 @@ weight:
 ---
 ### Avancez en tant qu’instruments de lumière
 
-Augustin - reçu par Al Fike le 8 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 8 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, votre enseignant Augustin, et j’ai été avec vous dans vos conversations. Le défi et le dilemme d’accomplir l’œuvre de Dieu dans le monde, ce monde matériel qui est le vôtre, est en cours depuis des éons de temps, car chacun de vous, sur cette Terre, est un vaisseau imparfait de la volonté de Dieu.
 

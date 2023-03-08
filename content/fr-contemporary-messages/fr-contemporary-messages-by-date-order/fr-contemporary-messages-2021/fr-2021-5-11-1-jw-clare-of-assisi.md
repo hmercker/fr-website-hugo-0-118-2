@@ -9,7 +9,7 @@ weight:
 ---
 ### Un lieu sacré
 
-Claire d'Assise - reçu par Jimbeau Walsh le 11 Mai 2021, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 11 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Claire. Je viens dans ce cercle de lumière, et je ne souhaite pas perturber cette paix, mais seulement vous rappeler de faire de cet endroit un sanctuaire. Un lieu non seulement d’apprentissage des vérités mais un lieu sacré où vous pouvez tout donner à Dieu sans crainte de représailles ou de jugement.
 

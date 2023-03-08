@@ -9,7 +9,7 @@ weight:
 ---
 ### Explorez la vérité avec vos âmes
 
-James Padgett - reçu par Jimbeau Walsh le 13 Mai 2021, Punalu’u, Oahu, Hawaii, USA
+James Padgett - reçu par Jimbeau Walsh le 13 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère, ami et guide, James Padgett.
 

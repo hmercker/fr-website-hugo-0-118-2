@@ -9,7 +9,7 @@ weight:
 ---
 ### Comprendre Dieu
 
-James Padgett - reçu par Jimbeau Walsh le 10 Juin 2021, Punalu’u, Oahu, Hawaii, USA
+James Padgett - reçu par Jimbeau Walsh le 10 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère et humble serviteur, James Padgett. J’ai écouté aujourd’hui les lectures et les discussions intenses sur le sujet *« Qui et qu’est-ce que Dieu ? »*, avec des extraits tirés des messages que j’ai reçus de Jésus et des esprits Célestes.
 

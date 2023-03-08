@@ -9,7 +9,7 @@ weight:
 ---
 ### Pentecôte
 
-Augustin - reçu par Al Fike le 23 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 23 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 N’y a-t-il pas un jour où Dieu offre à Ses enfants une plus grande plénitude de l’Amour Divin ? Mais celui-ci, comme chaque jour, a le potentiel pour que la grande expérience de la Pentecôte ait lieu. Je suis votre enseignant, Augustin. Je viens vous assurer, âmes bien-aimées, que chaque jour apporte cette bénédiction dans la même mesure et la même occasion de recevoir ce cadeau que vous appelez la Pentecôte, qui fut la réponse de Dieu aux prières de ceux qui suivirent le Maître Jésus sur terre et qui furent très élevés et bénis à la suite de ces prières, dont l’intensité était puissante et concentrée et montrait une grande foi en chacun. En effet, ces amis et disciples de Jésus, véritables et bien-aimés, ont mis de côté leurs soucis et leurs préoccupations et les ont remplacés par des prières et le désir d’être guidés et bénis par Dieu, car ils ont pris au sérieux les enseignements de Jésus et les ont appliqués aux dilemmes auxquels ils étaient confrontés à cette époque.
 

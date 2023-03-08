@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes tous engagés dans une entreprise gigantesque
 
-St Matthieu - reçu par Al Fike le 5 Mai 2021, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 5 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes précieuses et bien-aimées, je suis Matthieu. Nous sommes tous engagés dans une formidable entreprise, un projet qui est conçu pour construire un escalier vers une vérité plus élevée, vers un amour, et une lumière, plus grands. Chacun d’entre nous, y compris vous-mêmes, travaille énormément à la construction de cette structure afin que d’autres puissent marcher dessus et s’élever à chaque marche créée avec tant d’amour par chacun de vos efforts et nos efforts pour atteindre l’humanité en apportant la vérité de l’amour de Dieu aux âmes de ce monde.
 

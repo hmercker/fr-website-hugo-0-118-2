@@ -9,7 +9,7 @@ weight:
 ---
 ### Paix et Amour
 
-Mahatma Gandhi - reçu par Jimbeau Walsh le 17 Mai 2021, Punalu’u, Oahu, Hawaii, USA
+Mahatma Gandhi - reçu par Jimbeau Walsh le 17 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Gandhi. Je suis venu en paix, la grande paix de mon âme, reposé dans l’Amour de Dieu. Il y a tant de gens dans le monde qui s’accrochent au principe *« œil pour œil et dent pour dent »*, qui cherchent à se venger et se sentent justifiés de le faire. Propagés par les médias et les films, ce qu’on appelle les films d’action et les jeux pleins de violence, avec une sorte de détachement qui ne permet pas à l’âme de percevoir les effets de prendre une autre vie, une vie humaine.
 

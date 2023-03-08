@@ -9,7 +9,7 @@ weight:
 ---
 ### Les efforts des anges pour apporter la vérité sur Terre
 
-Seretta Kem - reçu par Al Fike le 9 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 9 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Je suis sûre que beaucoup d’entre vous ne voient ni ne reconnaissent la nature complexe de notre interaction entre vous sur les plans terrestres et nous dans les Cieux Célestes. Car il y a beaucoup de choses impliquées dans cette communication. Mais soyez assurés qu’elle est alimentée par l’amour et que l’Amour de Dieu est le grand instrument qui établit cette connexion entre nous. Votre désir que cet amour remplisse votre âme et notre désir, en tant qu’instruments de Dieu, d’accomplir Sa volonté, se rejoignent d’une manière puissante qui permet aux anges du ciel d’être présents sur votre plan terrestre. Deux endroits très différents, différents dans leurs caractéristiques, dans leur lumière et dans les conditions qui la soutiennent. Par vos prières et votre volonté d’être ouverts à notre présence, nous venons comme vous désirez être ouverts à Dieu, pour recevoir la bénédiction de Son amour. Ces choses sont interconnectées et cette énergie du ciel, comme vous l’appelleriez, est une grande bénédiction pour ceux d’entre vous sur Terre qui sont en accord avec elle et ouverts à elle. Ce que cela implique pour nous de passer de notre état céleste à votre plan terrestre est en effet très complexe.
 

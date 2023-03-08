@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 9 : Aborde la fausse doctrine de la réincarnation
 
-Jésus - reçu par Al Fike le 20 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 20 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je viens une fois de plus délivrer un message, car cet instrument est en bonne condition pour transmettre un tel message. Le sujet de ce message est la question de la réincarnation, qui est ce que vous appelez un sujet brûlant dans vos cercles spirituels et dans les nombreuses et diverses compréhensions spirituelles de votre époque.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes ici pour orchestrer cette musique de l’âme
 
-St Matthieu - reçu par Al Fike le 13 Avril 2021, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 13 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Je suis venu aujourd’hui pour apporter un peu de clarté et d’explication sur ce qui est possible dans ces cercles, alors que vous vous réunissez, priez et faites partie de ce Cercle de Lumière. Lorsque vous atteignez le plus haut, lorsque vos prières font mouche et apportent une réponse de Dieu à votre âme, vous déclenchez une série d’événements et ouvrez une variété de possibilités pour que Dieu vous utilise comme instruments dans le monde.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque âme est unique
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 8 Juin 2021, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 8 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care. J’ai été avec vous aujourd’hui et j’ai tellement apprécié l’harmonie qui s’est installée entre ma famille biologique et spirituelle.
 

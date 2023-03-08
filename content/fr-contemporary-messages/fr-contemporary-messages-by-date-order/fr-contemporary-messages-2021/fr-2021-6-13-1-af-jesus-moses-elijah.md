@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions de lumière pour le monde
 
-Jésus & Moïse & Elie - reçu par Al Fike le 13 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Jésus & Moïse & Elie - reçu par Al Fike le 13 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 **Bénédictions à vous tous, âmes bien-aimées. Je suis Moïse.**
 

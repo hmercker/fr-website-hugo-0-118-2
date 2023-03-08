@@ -9,7 +9,7 @@ weight:
 ---
 ### Reconnaître que la main de Dieu est vraiment dans ce travail
 
-Professeur Salyards - reçu par Al Fike le 1 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 1 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Et oui, je suis votre professeur Salyards. Nous avons suivi votre conversation aujourd’hui, car nous continuons à être proches de chacun d’entre vous et à essayer, à notre manière, de vous aider à poursuivre votre voyage sur le chemin du développement.
 

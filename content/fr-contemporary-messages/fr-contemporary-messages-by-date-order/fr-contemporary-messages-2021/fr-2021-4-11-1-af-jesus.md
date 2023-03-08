@@ -9,7 +9,7 @@ weight:
 ---
 ### Déposez votre manteau de protection et venez nu à Dieu
 
-Jésus - reçu par Al Fike le 11 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 11 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je vous bénis, enfants bien-aimés. Dans le monde entier, vous êtes venus à la vérité dans sa pureté et sa lumière. Je suis Jésus, je viens aujourd’hui pour être avec vous dans la prière. Combien, dans votre monde, se sont permis d’être ouverts et vulnérables à Dieu. Au contraire, ils portent leurs manteaux, ces choses si proches d’eux, qui apportent une protection à leurs idées mentales et à ces conditions en eux qui ne sont pas en harmonie avec l’amour et, à travers ces manteaux, ils voient le monde de façon obscure. Ils ne comprennent pas, et ils ont peur d’enlever ce manteau, de se tenir spirituellement nus devant Dieu, vulnérables, cherchant Ses bénédictions, cherchant Son amour. Et pourtant, ceux d’entre vous qui viennent de tous les coins du monde l’ont fait, ont demandé à Dieu Ses bénédictions, et vous n’avez pas demandé des mots compliqués ou des vérités écrites comme des édits, inébranlables dans leurs idées, incapables de plier et de bouger avec le développement. Ainsi, vous devez réaliser, âmes bien-aimées, que la vérité changera au fur et à mesure que vous changerez, la compréhension de cette vérité viendra d’une manière qui n’est pas de votre mental, et qui ne se trouve pas dans le livre. Elle vient avec l’éveil de vos âmes, elle vient avec votre compréhension que Dieu est amour, et l’Amour de Dieu pour vous est éternel et immense dans Sa puissance et Sa gloire pour chacun de vous et pour chaque âme sur votre monde et chaque âme dans le monde de l’esprit, l’Amour de Dieu est au-delà de toute mesure.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Croyance et foi
 
-Augustin - reçu par Al Fike le 16 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 16 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées. Je suis votre enseignant Augustin. C’est l’intensité et la puissance de votre foi qui vous maintiendra dans la lumière. Sans ce sentiment, cette compréhension et cette connaissance, sure et inébranlable, que vous êtes avec Dieu, et que vos âmes sont en alignement avec Dieu, alors vous n’êtes pas les canaux clairs et magnifiques de l’Amour de Dieu que vous êtes censés être. En effet, votre mental continue à étouffer votre esprit, à vous convaincre que les choses du plan matériel sont les éléments les plus importants de votre vie. Et pourtant, dans ce monde qui est le vôtre, vous êtes conscients de ce qui est nécessaire et de ce qui est requis, et c’est de forger votre relation avec Dieu. Dieu n’insiste pas pour que vous le fassiez, Dieu ne fait pas de décrets ou de marchandages avec ses enfants. Dieu attend simplement vos prières et votre attention sur Lui, à travers la conscience de vos âmes. Il en va de même pour la foi. Vous venez à Dieu avec la foi. Vous dites vos prières et, avec la foi, vous demandez à Dieu d’apporter des bénédictions à vos frères et sœurs, et à vous-même.
 

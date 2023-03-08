@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour de Dieu ouvre le cœur et transforme l'âme
 
-St Luc - reçu par Jimbeau Walsh le 26 Avril 2021, Punalu’u, Oahu, Hawaii, USA
+St Luc - reçu par Jimbeau Walsh le 26 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je viens en présence du Dieu le plus saint de tous. Le Dieu de l’amour. Car n’est-ce pas l’amour qui vous amène ici ? N’est-ce pas l’amour qui guérit ? N’est-ce pas l’amour qui élève votre âme ? Cet amour de Dieu n’apporte-t-il pas la foi ? N’est-ce pas la réponse à vos espoirs, vos rêves, vos désirs d’être transformés dans l’amour, d’être changés ?
 

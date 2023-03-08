@@ -9,7 +9,7 @@ weight:
 ---
 ### La voie Divine est différente de la voie naturelle
 
-Lao Tseu - reçu par Al Fike le 8 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Lao Tseu - reçu par Al Fike le 8 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Lao Tseu. Je fus autrefois, il y a de très nombreuses années, un philosophe, un enseignant et un guide spirituel dans votre monde. Je suis depuis longtemps dans le monde de l’esprit et j’ai progressé dans le Royaume Céleste. J’aimerais donc vous parler des voyages de l’âme. Pour beaucoup de gens dans votre monde, ces voyages commencent par une compréhension rudimentaire d’eux-mêmes et de leurs propres potentiels et ils s’efforcent de se perfectionner de nombreuses et diverses façons. Leur voyage spirituel commence souvent par des réflexions, des compréhensions qui sont des fabrications intellectuelles et ils commencent donc un voyage pour perfectionner ces choses en eux, que Dieu a instillées dans chaque être humain. Ce voyage, nous l’appelons la route de l’amour naturel, car c’est en perfectionnant la condition humaine et le potentiel humain que ces attributs de l’amour émergent dans toute leur pureté et leur lumière, et ils sont beaux à voir.
 

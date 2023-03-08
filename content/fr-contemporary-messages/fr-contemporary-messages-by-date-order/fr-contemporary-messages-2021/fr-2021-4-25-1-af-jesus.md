@@ -9,7 +9,7 @@ weight:
 ---
 ### Concentrez-vous sur votre conscience
 
-Jésus - reçu par Al Fike le 25 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 25 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus et je suis venu pour être avec vous dans la prière. Comme Dieu a ouvert de nombreuses portes pour que nous puissions être ensemble aujourd’hui dans cette communion de prière, ce rassemblement d’âmes, cherchant la bénédiction de l’Amour de Dieu sur elles. Pour chacun de vous, âmes bien-aimées, de nombreuses portes seront ouvertes alors que vous continuez à marcher dans le monde dans la foi, alors que vous continuez à chercher l’Amour du Père dans la prière, alors que vous continuez à vous ouvrir à la Volonté de Dieu. Ainsi, Dieu ouvrira de nombreuses portes pour permettre votre éducation spirituelle, votre croissance, votre illumination et votre service dans le monde, car avec le don de Son Amour, ces portes s’ouvrent facilement, et de nombreuses opportunités se présentent dans votre vie.
 

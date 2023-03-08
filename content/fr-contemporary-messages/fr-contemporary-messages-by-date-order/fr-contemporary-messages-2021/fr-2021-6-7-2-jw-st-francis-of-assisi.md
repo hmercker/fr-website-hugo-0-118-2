@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour va changer le monde
 
-St François d'Assise - reçu par Jimbeau Walsh le 7 Juin 2021, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 7 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère en Christ, François. Lorsque j’ai su que je devais changer et que le changement ne pouvait venir que de Dieu, je me suis rendu. Car j’étais en guerre, littéralement, avec mes parents, la hiérarchie de l’église, et la disparité entre les riches et les pauvres. À l’époque, ce n’était pas tellement différent du monde dans lequel vous vous trouvez aujourd’hui, si ce n’est que vous pouvez être plus conscients des disparités partout dans le monde.
 

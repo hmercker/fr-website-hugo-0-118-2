@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédiction de la fête des mères
 
-Jésus - reçu par Al Fike le 9 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 9 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je viens, je suis Jésus. Je viens vous bénir tous alors que les Bénédictions de Dieu pleuvent sur vous, mes bien-aimés. Une multiplicité de bénédictions pour vous et pour ce monde, alors que Dieu continue à utiliser Ses canaux et Ses opportunités pour toucher les âmes de l’humanité sur ce monde. Ainsi, vous ouvrez les vannes par vos prières, une teinte arc-en-ciel de Lumière coulant sur votre Terre et sur tout ce pour quoi vous priez ; les belles âmes qui ont besoin de vos bénédictions, les bénédictions de Dieu, les bénédictions de vos prières. Ouvrez grand vos âmes, chacun d’entre vous, ouvrez grand vos âmes à l’influx de l’Amour de Dieu. Car c’est le moment où vous pouvez recevoir abondamment, alors que vous priez ensemble de cette manière et que nous vous rassemblons dans la Lumière, dans ce grand Cercle de Lumière. Puissiez-vous être réceptifs, en mettant de côté toutes les conditions du plan matériel et en vous ouvrant à ce véritable lieu de connaissance de Dieu. Nous sommes avec vous dans ce lieu de Lumière. Nous marchons avec vous alors que vous cherchez Dieu, afin que nous soyons tous enchantés par Sa Bénédiction d’Amour.
 

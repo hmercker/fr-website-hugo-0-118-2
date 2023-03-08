@@ -9,7 +9,7 @@ weight:
 ---
 ### Bienvenue et présentation d'un nouveau groupe de voix directes
 
-Seretta Kem - reçu par Al Fike le 29 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 29 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Nous sommes très heureux, chères et belles âmes. Je suis Seretta Kem. Oui, je serai le fer de lance de nos efforts, comme je l’ai fait dans le passé et comme je le serai à l’avenir. Je suis heureux d’envelopper et d’embrasser tous ceux d’entre vous qui sont intéressés et engagés dans cette grande aventure. Comme nos amis bien-aimés en ont parlé, il s’agit d’un engagement profond, mais il est également très en phase avec vos âmes et le progrès de vos âmes, car si vous continuez à prier pour que l’Amour du Père vous réveille, ces dons peuvent s’aligner et se manifester à travers vous.
 

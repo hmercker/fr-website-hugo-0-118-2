@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 11 : L’humanité se réveillera avec les changements terrestres à venir
 
-Jésus - reçu par Al Fike le 2 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 2 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus. Je viens une fois de plus vous parler. Je vois qu’il pèse sur l’esprit de cet instrument la brutalité et l’injustice qui ont été perpétrées par ceux qui sont au pouvoir et qui professent suivre mes enseignements, ceux qui, dans le passé, ont fait beaucoup de mal et de dégâts à de nombreux enfants et adultes dans le monde qui cherchaient à être réconfortés dans l’amour et la vérité. Mais au lieu de cela, ils ont perpétré l’erreur, la haine et le jugement. C’est en effet une grande tragédie, une grande tragédie que les perversions de la pensée et des actions de l’humanité de toutes sortes de manières et de moyens dans votre monde continuent à être exprimées, que beaucoup de ténèbres soient perpétrées au nom de la vérité et au nom de la convenance religieuse. C’est en effet une condition très triste.
 

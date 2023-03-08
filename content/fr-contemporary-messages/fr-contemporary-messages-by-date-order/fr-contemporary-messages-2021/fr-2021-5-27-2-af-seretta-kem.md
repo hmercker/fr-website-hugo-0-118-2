@@ -9,7 +9,7 @@ weight:
 ---
 ### Encourager le developpement de la voix directe dans le Monde
 
-Seretta Kem - reçu par Al Fike le 27 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 27 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Mon cher frère est plutôt surpris de me voir tel que j’étais sur Terre, et d’avoir la peau foncée, car j’étais Nubien <sup id=”a1”>[1](#f1)</sup> lorsque j’ai vécu votre planète, il y a plusieurs milliers d’années. Maintenant, ma peau est plus claire, comme c’est le cas pour tous ceux qui sont dans le Royaume Céleste. Nous avons un teint qui est d’une couleur commune lorsque nous choisissons de revêtir nos corps spirituels, car il y a des moments où nous ne le faisons pas et où nous sommes purement de la lumière de l’âme existant dans ces plans si infinis et merveilleux par nature.
 
@@ -26,4 +26,4 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis votre Seretta Kem qui sera �
 Que Dieu vous bénisse, âmes bien-aimées. Je suis proche comme beaucoup d’entre nous qui travaillent en alignement avec la volonté de Dieu pour l’établissement de la lumière et de la vérité sur ce monde. Que Dieu vous bénisse et vous garde près de lui, près de la lumière, près de l’amour, près de Dieu qui vous embrasse toujours. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> 1e peuple nubien vit aujourd’hui dans ce qui est le nord du Soudan et le sud de l’Égypte. Il s’agissait d’une ancienne civilisation africaine issue des premiers habitants de la vallée du Nil. Les rois nubiens ont régné sur l’Égypte en tant que pharaons pendant près de 100 anLs.[↩](#a1)
+1. <large id=”f1”> 1e peuple nubien vit aujourd’hui dans ce qui est le nord du Soudan et le sud de l’Égypte. Il s’agissait d’une ancienne civilisation africaine issue des premiers habitants de la vallée du Nil. Les rois nubiens ont régné sur l’Égypte en tant que pharaons pendant près de 100 ans.[↩](#a1)

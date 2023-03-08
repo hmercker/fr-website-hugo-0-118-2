@@ -9,7 +9,7 @@ weight:
 ---
 ### Un appel au leadership spirituel
 
-Jésus - reçu par Al Fike le 14 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 14 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Jésus. Je viens pour être avec vous dans la prière, belles âmes de lumière. Puissiez-vous continuer à demeurer dans la lumière de l’amour de Dieu. Puissiez-vous continuer à prier pour vos frères et sœurs qui partagent avec vous ce monde, ce don de Dieu, la vie imprégnée dans un monde que Dieu a créé pour élever et soutenir ses enfants et toute la création.
 

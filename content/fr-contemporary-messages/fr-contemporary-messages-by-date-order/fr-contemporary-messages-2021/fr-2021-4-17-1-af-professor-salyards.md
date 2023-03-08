@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous connaîtrez votre rôle à jouer
 
-Professeur Salyards - reçu par Al Fike le 17 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 17 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Voici votre professeur Salyards. Soyez assurés, mes chers et beaux amis, qu’il y a un plan et que votre défi et votre invitation sont d’être conscients, d’absorber et d’exprimer ce plan à travers vos efforts mutuels. Beaucoup de choses sont à venir qui vous tiendront tous occupés et engagés dans ces efforts pour apporter la vérité de l’Amour Divin à l’humanité. Cela va s’écouler, mes chers et beaux amis, cela va s’écouler et être évident sans trop de va-et-vient concernant les détails.
 

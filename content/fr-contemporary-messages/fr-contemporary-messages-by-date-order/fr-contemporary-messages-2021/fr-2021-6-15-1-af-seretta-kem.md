@@ -9,7 +9,7 @@ weight:
 ---
 ### Les conditions terrestres et le libre arbitre de chaque individu détermineront qui participera à la retraite
 
-Seretta Kem - reçu par Al Fike le 15 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 15 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis venu pour répondre à tes questions, ma fille bien-aimée. Tout d’abord, je dois dire qu’il est intéressant que certains pensent que depuis qu’ils ont été appelés, toutes les barrières et tous les obstacles de la condition humaine seront supprimés, que d’une certaine manière Dieu interviendra dans chaque situation afin d’assurer le déroulement d’une destinée particulière et la réalisation de son but.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### De nombreux saints ont prié de tout leur cœur pour l'amour de Dieu
 
-Yogananda - reçu par Jimbeau Walsh le 27 Mai 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 27 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre frère et ami et humble serviteur dans l’amour de Dieu. Je suis Yogananda. Notre cher frère James Padgett m’a permis de m’avancer aujourd’hui.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Priant pour nous à genoux
 
-Jésus - reçu par Al Fike le 1 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis avec vous tous, mes bien-aimés. Je viens. Je suis Jésus. Je viens parce que je veux que vous sachiez que je suis proche de chacun de vous. Même ceux qui ne me connaissent pas bien comprennent que je vous connais très bien, que je suis proche de chacun d’entre vous. Tous ces enfants sur la Terre qui viennent prier pour être avec Dieu, pour recevoir Son Amour sont mes frères et sœurs spéciaux sur la Terre et sachez que j’ai un grand amour pour vous tous et un sens de vos luttes, de vos personnalités, de votre vie. Je vous connais et je connais vos âmes, car je suis l’agent d’amour de Dieu, comme tous ceux qui appartiennent au Royaume Céleste. Je marche comme un exemple vivant de la puissance de l’Amour de Dieu dans l’individu. Je viens à vous en tant que votre frère et ami et je suis vraiment votre ami.
 

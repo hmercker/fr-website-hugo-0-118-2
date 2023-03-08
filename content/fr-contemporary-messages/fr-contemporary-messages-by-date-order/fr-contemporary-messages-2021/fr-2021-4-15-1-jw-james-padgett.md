@@ -9,7 +9,7 @@ weight:
 ---
 ### Explorez vos dons (2021 Groupe d’étude James Padgett)
 
-James Padgett - reçu par Jimbeau Walsh le 15 Avril 2021, Punalu’u, Oahu, Hawaii, USA
+James Padgett - reçu par Jimbeau Walsh le 15 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi votre frère James Padgett et je viens dans l’amour et la grâce de Dieu. Tout d’abord, permettez-moi d’exprimer ma profonde gratitude pour cette réunion, pour ainsi dire, en mon nom, pour avoir honoré ma vie, mon travail. Que cela vous bénisse tous. Il y a une chose qui devient évidente lorsqu’on discute des dons d’une personne, en particulier de ceux qui peuvent écrire des livres profonds, de belles chansons d’amour et des poèmes qui vous touchent le cœur, c’est que ces individus qui apportent leurs dons sont souvent très imparfaits du point de vue du monde, comme quelqu’un qui peut avoir un grand don mais qui n’est peut-être pas une si grande personne. Je ne veux pas dire ou suggérer que ceux qui apportent des cadeaux qui inspirent les gens sont mauvais, non, nous voyons seulement qu’ils, comme je l’étais, sont juste humains.
 

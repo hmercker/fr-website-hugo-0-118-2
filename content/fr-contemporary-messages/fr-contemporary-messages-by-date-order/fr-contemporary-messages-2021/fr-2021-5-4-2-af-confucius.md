@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédiction
 
-Confucius - reçu par Al Fike le 4 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 4 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 J’apporte une bénédiction de guérison pour vous, âmes bien-aimées, je suis Confucius. Chacun de vous est précieux et bien-aimé, chacun de vous est une âme précieuse, une partie du grand collier de perles, vous êtes les belles âmes de Dieu enfilées ensemble avec amour. Vous êtes donc bénis, mes bien-aimés, et bénis dans ce monde car vous êtes venus et avez accepté cette vérité de l’amour de Dieu dans vos cœurs et vos âmes. Et vous êtes venus à Dieu en le suppliant de vous transformer en Amour. Et ainsi tous les anges du Ciel sont appelés par Dieu à protéger et à nourrir ces âmes précieuses sur la terre, ceux qui font de grands efforts pour apporter la vérité à eux-mêmes et à leur vie, pour apporter la vérité aux autres. Vous êtes donc précieux pour nous, mes bien-aimés, très précieux en effet.
 

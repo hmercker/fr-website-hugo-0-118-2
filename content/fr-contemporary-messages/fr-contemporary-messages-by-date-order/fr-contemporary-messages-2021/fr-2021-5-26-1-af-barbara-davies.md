@@ -9,7 +9,7 @@ weight:
 ---
 ### Progression de la cinquième à la septième sphère
 
-Barbara Davies - reçu par Al Fike le 26 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Barbara Davies - reçu par Al Fike le 26 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, belles âmes. Je suis Barbara et je suis avec mes amis bien-aimés depuis ce soir. Je tiens à féliciter ma chère Terry pour ses efforts dans la cuisine. Elle a appris quelque chose et a déployé ses efforts avec amour. Comme je suis heureuse de voir mes chers et beaux amis réunis.
 

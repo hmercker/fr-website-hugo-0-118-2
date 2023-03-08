@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions spéciales pour nos familles, nos proches et tous ceux avec qui nous sommes en contact
 
-Jésus & Augustin - reçu par Al Fike le 2 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Jésus & Augustin - reçu par Al Fike le 2 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 *Que Dieu vous bénisse, âmes bien-aimées. Je viens. Je suis Jésus.* Je viens pour être avec vous dans la prière. Mes frères et sœurs bien-aimés sur ce monde, sachez que je suis proche de chacun d’entre vous et que j’ai prié avec chacun d’entre vous. Lorsque vos prières sont sincères pour recevoir le grand don de l’Amour de Dieu dans vos âmes, sachez que je suis venu et que j’ai doublé l’intensité de cette prière par ma présence avec vous, ouvrant un grand portail de Lumière qui est à votre avantage.
 

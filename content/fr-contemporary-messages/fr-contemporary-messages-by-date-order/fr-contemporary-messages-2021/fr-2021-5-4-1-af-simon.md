@@ -9,7 +9,7 @@ weight:
 ---
 ### Suivez-nous au Royaume des Cieux
 
-Simon - reçu par Al Fike le 4 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Simon - reçu par Al Fike le 4 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu étende Sa grande couverture de lumière sur vous, âmes bien-aimées. Je m’appelle Simon. Je réside dans le Royaume Céleste avec tous mes beaux frères et sœurs. Nous vivons dans le paradis de l’Amour de Dieu qui nourrit constamment nos âmes. Nous venons donc à vous, frères et sœurs bien-aimés, pour vous encourager à continuer à prier pour ce don afin que vous puissiez vous aussi nous rejoindre dans ce paradis rempli d’amour, cet endroit que Dieu a ouvert pour nous, afin que nous puissions résider dans l’amour et la joie éternels, et ce pour toute l’éternité.
 

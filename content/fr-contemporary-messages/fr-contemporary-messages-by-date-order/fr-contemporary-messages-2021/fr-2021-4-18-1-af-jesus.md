@@ -9,7 +9,7 @@ weight:
 ---
 ### Le toucher puissant de Dieu
 
-Jésus - reçu par Al Fike le 18 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 18 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Jmes précieuses et bien-aimées, je viens, je suis Jésus. Je viens vous rassembler dans une bénédiction de Dieu afin que nous soyons tous réunis dans ce Cercle de Lumière pour recevoir la bénédiction de la grande Âme de Dieu donnée à votre âme par l’Esprit Saint, Sa manifestation et Son messager d’Amour.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### C’est simple
 
-Yogananda - reçu par Jimbeau Walsh le 12 Avril 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 12 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre ami et frère dans l’Amour de Dieu, Yogananda. Je viens dans cette paix à ce cercle de lumière et à ce merveilleux afflux de l’Amour de Dieu dans chaque âme. Lorsque vous permettez à vos âmes de s’ouvrir et à vos cœurs d’être dans un lieu sûr et dans l’étreinte de notre Créateur aimant, c’est le désir avant les mots qui atteint Dieu, qui vous couvre d’une effusion de lumière avec la grande bénédiction de Son amour.
 

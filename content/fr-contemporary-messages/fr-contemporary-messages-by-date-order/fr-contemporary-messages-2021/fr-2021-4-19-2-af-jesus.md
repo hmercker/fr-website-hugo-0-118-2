@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 3 : Comment contrecarrer la condition humaine
 
-Jésus - reçu par Al Fike le 19 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 19 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je viens une fois de plus délivrer un message important pour l’humanité. Je souhaite évoquer le sujet de la neutralisation et de la lutte contre la condition humaine sur votre plan terrestre, la manière dont vous pouvez apporter une plus grande lumière dans vos vies personnelles et, par votre propre discipline et votre compréhension des lois de l’attraction, vous isoler des conditions accablantes qui accompagnent l’influence de l’humanité sur votre plan terrestre.
 

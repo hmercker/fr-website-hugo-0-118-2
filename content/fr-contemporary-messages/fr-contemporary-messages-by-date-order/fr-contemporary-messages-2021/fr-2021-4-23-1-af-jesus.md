@@ -9,7 +9,7 @@ weight:
 ---
 ### La puissance de l’Amour de Dieu
 
-Jésus - reçu par Al Fike le 23 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 23 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu apporte Ses bénédictions sur vous, âmes bien-aimées. Je suis Jésus, je viens prier avec vous, pour vous rassurer que chacun réside dans la Lumière, que vos âmes continuent de désirer Dieu et que Dieu répond en infusant vos âmes de Son Amour.
 

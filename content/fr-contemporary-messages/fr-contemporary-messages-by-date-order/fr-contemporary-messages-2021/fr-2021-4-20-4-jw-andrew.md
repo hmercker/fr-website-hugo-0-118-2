@@ -9,7 +9,7 @@ weight:
 ---
 ### Les Bénédictions de Dieu
 
-André - reçu par Jimbeau Walsh le 20 Avril 2021, Punalu’u, Oahu, Hawaii, USA
+André - reçu par Jimbeau Walsh le 20 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Vos prières ont été entendues, âmes bien-aimées. Je suis André. Nous rassemblons chacun d’entre vous, nous vous rassemblons dans ce lieu enveloppé de lumière, au-delà du plan terrestre, au-delà de ces conditions qui pourraient nuire à ces bénédictions. Nous vous rassemblons donc dans ce Cercle de Lumière et vos âmes s’en réjouissent. Notre espoir, notre fervent espoir, est que vous en veniez à reconnaître, à ressentir et à connaître cette condition que nous avons construite pour vous abriter dans la prière afin que vos prières puissent aller plus loin et plus profondément vers Dieu, afin que vos âmes puissent s’ouvrir plus pleinement à l’étreinte et à la bénédiction de Dieu sur vous.
 

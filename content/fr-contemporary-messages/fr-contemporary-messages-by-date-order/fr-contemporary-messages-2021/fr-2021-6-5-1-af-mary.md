@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez l’ami affectueux de l’autre
 
-Marie - reçu par Al Fike le 5 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Marie - reçu par Al Fike le 5 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions de paix, bénédictions d’amour, et tout ce qui est de la Lumière et de Dieu, que ceci soit votre bénédiction aujourd’hui. Je suis Marie et je viens prier avec vous dans cette Lumière, dans cette grande salle dans laquelle nous nous rassemblons et faisons partie les uns des autres en tant que frères et sœurs dans cette grande famille de l’Amour. Nous faisons vraiment partie les uns des autres. Et il en sera ainsi pour toute l’éternité, pour tous ceux d’entre vous qui continuent sur ce chemin Divin. Nous serons ensemble dans cette grande Lumière et Dieu nous bénira puissamment. Jour après jour, nous serons dans cette Lumière et nous serons bénis plus pleinement dans Son Amour.
 

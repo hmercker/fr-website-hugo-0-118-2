@@ -9,7 +9,7 @@ weight:
 ---
 ### Prier avec une intention et une motivation aimantes
 
-Mylora - reçu par Al Fike le 16 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Mylora - reçu par Al Fike le 16 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Mes précieux et bien-aimés amis, je vous remercie pour vos prières et vos intentions aujourd’hui. Je m’appelle Mylora. J’ai le don de la guérison. Au fond de mon cœur, Dieu a créé un grand sens de la compassion et de l’amour pour l’humanité et pour tous les esprits et les anges de notre monde.
 

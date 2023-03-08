@@ -9,7 +9,7 @@ weight:
 ---
 ### Qu'est-ce qui est requis pour l’Harmonie ?
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 5 Mai 2021, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 5 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Charles. Mes chers amis sur ce chemin de l’Amour Divin. Vous qui êtes attirés par les arts créatifs dans le chant, la danse, le théâtre et au-delà, il y a beaucoup de guérison à obtenir.
 

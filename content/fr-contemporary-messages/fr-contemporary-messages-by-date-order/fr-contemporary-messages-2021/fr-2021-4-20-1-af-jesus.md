@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 4 : Le pouvoir de l’amour pour guérir la condition humaine
 
-Jésus - reçu par Al Fike le 20 Avril 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 20 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus. Je viens une fois de plus pour élaborer sur la condition humaine et pour exprimer davantage nos perceptions et nos préoccupations concernant les conditions du plan terrestre. Bien que dans le passé, j’ai passé beaucoup de temps et d’efforts à décrire cette perspective que nous avons tellement éloignée de cette condition terrestre, je souhaite continuer avec quelques détails supplémentaires quant aux causes et aux effets du comportement humain dans votre vie moderne actuelle.
 

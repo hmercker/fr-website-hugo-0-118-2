@@ -9,7 +9,7 @@ weight:
 ---
 ### Une ampoule dans une pièce sombre (2021 Groupe d’étude James Padgett)
 
-James Padgett - reçu par Jimbeau Walsh le 29 Avril 2021, Punalu’u, Oahu, Hawaii, USA
+James Padgett - reçu par Jimbeau Walsh le 29 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami dans l’Amour de Dieu et j’ai été avec vous pendant cette session, rayonnant de la joie de votre voyage, de votre désir de comprendre, de cette transformation de l’âme, de ces vérités que j’ai reçues.
 

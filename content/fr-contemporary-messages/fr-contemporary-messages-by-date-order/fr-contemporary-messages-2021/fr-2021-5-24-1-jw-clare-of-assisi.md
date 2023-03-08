@@ -9,7 +9,7 @@ weight:
 ---
 ### Le choix judicieux
 
-Claire d'Assise - reçu par Jimbeau Walsh le 24 Mai 2021, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 24 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Mes chers, c’est moi, Claire d’Assise. Mon cher frère, mon bien-aimé François, à un moment donné de son voyage sur terre, a fait un choix. Vous, ici dans ce cercle de lumière, avez fait un choix, celui de permettre à vos âmes d’être changées, de s’éveiller à l’amour de Dieu pendant que vous marchez sur la terre.
 

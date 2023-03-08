@@ -9,7 +9,7 @@ weight:
 ---
 ### Allez à l’intérieur et permettez à Dieu d’ouvrir votre âme
 
-Eileen Caddy - reçu par Jimbeau Walsh le 20 Avril 2021, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 20 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici votre sœur et amie, Eileen Caddy. Toutes les prières qui émanent de l’âme, prononcées avec le cœur, atteignent l’âme de Dieu.
 

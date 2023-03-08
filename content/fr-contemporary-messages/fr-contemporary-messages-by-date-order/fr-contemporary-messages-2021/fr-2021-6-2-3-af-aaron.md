@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous supplie de faire notre part pour être intégrés
 
-Aron - reçu par Al Fike le 2 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Aron - reçu par Al Fike le 2 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Aaron. Je viens vous implorer de marcher dans le monde avec résolution, résolution vers la lumière et la vérité, vers l’accomplissement de la volonté de Dieu dans votre vie et vers la réception de l’Amour de Dieu dans votre âme. Je sais que la résolution n’est pas souvent considérée comme un attribut de l’âme, mais en effet, elle peut l’être et peut être une grande force sur votre chemin vers Dieu. Le fait d’être dans cet état de désir extrême, de marcher dans la grâce et la détermination constitue une force formidable dans le monde.
 

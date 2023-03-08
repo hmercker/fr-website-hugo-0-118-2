@@ -9,7 +9,7 @@ weight:
 ---
 ### Grande miséricorde pour nous qui vivons avec les conditions du monde
 
-Augustin - reçu par Al Fike le 11 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 11 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant, Augustin.
 

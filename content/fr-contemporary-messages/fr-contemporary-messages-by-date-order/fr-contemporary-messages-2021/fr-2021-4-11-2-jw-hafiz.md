@@ -9,7 +9,7 @@ weight:
 ---
 ### Cette Attente, ce Désir
 
-Hafiz - reçu par Jimbeau Walsh le 11 Avril 2021, Punalu’u, Oahu, Hawaii, USA
+Hafiz - reçu par Jimbeau Walsh le 11 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-haffiz.jpg)
 

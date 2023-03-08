@@ -9,7 +9,7 @@ weight:
 ---
 ### Océan infini
 
-Hafiz - reçu par Jimbeau Walsh le 2 Juin 2021, Punalu’u, Oahu, Hawaii, USA
+Hafiz - reçu par Jimbeau Walsh le 2 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici, Hafiz
 Debout sur le rivage

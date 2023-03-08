@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuez à apporter cette lumière dans le monde
 
-George Gurdjieff - reçu par Jimbeau Walsh le 14 Juin 2021, Punalu’u, Oahu, Hawaii, USA
+George Gurdjieff - reçu par Jimbeau Walsh le 14 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, George Gurdjieff. Je suis né au 19ème siècle dans un endroit qui se trouve aujourd’hui en Arménie mais qui faisait alors partie de l’Empire Russe et qui était un carrefour entre la Russie tsariste et l’Empire Ottoman et entre les Christianismes Arménien et Grec. J’ai été élevé dans la tradition Chrétienne Grecque-Arménienne, mais en tant que jeune homme, j’avais faim de la vérité. Au cours de mes voyages, j’ai rencontré des suffis, des moines, des fakirs et des ascètes, et j’ai visité des écoles de traditions très anciennes dont le but était de relier ceux qui venaient à la Présence de Dieu, à l’Amour de Dieu. J’ai eu une expérience d’éveil qui m’a laissé dans un état que je qualifierais de conscience constante, de prière constante. Je ne souhaitais pas être enfermé dans un monastère ou une grotte, car j’avais appris de certains de mes maîtres à vivre dans le monde mais à ne pas en faire partie.
 

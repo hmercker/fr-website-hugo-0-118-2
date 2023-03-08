@@ -9,7 +9,7 @@ weight:
 ---
 ### Réponse aux questions sur le cercle de développement (2021 Voix Directe II)
 
-Seretta Kem - reçu par Al Fike le 9 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 9 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Ämes bien-aimées, je suis Seretta Kem. Je suis venu pour répondre à tes questions, fille bien-aimée. Oui, nous sommes heureux qu’il y ait plus de ramifications de vos efforts pour développer la Voix Directe. Nous continuerons à soutenir et à défendre ces efforts. Nous ne pouvons pas déterminer qui arrivera sur le pas de votre porte, car nous ne pouvons pas contourner le libre arbitre, mais de nombreux candidats sont intéressés et chacun apportera ses forces, ses bénédictions et ses dons particuliers pour contribuer à cet effort. Mais c’est à eux de décider et c’est à vous d’accepter toute combinaison et tout regroupement qui pourrait se former avec votre invitation.
 

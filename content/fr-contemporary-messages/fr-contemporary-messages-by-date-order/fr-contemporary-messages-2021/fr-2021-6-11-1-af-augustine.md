@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière pour invoquer la lumière dans le monde
 
-Augustin - reçu par Al Fike le 11 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 11 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénies, âmes bien-aimées. Je suis votre enseignant, Augustin. Nous sommes tous avec Dieu en ce moment. Car chacun d’entre vous est venu dans ce cercle de lumière avec les désirs sincères de l’âme qui cherche à être avec Dieu. Et ainsi, Dieu répond en déversant son amour sur vous, vous unifiant tous ensemble dans ce grand cercle de lumière. Je vous exhorte, âmes bien-aimées, à ouvrir grand vos âmes et à implorer Dieu avec tout le sérieux et le désir nécessaires. Ne vous présentez pas à Dieu à moitié, mais soyez pleinement présents dans les grandes bénédictions, la lumière et la présence de Dieu. Car vous êtes tous précieux pour Dieu. Vous êtes tous ses enfants et vous êtes vraiment aimés. Lorsque vous attirez à vous cette grande lumière, lorsque vous cherchez dans votre cœur à ressentir ce désir si intense et si puissant d’être avec Dieu, les lois, l’interaction et la réponse apportent une lumière autour de vous et de nombreuses bénédictions dans votre être et votre présence, où que vous soyez dans le monde. Ceux pour qui vous avez prié sont également bénis. Ceux que vous aimez sont également bénis et ceux qui sont connectés à ce groupe sont bénis. Car dans la puissance de cette lumière générée dans la présence de Dieu, que vous avez invoquée avec la grande bénédiction d’amour que vous avez demandée, il y a une réponse puissante. Ainsi, les lois sont respectées et la réponse est claire et sans équivoque dans son toucher sur vous tous.
 

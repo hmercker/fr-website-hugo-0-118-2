@@ -9,7 +9,7 @@ weight:
 ---
 ### Satisfait des nouveaux développements de la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 30 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 30 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 C’est Seretta Kem. Vous vous lancez donc dans une nouvelle étape de cette grande aventure dans laquelle vous vous êtes engagés à servir, et à soutenir ceux qui souhaitent servir dans ces capacités. Je vous félicite pour votre dévouement et votre désir de servir de cette façon. En répandant la possibilité de ces formes de communication dans le monde, vous renforcez le plan de Dieu pour le salut de l’humanité.
 

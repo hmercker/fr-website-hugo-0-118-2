@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 10 : Voyage vers une âme éveillée
 
-Jésus - reçu par Al Fike le 28 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 28 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-spiritualite-14.jpg)
 
@@ -97,6 +97,9 @@ C’est un voyage infini, âmes bien-aimées, un voyage qui commence par le prem
 
 Vous serez profondément bénis, mes bien-aimés, et vous l’êtes. Vous parviendrez à comprendre à quel point vous êtes profondément bénis. Vous en viendrez à connaître Dieu et à le voir comme votre grand protecteur, votre guide, votre Père ou Mère Céleste, votre bel et parfait ami qui viendra toujours à vous et vous embrassera dans Ses bras aimants. De cette façon, de grandes révélations, de la joie, de qui vous êtes vraiment se déploieront au cours de ce voyage infini vers l’union avec Dieu.
 
-Que Dieu vous bénisse, âmes bien-aimées. J’aimerais pouvoir partager davantage sur les capacités et les aspects de l’âme en vous. Mais en effet, il y aura un moment où je pourrai communiquer avec vous d’une manière telle que vous comprendrez et absorberez vraiment ce que j’ai à partager. Il viendra un temps dans le futur où je vous parlerai directement à tous sans avoir besoin d’utiliser cette forme de communication. En ce temps-là, cette ouverture des révélations, je parlerai librement et partagerai librement avec vous tous.
+Que Dieu vous bénisse, âmes bien-aimées. J’aimerais pouvoir partager davantage sur les capacités et les aspects de l’âme en vous. Mais en effet, il y aura un moment où je pourrai communiquer avec vous d’une manière telle que vous comprendrez et absorberez vraiment ce que j’ai à partager. Il viendra un temps dans le futur où je vous parlerai directement à tous sans avoir besoin d’utiliser cette forme de communication <sup id="a1">[1](#f1)</sup>. En ce temps-là, cette ouverture des révélations, je parlerai librement et partagerai librement avec vous tous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Puissions-nous tous parvenir à de plus grandes révélations, car il n’y a pas de limite à celles-ci, et être en plus grand alignement avec Dieu. Ainsi, le voyage vers la joie, la vraie et merveilleuse joie, continue. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous, votre frère et ami Jésus. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Il s'agit très certainement d'une référence aux projets actuels de développement de [voix directe](/fr-direct-voice/).[↩](#a1)

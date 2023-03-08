@@ -9,7 +9,7 @@ weight:
 ---
 ### La lumière grandit en nous quand nous prions pour l'Amour Divin
 
-St Matthieu - reçu par Al Fike le 25 Mai 2021, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 25 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
 Alors que les conditions mondaines entrent et sortent de votre vie, sachez que, parce que vous avez forgé cette fidélité à Dieu qui s’efforce d’éveiller votre âme, qui s’efforce de faire en sorte que Son essence, Son amour, s’écoule en elle dans une mesure toujours plus grande, que ces conditions ne vous affectent pas comme elles le font pour beaucoup d’autres, que, même si vous pouvez être conscient de ces conditions, ce que nous appelons la condition humaine a perdu sa puissance dans votre vie. Vous êtes arrivés à un endroit de plus grande lumière, de résistance et de force de la lumière, qui s’est produite grâce aux effets, aux effets transformateurs de l’Amour de Dieu dans vos âmes.
 

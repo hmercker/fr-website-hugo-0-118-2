@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils aux enseignants du groupe d'étude Padgett
 
-James Padgett - reçu par Jimbeau Walsh le 9 Mai 2021, Punalu’u, Oahu, Hawaii, USA
+James Padgett - reçu par Jimbeau Walsh le 9 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère James Padgett. Je vais essayer de vous donner un exemple très simple de la grâce de Dieu. Qui peut expliquer les histoires des roses ? Et pourtant, vous savez que c’est un signe. C’est une confirmation du lien entre l’âme et son Créateur. C’est la preuve vivante d’une communication avec le monde des esprits. Parce que vous priez, les signes que vous recevez viennent des Cieux Célestes.
 

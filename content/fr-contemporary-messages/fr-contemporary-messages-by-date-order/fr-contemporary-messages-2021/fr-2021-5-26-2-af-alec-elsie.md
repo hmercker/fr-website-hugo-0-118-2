@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions de mentors qui sont des âmes sœurs
 
-Alec & Elsie - reçu par Al Fike le 26 Mai 2021, Gibsons, Colombie-Britannique, Canada
+Alec & Elsie - reçu par Al Fike le 26 Mai 2021, Berkley Rd, Colombie-Britannique, Canada.
 
 **Je m’appelle Alec.**
 
