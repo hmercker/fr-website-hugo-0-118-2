@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour Divin est le rocher de la vérité
 
-St Jean - reçu par Al Fike le 4 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 4 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Puissiez-vous continuer à résider et à bâtir vos fondations sur le roc de la vérité. Je suis Jean, Jean le Bien-Aimé, et je viens aujourd’hui me joindre à vous dans la prière.
 

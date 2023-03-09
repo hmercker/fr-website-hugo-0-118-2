@@ -9,7 +9,7 @@ weight:
 ---
 ### La loi du donner et du recevoir
 
-Mylora - reçu par Maureen Cardoso le 16 Septembre 2021, Abbotsford, Colombie-Britannique, Canada
+Mylora - reçu par Maureen Cardoso le 16 Septembre 2021, Abbotsford, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-le-soutien-de-dieu.jpg)
 

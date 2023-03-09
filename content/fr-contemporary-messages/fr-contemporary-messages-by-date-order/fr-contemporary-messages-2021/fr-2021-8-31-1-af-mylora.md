@@ -9,7 +9,7 @@ weight:
 ---
 ### Priez pour les personnes qui vous sont chères
 
-Mylora - reçu par Al Fike le 31 Août 2021, Gibsons, Colombie-Britannique, Canada
+Mylora - reçu par Al Fike le 31 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions pour vous, amis de la terre, enfants de Dieu. Je suis Mylora et je viens apporter une bénédiction de guérison et d’élévation pour vous tous, pour prier avec vous pour le grand cadeau de l’Amour de Dieu, pour être avec vous dans cette grâce de Son amour et de Ses bénédictions sur chacun de vous. Amis bien-aimés et magnifiques, puissiez-vous continuer à voyager sur le chemin de la lumière et de la vérité, à être les instruments de Dieu pour l’amour, la guérison, la paix et le confort pour vos frères et sœurs.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Ajustements à l'ouverture de nos dons spirituels (2021 Voix Directe II)
 
-Seretta Kem - reçu par Al Fike le 14 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Vous commencez à comprendre vos sensibilités et ce qui peut résulter du temps que vous passez ensemble dans ce cercle de développement et d’éveil. Parfois, cela peut être une surprise, un défi alors que vous trouvez votre chemin dans le labyrinthe des diverses perceptions et du développement de diverses facultés en vous. Il y a toujours un besoin d’ajustement lorsqu’il s’agit du développement des dons psychiques et des facultés spirituelles. Cela ne peut être évité. Car comme toute chose dans le plan matériel, il est nécessaire de s’adapter à de nouvelles conditions et à de nouvelles situations.
 

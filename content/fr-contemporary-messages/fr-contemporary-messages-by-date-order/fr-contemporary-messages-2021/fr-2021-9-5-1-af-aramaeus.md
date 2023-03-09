@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour Divin ne contourne pas vos leçons (Retraite Voix Directe 2021)
 
-Aramée - reçu par Al Fike le 5 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Aramée - reçu par Al Fike le 5 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 À vous, âmes bien-aimées.
 

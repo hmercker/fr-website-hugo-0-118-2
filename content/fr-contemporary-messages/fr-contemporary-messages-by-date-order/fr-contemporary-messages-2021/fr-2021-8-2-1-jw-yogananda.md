@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre cœur vous conduira à Dieu
 
-Yogananda - reçu par Jimbeau Walsh le 2 Août 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 2 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Que la Grâce de notre Père Céleste soit sur vous comme une douce pluie remplie de Sa lumière et de Son amour dans la Paix de Sa Présence. C’est vraiment simple et pourtant l’esprit humain a tendance à analyser. En fin de compte, n’est-il pas vrai que vous souhaitez simplement ressentir l’Amour de Dieu, Sa Grâce, avec votre âme qui ne fait qu’un avec la Grande Âme, en laissant aller toutes vos préoccupations, tous vos problèmes dans la simple félicité de vos désirs d’âme qui se connectent avec l’amour de Dieu ? Je l’ai déjà dit : *« C’est le Yoga Divin ! »*
 

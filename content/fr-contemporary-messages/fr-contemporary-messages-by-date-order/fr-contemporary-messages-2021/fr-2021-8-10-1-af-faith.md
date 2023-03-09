@@ -9,7 +9,7 @@ weight:
 ---
 ### Priez pour le monde, en particulier pour le Centre mondial de guérison
 
-Faith - reçu par Al Fike le 10 Août 2021, Gibsons, Colombie-Britannique, Canada
+Faith - reçu par Al Fike le 10 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 La paix qui surpasse toute compréhension soit avec vous mes frères et sœurs bien-aimés. Je suis Faith, et je te remercie ma sœur pour sa prière pour cet endroit lointain qui a besoin de vos prières et je vous remercie tous de prier pour le monde car en effet, le monde a besoin de vos prières, de vos dons d’amour, de votre lumière et de tous les cadeaux que vous transportez, ces choses sont grandement nécessaires dans votre monde. Et comme vous êtes avec Dieu, puissiez-vous sentir la joie dans votre cœur qui vient avec le Toucher de Dieu dans votre âme, car cette joie et cette élévation sont un grand tonique pour les malheurs du monde. Cependant Dieu ne souhaite pas que Ses enfants marchent dans la morosité, l’inquiétude et la préoccupation pour tout ce qui ne va pas dans votre monde. C’est lorsque vous portez la lumière dans votre vie et que vous restez dans la joie que vous êtes l’instrument le plus puissant du Toucher de Dieu.
 

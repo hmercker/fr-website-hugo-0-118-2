@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus nous appelle à être ses disciples
 
-Jésus - reçu par Al Fike le 29 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 29 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 La grâce de Dieu soit sur vous, âmes bien-aimées. Je suis votre frère, Jésus. Je viens avec vos prières et vos désirs de bénédictions pour ce monde, pour vos proches, pour tous ceux qui sont dans votre orbite de lumière. Je viens parce que vous êtes dans l’orbite de ma lumière, et mes frères et sœurs que j’aime et dont je me soucie. Je suis avec vous, âmes bien-aimées, je suis avec vous, dans la lumière et l’amour, dans la grâce et la paix. Mes prières sont que l’Amour du Père puisse continuer à remplir votre âme, vous transformant à chaque respiration, à chaque instant de vos vies, pour être dans cette grâce bénie de Dieu, dans ce toucher bien-aimé de Dieu, élevant, guérissant et transformant. Ceux qui prient avec moi sont vraiment mes frères et sœurs. Ceux qui prient pour la vérité de l’Amour de Dieu seront les agents actifs du changement dans le monde. Chacun d’entre vous trouvera sa voie sur ce chemin de service pour apporter la grâce et la vérité au monde en démontrant cette vérité et en touchant de nombreuses âmes, car Dieu vous utilisera, âmes bien-aimées.
 

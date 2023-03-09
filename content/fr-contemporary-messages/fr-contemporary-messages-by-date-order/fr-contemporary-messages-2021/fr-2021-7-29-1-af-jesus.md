@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 14 : L’âme changée par la bénédiction de l’Amour Divin changera le monde
 
-Jésus - reçu par Al Fike le 29 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 29 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-eveil-spirituel-1.jpg)
 

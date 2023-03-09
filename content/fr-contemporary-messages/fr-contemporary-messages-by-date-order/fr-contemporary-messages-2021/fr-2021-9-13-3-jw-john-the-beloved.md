@@ -9,7 +9,7 @@ weight:
 ---
 ### Alignez vos cœurs dans la foi
 
-Jean le Bien Aimé - reçu par Jimbeau Walsh le 13 Septembre 2021, Punalu’u, Oahu, Hawaii, USA
+Jean le Bien Aimé - reçu par Jimbeau Walsh le 13 Septembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Mes chers frères et sœurs, dans la Grâce de Dieu, je vous salue.
 

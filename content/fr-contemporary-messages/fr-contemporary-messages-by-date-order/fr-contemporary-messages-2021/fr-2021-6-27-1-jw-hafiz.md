@@ -9,9 +9,9 @@ weight:
 ---
 ### Poèmes de Haffiz
 
-Hafiz - reçu par Jimbeau Walsh le 27 Juin 2021, Punalu’u, Oahu, Hawaii, USA
+Hafiz - reçu par Jimbeau Walsh le 27 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
-Et si un ange venait dans votre maison
+#### Et si un ange venait dans votre maison
 
 Pensez-vous que vous auriez besoin de tous ces meubles
 Qui encombrent votre maison
@@ -52,7 +52,7 @@ Brûlez
 Toutes les impuretés
 Quand puis-je venir vous rendre visite ?
 
-Le trésor enfoui et le ROI
+#### Le trésor enfoui et le ROI
 
 Êtes-vous toujours à la recherche d’un trésor enfoui ?
 Cet illusoire pot d’or

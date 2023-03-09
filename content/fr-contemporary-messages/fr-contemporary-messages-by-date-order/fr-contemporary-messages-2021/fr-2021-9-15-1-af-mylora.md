@@ -9,7 +9,7 @@ weight:
 ---
 ### Accueille Lorraine à la retraite Voix Directe
 
-Mylora - reçu par Al Fike le 15 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Mylora - reçu par Al Fike le 15 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Chers amis, je suis Mylora.
 

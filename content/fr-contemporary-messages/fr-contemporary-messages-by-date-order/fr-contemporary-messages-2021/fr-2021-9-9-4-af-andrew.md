@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous nous réveillons ! (2021 Voix directe II)
 
-André - reçu par Al Fike le 9 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 9 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Nous sommes tous profondément bénis par la présence de vos guides et de vos présences dans nos vies. Ils ont été spécialement sélectionnés pour allumer vos dons qui aideront au processus d’éveil, à cette transformation qui a lieu. Ensemble, nous générons une grande force et un catalyseur qui réveille beaucoup de choses en nous, nous unit et ouvre nos perceptions et notre véritable sens du soi.
 

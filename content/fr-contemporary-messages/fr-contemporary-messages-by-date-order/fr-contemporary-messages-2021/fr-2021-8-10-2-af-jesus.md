@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 16 : Appel à tous les porteurs de lumière pour aider à construire un nouveau monde
 
-Jésus - reçu par Al Fike le 10 Août 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 10 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus. Je viens une fois de plus pour parler, pour partager mes perceptions et ma sagesse avec vous, car comme vous le savez, le monde a un profond besoin de vérité, de compréhension, de lumière, de sagesse, de compassion et d’amour.
 

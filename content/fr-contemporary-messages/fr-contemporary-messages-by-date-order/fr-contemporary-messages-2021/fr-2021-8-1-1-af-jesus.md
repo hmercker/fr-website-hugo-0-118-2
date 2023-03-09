@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous avez choisi d’être des lumières dans le monde
 
-Jésus - reçu par Al Fike le 1 Août 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2021-attraction-spirituelle.png)
 

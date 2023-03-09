@@ -9,7 +9,7 @@ weight:
 ---
 ### Rappel affectueux de l'importance de nos préparatifs
 
-Seretta Kem - reçu par Al Fike le 3 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 3 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Comme nous vous l’avons assuré et informé, il y a divers obstacles et défis qui seront évidents avant que vous ne vous réunissiez en tant que groupe. Pour la plupart, vous avez surmonté ces choses dans une large mesure. Je vous invite maintenant à continuer à concentrer vos pensées et vos prières sur Dieu, à vous préparer du mieux que vous pouvez à ce qui est nécessaire et à ce qui sera requis pour vos efforts communs.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Parler du service (Retraite Voix Directe 2021)
 
-Faith - reçu par Al Fike le 12 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Faith - reçu par Al Fike le 12 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Faith. Je souhaite vous parler du pouvoir de la démonstration de la vérité, du fait que vous ne pouvez pas vous contenter de prononcer des mots ou de remettre un livre à quelqu’un d’autre en disant « c’est la vérité ». Vous devez la suivre, surtout à notre époque. C’est une époque de scepticisme, de matérialisme, où beaucoup n’ont pas l’inclination ou le désir de penser au-delà du superficiel. En effet, beaucoup sont endormis et ne souhaitent pas être réveillés de leur sommeil.
 

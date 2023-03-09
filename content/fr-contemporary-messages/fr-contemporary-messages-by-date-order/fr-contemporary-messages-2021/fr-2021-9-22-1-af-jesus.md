@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus inaugure une nouvelle ère (Retraite Voix Directe 2021)
 
-Jésus - reçu par Al Fike le 22 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 22 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus.
 

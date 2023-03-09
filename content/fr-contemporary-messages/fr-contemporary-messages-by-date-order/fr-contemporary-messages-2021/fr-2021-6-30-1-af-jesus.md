@@ -9,7 +9,7 @@ weight:
 ---
 ### Venez prier avec nous
 
-Jésus - reçu par Al Fike le 30 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 30 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bien-aimés, je suis votre frère et votre ami Jésus, et je viens parce que vous avez pensé à moi et m’avez attiré avec vos intentions et vos prières. Et je viens parce qu’en effet, mon ministère n’a jamais cessé sur cette terre, bien qu’il y ait des moments où ce que j’ai apporté a été grandement obscurci par les pensées et les intentions de l’humanité, mais néanmoins, je suis venu à travers tous ces âges du temps pour être avec mes frères et sœurs sur la terre et je continuerai à le faire jusqu’à ce que tous les esprits et tous les mortels soient élevés dans la lumière et la vérité, qu’ils entrent dans les domaines de l’amour naturel dans le ciel ou dans les Cieux Célestes.
 

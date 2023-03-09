@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions sur Nos voyages… Une porte s’ouvre (Retraite Voix Directe 2021)
 
-Jésus - reçu par Al Fike le 4 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 4 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Jésus. Je suis venu pour être avec vous dans la prière aujourd’hui, car n’est-ce pas un jour mémorable alors que vous commencez vos voyages pour vous réunir ? Vous êtes donc bénis par Dieu, guidés par Dieu dans vos voyages. Le grand voyage de l’éveil de l’âme est sur le point de prendre un autre virage où de nouvelles découvertes viendront. De nouveaux éveils apporteront un nouveau départ dans votre conscience, une nouvelle compréhension, de nouvelles capacités à aimer et à être aimé.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Satisfaits de nos progrès
 
-Seretta Kem - reçu par Al Fike le 31 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 31 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Il est bon de voir que la paix règne parmi les enfants. Je suis Seretta Kem et je suis venu pour être avec vous aujourd’hui, de belles âmes toutes désireuses, dévouées, brillantes à l’intérieur. Quel cadeau c’est pour nous, dans le Royaume Céleste, de travailler avec de si belles âmes. Chacun d’entre vous continue à travailler avec diligence pour illuminer vos âmes dans l’Amour du Père, pour vous éveiller à la vérité, pour marcher dans le monde comme un canal d’amour et de lumière. Vous êtes chacun un cadeau pour le monde parce que vous vous êtes efforcés d’aller au-delà des préoccupations matérielles et des importations qui sont si dévorantes pour beaucoup sur votre monde. Ceux qui sont dans une profonde pauvreté aspirent également à la vie matérielle et ceux qui sont dans une grande richesse aspirent également à une vie plus matérielle. Cela semble être un cycle sans fin et un désir de gain matériel, de sécurité et de luxe dans votre monde. Ceci, comme nous vous l’avons dit et le savons bien, tue cette belle planète, ce désir lascif qui consume tant de gens.
 

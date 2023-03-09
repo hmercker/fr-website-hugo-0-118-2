@@ -9,7 +9,7 @@ weight:
 ---
 ### Suivez la joie
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 22 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 22 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care. Que l’amour de Dieu bénisse chacun d’entre vous et vous apporte la paix.
 

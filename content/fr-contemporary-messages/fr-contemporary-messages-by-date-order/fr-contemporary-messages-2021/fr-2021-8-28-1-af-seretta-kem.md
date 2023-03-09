@@ -9,7 +9,7 @@ weight:
 ---
 ### Tous vos proches seront bénis
 
-Seretta Kem - reçu par Al Fike le 28 Août 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 28 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Le temps presse et nous sommes heureux que vous fassiez des plans pour vous rassembler et que ceux qui ne peuvent pas être ici dans la chair s’engagent à vous soutenir dans la prière. Le fait d’avoir ce soutien de la part de tous ceux qui le peuvent aidera à réunir les conditions et les énergies pour le bénéfice de ce groupe de développement.
 

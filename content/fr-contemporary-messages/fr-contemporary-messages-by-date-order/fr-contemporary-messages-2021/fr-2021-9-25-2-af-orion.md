@@ -9,7 +9,7 @@ weight:
 ---
 ### Message de clôture de la retraite VD (2021- Voix Directe II)
 
-Orion - reçu par Al Fike le 25 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 25 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 C’est un privilège de servir des âmes aussi sérieuses qui cherchent un monde meilleur et qui cherchent à s’améliorer dans ce monde. Un privilège parce que vous avez contribué à votre monde d’une manière telle qu’un tournant a été atteint et que de nouvelles possibilités ont été ouvertes. Vous nous procurez une grande joie en voyant comment vous, dans vos efforts, avez apporté une si grande réponse dans l’univers de Dieu.
 

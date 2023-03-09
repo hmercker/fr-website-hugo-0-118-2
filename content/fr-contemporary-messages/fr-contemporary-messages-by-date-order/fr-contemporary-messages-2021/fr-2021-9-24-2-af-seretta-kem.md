@@ -9,7 +9,7 @@ weight:
 ---
 ### Franchir une nouvelle étape (Retraite Voix Directe 2021)
 
-Seretta Kem - reçu par Al Fike le 24 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 24 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Demain, dans la chambre noire, vous vivrez quelque chose de différent de ce qui s’est passé au cours des dernières semaines. Ce sera un avant-goût de ce qui est à venir en ce qui concerne le prochain niveau ou la prochaine phase de développement. Nous serons en mesure d’accomplir ce développement sans votre présence physique dans les semaines et les mois à venir, à condition que vous conveniez d’un jour et d’une heure particuliers pour vous réunir. Mais ce temps passé dans cette pièce sera un catalyseur pour ce que nous avons l’intention de faire dans votre phase de développement.
 

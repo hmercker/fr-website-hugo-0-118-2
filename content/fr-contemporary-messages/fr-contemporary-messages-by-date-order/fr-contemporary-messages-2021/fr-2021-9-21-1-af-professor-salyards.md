@@ -9,7 +9,7 @@ weight:
 ---
 ### Atteindre l’alignement pour être dans la plus haute condition (Retraite Voix Directe 2021)
 
-Professeur Salyards - reçu par Al Fike le 21 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 21 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Merci pour votre belle prière. Je suis le professeur Salyards et je souhaite vous parler de vos progrès à ce jour, de la façon dont vous avez vécu et perçu beaucoup de choses sur cette courte route qui vous a réunis. Le mot alignement a été utilisé par beaucoup d’entre vous et c’est un mot très approprié, car c’est dans la concentration et l’alignement de vos perceptions, de vos désirs, de vos dons, de votre âme, avec Dieu que se trouvent les résultats les plus recherchés. Imaginez que vous êtes une lentille qui n’est pas au point, qu’il faille un effort et un peu de concentration pour mettre au point cette lentille de manière à ce que tous les éléments de votre être s’alignent, et que la lumière ne soit pas diffuse mais se propage presque comme un laser vers Dieu. Cet alignement entraîne une réponse puissante de notre Créateur, car vous avez appris à utiliser les mécanismes de votre âme, de votre esprit et de votre mental pour obtenir une réponse directe de Dieu.
 

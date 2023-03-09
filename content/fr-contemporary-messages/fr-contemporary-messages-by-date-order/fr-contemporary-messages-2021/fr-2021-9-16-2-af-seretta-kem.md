@@ -9,7 +9,7 @@ weight:
 ---
 ### Explique l'intégration psychique/mentale (Séminaire Voix Directe 2021)
 
-Seretta Kem - reçu par Al Fike le 16 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 16 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse mes amis, je suis Seretta Kem.
 

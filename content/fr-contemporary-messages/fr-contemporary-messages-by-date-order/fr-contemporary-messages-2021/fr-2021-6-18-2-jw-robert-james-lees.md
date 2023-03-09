@@ -9,7 +9,7 @@ weight:
 ---
 ### Je vous guiderai
 
-Robert James Lees - reçu par Jimbeau Walsh le 18 Juin 2021, Punalu’u, Oahu, Hawaii, USA
+Robert James Lees - reçu par Jimbeau Walsh le 18 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Robert Lees, votre frère en Christ. J’ai suivi <sup id=”a1”>[1](#f1)</sup> aujourd’hui ce que vous avez perçu, avec beaucoup de bonheur et de gratitude. Je suis très impressionné par le fait que vos âmes puissent déchiffrer le sens profond des mots que j’ai reçus, car ils traversent un langage plus contemporain et la qualité d’âme qu’ils possèdent.
 

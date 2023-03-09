@@ -9,7 +9,7 @@ weight:
 ---
 ### Avoir la foi plutôt que la peur alors que les conditions changent dans le monde
 
-Augustin - reçu par Al Fike le 17 Août 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 17 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que la paix qui surpasse toute compréhension soit vôtre, âmes bien-aimées, que vous veniez au Père avec des cœurs ouverts et des âmes ouvertes, buvant dans Son nectar d’amour. Je suis votre enseignant, Augustin, et oui, les conditions de votre monde indiquent que tout ne va pas bien et, comme nous l’avons prédit, ces conditions continuent à s’aggraver, et beaucoup souffrent en conséquence. Ne voyez-vous pas que notre venue auprès de vous tous sur le plan terrestre fait partie du plan qui a été conçu depuis de nombreux siècles, que nous avons vu et que nous avons compris que les changements dans votre monde vont se précipiter, rapprocher le plan de Dieu pour le salut de l’humanité et permettre la réalisation des grands changements à venir. Âmes bien-aimées, chacune d’entre vous est attirée, chacune d’entre vous a choisi de s’incarner en ce moment sur ce monde, chacune d’entre vous a passé sa vie à chercher la vérité, à chercher, afin d’être en alignement avec Dieu. Chacune d’entre vous a des dons que Dieu lui a accordés, chacune d’entre vous a réalisé qu’il y a un but dans votre vie, et que le flux de votre vie est comme vous ensemble dans le cercle de lumière.
 

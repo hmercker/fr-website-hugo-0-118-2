@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuez à chercher la conscience de l'âme
 
-St Matthieu - reçu par Al Fike le 15 Juin 2021, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 15 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Matthieu. Le monde de l’homme est un monde rempli de tromperie et d’erreur. Le monde que vous avez construit, la réalité que l’humanité s’est construite par ses affirmations et ses déductions réfléchies, n’est pas nécessairement en alignement avec le monde de Dieu et ce que Dieu a créé. Ainsi, la volonté de l’homme a créé un schisme entre lui et Dieu, et il est difficile pour beaucoup d’entre vous sur le plan terrestre de réparer ce schisme et d’amener la réalité de Dieu dans vos cœurs, vos esprits et vos âmes. Mais en effet, cette lutte doit être une poursuite et un effort quotidiens pour libérer l’erreur et adopter la vérité ; non pas cette vérité qui vous vient par déduction logique ou même celle qui vient des cinq sens, où vous êtes bien rodés à ces choses.
 

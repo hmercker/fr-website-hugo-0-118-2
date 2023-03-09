@@ -9,7 +9,7 @@ weight:
 ---
 ### Débriefing d'Al sur son expérience dans la chambre noire (Séminaire Voix Directe 2021)
 
-Al Fike - reçu par Al Fike le 13 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Al Fike - reçu par Al Fike le 13 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Al : Ce n’était pas intéressant sur le plan psychique mais certainement très intéressant sur le plan physique, très puissant et je me sens comme un homme nouveau, je me sens revigoré, habilité et clair et en harmonie, je me suis senti comme si… Quand je suis entré dans la chambre noire, nous étions tous en harmonie et c’était palpable, l’harmonie dans cette chambre. J’avais l’impression que nous étions déjà là-haut, ou du moins que nous avions une longueur d’avance pour y arriver. Vous savez, j’ai fait le contraste avec notre première expérience dans la chambre noire et ce qu’on avait ressenti et ce qu’on ressent maintenant. Je veux dire que nous faisons des progrès, nous faisons des progrès. Ce sentiment, cette sorte de sens de l’âme, c’est ce que j’ai expérimenté aujourd’hui dans la chambre noire avec l’étendue, la joie, la clarté, la lumière, mais sans vraiment voir la lumière, juste en ressentant la lumière qui était là. J’ai eu une expérience où tout mon corps a tremblé et vibré, cela n’a pas duré très longtemps, mais… haha.
 

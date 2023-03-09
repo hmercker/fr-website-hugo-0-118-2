@@ -9,7 +9,7 @@ weight:
 ---
 ### La présence de l’Amour dans nos âmes
 
-Judas - reçu par Jimbeau Walsh le 26 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 26 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-le-bon-samaritain.jpg)
 

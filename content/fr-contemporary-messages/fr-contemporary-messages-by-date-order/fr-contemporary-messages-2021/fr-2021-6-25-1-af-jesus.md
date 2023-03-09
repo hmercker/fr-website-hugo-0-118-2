@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 13 : Changements terrestres à venir
 
-Jésus - reçu par Al Fike le 25 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 25 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je viens vous parler des temps qui viennent sur votre plan terrestre et vous assurer qu’un monde nouveau ne sera pas un monde hostile à l’humanité, mais plutôt un monde qui apportera davantage d’attentions et de soutien à ceux qui vivent sur le plan terrestre. C’est l’humanité qui s’est causée de si grandes difficultés et qui a érigé de telles barrières contre le flux naturel et l’ordre naturel que Dieu a créé dans votre monde.
 

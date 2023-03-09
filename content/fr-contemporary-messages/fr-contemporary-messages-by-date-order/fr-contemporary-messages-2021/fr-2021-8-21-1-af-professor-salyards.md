@@ -9,7 +9,7 @@ weight:
 ---
 ### Reposez-vous sur vos lauriers et faites une pause
 
-Professeur Salyards - reçu par Al Fike le 21 Août 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 21 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Vous avez tous bien travaillé, mes amis, je suis le professeur Salyards. Je vous recommande de faire une pause car je sais que vous êtes engagés dans d’autres projets, des projets importants. Cette pause vous permettra de vous ressourcer lorsque vous reviendrez à vos tâches et d’arriver avec des perspectives, et une compréhension, renouvelées de vos efforts communs.
 

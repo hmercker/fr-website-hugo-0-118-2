@@ -9,7 +9,7 @@ weight:
 ---
 ### Rappelez-vous l’importance de guider les enfants
 
-Fred Rogers <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 5 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+Fred Rogers <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 5 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami en Christ. Je suis Fred Rogers.1 Bonjour à tous ! Aloha Jimbeau !
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Avoir de l’espoir
 
-Amon - reçu par Jimbeau Walsh le 2 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+Amon - reçu par Jimbeau Walsh le 2 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Amon. Mes chers enfants de la terre, je me suis toujours sentie comme votre mère et je viens comme une enfant du Père rachetée dans Son Amour, car nous sommes tous Ses enfants. Ensemble mon Aman bien-aimé, le premier homme, et moi-même, nous nous sommes vus offrir le don de l’Amour Divin que nous avons malencontreusement rejeté. Ce fut comme le merveilleux Élie, qui est apparu avec Moïse et le Maître lors de la transfiguration, dont la foi fut un fil puissant qui a maintenu, en tant que précurseur du Maître, son peuple connecté à Dieu. Le maître est ensuite venu avec la ré-attribution de ce grand don que vous avez tous reçu et continuez à recevoir.
 

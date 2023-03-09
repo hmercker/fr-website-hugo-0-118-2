@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous saurez quand faire un pas en avant
 
-Seretta Kem - reçu par Al Fike le 17 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 17 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes bien-aimées, je suis Seretta Kem. Ne sentez-vous pas l’enthousiasme monter dans vos âmes à mesure que vous vous rapprochez de cette date où vous vous réunirez ? N’avez-vous pas ressenti les ministères des Anges alors que vous vous préparez dans la prière et dans vos esprits, vos pensées, à être ensemble dans ce cercle harmonieux de lumière ? Ne voyez-vous pas que chacun de vous a devant lui une grande opportunité, une belle ouverture que Dieu lui a donnée dans le service ? Et que l’intention de Dieu est que vous accomplissiez votre destinée en recevant ce don et en l’exprimant lorsque le moment sera venu ? Oui, de grands changements continuent d’engloutir votre terre et ils seront encore plus grands au fil du temps. Ces opportunités de vous réunir comme vous le souhaitez seront diminuées par ces conditions changeantes, donc les opportunités qui vous sont offertes maintenant sont précieuses et importantes, et nous désirons que vous profitiez au maximum de votre temps et que vous tiriez le meilleur parti de ce temps de préparation.
 

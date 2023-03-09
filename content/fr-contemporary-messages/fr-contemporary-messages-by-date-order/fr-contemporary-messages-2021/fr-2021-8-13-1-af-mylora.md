@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédiction de guérison - Un jardin en vous
 
-Mylora - reçu par Al Fike le 13 Août 2021, Gibsons, Colombie-Britannique, Canada
+Mylora - reçu par Al Fike le 13 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que l’Amour de Dieu réveille vos âmes, mes beaux amis. Je suis Mylora et je viens apporter mon toucher de guérison ainsi que le toucher de guérison de Dieu pour aider à vous élever tous, pour apporter la paix parmi vous, pour apporter une joie qui est un sentiment d’âme proche de Dieu, une joie de toute la beauté qui est en vous, aspirant, aspirant à son expression, libérant toute la lumière dans le monde. Bien-aimés, âmes bien-aimées, vous êtes des lumières. Que cette lumière éclate dans le monde comme un canal de l’Amour de Dieu, comme une expression des belles âmes que Dieu a créées, chacune unique, chacune résidant en vous – cette belle, belle âme remplie de tant de potentiels, de possibilités et de dons à éveiller.
 

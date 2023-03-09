@@ -9,7 +9,7 @@ weight:
 ---
 ### Affirme sa collaboration avec Seretta Kem
 
-Orion - reçu par Al Fike le 16 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 16 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Orion, et nous vous assistons dans ce processus d’éveil, en vous ouvrant à cette nouvelle façon d’être, de voir et de savoir.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Introduction d’une autre planète (Retraite Voix Directe 2021)
 
-Orion - reçu par Al Fike le 7 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 7 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Salutations et bénédictions, enfants de la Terre. Je suis Orion. Je suis venu pour que vous puissiez me connaître, car je travaille avec cette chère fille et je travaille avec vous tous dans vos efforts pour éveiller l’humanité à un état supérieur de conscience et de vigilance, afin qu’avec le temps, l’humanité puisse embrasser l’univers entier dans sa compréhension et son acceptation de tout ce que le Grand Créateur de Tout a mis en place. Le voyage de la vie comprend de nombreuses couches d’expérience et de conscience que l’humanité s’est refusée à elle-même parce qu’elle ne veut pas dépasser sa vision statique de la réalité, sa vision centrée sur un endroit, une planète qui, dans de nombreux esprits, est le centre de tout ce que Dieu a créé. Mais en vérité, votre seule planète n’est qu’un minuscule aspect de tout ce qui est dans la création de Dieu. Elle est comme un grain de sable au bord de la mer. Imaginez, mes amis, que la vie abonde en tant d’endroits que vous ne pouvez pas compter, que la création de Dieu est infinie et généreuse.
 

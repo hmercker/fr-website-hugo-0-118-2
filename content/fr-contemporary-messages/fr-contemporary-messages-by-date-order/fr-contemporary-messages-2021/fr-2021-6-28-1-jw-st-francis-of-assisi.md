@@ -9,7 +9,7 @@ weight:
 ---
 ### Partager l'amour de Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 28 Juin 2021, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 28 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère en Christ, Francis. Vous avez été informé que bien que vous puissiez recevoir l’Amour de Dieu, vous ne pouvez pas mettre son amour dans une autre âme, car seul Dieu peut le faire. Mais comme vous le savez peut-être, lorsque vous aimez les autres avec l’Amour de Dieu, vous les touchez, vous les impressionnez avec grâce.
 

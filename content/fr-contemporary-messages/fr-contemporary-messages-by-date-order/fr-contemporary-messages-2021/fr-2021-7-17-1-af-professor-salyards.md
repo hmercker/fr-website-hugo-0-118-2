@@ -9,7 +9,7 @@ weight:
 ---
 ### Le don de Dieu est d'ouvrir cette porte pour vous
 
-Professeur Salyards - reçu par Al Fike le 17 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 17 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Salutations à vous, âmes bien-aimées, je suis votre professeur Salyards. Je viens une fois de plus pour vous encourager dans vos efforts. Je sens que votre élan s’essouffle un peu, mais en effet, comme tout dans votre vie terrestre, les choses vont et viennent au fil du temps. Mais vous retrouverez votre élan, et il y aura un grand enthousiasme dans vos cœurs, vos âmes et vos esprits pour poursuivre ce travail.
 

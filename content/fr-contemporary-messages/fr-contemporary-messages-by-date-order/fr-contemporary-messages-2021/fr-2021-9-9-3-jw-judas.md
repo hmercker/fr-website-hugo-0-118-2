@@ -9,7 +9,7 @@ weight:
 ---
 ### Recommencer à zéro
 
-Judas - reçu par Jimbeau Walsh le 9 Septembre 2021, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 9 Septembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Judas.
 

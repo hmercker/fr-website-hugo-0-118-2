@@ -9,7 +9,7 @@ weight:
 ---
 ### Tout est entre les mains de Dieu
 
-Goldie - reçu par Al Fike le 19 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Goldie - reçu par Al Fike le 19 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 J’aime l’idée d’une célébration, je suis Goldie. En effet, tout ce qui apporte de la joie, j’aime, j’aime beaucoup. C’est ce que vous devez faire, mes amis, c’est ce que vous devez faire, apporter de la joie partout où vous allez. Ne vous prenez pas au sérieux au point que la joie, l’humour et la bonne volonté ne fassent pas partie de tout ce que vous faites, car la vie n’a-t-elle pas le potentiel d’apporter une plus grande joie ? Ce que Dieu nous a donné à tous n’est-il pas une grande opportunité d’être dans la lumière, de s’élever et de s’alléger dans nos vies ?
 

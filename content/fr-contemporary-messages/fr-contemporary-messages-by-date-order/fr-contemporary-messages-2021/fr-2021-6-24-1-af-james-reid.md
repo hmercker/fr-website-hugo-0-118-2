@@ -9,7 +9,7 @@ weight:
 ---
 ### Entrerai bientôt dans les Cieux Célestes
 
-James Reid - reçu par Al Fike le 24 Juin 2021, Gibsons, Colombie-Britannique, Canada
+James Reid - reçu par Al Fike le 24 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je m’appelle James Reid. Je suis venu parce que je souhaite partager avec vous un grand triomphe dans ma vie spirituelle dans le monde de l’esprit, et c’est que je suis sur le point d’entrer dans le Royaume Céleste. Je réside actuellement dans la septième sphère et je me suis frayé un chemin jusqu’au sommet de cette sphère de vie à plusieurs niveaux et je vais m’embarquer dans le Royaume Céleste très prochainement.
 

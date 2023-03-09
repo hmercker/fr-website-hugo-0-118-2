@@ -9,7 +9,7 @@ weight:
 ---
 ### Toutes les âmes de l’univers sont créées avec le libre arbitre de suivre la voie naturelle ou divine (Retraite Voix Directe 202I)
 
-Orion - reçu par Al Fike le 23 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 23 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Belles âmes, je suis Orion. Je souhaite que vous sachiez que Dieu a ensemencé de nombreux endroits dans l’univers avec des âmes qui attendent leur voyage de retour vers Dieu. Alors qu’Il jette ces graines, ces étincelles de lumière qui proviennent de Son âme et de Ses impulsions créatives, lorsque ces graines atteignent un sol fertile, elles prennent vie et ainsi commence le voyage de l’âme. La vie commence dans le grand ventre de Dieu. À travers les véhicules d’un corps et d’un esprit, Dieu veille à ce que chaque âme soit pourvue afin qu’elle puisse vivre une vie matérielle et une vie spirituelle. Et au fur et à mesure que cette graine germe, l’unicité, la fraîcheur de cette création individuelle de Dieu est réalisée, tous ses potentiels attendant encore de croître, de s’éveiller.
 

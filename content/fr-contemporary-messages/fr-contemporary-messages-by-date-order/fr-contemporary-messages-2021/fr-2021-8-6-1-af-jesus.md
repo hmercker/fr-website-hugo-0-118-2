@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 15 : Affecter le changement dans le monde
 
-Jésus - reçu par Al Fike le 6 Août 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 6 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-eveil-spirituel2.jpg)
 

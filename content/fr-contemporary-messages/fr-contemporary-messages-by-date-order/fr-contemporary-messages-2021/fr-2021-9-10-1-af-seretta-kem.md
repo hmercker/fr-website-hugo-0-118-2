@@ -9,7 +9,7 @@ weight:
 ---
 ### Un merveilleux encouragement
 
-Seretta Kem - reçu par Al Fike le 10 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 10 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem.
 

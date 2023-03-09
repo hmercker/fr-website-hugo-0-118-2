@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes tous élevés ensemble
 
-Jésus - reçu par Al Fike le 27 Août 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 27 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes précieuses et bien-aimées, je viens. Je suis Jésus. Je viens pour bénir mes frères. Je viens me joindre à vous dans la prière. Je viens pour vous réconforter alors que vous voyez les conditions du monde s’aggraver et que vous proclamez que tout ne va pas bien avec l’humanité et avec cette précieuse planète de la création de Dieu. Je viens parce que vous avez tous besoin de réconfort, d’amour et de paix. Je viens parce que je vous aime.
 

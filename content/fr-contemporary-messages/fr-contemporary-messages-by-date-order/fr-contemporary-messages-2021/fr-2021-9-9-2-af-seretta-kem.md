@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre magnifique voyage ensemble
 
-Seretta Kem - reçu par Al Fike le 9 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 9 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Chères âmes, je suis Seretta Kem.
 

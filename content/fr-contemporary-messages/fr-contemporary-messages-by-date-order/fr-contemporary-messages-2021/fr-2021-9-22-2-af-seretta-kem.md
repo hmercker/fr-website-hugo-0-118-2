@@ -9,7 +9,7 @@ weight:
 ---
 ### Groupe des douze, Aussie VD et Lightbringers réunis (2021 Voix Directe II)
 
-Seretta Kem - reçu par Al Fike le 22 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 22 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem. Vous transmettez la lumière et les bénédictions à vos compagnons de développement de la Voix Directe dans d’autres parties du monde et à ceux qui sont dans un lieu de soutien et de prière avec vous en ce moment. Nous vous avons tous réunis en un seul Cercle de Lumière cohésif, et en cela vous allez ressentir l’expansion de votre cercle, l’expansion de la lumière qui fait partie de votre cercle. En effet, il y a beaucoup plus d’esprits, d’anges et d’autres qui vous soutiennent et font partie de ce grand effort. De cette façon, vous êtes en mesure d’apporter une plus grande lumière à votre monde, de plus grandes bénédictions les uns envers les autres.
 

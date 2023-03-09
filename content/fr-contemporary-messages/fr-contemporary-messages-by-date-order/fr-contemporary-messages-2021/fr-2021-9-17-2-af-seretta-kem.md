@@ -9,7 +9,7 @@ weight:
 ---
 ### L’activité de guérison est une grande bénédiction (Retraite Voix Directe 2021)
 
-Seretta Kem - reçu par Al Fike le 17 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 17 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Nous sommes engagés dans le processus de nettoyage de nombreuses toxines, blocages, aspects sombres des énergies en vous. Cela se passe à tous les niveaux de votre être et c’est une grande bénédiction pour vous que ce nettoyage et cette guérison se fassent sans beaucoup d’efforts de votre part. Vous avez la chance d’avoir de nombreux guérisseurs autour de vous, beaucoup qui sont engagés dans des méthodes sophistiquées de guérison des corps, des corps spirituels, des esprits et des énergies psychiques autour de vous qui ont été accumulées au cours de nombreuses années de vie. Il a été mentionné que ce nettoyage des conditions s’étend également à travers les générations, et c’est exact.
 

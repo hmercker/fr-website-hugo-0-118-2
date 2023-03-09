@@ -9,7 +9,7 @@ weight:
 ---
 ### S'aligner sur l'âme de Dieu (2021 Cercle de prière en ligne de Vancouver)
 
-Augustin - reçu par Al Fike le 23 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 23 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous, âmes bien-aimées et que la paix soit avec vous tous.
 

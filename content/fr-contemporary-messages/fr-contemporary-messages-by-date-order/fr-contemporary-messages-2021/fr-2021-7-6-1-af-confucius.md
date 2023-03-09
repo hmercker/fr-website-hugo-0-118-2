@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions
 
-Confucius - reçu par Al Fike le 6 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 6 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous, mes petits oiseaux, je suis Confucius. Je viens vous apporter la paix et la guérison à chacun d’entre vous, pour vous calmer et élever vos émotions et votre comportement, pour vous aider à venir à Dieu, dans un repos d’amour à votre Créateur, pour être en alignement avec tout ce qui est de la lumière, âmes bien-aimées. Je viens à vous pour apporter la paix et l’amour.
 

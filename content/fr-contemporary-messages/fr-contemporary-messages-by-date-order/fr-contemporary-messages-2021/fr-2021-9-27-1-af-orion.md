@@ -9,7 +9,7 @@ weight:
 ---
 ### Possibilités du Don
 
-Orion - reçu par Al Fike le 27 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 27 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénis, mes amis. Je suis Orion. Ainsi, vous découvrez les possibilités de ce cadeau qui vous est donné, ce qui peut en découler, ce qui peut se manifester à travers lui, ce qui vous donne une amélioration de vos propres dons, le flux de lumière qui maintenant déferle continuellement à travers chacun de vous. Vous constaterez que vos perceptions sont plus aiguës, que vos sensibilités sont plus grandes à bien des égards, y compris dans votre propre corps physique, et que vos pensées sont en effet amplifiées et parviennent à votre conscience avec une intensité qui peut parfois être inconfortable, selon ce que vous évoquez dans vos pensées.
 

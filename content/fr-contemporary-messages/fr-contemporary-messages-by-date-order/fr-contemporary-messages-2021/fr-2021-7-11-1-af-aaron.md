@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie
 
-Aron - reçu par Al Fike le 11 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Aron - reçu par Al Fike le 11 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous, mes frères et sœurs bien-aimés. Je suis Aaron et je viens reconnaître ma belle charge, sœur dans la lumière, qui continue à grandir et à s’efforcer d’obtenir plus de lumière et d’amour. Je vous reconnais, mes bien-aimés, et je suis souvent avec vous alors que vous poursuivez ce voyage de lumière et de vérité.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le seul moyen d’obtenir la lumière et la protection est de s’aligner avec Dieu
 
-Jacques - reçu par Al Fike le 16 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 16 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, Jacques. Oui, chacun d’entre vous a ses luttes et vos proches luttent et toute la terre lutte. C’est un endroit qui est profondément en désaccord avec Dieu. Même mon frère, Jésus, a lutté lorsqu’il a marché sur la terre, et il était guidé et pur dans la lumière, pourtant il a eu aussi ses luttes.
 

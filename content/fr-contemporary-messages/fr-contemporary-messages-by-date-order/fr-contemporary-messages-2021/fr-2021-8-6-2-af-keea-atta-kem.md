@@ -9,7 +9,7 @@ weight:
 ---
 ### Le treillis de lumière apporte la lumière au monde entier
 
-Keea Atta Kem - reçu par Al Fike le 6 Août 2021, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 6 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Nous ajoutons vos lumières à celles d’autres personnes qui prient également pour votre monde et travaillent à y apporter une plus grande lumière. Vous faites partie du grand treillis et du réseau de lumière qui continue à s’efforcer d’englober votre monde obscurci et d’y apporter une plus grande harmonie. Ce treillis de lumière comprend tous les anges et les esprits lumineux qui se joignent à vous avec vos intentions et vos prières pour bénir ce monde en tant que canaux de lumière de Dieu.
 

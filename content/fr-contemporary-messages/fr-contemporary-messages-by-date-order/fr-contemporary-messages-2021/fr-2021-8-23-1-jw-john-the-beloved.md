@@ -9,7 +9,7 @@ weight:
 ---
 ### Servir de tout son cœur
 
-Jean le Bien Aimé - reçu par Jimbeau Walsh le 23 Août 2021, Punalu’u, Oahu, Hawaii, USA
+Jean le Bien Aimé - reçu par Jimbeau Walsh le 23 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Que la Grâce de Dieu soit sur vous. L’Amour de Dieu ne connaît pas de frontières. Il est au-delà de l’espace et du temps. Il embrasse tout. Permettez à cet amour d’informer vos vies. Qu’il vous élève au-dessus de toutes les préoccupations, de tous les soucis, de toutes les peurs, de tous les doutes que vous pouvez avoir. Votre Père Céleste pourvoit aux besoins de tous Ses enfants et même si vous ne le voyez pas à travers une lentille si filtrée, c’est la vérité.
 

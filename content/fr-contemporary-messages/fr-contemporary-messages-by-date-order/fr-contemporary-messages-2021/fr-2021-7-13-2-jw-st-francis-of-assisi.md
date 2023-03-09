@@ -9,7 +9,7 @@ weight:
 ---
 ### Allez en paix, ne soyez pas troublés
 
-St François d'Assise - reçu par Jimbeau Walsh le 13 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 13 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Francois, votre frère dans l’Amour de Dieu. Mes chers frères, je vous dis ceci. Lorsque vous passez du temps en prière auprès de notre Père céleste et que vous recevez le don, le grand don de Son Amour, vous vous élevez au-dessus de toutes les choses du monde qui autrement vous troubleraient, même la mort. N’ayez pas peur, mes frères. Marchez, parlez et chantez dans la grâce de Dieu, dans Son amour.
 

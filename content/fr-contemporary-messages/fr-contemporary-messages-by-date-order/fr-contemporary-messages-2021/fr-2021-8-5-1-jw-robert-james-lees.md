@@ -9,7 +9,7 @@ weight:
 ---
 ### Mes livres sont vraiment approuvés
 
-Robert James Lees - reçu par Jimbeau Walsh le 5 Août 2021, Punalu’u, Oahu, Hawaii, USA
+Robert James Lees - reçu par Jimbeau Walsh le 5 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Robert Lees. L’œil n’a pas vu, l’oreille n’a pas entendu, et les sens n’ont pas perçu ce que Dieu a préparé pour Ses enfants dans l’amour. En parcourant les descriptions des livres que j’ai écrits, ou devrais-je dire, que j’ai reçus, vous obtenez, comme cela a été dit, un simple aperçu des conditions, des environnements et de l’état d’être dans les royaumes spirituels. Et pourtant, ce simple aperçu est tout à fait étonnant pour les terriens. Bien sûr, parce que vous êtes sur le chemin de l’Amour Divin, vous pouvez reconnaître la progression qui vous est présentée et en même temps trouver un grand réconfort dans les bénédictions que Dieu a accordées à tous, du plus vil pécheur au plus saint des saints.
 

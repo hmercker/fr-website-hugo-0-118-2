@@ -9,7 +9,7 @@ weight:
 ---
 ### N'ayez pas peur
 
-Seretta Kem - reçu par Al Fike le 27 Août 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 27 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. Vous vivez à la limite de ce que vous pourriez appeler la normalité dans ce monde. Le tout début d’un effondrement sérieux de vos systèmes sociaux et économiques est très proche. Ainsi, vous ressentez le stress de ce changement, comme tout le monde dans le monde, un sentiment que tout ne fonctionne pas comme prévu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Discours de bienvenue, but et engagement
 
-Professeur Salyards - reçu par Al Fike le 6 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 6 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bonjour, mes amis, je suis votre professeur Salyards. Quel rassemblement que celui-ci. Bien que vous soyez peu nombreux dans la chair, vos homologues spirituels sont nombreux. Chaque groupe, et il y en a beaucoup, apporte un certain talent, une certaine capacité, un don, une pratique, un aspect du développement qui profite à ce cercle qui se réunit dans toutes ses capacités et ses potentiels.
 

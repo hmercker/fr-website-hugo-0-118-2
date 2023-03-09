@@ -9,7 +9,7 @@ weight:
 ---
 ### Des groupes du monde entier se réunissent pour prier (Séminaire Voix Directe 2021)
 
-Seretta Kem - reçu par Al Fike le 19 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 19 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Comme vous l’avez déjà deviné, vous allez rejoindre de nombreux autres groupes dans le monde. Des groupes qui sont préparés comme vous l’êtes, pour s’engouffrer dans les changements, les changements de conscience, de compréhension, qui arrivent dans votre monde. Bien que beaucoup de ces groupes aient une compréhension et un language différents des choses spirituelles, ils apportent tous une composante de lumière dans le monde et, qu’ils le reconnaissent ou non, ils sont tous des instruments de la volonté de Dieu à cet égard. La volonté de Dieu trouvera sa marque sur ce monde à travers de nombreux instruments, de nombreuses manières. L’atmosphère même de votre monde, l’atmosphère énergétique est en train de changer et il y a beaucoup de choses qui arrivent et qui influencent les esprits et les âmes de beaucoup.
 

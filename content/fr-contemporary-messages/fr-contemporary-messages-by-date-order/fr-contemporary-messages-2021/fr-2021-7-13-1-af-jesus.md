@@ -9,7 +9,7 @@ weight:
 ---
 ### L’innocence pure de l’amour réside dans votre âme
 
-Jésus - reçu par Al Fike le 13 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 13 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 A ceux qui cherchent l’Amour du Père, je viens, je suis Jésus et je viens prier avec vous, âmes bien-aimées. Et en effet votre innocence réside dans votre âme, ce lieu pur de lumière. Âmes bien-aimées, vous êtes les enfants de Dieu et Dieu enveloppe chacune de vous dans Son Amour, vous porte dans la lumière de Son contact, vous soutient dans le flux de Sa Volonté et de Son Amour pour vous et vous guide ainsi sur le chemin de l’amour qui est destiné à chacun de vous.
 
@@ -19,7 +19,9 @@ Je viens en tant que Son messager d’amour. Je viens pour vous encourager à vo
 
 Bien-aimés, je suis avec vous tous, dans ce voyage pour affronter l’obscurité et apporter la lumière dans ces coins sombres du monde. Je suis avec vous. Continuez à prier pour vos frères et sœurs, continuez à marcher sur la terre comme une lumière. Vous êtes vraiment nécessaires, vous êtes si beaux, vous faites vraiment partie de ce grand voyage que nous faisons tous ensemble. Mes âmes bien-aimées, mon amour pour vous est grand, l’Amour de Dieu pour vous est plus grand que tous les soleils et toutes les étoiles réunis. Cette lumière est plus grande et la puissance de cette lumière est au-delà de toute la puissance de la création matérielle combinée. Découvrez ce pouvoir, cette gloire, cette lumière qui peut changer votre âme et s’étendre en vous à l’infini alors que vous recevez toujours plus de cette bénédiction et sachez qu’ensemble, grâce au pouvoir de Dieu qui touche chacun d’entre vous, vous pouvez changer le monde et être un signe avant-coureur de vérité, d’amour et de lumière. Je suis avec vous, et je ne vous quitterai jamais.
 
-Bien-aimées et belles âmes, je suis avec vous et mon amour pour vous est éternel comme l’Amour de Dieu est éternel et l’Amour qui bourgeonne et grandit en vous est éternel, une flamme qui devient de plus en plus brillante, une lumière qui rivalisera en effet avec la puissance des étoiles et de toute la Création de Dieu, cette lumière grandit pour toujours, bien-aimées. Nous sommes ensemble dans le pouvoir de l’Amour de Dieu, et ensemble nous irons de l’avant, nos lumières devenant plus brillantes. Le pouvoir de notre instrumentalité pour apporter les bénédictions de Dieu à travers nous grandira alors que nous marchons ensemble dans cette lumière, alors que nous sommes ensemble dans Son Amour. *« Père bien-aimé, bénis mes frères et sœurs, bénis-les, enveloppe-les d’amour et garde-les dans Ta Tendre attention. »*
+Bien-aimées et belles âmes, je suis avec vous et mon amour pour vous est éternel comme l’Amour de Dieu est éternel et l’Amour qui bourgeonne et grandit en vous est éternel, une flamme qui devient de plus en plus brillante, une lumière qui rivalisera en effet avec la puissance des étoiles et de toute la Création de Dieu, cette lumière grandit pour toujours, bien-aimées. Nous sommes ensemble dans le pouvoir de l’Amour de Dieu, et ensemble nous irons de l’avant, nos lumières devenant plus brillantes. Le pouvoir de notre instrumentalité pour apporter les bénédictions de Dieu à travers nous grandira alors que nous marchons ensemble dans cette lumière, alors que nous sommes ensemble dans Son Amour.
+
+*« Père bien-aimé, bénis mes frères et sœurs, bénis-les, enveloppe-les d’amour et garde-les dans Ta Tendre attention. »*
 
 Âmes bien-aimées, âmes bien-aimées, mon amour est avec vous. Dieu vous bénisse, Dieu vous bénisse tous dans Sa grâce et Son toucher.
 

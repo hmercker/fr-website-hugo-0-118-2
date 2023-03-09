@@ -9,7 +9,7 @@ weight:
 ---
 ### Les 3 niveaux du mental
 
-Yogananda - reçu par Al Fike le 20 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Yogananda - reçu par Al Fike le 20 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 C’est un véritable privilège de prier avec vous aujourd’hui, mes beaux amis. Je viens avec mon ami qui vient de dire sa prière, je suis Yogananda et je viens parce que je suis proche de lui, et proche de vous tous, dans vos aspirations à rechercher les bénédictions Divines en vous. Et je souhaite faire un commentaire sur un message important qui a été délivré il y a quelques jours par notre bien-aimé maître Jésus au sujet des divers niveaux du mental qui sont en chacun de vous. Il a parlé des centres de conscience qui résident dans chaque aspect de votre être, celui du mental matériel, celui du mental spirituel et celui de l’âme. Et comme vous l’avez souvent supposé, le mental matériel est la conscience la plus prédominante de l’humanité sur le plan terrestre, car c’est le mental qui est activé plus souvent que tout autre en raison de la nature de votre condition sur cette planète terrestre. Notre travail consiste donc à vous aider à déplacer votre conscience au-delà de cela, et idéalement à la déplacer vers la conscience de l’âme.
 

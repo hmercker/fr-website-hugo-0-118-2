@@ -9,7 +9,7 @@ weight:
 ---
 ### Touchez les autres avec amour et tout se mettra en place
 
-St Paul - reçu par Jimbeau Walsh le 24 Août 2021, Punalu’u, Oahu, Hawaii, USA
+St Paul - reçu par Jimbeau Walsh le 24 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère en Christ, Paul, l’évangéliste. Il m’est parfois attribué la diffusion du message de Jésus au-delà de la communauté Juive vers le monde païen, et c’est vrai dans une certaine mesure.
 

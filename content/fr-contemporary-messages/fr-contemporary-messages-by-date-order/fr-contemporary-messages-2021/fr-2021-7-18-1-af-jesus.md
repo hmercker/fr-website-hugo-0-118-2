@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes tous des points de lumière
 
-Jésus - reçu par Al Fike le 18 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 18 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que le don de l’Esprit Saint touche vos âmes, mes frères et sœurs bien-aimés. Je viens, je suis Jésus, je viens parce que vos prières sont profondes et fortes et m’amènent sur ce plan terrestre pour venir prier avec vous, pour vous rejoindre dans vos efforts pour apporter une plus grande lumière dans ce monde. Je viens vous dire que vous êtes tous des canaux de l’Amour de Dieu. Parfois, ce canal est brillant et puissant. Chacun de vous est un point de passage de la lumière dans le monde. Considérez ceci, âmes bien-aimées : vous êtes dispersées à travers ce monde et vous faites la volonté de Dieu, parfois, et vous apportez Son amour, à travers vous, aux autres. Alors que vous marchez dans le monde à l’unisson avec Dieu, alors cette lumière se répand dans un grand cercle arqué autour de vous et vous devenez les instruments de Dieu pour ce moment, touchant tous ceux que vous rencontrez, touchant le sol, touchant les cieux. Et cela attire la curiosité des mortels et des esprits qui ne connaissent pas encore ce grand don de l’Amour de Dieu et ils sont attirés vers vous parce qu’ils sentent la condition d’amour autour de vous. Et en cela, Dieu intensifie Sa Bénédiction autour de vous alors que vous marchez sur la terre.
 

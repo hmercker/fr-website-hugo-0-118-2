@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous unifions le physique et l'âme, afin que personne ne soit laissé pour compte
 
-Orion - reçu par Al Fike le 9 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 9 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite vous dire que nous apportons des énergies qui proviennent de la Terre et de l’ordre naturel de la Terre, en les combinant avec des énergies vibratoires plus élevées et des bénédictions de Dieu, pour créer un mélange puissant qui vous aidera avec votre physique et vous aidera à vous aligner avec ce que nous faisons ensemble.
 

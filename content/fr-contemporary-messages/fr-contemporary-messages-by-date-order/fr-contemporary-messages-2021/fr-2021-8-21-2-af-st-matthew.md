@@ -9,7 +9,7 @@ weight:
 ---
 ### Parle sérieusement de ce qui est nécessaire pour s’engager
 
-St Matthieu - reçu par Al Fike le 21 Août 2021, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 21 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Matthieu. Nous voyons de grandes promesses dans vos efforts, car voir un groupe d’individus s’unir dans leur désir d’apporter la Vérité de l’Amour de Dieu au monde, cela donne lieu à de grandes réjouissances dans les Cieux Célestes, car combien ce monde est loin de ces vérités ? Dans presque tous les cas et à tous les égards, le monde vit dans l’erreur et dans une atmosphère qui manque d’amour, et dans des conditions qui sont contraires aux lois de Dieu.
 

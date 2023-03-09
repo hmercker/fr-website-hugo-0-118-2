@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 12 : Description des trois niveaux du mental
 
-Jésus - reçu par Al Fike le 16 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 16 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je viens. Je suis Jésus. Je viens vous parler une fois de plus dans l’espoir que ces paroles puissent être enregistrées et partagées avec d’autres. Aujourd’hui, je souhaite vous parler des trois niveaux du mental de chaque individu. Je sais que cela peut vous surprendre, mais en effet, il existe trois centres de conscience au sein de l’individu.
 

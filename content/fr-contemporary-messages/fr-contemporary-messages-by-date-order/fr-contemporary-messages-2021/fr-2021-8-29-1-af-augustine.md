@@ -9,7 +9,7 @@ weight:
 ---
 ### Tous vos proches seront bénis
 
-Augustin - reçu par Al Fike le 29 Août 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 29 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je vous salue tous. Je suis votre enseignant, Augustin. Que l’Amour du Père continue de couler dans vos âmes, bien-aimées et précieuses âmes de lumière dans le monde. Vous êtes importants parce que vous vous êtes accordés à la vérité la plus élevée et la plus puissante de l’univers. Vous êtes venus reconnaître quelque chose qui est si important et si puissant qu’il peut changer le monde.
 

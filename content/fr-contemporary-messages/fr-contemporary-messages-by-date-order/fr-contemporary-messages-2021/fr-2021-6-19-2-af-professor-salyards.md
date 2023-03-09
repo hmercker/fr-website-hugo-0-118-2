@@ -9,7 +9,7 @@ weight:
 ---
 ### C'est un engagement de toute une vie
 
-Professeur Salyards - reçu par Al Fike le 19 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 19 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis le professeur Salyards. Vous serez surpris des portails, des portes et des opportunités qui s’ouvriront à vous à mesure que vous progresserez sur cette route. Vous verrez comment Dieu vous guidera et ouvrira la voie pour que vous puissiez vous connecter, vous associer, aider à enseigner et inspirer de nombreuses âmes. C’est un engagement de toute une vie que vous avez pris avec ce programme.
 

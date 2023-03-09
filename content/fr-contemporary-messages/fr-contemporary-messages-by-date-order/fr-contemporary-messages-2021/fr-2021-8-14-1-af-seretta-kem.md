@@ -9,7 +9,7 @@ weight:
 ---
 ### Êtes-vous prêt ?
 
-Seretta Kem - reçu par Al Fike le 14 Août 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que la voie s’ouvre pour que chacun de vous trouve la grâce de Dieu à chaque instant de sa vie. Je suis Seretta Kem et je vous souhaite à nouveau la bienvenue dans notre petit Cercle de Lumière, cherchant à servir Dieu et à servir l’humanité dans ce voyage qu’est l’éveil de l’âme, afin que vous puissiez apporter cette Vérité à beaucoup.
 

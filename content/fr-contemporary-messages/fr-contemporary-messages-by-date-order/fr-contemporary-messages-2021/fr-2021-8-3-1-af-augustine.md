@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement à parler de l'amour de Dieu à ses amis et à sa famille
 
-Augustin - reçu par Al Fike le 3 Août 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 3 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi, Augustin. J’entends vos prières pour vos familles, vos êtres chers, ceux qui sont proches dans votre vie, et comme nous l’avons dit à plusieurs reprises, la lumière que vous portez a son influence sur ceux qui vous entourent. C’est comme un passage éclairé où beaucoup de votre famille et de vos amis passent et remarquent qu’il y a effectivement de la lumière. Mais souvent, cette lumière est considérée comme acquise ou est rapidement oubliée, de sorte que l’effet et l’influence que vous avez sur eux sont de courte durée et qu’ils continuent à retourner à leurs vies quelque peu non éclairées, ce qui est le cas pour beaucoup. Il est important que vous disiez les mots de la vérité à vos proches, sans prêcher, cajoler et insister sur certains idéaux et comportements qu’ils doivent suivre. Au contraire, une simple déclaration telle que : *« Mon beau frère, ma belle sœur, mon bel ami, Dieu vous aime et vous pouvez recevoir cet Amour dans votre âme, à condition que vous soyez prêt à prier et à le demander. »* Qui pourrait être offensé par cela ? Oui, alors le choix appartient à cette personne de suivre ou non votre conseil, et en effet, sur votre passage, cette simple phrase donnée une fois, peut-être deux, à vos amis et à vos proches, suffit à implanter dans leur âme et leur esprit, la vérité.
 

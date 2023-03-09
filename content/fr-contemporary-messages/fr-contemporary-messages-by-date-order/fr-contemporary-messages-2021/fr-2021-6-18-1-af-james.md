@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre voyage vers les Cieux Célestes est raccourci par la prière pour l'Amour Divin
 
-Jacques - reçu par Al Fike le 18 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Jacques - reçu par Al Fike le 18 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je vous bénis, âmes bénies et bien-aimées, je suis Jacques. La route vers le Ciel n’est pas aussi longue que vous pourriez le penser. Bien que le Ciel semble très éloigné de ce plan terrestre, lorsque vous préparez vos âmes dans la prière et que vous vous éveillez à l’Amour de Dieu chaque jour, vous raccourcissez considérablement le voyage, un voyage qui, pour certains, peut prendre de nombreuses années à accomplir, bien plus que la vie terrestre. Mais lorsque vous posez les fondations alors que vous êtes sur le plan terrestre, vous réduisez considérablement ce voyage, la longueur de ce voyage.
 

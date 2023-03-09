@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions pour la Première Eglise Spiritualiste
 
-Marc - reçu par Al Fike le 4 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Marc - reçu par Al Fike le 4 Juillet 2021, FUSC, Burnaby, Colombie-Britannique, Canada.
 
 Chères âmes bien-aimées, que Son Amour touche votre âme, et vous amène à la conscience de Sa présence car Dieu souhaite communiquer avec chacun de Ses enfants. Je suis Marc et je supervise cette belle famille, ce cercle de lumière, cette église d’amour. Et je vous dis, mes amis bien-aimés, continuez à chercher la lumière dans vos vies, continuez à chercher la vérité dans vos cœurs et vos esprits, continuez à être un instrument de lumière dans le monde car ce sont les choses qui sont nécessaires en ce moment. L’exigence de Dieu pour Ses enfants est qu’ils s’aiment les uns les autres et qu’ils cherchent à être une lumière les uns pour les autres dans ce monde, afin que ce monde puisse être guéri et élevé dans la lumière, afin que ce monde puisse à nouveau être en harmonie et dans la vérité de la création de Dieu.
 

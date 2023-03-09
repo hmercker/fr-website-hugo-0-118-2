@@ -9,7 +9,7 @@ weight:
 ---
 ### Affirme la prophétie de ces temps
 
-Élie - reçu par Al Fike le 2 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Élie - reçu par Al Fike le 2 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Oui, comme mes deux frères ont parlé de moi, je suis venu. Cependant, la question est de savoir si je leur ai implanté l’idée de ma venue ou s’ils ont implanté l’idée de ma présence aujourd’hui auprès d’eux. En effet, vos âmes savent qu’au fur et à mesure que vous progressez sur ce Chemin Divin, vous invitez notre présence et nous vous apportons notre présence en ces temps où vous êtes en prière et en discussion sur les choses spirituelles.
 

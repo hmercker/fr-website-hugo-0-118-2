@@ -9,7 +9,7 @@ weight:
 ---
 ### Le temps de la libération (Retraite Voix Directe 2021)
 
-Keea Atta Kem - reçu par Al Fike le 7 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Keea Atta Kem - reçu par Al Fike le 7 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que le souffle d’amour de Dieu soit sur vous, mes précieux et bien-aimés amis. Je suis Keea Atta Kem. Ainsi, vous avez goûté au pouvoir de la chambre noire. Vous vous êtes réunis en affirmant votre parenté les uns avec les autres, vos âmes aspirant à un plus grand éveil et à une plus grande vérité, vos esprits ayant soif d’avancer dans votre développement et l’ouverture de ces dons. Vous vous reliez en effet dans une forme d’unité et de lumière qui est très bénéfique pour le travail que nous faisons ensemble.
 

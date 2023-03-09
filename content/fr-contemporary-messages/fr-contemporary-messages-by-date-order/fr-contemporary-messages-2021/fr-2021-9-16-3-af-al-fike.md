@@ -9,7 +9,7 @@ weight:
 ---
 ### Debriefing d'Al sur son expérience dans la chambre noire (séminaire Voix Directe 2021)
 
-Al Fike - reçu par Al Fike le 16 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Al Fike - reçu par Al Fike le 16 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Al : Nous avons tous atterri sur la plate-forme, et nous nous sommes tous retrouvés à différents endroits sur cette plate-forme, certains par deux, d’autres seuls, en fonction de ce qui était nécessaire pour chacun. Je ne sais pas exactement où nous sommes tous allés, je sais que je suis allé dans une chose bizarre où j’ai été immergé dans un fluide, c’était une sorte de bleu, un fluide bleu saphir qui affectait mon esprit et faisait sortir les toxines mentales, si une telle chose existe. Des choses remontaient dans mon mental, surtout des choses effrayantes qui remontaient et étaient libérées. C’était dramatique, instructif, et pas douloureux, il n’y avait pas beaucoup de bagage émotionnel, mais des pensées qui circulaient, et un sentiment de peur, mais pas un sentiment de peur vraiment profond.
 

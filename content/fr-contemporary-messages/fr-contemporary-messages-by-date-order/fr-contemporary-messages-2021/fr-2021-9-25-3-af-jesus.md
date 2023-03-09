@@ -9,7 +9,7 @@ weight:
 ---
 ### Message de clôture de la retraite VD (Séminaire Voix Directe 2021)
 
-Jésus - reçu par Al Fike le 25 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 25 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Oui, je suis avec vous, je suis Jésus, je continuerai à être avec vous sur les chemins de la vie, car vous êtes mes vrais frères et sœurs qui portent la Vérité comme une lumière autour de vous, qui portent l’Amour de Dieu comme un phare en vous, qui portent tout ce qui est destiné à être incarné en vous, âmes bien-aimées.
 

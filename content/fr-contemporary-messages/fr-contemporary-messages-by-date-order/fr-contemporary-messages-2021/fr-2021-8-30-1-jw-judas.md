@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu aime tous ses enfants
 
-Judas - reçu par Jimbeau Walsh le 30 Août 2021, Punalu’u, Oahu, Hawaii, USA
+Judas - reçu par Jimbeau Walsh le 30 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Judas de Kerioth et maintenant un habitant des Cieux Célestes où l’Amour de Dieu règne en maître et où le bonheur dépasse la conception des mortels. Ce que vous pouvez percevoir avec vos âmes lorsque vous êtes ouverts à l’Amour de Dieu vous donnera une idée de ce qui vous attend en esprit. Il a été dit que lorsqu’une personne passe en esprit, elle se tient nue devant Dieu, et je voudrais dire que le frère François s’est tenu nu devant ses concitoyens et n’a pas eu peur. C’est parce qu’il savait qu’il n’y avait aucune honte à s’exposer devant Dieu. Il s’agissait donc d’une métaphore physique et toutes les choses sont exposées en esprit, mais pas comme on pourrait l’imaginer. En effet, tant que l’on ne reconnaît pas que l’on est, en fait, maintenant dans le monde spirituel et que l’on n’a pas une idée de l’état de son âme, cet état peut, en fait, être caché pendant un certain temps.
 

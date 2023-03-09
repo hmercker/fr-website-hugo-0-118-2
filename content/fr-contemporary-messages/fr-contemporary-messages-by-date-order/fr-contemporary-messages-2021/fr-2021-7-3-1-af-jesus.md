@@ -9,7 +9,7 @@ weight:
 ---
 ### Se concentrer sur ce qui est nécessaire
 
-Jésus - reçu par Al Fike le 3 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 3 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Votre travail est important, âmes bien-aimées. Lorsque vous vous asseyez et priez comme vous le faites, vous vous réunissez avec l’intention et le désir de servir Dieu. Vous apportez une plus grande lumière au monde. Lorsque vos cœurs, vos âmes et vos esprits sont fixés sur cet objectif afin que nous puissions venir enseigner à vos frères et sœurs de manière à ce qu’ils écoutent, entendent et reconnaissent ces vérités, alors vous faites le travail de Dieu.
 
@@ -53,7 +53,4 @@ Les grandes bénédictions de Dieu sur vous continuent de couler. Vous faites pa
 
 Vous êtes précieux pour nous. Notre engagement envers vous est complet et inaltérable. L’amour de Dieu pour vous ne faiblit jamais mais est pleinement à votre portée. Faites en sorte que votre amour les uns pour les autres et pour vous-mêmes soit le reflet de cet amour. Ainsi, nous allons voyager ensemble sur un chemin magnifique rempli de nombreuses bénédictions, rempli de nombreuses possibilités, ouvrant des portes inimaginables, réveillant ces choses en vous que vous ne voyez pas pour le moment mais qui vont s’ouvrir et devenir claires. En cela, vous connaîtrez une grande joie et une grande paix. Vous verrez votre destin se dérouler devant vous, âmes bien-aimées, se dérouler dans leurs chemins uniques et merveilleux que Dieu a établis pour chacun de vous. En cela, les merveilles et les miracles se manifesteront et feront partie de votre vie quotidienne en tant qu’instruments d’amour clairs, vrais et puissants de Dieu, canaux de lumière et d’amour, lumières dans le monde conduisant les autres de leur douleur et de leur obscurité, de leur ignorance et de leur peur vers la lumière de la libération et de l’éveil, de la paix et de la grande joie. Que pourriez-vous faire de plus dans la vie, âmes bien-aimées, que cela, ce grand appel de Dieu pour aider à libérer Ses enfants des tyrannies qu’ils ont eux-mêmes créées, pour aider à montrer le chemin, pour être libre et éveillé et vivant dans l’amour et la joie ?
 
-Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis votre frère et votre ami. Moi aussi, je travaille avec vous pour vous amener à une plus grande lumière et vérité. Mon amour pour vous est grand car je vois la merveille qu’est la création de Dieu en chacun de vous et les grands potentiels qui se trouvent à l’intérieur attendant d’être éveillés et libérés dans l’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je t’aime. Que Dieu vous bénisse. 
-
-
-
+Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis votre frère et votre ami. Moi aussi, je travaille avec vous pour vous amener à une plus grande lumière et vérité. Mon amour pour vous est grand car je vois la merveille qu’est la création de Dieu en chacun de vous et les grands potentiels qui se trouvent à l’intérieur attendant d’être éveillés et libérés dans l’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je t’aime. Que Dieu vous bénisse.

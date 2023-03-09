@@ -9,7 +9,7 @@ weight:
 ---
 ### Et si un ange venait dans votre maison
 
-Robert James Lees - reçu par Jimbeau Walsh le 9 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+Robert James Lees - reçu par Jimbeau Walsh le 9 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Robert J. Lees. J’ai écouté votre discussion d’aujourd’hui et toutes ses considérations en réfléchissant à ce que j’ai reçu <sup id=”a1”>[1](#f1)</sup>. Aphraar essayait de brosser un tableau très large afin que chaque âme, à sa manière, puisse comprendre non seulement le fonctionnement du libre arbitre, mais aussi l’ignorance volontaire, car Dieu ne punit pas. Les humains font leur propre lit et Dieu attend qu’ils se réveillent et sortent du rêve de la mort, des ravages du péché, pour entrer dans la lumière de Son amour et de Sa compassion et dans le glorieux voyage à travers les sphères, jusqu’à la source de Son amour et de Sa Grâce.
 

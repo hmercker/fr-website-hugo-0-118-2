@@ -9,7 +9,7 @@ weight:
 ---
 ### La méditation n’est pas ce que vous pensez !
 
-Claire d'Assise - reçu par Jimbeau Walsh le 26 Août 2021, Punalu’u, Oahu, Hawaii, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 26 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Claire. Je suis connue sous le nom de Claire d’Assise. J’ai fondé un ordre de religieuses inspiré par mon bien-aimé François. Nous avons renoncé à la plupart de nos désirs matériels, à l’exception du nécessaire, car, comme Charles l’a souligné, nous savions que l’amour nous nourrirait, et plus particulièrement l’Amour de Dieu.
 

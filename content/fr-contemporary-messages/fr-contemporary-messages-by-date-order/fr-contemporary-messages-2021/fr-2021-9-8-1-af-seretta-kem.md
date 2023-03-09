@@ -9,7 +9,7 @@ weight:
 ---
 ### Aperçu des choses à venir (2021 Voix directe II)
 
-Seretta Kem - reçu par Al Fike le 8 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 8 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Mon amour est avec vous aujourd’hui, âmes bien-aimées. Je suis Seretta Kem. La lumière est évidente dans l’amour que vous vous portez les uns aux autres et dans votre désir d’être avec votre Créateur. C’est dans cette pureté, la force de vos désirs, la volonté qui est dans vos cœurs, et le désir ardent dans vos âmes qui vous amènent à ce lieu de lumière et d’harmonie. Que ces conditions continuent à s’intensifier afin que la lumière soit plus brillante, que l’amour soit plus fort, que l’unité soit plus grande.
 

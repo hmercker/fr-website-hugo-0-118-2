@@ -9,7 +9,7 @@ weight:
 ---
 ### Décrit plus en détail son travail avec ce projet VD
 
-Orion & Augustin - reçu par Al Fike le 13 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion & Augustin - reçu par Al Fike le 13 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Chers amis, je suis Orion. Je tiens à vous féliciter pour tous les efforts que vous avez déployés jusqu’à présent. Vous avez en effet gravi cette grande échelle vers un état d’être supérieur. Vous l’avez fait ensemble, en vous aidant les uns les autres, en tendant la main à vos frères et sœurs alors que vous grimpez de plus en plus haut dans ce que vous appelez des conditions vibratoires qui sont un reflet de l’amour, un reflet de la Grande Âme de Dieu, Son Amour concentré sur nous tous. Ce grand faisceau de Lumière qui est Sa bénédiction sur nous continue à se renforcer et à croître avec vos prières et nos efforts combinés afin d’apporter ce qui est nécessaire pour votre développement, votre élévation et votre harmonisation.
 

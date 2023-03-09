@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez vraiment connaître votre propre âme
 
-Elie - reçu par Al Fike le 7 Août 2021, Gibsons, Colombie-Britannique, Canada
+Elie - reçu par Al Fike le 7 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous, âmes bien-aimées, je suis Élie. Que chacun d’entre vous soit fort, solide et droit alors que les vents du changement englobent votre monde, que vous puissiez tous vous soutenir les uns les autres ainsi que la vérité alors que le monde qui vous entoure continue d’être dans le tumulte de la Terre en mutation. Que vos âmes se réjouissent dans l’Amour de Dieu, car c’est dans cet Amour que vient la force et la joie qui est l’épanouissement de votre âme. Même si la tempête est tout autour de vous, ainsi vous serez droites et fortes, âmes bien-aimées, ainsi vous serez des lumières dans le monde. Alors que vous allez à la Source de tout Amour, réalisez que les efforts que vous faites exigent que vous buviez de ces eaux vivantes continuellement afin que vous ne soyez pas déroutés ou distraits par les conditions changeantes de votre monde.
 

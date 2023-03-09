@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez d’abord le Royaume, et tout le reste vous sera donné
 
-St Luc - reçu par Jimbeau Walsh le 27 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+St Luc - reçu par Jimbeau Walsh le 27 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Luc. Vous pouvez voir dans vos études aujourd’hui comment une âme, même avec une goutte d’amour, peut aider une autre âme en difficulté, à condition qu’elle permette de son plein gré d’être aidée – à condition que son âme en émette le désir.
 

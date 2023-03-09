@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions
 
-Confucius - reçu par Al Fike le 30 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 30 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Nous vous aimons, mes bien-aimés, nous vous aimons tendrement, âmes précieuses de votre monde, un monde qui a tellement besoin du Toucher, de la guérison et de l’élévation de Dieu. Et donc vous implorez les bénédictions de Dieu sur vous tous, mes bien-aimés. Tous sont bénis en ce moment, tous ceux pour lesquels vous avez prié sont bénis en ce moment, le grand cadeau du Toucher de Dieu sur vos bien-aimés, sur ce monde, sur tous ceux qui cherchent la bénédiction de Dieu. Il vient en vagues de lumière, une belle lumière, en vagues de paix, une paix au-delà de la compréhension, des vagues d’amour qui enveloppent et touchent chaque âme avec la grâce de la grande âme de Dieu sur eux, éveillant la beauté qui se trouve à l’intérieur, le bourgeon qui vient à la fleur, les dons merveilleux de l’âme qui viennent à la fruition, la belle grâce qui est l’âme éveillée.
 

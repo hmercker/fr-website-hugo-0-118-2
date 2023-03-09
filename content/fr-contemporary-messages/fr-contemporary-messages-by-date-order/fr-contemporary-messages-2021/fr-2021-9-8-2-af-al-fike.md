@@ -9,7 +9,7 @@ weight:
 ---
 ### Compte rendu du matin de Al après la prière dans la chambre noire
 
-Al Fike - reçu par Al Fike le 8 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Al Fike - reçu par Al Fike le 8 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Al : J’ai obtenu un peu plus d’informations sur cette coupe surdimensionnée dans laquelle nous sommes tous. Elle a été sculptée à partir d’un cristal de quartz. Elle vient, elle ne vient pas d’ici. La raison pour laquelle c’est du quartz est qu’il amplifie tout. Par exemple, il amplifie les vibrations. Donc, nous avons eu à nouveau une sorte de traitement spa. Les conditions étaient vraiment bonnes ce matin, dès le début. C’était tout bon. Il n’y avait pas de lutte pour se lever. Ils ont exercé un rayon sur nous. C’était de couleur magenta. C’était pour notre examen physique. Beaucoup de choses qu’ils ont fait au début, c’était des bénéfices physiques. Donc, ce rayon, ça me rappelle un peu la boîte infrarouge dans laquelle tu t’assieds, Terry. Sauf que ce n’était pas infrarouge. Ça l’était et ça ne l’était pas. C’était une autre sorte d’infra-quelque chose. On ressentait tous ça. C’était génial. Tous vos maux et douleurs sont partis. Puis, une sorte de chaleur agréable qui pénétrait tout mon corps et je me sentais juste complètement détendu, complètement détendu. Il y avait une autre chambre au-dessus de celle-ci. Ils ont emmené chacun d’entre nous dans celle-ci. C’était une chambre plus petite. Je ne sais pas ce qu’ils ont fait mais c’était quelque chose.
 

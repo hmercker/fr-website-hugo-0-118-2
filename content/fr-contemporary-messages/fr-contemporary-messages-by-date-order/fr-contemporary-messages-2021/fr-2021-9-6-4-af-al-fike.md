@@ -9,9 +9,9 @@ weight:
 ---
 ### L'expérience d'Al pendant la prière
 
-Al Fike - reçu par Al Fike le 6 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Al Fike - reçu par Al Fike le 6 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
-*C’est un début bien différent de ce que nous avons connu dans notre Groupe des 7. C’est très sérieux. Nous nous mettons tout de suite au travail. Ils ne l’ont pas fait dans une chambre noire mais ici, à la lumière du jour, ce qui m’a surpris.*
+*[C’est un début bien différent de ce que nous avons connu dans notre Groupe des 7. C’est très sérieux. Nous nous mettons tout de suite au travail. Ils ne l’ont pas fait dans une chambre noire mais ici, à la lumière du jour, ce qui m’a surpris.]*
 
 C’était très occupé. J’ai compris à quoi servait le portail de verre que j’ai vu plus tôt. C’est un cadeau d’une autre planète pour nous aider. Ce qui se trouvait au fond du portail était une grande sphère. Nous étions tous dedans, allongés, et ils ont apporté des machines qui alignaient toutes nos cellules d’une certaine manière. C’était très agréable. Puisque je ne suis pas censurée, je peux dire que c’était un peu comme le sexe, avec des sensations de picotement. C’était très intéressant et c’était des esprits d’apparence très humaine. Je dirais qu’ils n’étaient pas des esprits. C’étaient des êtres d’une autre planète, mais ils étaient dans leur corps d’esprit et travaillaient avec nous, et bien sûr, nos esprits et tous les autres étaient là.
 

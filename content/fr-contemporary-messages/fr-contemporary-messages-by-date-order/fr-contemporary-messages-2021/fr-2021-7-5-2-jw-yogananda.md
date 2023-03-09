@@ -9,7 +9,7 @@ weight:
 ---
 ### Transcender tout est le don de l'amour de Dieu
 
-Yogananda - reçu par Jimbeau Walsh le 5 Juillet 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 5 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis Yogananda. Je viens dans l’Amour de Dieu pour le bien de tous. Beaucoup d’attention a été accordée récemment dans votre monde à des êtres venant d’autres parties de la galaxie, de l’univers, et à leur relation avec la terre, ainsi qu’aux inquiétudes sur terre concernant la santé de la planète, concernant toutes les harmonies. Ainsi, beaucoup ont envoyé une fervente demande d’aide et elle a été reçue, les êtres d’autres parties, d’autres planètes sont conscients et oui, ils souhaitent aider bien qu’ils n’interfèrent jamais avec le libre arbitre. Il faudrait donc qu’il y ait les bonnes conditions et l’acceptation nécessaire pour qu’ils interviennent dans les voies de l’amour, de l’harmonie et de l’aide que tant de personnes souhaitent.
 

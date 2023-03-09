@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est temps d’apporter la vérité à l’humanité
 
-John Wesley - reçu par Al Fike le 22 Août 2021, Gibsons, Colombie-Britannique, Canada
+John Wesley - reçu par Al Fike le 22 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Salutations à vous, âmes bien-aimées. Je m’appelle John Wesley. Certains d’entre vous me connaissent bien, car vous avez adhéré à l’église et aux disciples que j’ai créés il n’y a pas si longtemps. J’étais méthodiste et j’ai fait connaître au monde les idées du méthodisme. Bien que vous puissiez penser qu’il est inhabituel pour moi de parler de vos efforts et de vos désirs d’apporter la Vérité de l’Amour Divin au monde, je pense que je suis bien qualifié parce que j’ai aussi fait de grands efforts pour apporter au monde ce que j’ai compris être les vérités que Jésus a enseignées.
 

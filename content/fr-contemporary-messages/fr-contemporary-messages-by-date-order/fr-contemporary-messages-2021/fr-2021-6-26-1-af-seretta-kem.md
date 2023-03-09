@@ -9,7 +9,7 @@ weight:
 ---
 ### Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II)
 
-Seretta Kem - reçu par Al Fike le 26 Juin 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 26 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
 Mes chers et beaux amis, je suis Seretta Kem. Pour tous ceux d’entre vous qui insistent et qui désirent venir faire partie de ce Cercle de Lumière en chair et en os, je vous dis que toutes les barrières seront dissoutes dans la prière, que vous devez en effet implorer Dieu d’enlever ces barrières et d’ouvrir la voie à vos voyages vers ce lieu désigné pour le développement de ce don de la Voix Directe.
 

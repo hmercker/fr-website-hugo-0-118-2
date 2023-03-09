@@ -9,7 +9,7 @@ weight:
 ---
 ### Discours de bienvenue et objectif (Retraite Voix Directe 2021)
 
-Seretta Kem - reçu par Al Fike le 6 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 6 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que l’amour de Dieu vous réveille, âmes bien-aimées. Je suis Seretta Kem et je vous souhaite la bienvenue dans ce cercle. Tant de semaines et de mois de préparation ont été consacrés à ce point culminant des événements, vous réunissant, rassemblant tous vos espoirs et vos rêves et tous nos espoirs et nos rêves en un seul endroit. Vous dans les corps charnels du plan terrestre et nous dans notre esprit venant à vous, formant ensemble un grand Cercle de Lumière, un Cercle de Lumière qui ouvrira de nombreuses voies de manifestation et de bénédictions, non seulement pour vous-mêmes mais pour ce monde.
 

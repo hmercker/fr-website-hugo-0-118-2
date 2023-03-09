@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes ensemble dans cette lumière
 
-Jésus - reçu par Al Fike le 15 Août 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 15 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je viens, mes frères et sœurs, je viens pour être avec ma famille bien-aimée sur terre, ceux qui suivent la vérité de l’âme reconquise par Dieu avec Son Amour. Je viens parce que mon amour pour vous est grand. Je viens parce que vous êtes des lumières dans le monde et que vos prières appellent les anges pour qu’ils soient avec vous dans ce monde.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus nous bénit et prie avec nous (Retraite Voix Directe 2021)
 
-Jésus - reçu par Al Fike le 18 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 18 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Jésus, je viens pour être avec vous, âmes bien-aimées, qui continuez à avancer dans la lumière, qui marchez sur le Chemin Divin avec beaucoup de dévouement et de concentration, cherchant les bénédictions de Dieu dans vos âmes, cherchant à être des serviteurs de Dieu de toutes les manières et par tous les moyens possibles, cherchant à aider à transformer le monde de l’obscurité à la lumière.
 

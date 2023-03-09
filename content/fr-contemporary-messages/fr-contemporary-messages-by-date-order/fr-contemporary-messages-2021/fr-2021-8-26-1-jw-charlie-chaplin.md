@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous méritez l’Amour
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 26 Août 2021, Punalu’u, Oahu, Hawaii, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 26 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Que le précieux Amour Divin de Dieu entre dans vos âmes, mes amis. Je ne vous ai pas parlé depuis un certain temps. Je suis Michael Collier et je suis heureux d’être ici aujourd’hui. Bien que je travaille beaucoup avec la chère sœur qui est ici (S), ce n’est rien pour nous de voyager de son pays lointain au vôtre pour venir parler. C’est en un battement de cœur, en un instant de pensée, que nous sommes capables de voyager et d’être avec vous tout autour du globe. Comme vous traversez le monde, mes amis, nous venons pour être avec vous dans la prière.
 

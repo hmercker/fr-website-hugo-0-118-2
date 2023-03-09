@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous appelle tous à servir Dieu
 
-Eileen Caddy - reçu par Al Fike le 30 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Eileen Caddy - reçu par Al Fike le 30 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je viens parce que mon cher ami est avec nous dans votre cercle. Je viens parce que moi aussi je bénéficie des bénédictions de l’Amour de Dieu dans mon âme. Je continue à faire mon voyage vers l’union et la réconciliation avec Dieu. Je viens parce que je veux que vous sachiez tous que vous avez la capacité de toucher de nombreuses âmes comme je l’ai fait autrefois sur la terre. Cette figure de grand-mère que j’étais est venue avec les bénédictions de Dieu et le toucher que j’ai canalisé à travers mon âme afin d’atteindre de nombreuses personnes. Vous le pouvez aussi, âmes bien-aimées, vous pouvez être cette lumière dans le monde, être une belle lumière, une lumière qui apportera sagesse, élévation et inspiration à beaucoup. Ce n’est pas difficile. Cela demande simplement un peu de foi et de confiance en Dieu, et Dieu fera le reste, mes âmes bien-aimées.
 

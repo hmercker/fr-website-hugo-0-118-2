@@ -9,7 +9,7 @@ weight:
 ---
 ### Dons de médiumnité
 
-Seretta Kem - reçu par Al Fike le 26 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 26 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Seretta Kem. C’est un plaisir de vous voir ici ce soir en prière, vos lumières brillent. Chacun d’entre vous possède le don de médiumnité qui peut être exprimé, pas nécessairement de la manière dont je vous parle aujourd’hui, mais de nombreuses manières différentes qui permettront à vos amis anges de travailler à travers vous en tant que canaux de lumière, de vérité et d’amour. Car, nous utilisons tous les dons que vous possédez afin de rendre cette communication, cette connexion possible. Et nous sommes les instruments de Dieu, n’est-ce pas, tout comme vous. Ainsi, nous relions la chaîne ensemble afin que Dieu puisse apporter ses bénédictions à travers ses instruments, à la fois dans le monde spirituel et dans le monde matériel. Cette instrumentalité peut s’exprimer de nombreuses manières différentes, et dans cette expression, on peut dire en toute confiance qu’il s’agit d’une forme de médiumnité utilisée pour s’approcher de vous, vous éclipser et vous utiliser d’une manière ou d’une autre au profit d’une autre personne.
 

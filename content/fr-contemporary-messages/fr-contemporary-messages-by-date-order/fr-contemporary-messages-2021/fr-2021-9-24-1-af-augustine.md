@@ -9,7 +9,7 @@ weight:
 ---
 ### Félicitations pour la création d'un Phare de lumière
 
-Augustin - reçu par Al Fike le 24 Septembre 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 24 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Puisse l’Amour de Dieu continuer à éveiller votre âme et vous amener à ce lieu de clarté, de vision spirituelle profonde, de compréhension, afin qu’à travers vous puissent venir de grandes vagues d’amour alors que Dieu continue à vous utiliser comme Ses instruments dans le monde.
 

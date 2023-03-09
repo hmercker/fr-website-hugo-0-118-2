@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement de nos efforts et notre auto-compassion dans le développement de la voix directe
 
-Seretta Kem - reçu par Al Fike le 10 Juillet 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 10 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que l’Amour continue à s’éveiller. Que vos cœurs continuent à grandir de Son Amour et que cet Amour s’exprime dans le monde à travers vous. Je suis Seretta Kem. Je suis heureuse d’être avec vous aujourd’hui alors que vous priez pour développer le don de ce que vous appelez la voix directe et je souhaite adresser mes félicitations à notre chère fille qui continue à grandir dans la lumière de l’Amour de Dieu et poursuit sa jeune quête de la vie. Puisse-t-elle être présente sur le plan terrestre pendant de nombreuses années encore, car nous avons besoin d’âmes telles qu’elle pour travailler et apporter la lumière, la vérité et l’amour à ce monde qui est le vôtre. Nous vous regardons, âmes bien-aimées, et nous voyons que chacune d’entre vous, pour la plupart, habite ce monde à travers les réponses de son esprit et de sa réalité. Chaque individu voit le monde de manière quelque peu différente et, par conséquent, ils sont les sujets de leurs perceptions, de leurs idées et de leur sens de la façon dont les choses sont dans le monde.
 
