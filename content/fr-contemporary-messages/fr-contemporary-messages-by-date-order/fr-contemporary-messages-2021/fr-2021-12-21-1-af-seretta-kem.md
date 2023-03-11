@@ -9,7 +9,7 @@ weight:
 ---
 ### Attendez-vous à la ruée vers l’Or
 
-Seretta Kem - reçu par Al Fike le 21 Décembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 21 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Salutations, mes amis. Je suis Seretta Kem. Bientôt, vous serez appelés à entrer en action pour accomplir vos buts et vos destinées en tant que groupe et individuellement pour apporter l'illumination au monde. Vous et beaucoup d'autres personnes dans votre monde ressentent cet appel et se trouveront dans des positions et des situations où ils seront utilisés comme messagers de la vérité, où ils manifesteront beaucoup de choses qui aideront l'humanité à voir au-delà du voile de leur propre condition mentale et à comprendre à partir de cet endroit du cœur et de l'âme. Leurs sentiments seront vivifiés par les conditions qui arrivent sur votre Terre, des conditions qui affluent rapidement et puissamment sur votre Terre.
 

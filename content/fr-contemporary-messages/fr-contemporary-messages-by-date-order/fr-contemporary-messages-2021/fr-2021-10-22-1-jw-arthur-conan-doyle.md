@@ -9,7 +9,7 @@ weight:
 ---
 ### Il y a beaucoup de travail à faire
 
-Arthur Conan Doyle - reçu par Jimbeau Walsh le 22 Octobre 2021, Punalu’u, Oahu, Hawaii, USA
+Arthur Conan Doyle - reçu par Jimbeau Walsh le 22 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre frère et ami, Arthur Conan Doyle. Je viens parce que j’ai un grand intérêt pour tout projet qui transmet la vérité à l’humanité et se connecte au monde Céleste et aux anges, que ce soit un livre ou une pièce de théâtre, une chanson, un film, ou même une danse. Il existe de nombreuses façons d’atteindre et de toucher le monde avec la vérité de l’Amour de Dieu.
 

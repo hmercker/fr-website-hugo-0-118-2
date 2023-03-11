@@ -9,7 +9,7 @@ weight:
 ---
 ### Une chose à la fois
 
-Robert James Lees - reçu par Jimbeau Walsh le 10 Novembre 2021, Punalu’u, Oahu, Hawaii, USA
+Robert James Lees - reçu par Jimbeau Walsh le 10 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Robert J. Lees. Mes chers amis, c’est une joie de vous voir dans vos rêveries, dans vos réparties humoristiques et d’être témoin de vos désirs sincères et de votre sérieux quant à votre propre bonheur. Si vous vous attelez à la tâche qui vous attend, comme je l’ai entendu, « une chose » à la fois, cela vous sera très bénéfique chaque fois que vous vous lancerez dans quelque chose de nouveau. Mais soyez attentif aux besoins de votre âme lorsque vous choisissez d’entreprendre quelque chose, surtout lorsque vous vous lancez dans quelque chose que vous considérez comme important et nécessaire.
 

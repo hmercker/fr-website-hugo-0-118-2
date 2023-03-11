@@ -9,7 +9,7 @@ weight:
 ---
 ### L'intégration et le développement se poursuivent
 
-Seretta Kem - reçu par Al Fike le 2 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 2 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse profondément de Son amour. Je suis Seretta Kem. Il est bon que vous vous réunissiez de cette façon avec constance et avec un sens du but et du désir dans votre âme et votre esprit. Vous trouverez que vous serez très bénis par ces rassemblements alors que nous continuons à nous unifier, à incorporer tout ce qui a été donné, à intégrer, à être en harmonie avec la volonté et l’amour de Dieu. Ces choses continueront à couler en chacun, à travers chacun, et parmi vous dans une grande lumière.
 

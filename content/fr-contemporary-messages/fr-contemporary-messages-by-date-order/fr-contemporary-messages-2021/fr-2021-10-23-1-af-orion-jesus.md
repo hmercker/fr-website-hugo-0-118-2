@@ -9,7 +9,7 @@ weight:
 ---
 ### Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)
 
-Orion - reçu par Al Fike le 23 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 23 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Salutations et bénédictions de la part de votre ami Orion. Vous êtes comme les tendres pousses qui ont émergé du sol. Vous commencez à grandir dans la lumière mais dans votre état actuel, vous êtes vulnérables aux forces qui peuvent vous piétiner. Ainsi, nous nous blottissons autour de vous en protection, en présence attentive, aimante et nourricière, afin que vous puissiez, avec le temps, devenir forts et accomplir votre destinée, ce que vous êtes censés être.
 

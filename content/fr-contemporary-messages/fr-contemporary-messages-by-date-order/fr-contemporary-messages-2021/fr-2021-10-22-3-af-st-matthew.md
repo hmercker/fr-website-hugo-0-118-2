@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde a besoin de l’amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)
 
-St Matthieu - reçu par Al Fike le 22 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+St Matthieu - reçu par Al Fike le 22 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je sais que pour beaucoup d’entre vous, vous ne pouvez pas voir ni reconnaître la quantité et la profondeur du soutien et de l’amour qui vous sont donnés et qui sont donnés à ce monde. La main de Dieu repose sur ce monde. Ses anges sont au service de ce monde en tant qu’instruments de Dieu. Vous avez appris à connaître d’autres possibilités et ressources qui sont mises en avant pour aider ce monde alors qu’il continue à évoluer et à se transformer.
 

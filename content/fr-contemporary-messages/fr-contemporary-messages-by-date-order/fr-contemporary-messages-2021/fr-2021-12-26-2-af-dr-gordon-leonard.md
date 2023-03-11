@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la foi pour guérir
 
-Dr Gordon Leonard  - reçu par Al Fike le 26 Décembre 2021, Gibsons, Colombie-Britannique, Canada
+Dr Gordon Leonard  - reçu par Al Fike le 26 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je m’appelle Dr Gordon Leonard. Je travaille avec ce cercle et ce groupe dans la région où ils résident depuis de nombreuses années, aidant à élever et à guérir mes frères et sœurs bien-aimés qui marchent sur ce plan terrestre, le plan si frappé par de nombreux pièges et problèmes physiques, problèmes émotionnels, tant, tant de choses compliquées sur le plan terrestre. Je suis un Ange Céleste. Je continue à travailler avec de nombreuses personnes sur la Terre, car j’étais un médecin lorsque je marchais sur la Terre. Je vais administrer à tous ceux qui ont demandé la guérison et les bénédictions comme beaucoup d’anges seront dispersés en ce moment dans de nombreux coins du monde à cause de vos prières.
 

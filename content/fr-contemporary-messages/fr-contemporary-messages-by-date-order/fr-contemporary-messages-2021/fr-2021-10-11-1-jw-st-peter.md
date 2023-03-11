@@ -9,7 +9,7 @@ weight:
 ---
 ### Considérer ce que c’est que d’être transformé en Amour Divin (Cercle de prière de Gibson)
 
-St Pierre - reçu par Jimbeau Walsh le 11 Octobre 2021, Punalu’u, Oahu, Hawaii, USA
+St Pierre - reçu par Jimbeau Walsh le 11 Octobre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Mes chers frères et sœurs dans l’Amour de Dieu, je demande à chacun de considérer du fond du cœur, de l’âme, ce que c’est que d’être transformé dans l’Amour Divin, du mortel à l’ange Divin. Bien que je sois considéré comme le premier leader de ce qui est devenu l’église Chrétienne, j’étais un homme mortel touché par l’Amour de Dieu et un disciple du Maître, bien que trois fois je l’ai nié.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous trouverez votre refuge en Dieu
 
-St Étienne - reçu par Al Fike le 26 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+St Étienne - reçu par Al Fike le 26 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, vous trouverez votre refuge en Dieu. Peu importe les conditions qui peuvent vous entourer, vous trouverez le confort et la paix en Dieu. En suppliant Dieu d’envoyer Son amour à votre âme, vous vous assurez d’être alignés avec Dieu et proches de lui. La puissance de vos désirs, de vos prières, de ce que vous recherchez et de la manière dont vous le recherchez détermine votre relation avec votre Créateur en ce qui concerne la prière. Êtes-vous capable de marcher sur cette Terre tout en étant aligné avec Dieu à tout moment ? Car c’est ce qui est requis si vous voulez être ce canal clair et magnifique que Dieu souhaite que vous soyez. Pouvez-vous mettre de côté les choses qui nuisent à cette relation ? Pouvez-vous vous consacrer entièrement à Dieu ? Car vous avez prié pour être Ses instruments, aussi la puissance de cette désignation vient-elle de votre engagement envers Dieu.
 

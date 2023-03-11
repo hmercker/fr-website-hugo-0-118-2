@@ -9,7 +9,7 @@ weight:
 ---
 ### Une histoire sans fin
 
-Jean le Bien-Aimé - reçu par Jimbeau Walsh le 14 Octobre 2021, Punalu’u, Oahu, Hawaii, USA
+Jean le Bien-Aimé - reçu par Jimbeau Walsh le 14 Octobre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Imaginez un instant que vous regardez la terre depuis un point d’observation où vous pourriez voir l’intégralité de l’existence humaine depuis les temps immémoriaux jusqu’à aujourd’hui. Les flux et reflux, les grands événements cataclysmiques, les changements de la terre au cours des éons, les grandes guerres et les périodes de paix. De ce point de vue, vous verriez que, bien que le changement soit la loi, il semble que peu de choses aient changé. Et pourtant, ce don de l’Amour de Dieu est comme un soleil brillant qui se lève à l’horizon, après une nuit sombre, avec la promesse d’un nouveau jour, d’un autre matin, apportant l’harmonie, la beauté, la croissance et la paix.
 

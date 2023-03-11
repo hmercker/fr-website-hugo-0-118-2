@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour allume la puissance des dons spirituels
 
-Mylora - reçu par Al Fike le 29 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Mylora - reçu par Al Fike le 29 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Mylora. Beaucoup d’entre vous ont reçu un don spécial, et je suis venue pour aider à allumer ce don et son pouvoir de guérison, pour vous amener à la conscience de tout ce qui est spirituel, de tout ce qui est de Dieu, de tout ce qui est de l’amour.
 

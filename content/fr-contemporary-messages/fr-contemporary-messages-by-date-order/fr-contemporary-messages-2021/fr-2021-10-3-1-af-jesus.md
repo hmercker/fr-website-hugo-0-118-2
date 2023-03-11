@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions dans l'Amour Divin (2021 Cercle de prière en ligne)
 
-Jésus - reçu par Al Fike le 3 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 3 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes précieuses et bien-aimées, je viens, je suis Jésus. Je viens parce que mon amour pour vous est grand et que l’Amour de Dieu pour vous est infini. Je viens parce que vous aspirez et désirez ardemment que cette Vérité soit vivante dans votre âme, que le Souffle de Dieu souffle cet Amour dans votre âme, l’éveillant à toutes ses merveilles et sa beauté. Vous êtes mes frères et sœurs, et je suis votre frère aîné parce qu’en moi se trouve l’exemple de l’Amour de Dieu démontré à travers moi à l’univers. Je viens donc en tant que votre frère aîné, et je viens donc vous pousser sur ce chemin afin que vous puissiez vous aussi être un canal d’Amour puissant, clair et beau pour Dieu et pour tout l’univers. Cette lumière peut briller à travers chacun de vous, sa beauté exaltée dans l’amour.
 

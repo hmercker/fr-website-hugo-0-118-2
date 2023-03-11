@@ -9,7 +9,7 @@ weight:
 ---
 ### Orion répond aux questions posées
 
-Orion - reçu par Al Fike le 5 Novembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 5 Novembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que les bénédictions de l’Amour du Créateur continuent de vous éveiller, mes amis. Je suis Orion. Je viens à l’heure prévue. Je vous remercie de vous être rassemblés dans le but que nous avons d’apporter des informations et des liens entre notre race et la vôtre. Nous sommes tous des enfants de Dieu. Dieu a créé de nombreux modèles et schémas dans l’univers qui se répètent encore et encore afin de maintenir l’harmonie, afin qu’il y ait une égalité dans l’univers parmi les êtres qui possèdent une âme, car Dieu ne limite pas ses bénédictions à un individu ou à un autre, qu’il soit d’une planète particulière ou non. Au contraire, dans la grande dispersion de la vie dans l’univers, ces lois fondamentales de la création sont actives et fonctionnent dans chaque coin de la création de Dieu.
 

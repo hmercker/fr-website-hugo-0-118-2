@@ -9,7 +9,7 @@ weight:
 ---
 ### Parlez au monde depuis votre âme
 
-St Étienne - reçu par Jimbeau Walsh le 26 Décembre 2021, Punalu’u, Oahu, Hawaii, USA
+St Étienne - reçu par Jimbeau Walsh le 26 Décembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Étienne <sup id="a1">[1](#f1)</sup>, un disciple du maître et le premier martyrisé pour mes croyances. Je viens dans la grâce de Dieu avec l’amour pour tous. Comme vous le savez peut-être, nous n’étions pas des hommes instruits, à quelques exceptions près. Beaucoup d’entre nous avaient leur propre agenda, leurs propres lentilles à travers lesquelles ils traitaient ce que le Maître nous donnait. Ceux qui venaient chercher la sagesse et la connaissance pour éclairer leur esprit recevaient (cela) mais étaient souvent déçus, car le message plus profond était toujours transmis à l’âme.
 

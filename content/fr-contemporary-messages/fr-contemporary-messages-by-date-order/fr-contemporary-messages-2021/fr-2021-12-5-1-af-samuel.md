@@ -9,7 +9,7 @@ weight:
 ---
 ### Les changements à venir et nos familles
 
-Samuel - reçu par Al Fike le 5 Décembre 2021, Gibsons, Colombie-Britannique, Canada
+Samuel - reçu par Al Fike le 5 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que la grande bénédiction d’amour de Dieu se déverse sur vous, chères, chères âmes. Je suis Samuel. Les conditions du monde et la condition humaine n’ont pas tellement changé au point qu’il y ait une grande différence entre mon époque et la vôtre. Oui, bien sûr, la façon dont vous vivez est différente, le rythme est tellement accéléré et les distractions tellement plus nombreuses. Mais les motifs, les désirs et les expressions de l’humanité n’ont pas beaucoup changé. Les inquiétudes et les soucis sont les mêmes. Les désirs sont les mêmes. Ils sont juste exprimés différemment. Mais le temps vient, mes amis bien-aimés, où la domination et le pouvoir de l’homme seront transformés et diminués à tel point qu’ils seront humiliés. Et ceux qui le veulent, et qui en ont le profond désir, trouveront leur réconfort en Dieu plutôt que dans l’homme. Dieu a donné à l’humanité tout le temps nécessaire pour revenir dans son giron, pour s’aligner avec lui.
 

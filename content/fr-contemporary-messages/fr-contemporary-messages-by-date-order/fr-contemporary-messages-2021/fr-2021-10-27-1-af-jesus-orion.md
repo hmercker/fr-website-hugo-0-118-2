@@ -9,7 +9,7 @@ weight:
 ---
 ### Orion et Jésus encouragent les efforts pour de futures publications
 
-Jésus & Orion - reçu par Al Fike le 27 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus & Orion - reçu par Al Fike le 27 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 **Orion est ici.** Votre frère bien-aimé Jésus est également présent. Ensemble, nous formons une puissante alliance de lumière et d’amour en concentrant nos efforts sur votre monde, en concentrant l’amour sur ceux qui font de grands efforts pour s’élever au-dessus de la condition humaine.
 
@@ -22,7 +22,8 @@ Donc, je vous assure que nous allons poursuivre nos collaborations, qu’il y au
 Vous n’avez pas besoin de vous inquiéter de donner aux autres un avertissement car ce ne sont pas vos mots, bien qu’en fait, ils le soient. Nous communiquons simplement avec vous par télépathie afin de vous aider à venir, à établir le flux de mots de manière à ce que vous transmettiez la vérité du sujet. Nous pouvons également venir lorsque vous êtes réunis en ce lieu et délivrer des messages qui peuvent être ajoutés dans vos livres et qui sont pertinents pour les sujets abordés. Ainsi, une collaboration entre cet instrument et vous-même permettra d’accélérer vos efforts en matière de publications.
 
 Je suis ouvert à vos questions en ce moment s’il y a des interrogations concernant vos collaborations ensemble. Je vous laisse un moment de réflexion si vous avez envie de me demander quelque chose.
-(il y a une brève pause dans l’audio)
+
+*[il y a une brève pause dans l’audio]*
 
 Donc, je suppose que vous êtes d’accord sur le sujet et que vous allez procéder en conséquence. Maintenant, je vais laisser la place à mon beau frère Jésus qui souhaite également vous parler.
 

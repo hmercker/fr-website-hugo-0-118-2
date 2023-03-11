@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuer à bâtir sur les fondations de l'amour de Dieu (2021 Groupe des douze)
 
-Seretta Kem - reçu par Al Fike le 5 Novembre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 5 Novembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Le monde commence à s’éveiller au fait que la Terre est en train de changer. Ils voient faiblement dans l’avenir et réalisent qu’en raison des conditions climatiques et d’autres conditions dans le monde, la stabilité et le contrôle qu’ils souhaitent atteindre en tant que race, en tant que culture, en tant que société, en tant qu’économie, et ainsi de suite, sont lentement déstabilisés. Et en effet, il y a plus à venir qui n’est ni vu ni anticipé. Ils voient la puissance de leur propre volonté et de leurs actions dans le monde, mais ils ne peuvent pas voir la puissance de la volonté et des actions de Dieu dans le monde. Et ainsi, ils ne voient qu’une petite partie de l’image entière qui est l’évolution et le changement continus qui arrivent.
 

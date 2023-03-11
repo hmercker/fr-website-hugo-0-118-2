@@ -9,7 +9,7 @@ weight:
 ---
 ### Orion se décrit et décrit sa planète
 
-Orion - reçu par Al Fike le 5 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 5 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-orion-constellation.jpg)
 

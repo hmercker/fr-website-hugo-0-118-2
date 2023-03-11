@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous rappelle nos engagements et ce qu'il faut faire pour surmonter nos difficultés (2021 Groupe des douze)
 
-Aron - reçu par Al Fike le 9 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Aron - reçu par Al Fike le 9 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Votre prière était poignante, chère fille, et sincère en effet. Je suis Aaron. Je viens vous encourager sur votre chemin, car maintenant que vous vous êtes dispersés dans le monde et que vous vous engagez dans votre vie quotidienne, je vois que vous avez chacun vos défis, vos luttes et vos triomphes alors que vous essayez de mettre en œuvre les conseils qui vous ont été donnés et les bénédictions qui sont en vous.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous marchez sur le chemin de la pureté et de l’amour
 
-André - reçu par Al Fike le 14 Décembre 2021, Gibsons, Colombie-Britannique, Canada
+André - reçu par Al Fike le 14 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis André et je viens comme toujours pour prier avec vous, avec de nombreux anges des Cieux Célestes, des esprits lumineux et d’autres qui viennent se joindre à vous dans ce grand effort pour apporter une plus grande lumière à ce monde. Vous êtes les chevilles d’ancrage de ce grand effort. Sans vos efforts, nos efforts ne sont pas aussi directs et puissants et sans les bénédictions de Dieu sur l’âme, quels peuvent être les efforts déployés pour apporter les bénédictions de la lumière au monde. Il nous faut être tous ensemble, âmes bien-aimées, tous ceux qui sont ici dans le dévouement, la prière, l’aspiration et le désir, pour apporter de grandes bénédictions de Dieu au monde, à vos âmes, à tous ceux qui font partie de votre monde.
 

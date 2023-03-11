@@ -9,7 +9,7 @@ weight:
 ---
 ### Créer un sanctuaire
 
-Yogananda - reçu par Jimbeau Walsh le 18 Octobre 2021, Punalu’u, Oahu, Hawaii, USA
+Yogananda - reçu par Jimbeau Walsh le 18 Octobre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je souhaite poursuivre mon exposé sur la création d’un sanctuaire et si je peux, développer ce sujet. J’ai parlé de l’importance de créer un endroit sûr, un endroit tranquille, un endroit où vous pouvez être vulnérable, faire confiance aux anges et vous ouvrir à l’Amour de Dieu. Pour certains, c’est facile à faire et pour d’autres, en particulier ceux qui ont une famille ou d’autres personnes vivant dans leur maison, cela peut être plus difficile. Alors que ce cercle vous amène en harmonie avec l’Amour de Dieu, dans le flux de la Grâce, je vous encourage à nouveau à créer un endroit où vous pouvez aller à Dieu. Si vous ne pouvez pas en trouver un chez vous ou là où vous habitez, essayez d’aller dans la nature comme l’a fait notre frère François dans la création de Dieu, là où c’est sûr, là où il est facile de se connecter. Je souhaite vous rappeler que la commodité est bien souvent nuisible à long terme.
 

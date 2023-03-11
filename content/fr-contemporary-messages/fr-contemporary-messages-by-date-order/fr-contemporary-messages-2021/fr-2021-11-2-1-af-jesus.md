@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 19 : Appelle tous les éclaireurs à servir
 
-Jésus - reçu par Al Fike le 2 Novembre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 2 Novembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Il est bon que vous cherchiez des voies et des moyens de partager le message qui a été donné par cet instrument dans mes efforts pour communiquer avec le monde. Vous sentez qu’une dynamique se met en place alors que vous vous adressez à de nombreuses personnes dans le monde. Il y a ceux qui répondent et offrent de vous soutenir et de vous aider dans ces efforts. Cela aussi est guidé et portera ses fruits dans ces efforts pour apporter la Vérité de l’Amour à l’humanité.
 

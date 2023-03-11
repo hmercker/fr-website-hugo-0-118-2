@@ -9,7 +9,7 @@ weight:
 ---
 ### Appel à l'action ! Nous sommes tous profondément nécessaires dans le plan de Dieu
 
-Orion - reçu par Al Fike le 4 Décembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 4 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Mes amis, je suis Orion, votre compagnon sur la route d’un plus grand éveil de l’âme et de l’illumination. Nous continuons à vous aider et à assister nos amis anges dans l’établissement des fondations et des vérités qui sont nécessaires afin d’apporter ce grand changement d’éveil et de conscience en vous. Nous le faisons en tant que serviteurs de Dieu, car c’est Dieu qui orchestre votre voyage de l’âme. C’est Dieu qui orchestre l’éveil de l’humanité sur votre Terre. Ainsi, nous sommes de simples serviteurs à cet égard. Nous apportons les bénédictions, les capacités, les dons et les technologies qui vous aideront dans ce voyage. Nous vous ouvrons tout ce qui se trouve dans notre trésor de cadeaux, car le temps est compté, mes amis. Le temps est court et le besoin est grand.
 

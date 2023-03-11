@@ -9,7 +9,7 @@ weight:
 ---
 ### Fait briller sa lumière sur la voie de l’Amour Divin et ses adeptes (Cercle de prière en ligne)
 
-Samuel - reçu par Al Fike le 31 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Samuel - reçu par Al Fike le 31 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous, mes amis, je suis Samuel. Dieu, qui est le Créateur de l’univers, concentre Son amour sur ce monde. Ce monde qui est en transition, continue d’être en désaccord avec les lois de Dieu, donc un grand effort est maintenant en cours pour ramener l’humanité de cette distorsion à un endroit de plus grande harmonie avec Dieu. Chacun d’entre vous continue à prier pour qu’il en soit ainsi. Chacun d’entre vous, dans son cœur, souhaite que toute l’humanité puisse s’unir comme vous le faites, venant de différentes parties du monde, d’idées différentes, de cultures différentes, de milieux différents, et pourtant vous vous réunissez dans l’amour. Ainsi, vous représentez un grand exemple pour le monde de la façon dont vous pouvez tous communier ensemble dans la prière, en reconnaissant la beauté et la grâce de chaque âme présente ici aujourd’hui.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Se présente à l'OCL - Ils sont ici pour aider la Terre
 
-Orion - reçu par Al Fike le 1 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 1 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Salutations à vous, âmes bien-aimées, enfants de la Terre qui cherchez à être au-dessus des conditions terrestres, des disharmonies et des dysfonctionnements de l’humanité vers un lieu de plus de pureté et de lumière, de plus d’amour et de grâce, et Dieu cherche à vous bénir ainsi, mes amis. Dans le flux de Son Amour vient cette lumière et cette grâce, vient tout ce qui est bon, tout ce qui est en harmonie avec Sa Création.
 

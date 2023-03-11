@@ -9,7 +9,7 @@ weight:
 ---
 ### Travailler avec les petits enfants
 
-Fred Rogers - reçu par Jimbeau Walsh le 12 Octobre 2021, Punalu’u, Oahu, Hawaii, USA
+Fred Rogers - reçu par Jimbeau Walsh le 12 Octobre 2021, Fife, WA, USA.
 
 Bonjour Melissa ! Bonjour Michael ! Bonjour Ruth ! Bonjour Jimbeau !
 

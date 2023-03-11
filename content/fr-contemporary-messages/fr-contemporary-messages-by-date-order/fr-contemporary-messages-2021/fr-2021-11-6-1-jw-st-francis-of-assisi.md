@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plan des amis et de la famille de Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 6 Novembre 2021, Punalu’u, Oahu, Hawaii, USA
+St François d'Assise - reçu par Jimbeau Walsh le 6 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, François d’Assise. Je viens dans la lumière et l’Amour du Père Céleste avec mes amis. Quelles que soient les richesses que vous avez possédées dans le monde matériel, sachez qu’elles ne vous achèteront pas un seul instant de paradis dans le monde spirituel.
 

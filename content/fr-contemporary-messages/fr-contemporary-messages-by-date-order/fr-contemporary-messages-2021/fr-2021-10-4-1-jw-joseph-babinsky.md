@@ -9,7 +9,7 @@ weight:
 ---
 ### Décrit sa vie dans le monde des esprits
 
-Joseph Babinsky - reçu par Jimbeau Walsh le 4 Octobre 2021, Punalu’u, Oahu, Hawaii, USA
+Joseph Babinsky - reçu par Jimbeau Walsh le 4 Octobre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-spiritualite-22.jpg)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Déclaration du début de la transformation de notre monde
 
-Archange Michael - reçu par Al Fike le 17 Décembre 2021, Gibsons, Colombie-Britannique, Canada
+Archange Michael - reçu par Al Fike le 17 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je suis celui que beaucoup ont appelé l’Archange Michel. Je suis connu sous de nombreux noms. Je vous dis que même nous, qui sommes impliqués dans les rouages de l’univers, viendrons vous aider en cette période cruciale de transformation. Nous ne nous occupons pas des affaires quotidiennes des hommes, mais en effet, toutes les ressources sont appelées à l’action et à l’engagement en ce temps qui approche rapidement.
 

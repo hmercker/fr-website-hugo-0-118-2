@@ -9,7 +9,7 @@ weight:
 ---
 ### Tous sont dignes de l'Amour de Dieu
 
-Robert James Lees - reçu par Jimbeau Walsh le 11 Novembre 2021, Punalu’u, Oahu, Hawaii, USA
+Robert James Lees - reçu par Jimbeau Walsh le 11 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère et ami dans le Christ, Robert J. Lees. Tous ceux qui marchent sur le chemin de l’Amour de Dieu sont sur le pont dont vous parlez et qui relie la terre, les plans terrestres, les royaumes spirituels, la 7e sphère et les Cieux Célestes.
 

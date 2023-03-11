@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 20 : L’amour de Dieu est le seul moyen de sauver l’humanité
 
-Jésus - reçu par Al Fike le 4 Novembre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 4 Novembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Jésus. Nous sommes arrivés à la fin de nos dissertations sur la vérité spirituelle. Cet instrument a passé de nombreuses heures avec sa compagne bien-aimée à enregistrer ces vérités et à les partager avec le monde. Comme c’est toujours le cas, il y a beaucoup plus de vérités à partager, mais nous souhaitons vous transmettre ce qui est le plus pertinent et utile dans vos vies. En temps voulu, vous découvrirez les détails qui découlent de ces vérités et les prises de conscience universelles qui se produisent lorsque vous appliquez ces vérités à vos vies.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le temps de Dieu
 
-St Jean - reçu par Jimbeau Walsh le 21 Novembre 2021, Punalu’u, Oahu, Hawaii, USA
+St Jean - reçu par Jimbeau Walsh le 21 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Jean l’Apôtre. Je suis avec vous alors que vous engagez les désirs de vos âmes dans la prière pour recevoir l’Amour de Dieu. Il y a une expression dans le monde, *« Tout vient à point à qui sait attendre. »*  Cette expression a été adaptée de l’original, *« Permettez à toutes choses de venir au temps de Dieu »* , et vous êtes tous au temps de Dieu dans ce cercle. Lorsque vous êtes engagés dans le monde, dans toutes les choses matérielles qui sont nécessaires et que vous perdez l’harmonie parce que vous êtes submergés par l’inquiétude, la peur, le doute, prenez ce temps de votre engagement dans le monde et renversez-le. Dès que vous sentez la séparation entre votre âme et l’âme de Dieu, appelez Dieu. Soyez conscient de la séparation et demandez à être à l’Un, demandez à être ramené dans le temps de Dieu, dans la grâce de Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre collaboration pour apporter la lumière au monde est importante
 
-Augustin - reçu par Al Fike le 10 Décembre 2021, Gibsons, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 10 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Mes amis. Je suis votre enseignant, Augustin. Le travail que vous entreprenez ensemble est important. Apporter une plus grande lumière à ce monde est essentiel pour que ce monde guérisse et que plus d’harmonie puisse naître dans les activités de l’humanité. Alors que vous vous réunissez en prière, vous apportez une lumière qui, à travers les nuages sombres de l’humanité, se déverse sur vous, chacun d’entre vous, et s’étend vers l’extérieur, dans votre environnement, vos vies, vos maisons, vos lieux d’habitation. Tous ces endroits, tous ces aspects de votre vie sont affectés et bénis par le don que vous invoquez de Dieu, les grandes bénédictions qui viennent lorsque vous continuez à vous éveiller dans vos âmes. Et avec cet éveil, vous implorez les bénédictions de Dieu sur vous et à travers vous. L’obscurité est insidieuse, elle est partout et affecte tout le monde. Même vous, et vos vies, êtes sensibles à ces conditions du monde. Si vous l’entretenez, alors elle viendra et trouvera ces fissures et crevasses en vous pour vous pénétrer et influencer vos pensées, car ce sont vos pensées qui attirent les héritiers et les ténèbres.
 

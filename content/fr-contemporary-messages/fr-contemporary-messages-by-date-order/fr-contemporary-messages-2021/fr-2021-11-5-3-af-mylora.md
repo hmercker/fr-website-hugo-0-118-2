@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédiction
 
-Mylora - reçu par Al Fike le 5 Novembre 2021, Gibsons, Colombie-Britannique, Canada
+Mylora - reçu par Al Fike le 5 Novembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes chers, je suis votre amie Mylora. Je viens prier avec vous, prier pour la forêt, les eaux et les océans, prier pour l’air que vous respirez, prier pour toute la création de Dieu qu’est notre monde. Car en priant, ne sentez-vous pas dans votre cœur votre amour pour ce monde, une appréciation de tout ce que Dieu a créé, un désir que toutes ces créations, tous ces aspects de votre monde puissent être protégés, propres et purs comme ils sont destinés. Je sais que c’est un dilemme pour vous tous, de vivre dans le monde mais de ne pas avoir un tel impact sur le monde qu’il souffre de votre présence. Et pourtant, en raison de votre culture, de vos sociétés et de votre mode de vie, vous ne pouvez pas vous empêcher d’avoir cet effet.
 

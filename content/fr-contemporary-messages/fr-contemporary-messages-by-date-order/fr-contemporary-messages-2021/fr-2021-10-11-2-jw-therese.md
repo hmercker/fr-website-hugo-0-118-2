@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque prière crée un sanctuaire invisible (Cercle de Prière de Gibsons)
 
-Thérèse de Lisieux - reçu par Jimbeau Walsh le 11 Octobre 2021, Punalu’u, Oahu, Hawaii, USA
+Thérèse de Lisieux - reçu par Jimbeau Walsh le 11 Octobre 2021, Seattle, WA, USA.
 
 Je suis ici, la Petite Fleur, Thérèse. Je ne souhaite dire que quelques mots. Que vos prières vous conduisent à un destin indestructible. Que l’Amour dans vos âmes soit si fort qu’il ne puisse être pénétré par les ténèbres du monde, car la Substance de l’Amour de Dieu dépasse et est bien plus grande que toute possession matérielle, toute richesse. Je sais que vous devez vivre dans le monde tel que vous l’avez choisi mais chaque prière crée un sanctuaire invisible plein de lumière et de la protection des anges.
 

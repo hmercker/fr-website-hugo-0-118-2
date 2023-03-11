@@ -9,7 +9,7 @@ weight:
 ---
 ### Vient pour nous soutenir en harmonie dans nos efforts individuels
 
-Jésus - reçu par Al Fike le 7 Décembre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 7 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je viens. Je suis Jésus. Je viens pour prier avec vous et vous soutenir dans vos efforts. Je viens parce que je suis avec vous dans ces efforts. Je m’efforce de vous aider dans les efforts que vous déployez. Je souhaite vous assurer que des progrès sont réalisés alors que vous continuez à prier, le déploiement de ces dons et événements qui apporteront la Vérité de l’Amour de Dieu au monde et que nous forgeons de nombreux liens et chaînes de lumière entre vous et les autres et tous ceux qui font partie du plan de Dieu. En effet, ces chaînes vont grandir, ces liens vont être forgés et ils seront forts, non pas en vous contraignant, mais en vous reliant ensemble, en apportant les opportunités et les situations qui ouvriront des portes, des possibilités de travailler ensemble, d’être vraiment comme des instruments de Dieu travaillant de concert et en harmonie.
 

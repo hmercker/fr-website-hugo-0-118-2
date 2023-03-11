@@ -9,7 +9,7 @@ weight:
 ---
 ### Les manifestations ne viendront pas tant que vous n'êtes pas préparés
 
-Seretta Kem - reçu par Al Fike le 26 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 26 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse profondément, mes amis. Je suis Seretta Kem. Beaucoup d’entre vous sont mis au défi par les conditions terrestres, et continuent de lutter contre l’équilibre qu’ils recherchent, pour être spirituellement en accord et en harmonie, tout en subvenant à leurs besoins matériels. Cela vous pose souvent un dilemme qui n’est pas facilement résolu ou qui ne donne pas lieu à une orientation claire.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Demandez en priant et vous recevrez
 
-Eileen Caddy - reçu par Jimbeau Walsh le 19 Novembre 2021, Punalu’u, Oahu, Hawaii, USA
+Eileen Caddy - reçu par Jimbeau Walsh le 19 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Mes chers amis, je viens dans la Grâce de Dieu, dans l’Amour de Dieu à cette sainte communion des âmes bénies, vers vous qui vous réunissez en une communauté de prière, une union d’âmes, vers vous qui vous réunissez pour recevoir l’Amour de Dieu et, connaissant l’ampleur de cet effort, vous vous joignez à la famille de l’Amour Divin où tous sont Un. Je peux vous dire que lorsque vous vous réunissez avec un but singulier, vous apportez une force qui ne peut être niée, car vous faites briller un rayon de lumière dans l’obscurité. Nous, qui vivons dans des royaumes de lumière attirés par votre prière, sommes heureux de venir et d’être dans cette communauté avec vous. Pour donner tout ce que nous pouvons comme conseils, comme encouragements avec l’amour de nos âmes.
 

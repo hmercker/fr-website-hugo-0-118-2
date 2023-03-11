@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon 17 : Les changements à venir dans votre monde
 
-Jésus - reçu par Al Fike le 1 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse profondément avec cela mes bien-aimés, et je viens poursuivre mes dissertations sur votre monde. Aujourd’hui, je souhaite parler des changements à venir dans votre monde et de ce qui se manifestera dans le monde et qui apportera une plus grande lumière et des bénédictions à votre monde.
 

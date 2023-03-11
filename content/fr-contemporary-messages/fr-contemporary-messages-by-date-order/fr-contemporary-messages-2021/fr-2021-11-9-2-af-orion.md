@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre développement se poursuit dans l'Amour de Dieu (Projet Orion 2021)
 
-Orion - reçu par Al Fike le 9 Novembre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 9 Novembre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Mes amis, c’est votre frère Orion. Je viens vous parler et vous assurer que nous poursuivons nos efforts pour vous aider dans votre développement, votre progrès spirituel, vos capacités psychiques et vos capacités de l’âme. Nous le faisons souvent dans vos états de sommeil. Nous vous rassemblons. Nous appliquons certains mécanismes et efforts afin d’aider à votre réveil, à condition que vous continuiez à chercher la grande Source de toute transformation qui est l’Amour Divin.
 

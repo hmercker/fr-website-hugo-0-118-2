@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque voyage commence par un premier pas
 
-Jude, le frère de Jésus - reçu par Jimbeau Walsh le 30 Décembre 2021, Punalu’u, Oahu, Hawaii, USA
+Jude, le frère de Jésus - reçu par Jimbeau Walsh le 30 Décembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-eveil-spirituel2.jpg)
 

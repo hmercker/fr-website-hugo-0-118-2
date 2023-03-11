@@ -9,7 +9,7 @@ weight:
 ---
 ### Prière pour notre monde (2021 Cercle de prière en ligne)
 
-Orion - reçu par Al Fike le 8 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 8 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénis, beaux enfants du monde. Je suis Orion et je crois que beaucoup d’entre vous me connaissent maintenant puisque j’ai fait un effort concerté pour être connu de vous. En effet, votre Terre et ce que Dieu a créé sur cette belle sphère dans l’univers, est une grande bénédiction de Dieu, une belle et magnifique création de Dieu, comme l’est chacun de vous sur ce monde. Alors que vous continuez à découvrir la magnificence, le potentiel et la beauté de votre création, de votre être sur ce monde, vous commencez également à réaliser les complexités, les couches et l’interconnexion de toute la Création de Dieu. De notre point de vue, nous voyons que beaucoup sont endormis et inconscients de cette beauté, de cette vérité qu’est la vie.
 

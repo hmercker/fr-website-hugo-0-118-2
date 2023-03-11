@@ -9,7 +9,7 @@ weight:
 ---
 ### Gardez une chanson dans votre cœur
 
-Hazrat Inayat Khan - reçu par Jimbeau Walsh le 9 Novembre 2021, Punalu’u, Oahu, Hawaii, USA
+Hazrat Inayat Khan - reçu par Jimbeau Walsh le 9 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je viens dans la grâce de Dieu avec une chanson dans mon cœur et l’Amour Divin dans mon âme. Je suis Hazrat Inayat Khan.
 

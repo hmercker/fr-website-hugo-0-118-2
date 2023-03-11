@@ -9,7 +9,7 @@ weight:
 ---
 ### Affirme qu’Orion est là pour nous aider sur Terre (Cercle de Prière en ligne)
 
-Jésus - reçu par Al Fike le 5 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 5 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je viens ; je suis Jésus. Je viens vous assurer que notre ami bien-aimé est bien qui il dit être et qu’il apporte la lumière, la vérité et l’amour dans son être. À tous égards, il est notre égal, à tous égards, il est synchronisé et en harmonie avec nous et les efforts qui sont faits pour éveiller l’humanité à la vérité, la lumière et l’amour. Ainsi, nous accueillons cette assistance, cette présence de lumière dans notre monde, car nous en avons grand besoin, n’est-ce pas, de tout ce qui peut être donné pour éveiller l’humanité et guérir ce monde des perturbations et des disharmonies qui existent.
 

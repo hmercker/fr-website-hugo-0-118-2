@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragements à terminer les projets
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 22 Octobre 2021, Punalu’u, Oahu, Hawaii, USA
+Care Derby Walsh - reçu par Jimbeau Walsh le 22 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Je souhaite commencer par exprimer ma gratitude envers ceux qui veillent sur mon bien-aimé et en prennent soin. Laissez-moi vous dire que nous sommes tous deux très reconnaissants. C’est une âme résiliente et déterminée, mais je pense qu’il admettrait qu’il n’a pas l’estomac pour le côté commercial des choses et pourtant il a le profond désir de promouvoir la Vérité. Plus précisément les vérités de l’Amour de Dieu et de la transformation de l’âme. Je sais qu’il est en conflit avec cette idée, car il estime que l’une est contradictoire avec l’autre. Vous savez, dans le film *« Le Champ des Rêves »*, la seule déclaration que les gens retiennent est *« Construisez-le et ils viendront »* et bien sûr, dans le film, il est venu. Donc, je dirais que vous construisez quelque chose qui est d’une importance éternelle.
 

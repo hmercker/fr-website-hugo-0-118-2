@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous implore d’apporter une plus grande lumière dans le monde (Cercle de Prière en ligne)
 
-St François d'Assise - reçu par Al Fike le 17 Octobre 2021, Gibsons, Colombie-Britannique, Canada
+St François d'Assise - reçu par Al Fike le 17 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
 Merci pour votre prière et que Dieu vous bénisse profondément mes amis, je suis François d’Assise. Je suis venu parce que votre beau monde souffre beaucoup. De bien, bien des façons différentes, il y a une grande douleur et une grande souffrance sur (dans) votre monde. La pression de l’humanité sur votre monde crée une telle force qu’elle est égale ou supérieure à la puissance de la nature qui est sur cette planète, et il y a une grande lutte entre ces deux forces. La volonté de l’homme et la volonté de Dieu sont en désaccord, mes amis bien-aimés. Ce n’est pas que l’homme, ou du moins beaucoup d’entre eux, se battent consciemment contre les lois de la nature, mais en tant que corps unique, c’est une force formidable qui crée des désaccords et des difficultés dans le monde naturel. Vous en viendrez à considérer cela comme très évident et cela apportera de grandes vagues de résistance et de puissance pour neutraliser la condition de l’homme dans le monde. Vous en ressentirez tous l’impact. Cela arrive et c’est maintenant dans votre monde.
 
