@@ -9,7 +9,7 @@ weight: 10
 ---
 ## Qui était James Padgett
 
-![](/fr-james-padgett-messages/fr-james-padgett-200x300.jpg)
+![title](/fr-james-padgett-messages/fr-james-padgett-200x300.jpg)
 
 M. James Edward Padgett est né le 25 août 1852, à Washington D.C. et a étudié à l’Académie Polytechnique à Newmarket, en Virginie. Par la suite, Par la suite, il a exercé comme avocat dans la capitale pendant quarante-trois ans jusqu’à son décès en 1923. James Padgett n’était pas un Spiritualiste mais un Méthodiste et il a enseigné à l’école du dimanche à l’Église Méthodiste de la Trinité à Washington. Il n’avait eu aucune expérience précédente avec le phénomène psychique et sa conception de la doctrine religieuse était simplement celle de l’Église Protestante.
 

@@ -53,11 +53,11 @@ Jocelyne Harleston assuma temporairement la présidence de la FCNB dans l’atte
 
 Janvier 2001 :  Le siège de la FCDT fut déplacé de Washington en Californie. Ultérieurement le nombre de membres du Conseil d’Administration s’est réduit à 4 membres
 
--	Président : Dave Lamprom
--	Vice président : Michael Nebdal
--	Trésorier : Rev Holly Bianco
--	Secrétaire : Eva Peck
--
+- Président : Dave Lamprom
+- Vice président : Michael Nebdal
+- Trésorier : Rev Holly Bianco
+- Secrétaire : Eva Peck
+
 La branche Hawaïenne fut créée, par le Rev Jimbeau Walsh, le 16 Avril 2002 sous le nom de Divine Love Ministry.
 
 Une autre branche fut créée à Santa Cruz.

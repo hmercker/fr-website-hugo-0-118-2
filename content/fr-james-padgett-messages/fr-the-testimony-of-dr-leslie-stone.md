@@ -11,7 +11,7 @@ weight:
 
 (L’éditeur original des Messages de James Padgett.)
 
-![](/fr-james-padgett-messages/fr-stone.jpg)
+![title](/fr-james-padgett-messages/fr-stone.jpg)
 
 Ce témoignage fait suite aux nombreuses questions qui ont suivi la publication des volumes I et II des Messages de Jésus et des Esprits Célestes que j’ai publiés pour la première fois en 1940 <sup id="a1">[1](#f1)</sup>, et qui se sont maintenus au cours des trois premières éditions. Je profite de l’opportunité de la publication de cette quatrième édition du volume I pour intégrer toutes ces questions, des lecteurs qui ont manifesté leur intérêt, sous la forme d’un témoignage qui montrera comment ce fut possible, pour M. Padgett, d’accomplir cette tâche de réception de ces messages remarquables. Il relate comment j’ai rencontré M. Padgett et présente les raisons qui m’ont amené à croire qu’il était réellement en mesure de recevoir des messages, non seulement du  monde des esprits, mais des plus grands esprits des Cieux Célestes, dont le Maître est Jésus de Nazareth.
 
