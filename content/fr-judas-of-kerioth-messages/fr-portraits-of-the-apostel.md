@@ -43,8 +43,8 @@ Le linceul de Turin a fait l'objet d'études approfondies et des preuves scienti
 
 ## Autres personnalités
 
-![pilate](/fr-judas-of-kerioth-messages/fr-pilate_small.jpg) |  ![title](/fr-judas-of-kerioth-messages/fr-machiventa_small.jpg) |
----|---|---  
-[pilate](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-1-hr-judas/) | Melchizédek |
+![pilate](/fr-judas-of-kerioth-messages/fr-pilate_small.jpg) | ![title](/fr-judas-of-kerioth-messages/fr-machiventa_small.jpg)
+---|---
+[Pilate](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-1-hr-judas/) | Melchizédek
 
 *Le copyright de ces images appartient à Geoff Cutler 2013.*
