@@ -31,6 +31,7 @@ Confucius | [Partager nos dons de guérison](/fr-contemporary-messages/fr-contem
 Professeur Salyards | [L’Amour Divin est la plus grande force de l’univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-26-1-af-professor-salyards/) | 26 Janvier 2022
 Claire d'Assise | [L’Amour de Dieu met une chanson dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-27-1-jw-clare-of-assisi/) | 27 Janvier 2022
 Professeur Salyards | [Votre attention et votre concentration sont nécessaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-29-1-af-professor-salyards/) | 29 Janvier 2022
+
 Care Derby Walsh | [C’est une question de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-31-1-jw-care-derby-walsh/) | 31 Janvier 2022
 St François d'Assise | [L’importance de nos cercles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-1-1-af-st-francis-of-assisi/) | 1 Février 2022
 Robert Hugh Benson | [La Septième Sphère est la porte d’entrée des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-3-1-jw-robert-hugh-benson/) | 3 Février 2022
@@ -65,7 +66,7 @@ Orion | [Discerner entre la conscience de l’âme et la conscience de l’espri
 Care Derby Walsh | [Laissez derrière vous ce qui n'est pas digne de votre marche future !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2022-3-21-1-jw-care-derby-walsh/) | 21 Mars 2022
 Judas | [Revisiter les messages Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-22-1-jw-judas/) | 22 Mars 2022
 St François d'Assise | [S’épanouir dans la générosité de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-28-1-jw-st-francis-of-assisi/) | 28 Mars 2022
-Flavius Joseph | [Avertissement et réassurance pour des changements terrestres de plus en plus intenses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-29-1-af-josephus/) | 29 Mars 2022
+Flavius Josèphe | [Avertissement et réassurance pour des changements terrestres de plus en plus intenses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-29-1-af-josephus/) | 29 Mars 2022
 St Matthieu | [Encouragé à collaborer à la formation du noyau de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-30-1-af-st-matthew/) | 30 Mars 2022
 Mylora | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-30-2-jw-mylora/) | 30 Mars 2022
 Orion | [Se présente et présente son objectif au groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-3-1-af-orion/) | 3 Avril 2022
@@ -118,9 +119,9 @@ St François d'Assise | [Le Septième Sens](/fr-contemporary-messages/fr-contemp
 Gurdjieff | [Rester éveillé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-7-1-jw-george-gurdjieff/) | 7 Juin 2022
 Orion | [Orion est toujours avec nous, pour nous soutenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-8-1-af-orion/) | 8 Juin 2022
 Orion | [L’humanité continue de résister à l’amour et aux énergies de guérison de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-11-1-af-orion/) | 11 Juin 2022
-Marie | [Les anges travaillent avec nous pour transformer l’obscurité en lumière, l’erreur en vérité et le chaos en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-12-1-jw-mary/) | 12 Juin 2022
+Marie | [Les anges travaillent avec nous pour transformer l’obscurité en lumière, l’erreur en vérité et le chaos en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-12-1-af-mary/) | 12 Juin 2022
 Jésus | [La justice trouvera sa voie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-13-1-jw-jesus/) | 13 Juin 2022
-Mylora | [Comment Dieu veille sur nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-14-1-jw-mylora/) | 14 Juin 2022
+Mylora | [Comment Dieu veille sur nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-14-1-af-mylora/) | 14 Juin 2022
 Jésus | [Jésus continue d’enseigner la vérité de l’amour divin de Dieu jusqu’à la fermeture du royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-14-2-af-jesus/) | 14 Juin 2022
 Judas | [La solitude est un état béni](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-14-3-jw-judas/) | 14 Juin 2022
 Judas | [Sonnez la cloche de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-16-1-jw-judas/) | 16 Juin 2022
@@ -148,7 +149,7 @@ Jésus | [Leçon 11 : La nature de l’esprit et la conscience de l’âme (2022
 Yogananda | [Avec Dieu, tout est possible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-1-jw-yogananda/) | 19 Juillet 2022
 Judas | [Avoir la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-2-jw-judas/) | 19 Juillet 2022
 Care Derby Walsh | [Tomber en Grace](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-20-1-jw-care-derby-walsh/) | 20 Juillet 2022
-Jésus | [Leçon 12 : Les méandres de la condition humaine (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-20-1-af-jesus/) | 20 Juillet 2022
+Jésus | [Leçon 12 : Les méandres de la condition humaine (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-20-2-af-jesus/) | 20 Juillet 2022
 Jésus | [Leçon 13 : L’équilibre et la loi de l’harmonie (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-23-1-af-jesus/) | 23 Juillet 2022
 Thomas l’Apôtre | [L'âme touchée par Dieu est la vraie preuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-25-1-jw-thomas-the-apostle/) | 25 Juillet 2022
 Jésus | [Leçon 14 : La loi du désir (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-26-1-af-jesus/) | 26 Juillet 2022
@@ -169,6 +170,7 @@ Jésus | [Leçon 19 : Les lois d’amour et d’harmonie de Dieu. (2022 Le Proje
 Jésus | [Leçon 20 : Il faut davantage d’âmes dévouées pour construire des portails et étendre le treillis de lumière. (Le projet Jésus 2022)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-12-1-af-jesus/) | 12 Août 2022
 Augustin | [La pression de la résistance au changement s'accentue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-12-2-af-augustine/) | 12 Août 2022
 Orion | [C’est le moment d’être libre !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-13-1-af-orion/) | 13 Août 2022
+Jésus | [La porte est ouverte pour chacun de nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-14-1-af-jesus/) | 14 Août 2022
 Jésus | [Leçon 21 : Les joies profondes de l’éveil de l’âme ! (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-1-af-jesus/) | 16 Août 2022
 Jésus | [Leçon 22 : La foi peut lever les obstacles à la connaissance de Dieu. (2022 Le Projet Jésus 3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-1-af-jesus/) | 22 Août 2022
 Care Derby Walsh | [De nombreuses façons de donner de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-2-jw-care-derby-walsh/) | 22 Août 2022
@@ -183,7 +185,7 @@ Mylora | [Honorer la terre merre qui nous aime tant](/fr-contemporary-messages/f
 Jésus | [Parle du plan de Dieu et de notre appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-3-1-af-jesus/) | 3 Septembre 2022
 Marie-Madeleine | [La lampe de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-1-af-mary-magdalene/) | 4 Septembre 2022
 Jean le Baptiste | [Tous sont transformés, éveillés et guéris dans l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-2-af-john-the-baptist/) | 4 Septembre 2022
-Seretta Kem | [Les portails de lumière ont un but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-1-af-seretta-kem/) | 9 Septembre 2022
+Augustin | [Les portails de lumière ont un but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-1-af-augustine/) | 9 Septembre 2022
 Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
 Yogananda | [Permettez à vos âmes d'informer vos esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-18-1-jw-yogananda/) | 18 Septembre 2022
 Eileen Caddy | [Comment être dans le monde et non pas du monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-19-1-jw-eileen-caddy/) | 19 Septembre 2022
@@ -193,13 +195,13 @@ Professeur Salyards | [Ceci est votre mandat](/fr-contemporary-messages/fr-conte
 Baal Shem Tov | [Faites de chaque jour un nouveau jour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-26-1-jw-baal-shem-tov/) | 26 Septembre 2022
 Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
 Care Derby Walsh | [Progression au-delà des flux et reflux de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-1-jw-care-derby-walsh/) | 3 Octobre 2022
-James Padgett | [Le monde connaîtra ces vérités à temps.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022
+James Padgett | [Le monde connaîtra ces vérités à temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022
 Helen Padgett | [Buvez profondément ces eaux de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-2-af-helen-padgett/) | 4 Octobre 2022
-Orion | [Les ressources de nos âmes aident à ouvrir les portes de l'univers.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-3-af-orion/) | 4 Octobre 2022
+Orion | [Les ressources de nos âmes aident à ouvrir les portes de l'univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-3-af-orion/) | 4 Octobre 2022
 Jésus | [Confirme le message d'Orion et encourage l'ouverture aux possibilités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-4-af-jesus/) | 4 Octobre 2022
 St Pierre | [Le libre arbitre - la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-5-em-st-peter/) | 4 Octobre 2022
 Judas | [Discute des exigences de la médiumnité Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-6-af-judas/) | 4 Octobre 2022
-Jean le Baptiste | [Nos chemins seront marqués par le nombre d'âmes que nous toucherons.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-1-af-john-the-baptist/) | 5 Octobre 2022
+Jean le Bien Aimé | [Nos chemins seront marqués par le nombre d'âmes que nous toucherons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-1-af-john-the-beloved/) | 5 Octobre 2022
 André | [Conseils pour les changements terrestres à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-2-af-andrew/) | 5 Octobre 2022
 Confucius | [S'envoler vers votre Père Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-1-al-confucius/) | 7 Octobre 2022
 Augustin | [Abstenez-vous de toute discussion politique ou relative aux changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-2-al-augustine/) | 7 Octobre 2022
