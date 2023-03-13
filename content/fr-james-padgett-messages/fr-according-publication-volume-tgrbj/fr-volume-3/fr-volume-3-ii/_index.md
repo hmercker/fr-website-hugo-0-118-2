@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume III des messages reçus par James Padgett - Deuxième Partie
 
-![](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3/volume-3-ii/paysage-de-montagne4.jpg)
+![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3/volume-3-ii/paysage-de-montagne4.jpg)
 
 Liste des messages reçus par James Padgett faisant partie du Volume III (Seconde partie) :
 

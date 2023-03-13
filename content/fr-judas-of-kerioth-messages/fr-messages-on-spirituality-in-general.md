@@ -72,13 +72,13 @@ Judas | [L’intégrisme](/fr-contemporary-messages/fr-contemporary-messages-by-
 Judas | [Les miracles et les pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-8-1-hr-judas/) | 8 Août 2002
 Jésus | [L’année en réflexion, et la valeur de la simplicité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-17-1-hr-jesus/) | 17 Août 2002
 Judas | [La popularité des « révélations » absurdes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-20-1-hr-judas/) | 20 Août 2002
-Judas | [La confiance en Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-3-1-hr-judas/) | 3 Février 2003
-Judas | [Les choses sont ce qu’elles sont.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-25-1-hr-judas/) | 25 Février 2003
+Judas | [La confiance en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-3-1-hr-judas/) | 3 Février 2003
+Judas | [Les choses sont ce qu’elles sont](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-25-1-hr-judas/) | 25 Février 2003
 Judas | [La dynamique de la vie 1 : Le mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-21-1-hr-judas/) | 21 Mars 2003
 Judas | [La dynamique de la vie 2 : L’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-21-2-hr-judas/) | 21 Mars 2003
-Judas | [Le bien qui se cache.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-3-1-hr-judas/) | 3 Avril 2003
-Jean Marc | [Libre arbitre et offre de guérison.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-9-1-hr-john-mark/) | 9 Avril 2003
-Judas | [Grandir dans Mon Amour.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-24-1-hr-judas/) | 24 Avril 2003
-Judas | [Contenants de pensée.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-24-1-hr-judas/) | 24 Mai 2003
-Judas | [Le monde d’un enfant.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-29-1-hr-judas/) | 29 Juin 2003
-Judas | [La suite des pensées.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-1-hr-judas/) | 30 Juin 2003
+Judas | [Le bien qui se cache](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-3-1-hr-judas/) | 3 Avril 2003
+Jean Marc | [Libre arbitre et offre de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-9-1-hr-john-mark/) | 9 Avril 2003
+Judas | [Grandir dans Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-24-1-hr-judas/) | 24 Avril 2003
+Judas | [Contenants de pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-24-1-hr-judas/) | 24 Mai 2003
+Judas | [Le monde d’un enfant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-29-1-hr-judas/) | 29 Juin 2003
+Judas | [La suite des pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-1-hr-judas/) | 30 Juin 2003

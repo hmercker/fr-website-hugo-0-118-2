@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume III des messages reçus par James Padgett - Première Partie
 
-![](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3/fr-volume-3-i/paysage-de-montagne3.jpg)
+![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3/fr-volume-3-i/paysage-de-montagne3.jpg)
 
 Liste des messages reçus par James Padgett faisant partie du Volume III (Première partie):
 
@@ -34,7 +34,7 @@ VII | Dr Leslie Stone | [Introduction](/fr-james-padgett-messages/fr-according-p
 20 | Hélène Padgett | [Mme Padgett a écrit qu’elle étudie les lois spirituelles et qu’elle a appris qu’un esprit ne peut communiquer avec les mortels que lorsqu’ils sont en relation, que la même loi s’applique aux mortels et que sa maison est dans la troisième sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-29-2-jep-helen-padgett/) | 29 Décembre 1914
 23 | Jésus | [Est soucieux d’expliquer la vérité et de corriger la contrevérité telle qu’elle est connue](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-7-jep-jesus/) | non daté
 24 | Jésus | [L’affirmation qu’il est Jésus. Se réfère à un esprit qui prétend avoir perdu son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-3-1-jep-jesus/) | 3 Avril 1915
-25 | Hélène Padgett | [Hélène affirmant que Jésus a écrit ](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-3-2-jep-helen-padgett/) | 3 Avril 1915
+25 | Hélène Padgett | [Hélène affirmant que Jésus a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-3-2-jep-helen-padgett/) | 3 Avril 1915
 26 | Hélène Padgett | [Hélène écrit au sujet de son progrès de la Troisième à la Cinquième Sphère d’Esprit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-7-1-jep-helen-padgett/) | 7 Janvier 1915
 29 | Hélène Padgett | [Hélène raconte le décès soudain d’une amie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-27-2-jep-helen-padgett/) | 27 Janvier 1915
 31 | Vespasien | [Un Empereur Romain partage son expérience. Pourquoi il a appris l’anglais](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-22-2-jep-vespasian/) | 22 Juillet 1915

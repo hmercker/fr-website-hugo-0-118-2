@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume I des messages reçus par James Padgett
 
-![](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-1/fr-paysage-du-canada.jpg)
+![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-1/fr-paysage-du-canada.jpg)
 
 La première publication de ce volume de messages en anglais, a eu lieu en 1941. La première version française a été publiée en Janvier 2018. 77 années séparent donc ces deux éditions. Le temps est maintenant venu pour le public français de découvrir ces messages qui se révèlent comme étant très importants pour l’humanité. L’aspect matériel du monde est toujours très présent et domine largement notre vie quotidienne. Cependant nous vivons une ère de grands changements où beaucoup de nos repères spirituels habituels s’effondrent. **Plus que jamais, il devient donc essentiel de dépasser le cadre des institutions religieuses traditionnelles et de développer une relation personnelle avec notre Créateur. Le temps est venu de découvrir une véritable spiritualité.**
 
@@ -65,7 +65,7 @@ XVII | Daniel G Samuels | [La Véritable Mission de Jésus](/fr-james-padgett-me
 39 | St Jean | [Saint-Jean a dit que le Maître avait écrit et montré sa grande puissance et gloire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-3-jep-st-john/) | 2 Décembre 1915
 40 | Jésus | [La prière donnée par Jésus comme la seule prière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/) | 2 Décembre 1916
 40 | Anne Rollins | [Ann Rollins affirmant que le Maître a écrit avec une telle puissance et gloire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-5-jep-ann-rollins/) | 2 Décembre 1915
-42 | Albert Riddle | [A. G. Ridle : Affirmation que Jésus a montré sa gloire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-4-jep-ag-riddle/) | 2 Décembre 1915
+42 | Albert Riddle | [A. G. Riddle : Affirmation que Jésus a montré sa gloire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-4-jep-ag-riddle/) | 2 Décembre 1915
 43 | St Jean | [Jean écrit sur le vrai sens de « la fin du monde. »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-1-2-jep-st-john/) | 1 Octobre 1916
 43 | Hélène Padgett | [Affirmation par Mme Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-3-jep-helen-padgett/) | 2 Décembre 1916
 47 | Jésus | [Jésus Immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
@@ -74,7 +74,7 @@ XVII | Daniel G Samuels | [La Véritable Mission de Jésus](/fr-james-padgett-me
 57 | St Matthieu | [Matthieu : le Salut que Jésus a enseigné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-16-1-jep-st-matthew/) | 16 Décembre 1918
 59 | Jésus | [Qui et qu’est ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/) | 25 Mai 1917
 63 | Anne Rollins | [Ann Rollins. Qui et qu’est ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/) | 18 Février 1916
-66 | Anne Rollins | [Ann Rollins. Qui et qu’est ce que Dieu ? ](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/) | 25 Février 1916
+66 | Anne Rollins | [Ann Rollins. Qui et qu’est ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/) | 25 Février 1916
 69 | John H Padgett | [John H. Padgett : Affirmation que la grand-mère de M. Padgett a écrit le message « Qui et qu’est ce que Dieu ? »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-2-jep-john-h-padgett/) | 25 Février 1916
 70 | Jésus | [Christ peut être en vous – ce que cela signifie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-3-3-1-jep-jesus/) | 3 Mars 1918
 72 | Jésus | [Différence entre l’Esprit de Dieu et l’Esprit Saint](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
