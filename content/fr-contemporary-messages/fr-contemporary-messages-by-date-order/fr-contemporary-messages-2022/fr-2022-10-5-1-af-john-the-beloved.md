@@ -9,7 +9,7 @@ weight:
 ---
 ### Nos chemins seront marqués par le nombre d'âmes que nous toucherons
 
-Jean le Bien Aimé - reçu par Al Fike le 5 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
+Jean le Bien Aimé - reçu par Al Fike le 5 Octobre 2022, Menifee, CA, USA.
 
 Que Dieu vous bénisse, les bien-aimés de Dieu. Je suis Jean. Vous me connaissez sous le nom de Jean le Bien-Aimé. Je viens vous encourager dans votre cheminement vers Dieu afin que vous puissiez rechercher Son amour avec sérieux et dévouement. Pour que vous puissiez entrer plus pleinement en Sa présence, car la Grâce de Dieu nous enveloppe. Nous sommes dans Ses bénédictions, âmes bien-aimées, ouvrez votre âme, ouvrez-nous à Son contact et soyez pleinement dans la lumière de Sa Présence.
 

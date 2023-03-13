@@ -9,7 +9,7 @@ weight:
 ---
 ### Rejoignez la tapisserie des belles âmes de Dieu
 
-Augustin - reçu par Al Fike le 15 Mai 2022, Lee Chapel Monet, Guernesey
+Augustin - reçu par Al Fike le 15 Mai 2022, Lee Chapel Monet, Guernesey, Royaume Uni.
 
 Que Dieu vous bénisse profondément, mes amis, afin que vous puissiez connaître votre âme comme vous ne l’avez jamais connue, afin que quelque chose de frais et de nouveau vienne à votre conscience, éveillée par cette fraîcheur, ce nouvel aperçu de qui et de ce que vous êtes.
 

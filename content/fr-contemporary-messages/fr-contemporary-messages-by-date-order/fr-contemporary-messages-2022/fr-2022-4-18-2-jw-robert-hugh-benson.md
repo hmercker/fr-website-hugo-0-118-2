@@ -9,7 +9,7 @@ weight:
 ---
 ### Croyance mentale et perception de l’âme
 
-Robert Hugh Benson - reçu par Jimbeau Walsh le 18 Avril 2022, Nashville, TN, USA.
+Robert Hugh Benson - reçu par Jimbeau Walsh le 18 Avril 2022, Palm Desert, CA, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite-27.jpg)
 

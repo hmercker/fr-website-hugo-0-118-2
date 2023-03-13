@@ -9,7 +9,7 @@ weight:
 ---
 ### Les royaumes de l’esprit
 
-Robert Hugh Benson - reçu par Jimbeau Walsh le 19 Avril 2022, Nashville, TN, USA.
+Robert Hugh Benson - reçu par Jimbeau Walsh le 19 Avril 2022, Palm Desert, CA, USA.
 
 C'est moi, votre frère en Christ, Monseigneur Robert Hugh Benson. Mon frère, je suis heureux de ce que vous avez reçu l'autre jour pour rendre ces âmes conscientes de ce que j'ai canalisé à travers Anthony Borgia. Car même ceux qui sont sur le chemin de l'Amour Divin feraient bien de lire les descriptions de la vie ici en esprit comme vous le faites. N'est-ce pas utile ? Et vous pouvez voir que je fais toujours allusion à la progression vers les royaumes supérieurs où je réside maintenant. Je suis très reconnaissant que vous partagiez ce que j'ai reçu, car lorsque vous le comparez aux informations disponibles pour la plupart des mortels, même mes humbles révélations ne sont rien de moins que stupéfiantes. Et je dirais qu'elles fournissent un bon équilibre avec ce que vous avez lu de Robert Lees, Padgett, Owens, d'autres et certainement de Judas. Quelle grande âme il est ! Et c'est l'un des gardiens de votre groupe qui veille sur vous avec, faute de mieux, "un grand plaisir", comme nous le faisons tous.
 

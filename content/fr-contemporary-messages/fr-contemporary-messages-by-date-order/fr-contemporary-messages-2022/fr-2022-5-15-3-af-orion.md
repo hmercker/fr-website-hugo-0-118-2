@@ -9,7 +9,7 @@ weight:
 ---
 ### La technologie de la planète d’Orion doit être gagnée par des intentions pures
 
-Orion - reçu par Al Fike le 15 Mai 2022, La petite Chapelle à Guernesey
+Orion - reçu par Al Fike le 15 Mai 2022, La petite Chapelle à Guernesey, Royaume Uni.
 
 Encore une fois, je suis Orion. Oui, il y a beaucoup de technologies et de compréhensions de la fonction de l’univers qui peuvent être données à l’humanité, mais cela doit être gagné. Ce n’est pas donné gratuitement, car lorsque ces choses sont données gratuitement, elles ne sont pas appréciées et ne sont pas vraiment comprises en ce qui concerne leur pouvoir et leur capacité non seulement à améliorer la vie, mais aussi à la supprimer.
 

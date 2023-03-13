@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettez à Dieu
 
-Eileen Caddy - reçu par Jimbeau Walsh le 8 Février 2022, Nashville, TN, USA.
+Eileen Caddy - reçu par Jimbeau Walsh le 8 Février 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi tante Eileen. Bien que le monde soit rempli d’obstacles, et que vous ressentiez cette pression, vos prières percent des trous dans l’obscurité, permettant aux rayons de lumière de briser la résistance et de la transformer en acceptation. Être en relation, c’est permettre à votre âme de prendre l’ascendant sur votre esprit, c’est laisser votre cerveau se reposer et permettre à l’Amour de Dieu de couler en vous. Ce que je vous dis maintenant n’est pas très différent de ce que j’ai reçu lorsque j’étais sur terre, sauf pour dire que l’unité avec Dieu est une question d’humilité et de permettre l’afflux de l’amour.
 

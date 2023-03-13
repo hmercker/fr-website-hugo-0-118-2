@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde connaîtra ces vérités à temps
 
-James Padgett - reçu par Al Fike le 4 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
+James Padgett - reçu par Al Fike le 4 Octobre 2022, Menifee, CA, USA.
 
 Je suis James Padgett. J’étais avec vous lorsque vous parliez de la Vérité de Dieu et de l’Amour divin, et que vous souhaitiez ardemment que le monde connaisse ces vérités. Mais en effet, avec le temps, le monde saura, et chacun de nous a été un maillon de cette chaîne, une partie du plan de Dieu pour le salut de l’humanité.
 

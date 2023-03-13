@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils pour les changements terrestres à venir
 
-André - reçu par Al Fike le 5 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 5 Octobre 2022, Menifee, CA, USA.
 
 Vous tenez d’importantes conversations concernant votre avenir, cherchant à faire la Volonté de Dieu, cherchant également à vous préparer aux changements qui arrivent, ces choses dont nous avons parlé à plusieurs reprises et au sujet desquelles nous vous avons donné des conseils sur la façon dont vous pouvez vous préparer afin de faire face à ces conditions et défis. Vous devez également comprendre que nous n’interférerons pas avec votre libre arbitre, que nous ne vous guiderons pas spécifiquement, à moins qu’il ne s’agisse d’une importance cruciale ou d’une situation de vie ou de mort, car nous protégeons nos instruments et tous ceux qui sont sur ce chemin. C’est notre engagement d’être avec vous, de vous guider et de vous assister dans la lumière.
 

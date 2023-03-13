@@ -9,7 +9,7 @@ weight:
 ---
 ### Se présente et présente son objectif au groupe
 
-Orion - reçu par Al Fike le 3 Avril 2022, Holland America Retreat (Malaga)
+Orion - reçu par Al Fike le 3 Avril 2022, Houston, TX, USA.
 
 Que Dieu soit avec vous, mes amis. Je vous remercie de m’avoir invité dans votre cercle. Je suis Orion. Je viens vous parler de l’importance de l’éveil de vos âmes et de l’éveil de l’humanité et de la guérison de cette Terre, cette belle planète qui est si pleine de vie et si pleine des créations de Dieu qu’elle est riche, riche en effet, de toutes les bénédictions de Dieu. Pourtant, il est regrettable que tant d’entre vous sur cette planète soient aveugles et sourds et incapables de voir au-delà de leur propre condition biaisée et aveugle pour voir la merveille qui est tout autour de vous, la beauté et la vie.
 

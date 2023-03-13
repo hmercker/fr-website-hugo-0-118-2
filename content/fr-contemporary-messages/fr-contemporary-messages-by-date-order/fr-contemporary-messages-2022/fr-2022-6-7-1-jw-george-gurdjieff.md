@@ -9,7 +9,7 @@ weight:
 ---
 ### Rester éveillé
 
-Gurdjieff - reçu par Jimbeau Walsh le 7 Juin 2022, Nashville, TN, USA.
+Gurdjieff - reçu par Jimbeau Walsh le 7 Juin 2022, Marietta Valley, WI, USA.
 
 Considérez-moi comme le grand-père spirituel de celui à travers qui je parle. J’ai pensé que je passerais aujourd’hui pour voir comment vous alliez et mon âme a été heureuse d’entendre les lectures, l’effort d’être spontané, et de garder les choses toujours nouvelles. Vous pouvez considérer ces choses que vous étudiez, ces mots pleins de substance, comme étant l’Évangile. Car tout message, tout poème, toute histoire qui proclame l’amour de Dieu et attire l’âme par la beauté de cet aimant, est un Évangile.
 

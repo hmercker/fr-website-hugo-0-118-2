@@ -9,7 +9,7 @@ weight:
 ---
 ### Profitez de chaque instant de l’aspiration de l’âme dans la prière
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 5 Avril 2022, Nashville, TN, USA.
+Care Derby Walsh - reçu par Jimbeau Walsh le 5 Avril 2022, Sunset Beach, Oahu, HI, USA.
 
 C'est moi Care, je viens avec ma chère sœur et amie Claire pour saluer ses « gentilles souris », notre ministère pieds nus qui vous embrasse. Certains d'entre vous ont fait de nombreux voyages et pour d'autres de nouveaux départs vous attendent. À la fin de la journée, vous pouvez toujours évaluer combien de joie, combien d'harmonie, vous avez vécu. Il peut être utile de tenir un journal intime dans lequel vous pourrez exprimer vos pensées et vos désirs personnels en privé, et avec la plus grande honnêteté envers vous-même.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragé à collaborer à la formation du noyau de lumière
 
-St Matthieu - reçu par Al Fike le 30 Mars 2022, Monroeville, PA.
+St Matthieu - reçu par Al Fike le 30 Mars 2022, Monroeville, PA, USA.
 
 Je suis Matthieu. Je me réjouis de voir les enfants de Dieu se réunir dans la confiance et dans des discussions qui font avancer leurs instruments et leurs efforts pour atteindre les enfants de Dieu. Dans votre monde terrestre, ces relations et les liens qui en découlent sont nécessaires et importants, car comment pouvez-vous progresser sans ces coopérations ? Certes, l’individu peut faire ce qu’il peut pour faire avancer le travail et suivre la Volonté de Dieu, mais ensemble, nous sommes forts et nous avons une lumière puissante. La coopération apporte des perspectives différentes et des dons divers qui, ensemble, produisent un résultat plus élevé.
 

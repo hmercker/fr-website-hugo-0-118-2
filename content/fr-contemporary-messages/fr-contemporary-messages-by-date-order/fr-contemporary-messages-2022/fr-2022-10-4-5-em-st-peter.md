@@ -9,7 +9,7 @@ weight:
 ---
 ### Le libre arbitre - la Volonté de Dieu
 
-St Pierre - reçu par Elizabeth Mack le 4 Octobre 2022 USA.
+St Pierre - reçu par Elizabeth Mack le 4 Octobre 2022, Rock Hill, SC, USA.
 
 Je suis Pierre. Je vous apporte un message de votre Père Céleste de qui l’amour est grand pour tous ses enfants. Vous cherchez à connaître la volonté du Père. C’est maintenant, comme cela l’a toujours été, que vous vous rapprochez, que vous vous rapprochez de Son Âme, et vous le faites avec humilité et confiance et bien sûr, avec l’Amour Divin. Votre choix libre est tout ce dont vous avez besoin et notre cher Père Céleste fera le reste : créer les circonstances, apporter l’Amour, vous assister, instruire Ses Anges Célestes pour vous guider. Tout cela est à votre disposition. C’est votre choix, votre choix de libre arbitre, et c’est la Volonté de Dieu que vous vous rapprochiez de l’Amour, beaucoup, beaucoup plus près, car il y a tellement d’Amour pour vous. Il n’attend que toi pour exercer ton libre arbitre et dire : *« Oui, je viens, Père. Je viens vers toi »*.
 

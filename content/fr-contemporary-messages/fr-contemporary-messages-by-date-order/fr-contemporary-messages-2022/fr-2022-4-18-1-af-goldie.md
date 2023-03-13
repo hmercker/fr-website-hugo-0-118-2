@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez joyeux dans l’Amour de Dieu
 
-Goldie - reçu par Al Fike le 18 Avril 2022, Holland America Retreat (Sur la mer)
+Goldie - reçu par Al Fike le 18 Avril 2022, Holland America Retreat (Sur la mer).
 
 Pour vous, mes amis, je suis Goldie. Alors que vous vous ébattez dans la baignoire de Dieu, j’espère que vous connaîtrez et ressentirez les nombreuses bénédictions que Dieu a pour vous et les nombreux cadeaux magnifiques qui font partie de votre voyage ensemble. La joie est le thème de vos voyages. La joie d’être ensemble, la joie d’aller vers les autres et d’apporter de la joie dans leur cœur. Apportez la lumière. Car lorsque les gens viennent à ces expériences, ils viennent pour s’élever. Ils viennent pour être soulevés de leurs conditions et de leurs vies vers quelque chose de spécial et de béni.
 

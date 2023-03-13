@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment Dieu veille sur nous tous
 
-Mylora - reçu par Jimbeau Walsh le 14 Juin 2022, Nashville, TN, USA.
+Mylora - reçu par Al Fike le 14 Juin 2022, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Mylora. Comme Dieu prend soin de nous tous, quels que soient nos besoins, quelle que soit la situation dans laquelle nous nous trouvons. Dieu est toujours là, et Dieu envoie ses anges tutélaires à vos côtés, vous gardant dans la lumière, vous protégeant, vous aidant à vous inspirer et à vous soutenir alors que vous poursuivez votre voyage sur ce beau chemin d’amour. Comment vous vous soutenez les uns les autres, en vous envoyant votre amour et vos prières, comment vous soutenez ce travail avec vos cohérences, vos dédicaces et vos prières, vos pensées se concentrent sur la volonté et le plan de Dieu pour le monde.
 

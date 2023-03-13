@@ -9,7 +9,7 @@ weight:
 ---
 ### Quand vous faites briller la lumière de l’Amour de Dieu
 
-Amon - reçu par Jimbeau Walsh le 8 Mai 2022, Nashville, TN, USA.
+Amon - reçu par Jimbeau Walsh le 8 Mai 2022, Boscobel, WI, USA.
 
 C’est moi, Amon la première mère de l’humanité et depuis longtemps une âme rachetée dans le royaume Céleste du Père. Je vous salue en cette fête des mères avec tout l’amour de mon âme, car chacun d’entre vous a eu un éveil de l’âme, vos perceptions s’étendant au-delà de ce qui est considéré comme la gamme normale dans les domaines de l’esprit et influencées par l’Amour Divin.
 

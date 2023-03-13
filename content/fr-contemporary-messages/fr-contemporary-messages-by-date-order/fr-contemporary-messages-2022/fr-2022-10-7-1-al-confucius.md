@@ -9,7 +9,7 @@ weight:
 ---
 ### S'envoler vers votre Père Céleste
 
-Confucius - reçu par Al Fike le 7 Octobre 2022,  Menifee, CA.
+Confucius - reçu par Al Fike le 7 Octobre 2022, Menifee, CA, USA.
 
 Oh précieux petits oiseaux, prenez votre envol dans l’amour, envolez-vous vers votre Père Céleste et apportez un peu de ciel sur terre et dans vos cœurs, [mes amis].
 

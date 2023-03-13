@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Septième Sens
 
-St François d'Assise - reçu par Jimbeau Walsh le 6 Juin 2022, Nashville, TN, USA.
+St François d'Assise - reçu par Jimbeau Walsh le 6 Juin 2022, Marietta Valley, WI, USA.
 
 Je suis là, votre frère en Christ, votre ami du Royaume Céleste dans l’Amour de Dieu, je viens. Je suis François.
 

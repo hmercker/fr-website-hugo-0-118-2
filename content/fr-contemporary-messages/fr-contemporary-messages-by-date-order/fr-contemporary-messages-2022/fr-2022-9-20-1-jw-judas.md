@@ -22,4 +22,4 @@ Je vous remercie et vous bénis et que Dieu vous couvre de son amour, que vous s
 
 1. <large id=”f1”> « 1 Corinthiens 13:11 ».[↩](#a1)
 
-2. <large id=”f2”> Judas de Kerioth Book page 169 sous « Perfection, Amour de Soi et loi du Désir ».[↩](#a2)
+2. <large id=”f2”> Judas de Kerioth Book page 169 sous [« Perfection, Amour de Soi et loi du Désir »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-22-1-hr-judas/).[↩](#a2)

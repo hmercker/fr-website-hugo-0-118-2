@@ -9,7 +9,7 @@ weight:
 ---
 ### Confirme le message d'Orion et encourage l'ouverture aux possibilités
 
-Jésus - reçu par Al Fike le 4 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 4 Octobre 2022, Menifee, CA, USA.
 
 [Je suis Jésus,] votre frère et votre ami, et je viens vous assurer de l’intention et de l’existence de ce cher frère [Orion] dans vos vies. Il est une grande lumière et un grand enseignant, et nous travaillons tous ensemble pour apporter la vérité à l’humanité. Mes amis, soyez assurés que beaucoup est donné à une âme qui est réceptive et qui cherche la vérité. Les seules limites sont celles que vous imposez à votre recherche et à votre effort pour être en harmonie avec Dieu, avec tout ce que Dieu est et avec tout ce que Dieu a créé.
 

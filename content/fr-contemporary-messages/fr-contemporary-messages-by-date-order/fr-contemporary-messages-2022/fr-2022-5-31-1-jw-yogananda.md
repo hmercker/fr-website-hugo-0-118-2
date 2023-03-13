@@ -9,7 +9,7 @@ weight:
 ---
 ### Le don de donner dans l’amour de Dieu
 
-Yogananda - reçu par Jimbeau Walsh le 31 Mai 2022, Nashville, TN, USA.
+Yogananda - reçu par Jimbeau Walsh le 31 Mai 2022, Marietta Valley, WI, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite-17.jpg)
 

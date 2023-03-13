@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez des explorateurs de l’âme !
 
-Judas - reçu par Jimbeau Walsh le 20 Janvier 2022, Nashville, TN, USA.
+Judas - reçu par Jimbeau Walsh le 20 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
 C'est moi, votre frère en Christ, Judas. C'est une question de foi dans vos prières pour l'Amour de Dieu.
 

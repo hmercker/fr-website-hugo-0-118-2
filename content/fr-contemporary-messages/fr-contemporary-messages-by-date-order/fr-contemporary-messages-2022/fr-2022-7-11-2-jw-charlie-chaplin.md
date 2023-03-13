@@ -9,7 +9,7 @@ weight:
 ---
 ### Rappelez-vous la lumière au bout du tunnel
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 11 Juillet 2022, Nashville, TN, USA.
+Charlie Chaplin - reçu par Jimbeau Walsh le 11 Juillet 2022, Marietta Valley, WI, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-charlie-chaplin3.jpg)
 

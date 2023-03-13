@@ -9,7 +9,7 @@ weight:
 ---
 ### Discute des exigences de la médiumnité Céleste
 
-Judas - reçu par Al Fike le 4 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
+Judas - reçu par Al Fike le 4 Octobre 2022, Menifee, CA, USA.
 
 Je suis Judas. J’ai été présent pendant votre conversation concernant la médiumnité, l’instrumentalité, et tous ces aspects de l’esprit qui apportent la communication entre nous et vous sur le plan terrestre. Comme vous le savez bien, le nombre de canaux ou de médiums qui sont capables d’amener de façon constante les esprits Célestes est extrêmement rare dans votre monde. C’est tellement rare que nous gardons nos instruments et veillons à ce qu’ils soient bien protégés et utilisés.
 

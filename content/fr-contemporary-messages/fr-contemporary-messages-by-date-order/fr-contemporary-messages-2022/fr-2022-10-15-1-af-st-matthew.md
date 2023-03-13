@@ -9,7 +9,7 @@ weight:
 ---
 ### Construire, étendre le portail pour amplifier les avantages
 
-St Matthieu - reçu par Al Fike le 15 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 15 Octobre 2022, Dallas, OR, USA.
 
 Je suis Matthieu. Je te remercie, mon fils, d’être venu pour être avec nous dans la prière. Car tu as été appelé et tu as répondu à l’appel, fils bien-aimé. Tu découvriras que nous serons plus proches, toujours plus proches de toi alors que tu cherches Dieu et que tu cherches la bénédiction de Son Amour.
 

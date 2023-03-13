@@ -9,7 +9,7 @@ weight:
 ---
 ### La solitude est un état béni
 
-Judas - reçu par Jimbeau Walsh le 14 Juin 2022, Nashville, TN, USA.
+Judas - reçu par Jimbeau Walsh le 14 Juin 2022, Marietta Valley, WI, USA.
 
 J’ai envoyé des impressions à mon frère pendant votre session d’aujourd’hui, pour lui faire savoir et le mettre à l’aise quant à ce que je souhaite transmettre au groupe. Lorsque l’on vit dans un environnement surpeuplé, où l’espace est compté et où il y a peut-être beaucoup d’agitation autour de soi, on cherche du réconfort dans un endroit où l’on peut être avec soi-même, avec ses pensées, son sanctuaire. À l’autre bout du spectre, il y a ceux qui peuvent être assez isolés et souhaiter avoir plus de contacts avec les autres, mais bien souvent ces individus ne s’engagent pas consciemment, qu’ils soient seuls ou en compagnie d’autres personnes. Donc, si vous êtes dans un endroit très actif et que vous avez beaucoup d’interactions avec le monde, avec les autres, alors nous vous encourageons à trouver un sanctuaire, un endroit pour prier et méditer, pour lire et étudier, un endroit de clarté, libre des vibrations du monde et de toutes les formes-pensées qui bombardent constamment la vie.
 

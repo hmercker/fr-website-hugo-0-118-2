@@ -9,7 +9,7 @@ weight:
 ---
 ### Encourage les nouveaux cercles de lumière
 
-St Matthieu - reçu par FAl Fike le 8 Octobre 2022, Menifee, CA.
+St Matthieu - reçu par FAl Fike le 8 Octobre 2022, Menifee, CA, USA.
 
 Je suis heureux de vous annoncer qu’il est temps pour moi d’infuser dans vos âmes, chers amis. Je suis Matthieu, et je viens à vous aujourd’hui pour vous instruire, vous encourager et vous élever dans vos efforts pour être dans vos âmes et être avec Dieu. Il est important pour le monde que ces Cercles de Lumière continuent, se renforcent et se multiplient. Car au sein de ces cercles se trouve un grand pouvoir de lumière et de vérité, et ensemble, en vous soutenant mutuellement dans la prière, vous bénéficierez grandement de vos efforts mutuels.
 

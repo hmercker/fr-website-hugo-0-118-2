@@ -9,7 +9,7 @@ weight:
 ---
 ### Buvez profondément ces eaux de l'amour de Dieu
 
-Hélène Padgett - reçu par Al Fike le 4 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
+Hélène Padgett - reçu par Al Fike le 4 Octobre 2022, Menifee, CA, USA.
 
 Bien-aimés, buvez profondément ces eaux qui sont l’Amour de Dieu. Buvez profondément et sachez que vous êtes aimés. Car Dieu souhaite que vous soyez immergés dans la lumière, nourris et élevés dans la lumière, mes bien-aimés. Sachez combien vous êtes choyés, combien vous êtes aimés, combien vous êtes bénis.
 

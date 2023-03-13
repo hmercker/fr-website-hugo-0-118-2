@@ -9,7 +9,7 @@ weight:
 ---
 ### Les ressources de nos âmes aident à ouvrir les portes de l'univers
 
-Orion - reçu par Al Fike le 4 Octobre 2022, Gibsons, Colombie-Britannique, Canada.
+Orion - reçu par Al Fike le 4 Octobre 2022, Menifee, CA, USA.
 
 Âmes bien-aimées, chercheurs de vérité, je suis Orion, et je viens à vous parce que vous êtes réceptifs à ma présence, à mes paroles et à la lumière que j’apporte parce que lorsque votre âme est imprégnée de lumière, où que vous alliez dans l’univers, et en effet vous avez voyagé, mes amis, vers d’autres lieux. Je vous ai escortés jusqu’à mon monde natal. Chacun de vous a voyagé, et vous apportez votre lumière avec vous, vos âmes imprégnées de la Grande Lumière de l’Amour de Dieu.
 

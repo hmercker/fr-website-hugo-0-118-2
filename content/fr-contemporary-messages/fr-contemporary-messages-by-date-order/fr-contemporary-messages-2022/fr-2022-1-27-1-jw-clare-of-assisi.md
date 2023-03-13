@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour de Dieu met une chanson dans votre âme
 
-Claire d'Assise - reçu par Jimbeau Walsh le 27 Janvier 2022, Nashville, TN, USA.  
+Claire d'Assise - reçu par Jimbeau Walsh le 27 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-nepal7.jpeg)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Merci pour votre considération
 
-Robert Hugh Benson <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 13 Janvier 2022, Nashville, TN, USA
+Robert Hugh Benson <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 13 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
 Je suis Robert Hugh Benson. Je suis ici avec mon cher ami Anthony (Borgia). Nous venons vous remercier d'avoir exploré ce que j'ai communiqué à Anthony depuis mon entrée dans la vie spirituelle jusqu'au moment où j'ai commencé à toucher les royaumes de l'Amour Divin où je vis maintenant.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Tous les cœurs brillent
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 18 Janvier 2022, Nashville, TN, USA.
+Care Derby Walsh - reçu par Jimbeau Walsh le 18 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi, Care, votre sœur en Christ. J’ai attendu dans les coulisses pour parler aujourd’hui et bien sûr, vous savez que c’est juste une expression théâtrale et non un appendice que nous, les anges, possédons ou dont nous avons besoin. Je savais que mon bien-aimé se sentait un peu négligent pour avoir pris un message de ma part et ne pas l’avoir partagé avec le groupe de prière plus tôt dans la journée, le prenant seulement personnellement interne parce qu’il était tellement immergé dans l’Amour de Dieu. Donc, je vais maintenant vous décrire à tous ce que je lui disais.
 
@@ -27,7 +27,7 @@ Ainsi, je vous remercie et je remercie celui-ci car je voulais que ce message so
 
 Je vous aime tous et je vous remercie tous de prendre soin les uns des autres et pour vos prières qui attirent tant de monde. Vous connaîtrez un jour la vérité de tout cela et d’ici là, allez simplement avec Dieu et laissez vos âmes s’élever dans Son amour, dans Sa Grâce, dans Sa Lumière.
 
-Je suis votre sœur en Christ, votre grand-mère, votre bien-aimée, et comme nous aimons le dire, « Votre amie éternelle dans l’Amour de Dieu.» Je suis Care et je vous aime.
+Je suis votre sœur en Christ, votre grand-mère, votre bien-aimée, et comme nous aimons le dire, *« Votre amie éternelle dans l’Amour de Dieu. »* Je suis Care et je vous aime.
 <small>
 
 1. <large id=”f1”> Message personnel à Michael Willey.[↩](#a1)

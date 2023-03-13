@@ -9,7 +9,7 @@ weight:
 ---
 ### Gardez un chant dans votre cœur
 
-Inayat Khan - reçu par Jimbeau Walsh le 25 Avril 2022, Nashville, TN, USA.
+Inayat Khan - reçu par Jimbeau Walsh le 25 Avril 2022, Boulder, CO, USA.
 
 Je suis ici votre frère dans le Chant de Dieu, Inayat Khan.
 

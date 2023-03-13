@@ -9,7 +9,7 @@ weight:
 ---
 ### Tendre la main au Monde
 
-Claire d'Assise - reçu par Jimbeau Walsh le 6 Mars 2022, Nashville, TN, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 6 Mars 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi, Claire, autrefois d’Assise, maintenant habitante et âme rachetée dans les Cieux Célestes.
 

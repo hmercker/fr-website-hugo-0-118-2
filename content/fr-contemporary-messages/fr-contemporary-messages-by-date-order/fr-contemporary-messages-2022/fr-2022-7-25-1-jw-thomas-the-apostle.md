@@ -9,7 +9,7 @@ weight:
 ---
 ### L'âme touchée par Dieu est la vraie preuve
 
-Thomas l’Apôtre - reçu par Jimbeau Walsh le 25 Juillet 2022, Nashville, TN, USA.
+Thomas l’Apôtre - reçu par Jimbeau Walsh le 25 Juillet 2022, Marietta Valley, WI, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite-18.jpg)
 

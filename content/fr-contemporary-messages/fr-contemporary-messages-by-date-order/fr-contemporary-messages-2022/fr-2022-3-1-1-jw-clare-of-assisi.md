@@ -9,7 +9,7 @@ weight:
 ---
 ### Pour que la paix l’emporte
 
-Claire d'Assise - reçu par Jimbeau Walsh le 1 Mars 2022, Nashville, TN, USA.
+Claire d'Assise - reçu par Jimbeau Walsh le 1 Mars 2022, Punalu’u, Oahu, HI, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite-11.jpg)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettez à la bénédiction de l'amour de Dieu de venir dans votre âme
 
-Marie-Madeleine - reçu par Jimbeau Walsh le 12 Juillet 2022, Nashville, TN, USA.
+Marie-Madeleine - reçu par Jimbeau Walsh le 12 Juillet 2022, Marietta Valley, WI, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-priere.png)
 

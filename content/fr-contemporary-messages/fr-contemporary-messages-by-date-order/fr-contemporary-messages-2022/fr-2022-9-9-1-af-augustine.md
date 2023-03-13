@@ -9,7 +9,7 @@ weight:
 ---
 ### Les portails de lumière ont un but
 
-Seretta Kem - reçu par Al Fike le 9 Septembre 2022, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 9 Septembre 2022, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant, Augustin. Vous demandez le don d’un portail, fille bien-aimée, et je tiens à dire que cette bénédiction n’est pas simplement donnée comme un cadeau, mais elle a un but. Lorsque tu pries pour être un instrument, un canal de l’Amour de Dieu dans le monde, lorsque tu le fais activement et que tu exprimes activement ce but dans ta vie et avec les autres, et que tu attires ces belles âmes qui cherchent et qui désirent prier avec toi et être avec toi dans l’amour, alors en effet un portail est établi dans ta proximité parce qu’il est utilisé pour remplir ces fonctions et ces bénédictions.
 

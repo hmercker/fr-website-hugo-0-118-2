@@ -9,7 +9,7 @@ weight:
 ---
 ### Message pour Bill concernant ses dons
 
-Seretta Kem - reçu par Al Fike le 12 Mai 2022, Durham, Royaume Uni
+Seretta Kem - reçu par Al Fike le 12 Mai 2022, Durham, Royaume Uni.
 
 Je suis Seretta Kem. Je travaille avec votre groupe, mon fils, depuis un certain temps. Car nous travaillons avec de nombreux groupes à travers le monde, de nombreux groupes avec des idées et des philosophies et des perceptions et des interprétations différentes de la vérité spirituelle. Mais essentiellement, tous ceux qui aspirent à la lumière sont des âmes qui aspirent à la vérité. C’est ainsi que nous sommes attirés pour aider ceux qui aspirent à la vérité.
 

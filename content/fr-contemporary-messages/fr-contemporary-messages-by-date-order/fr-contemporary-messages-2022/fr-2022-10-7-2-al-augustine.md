@@ -9,7 +9,7 @@ weight:
 ---
 ### Abstenez-vous de toute discussion politique ou relative aux changements terrestres
 
-Augustin - reçu par Al Fike le 7 Octobre 2022, Menifee – Californie
+Augustin - reçu par Al Fike le 7 Octobre 2022, Menifee, CA, USA.
 
 Je suis votre enseignant Augustin. Je vous exhorte à ne pas vous engager dans la condition humaine. Ces manières de faire de la politique, de la religion, de l’éducation, de la structure de vos cultures et de vos pays, elles sont en train de mourir, mes amis, et elles le feront lentement et douloureusement.
 

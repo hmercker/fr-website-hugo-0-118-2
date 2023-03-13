@@ -9,7 +9,7 @@ weight:
 ---
 ### La Septième Sphère est la porte d’entrée des Cieux Célestes
 
-Robert Hugh Benson - reçu par Jimbeau Walsh le 3 Février 2022, Nashville, TN, USA.
+Robert Hugh Benson - reçu par Jimbeau Walsh le 3 Février 2022, Punalu’u, Oahu, HI, USA.
 
 Je suis Robert Hugh Benson.
 

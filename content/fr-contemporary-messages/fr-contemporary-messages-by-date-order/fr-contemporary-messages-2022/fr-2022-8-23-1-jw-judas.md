@@ -9,7 +9,7 @@ weight:
 ---
 ### Chaque crise est une opportunité
 
-Judas - reçu par Jimbeau Walsh le 23 Août 2022, Nashville, TN, USA.
+Judas - reçu par Jimbeau Walsh le 23 Août 2022, Collegeville, PA, USA.
 
 Mes amis, je suis votre frère Judas et je sais que dans votre monde, le temps est essentiel, alors je vais être bref. Mon frère ici, alors que vous discutiez de la fermeture des Cieux Célestes et qu’il proclamait pourquoi il s’étonne que certaines âmes ne semblent tout simplement ne pas avoir d’intérêt pour le chemin de l’Amour Divin et il s’est même demandé si d’une certaine manière elles étaient défectueuses. Donc, je veux parler de cela brièvement. Tout d’abord, aucune âme n’est défectueuse de cette façon. Elles sont dans une condition basée sur de nombreux facteurs, y compris leur généalogie, leur environnement, leur éducation.
 

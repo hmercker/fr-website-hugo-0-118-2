@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre nation, Guernesey, a grand besoin de s’élever
 
-St. George - reçu par Al Fike le 15 Mai 2022, La petite Chapelle à Guernesey
+St. George - reçu par Al Fike le 15 Mai 2022, La petite Chapelle à Guernesey, Royaume Uni.
 
 Je suis Saint-Georges, et vous m’avez demandé de venir, et je suis donc ici. Je souhaite vraiment vous dire que j’approuve ce que vous faites pour améliorer et élever votre nation et vos communautés, car cette nation a grand besoin d’être élevée, de comprendre les choses du cœur et d’avoir une base morale pour pouvoir vivre ensemble en harmonie et en paix.
 
@@ -21,7 +21,7 @@ Considérez ceci mes amis : vos pensées et vos actions, vos motivations, tout c
 
 Ce n’est pas que Dieu veuille punir l’individu, mais lorsque cet individu n’a pas appris dès son plus jeune âge comment se comporter de concert et en harmonie avec les autres, comment regarder notre Dieu bien-aimé, comment être dans le monde pour se servir et s’élever mutuellement, alors il y a une grande ignorance. L’individu a gaspillé une occasion de grandir et d’être fort dans la lumière, d’être vraiment ce que Dieu veut.
 
-Je vous invite donc tous à saisir chaque jour comme un cadeau de Dieu et à vous poser la question suivante : « Que pourrais-je faire aujourd’hui pour apporter une plus grande lumière à moi-même et au monde, pour servir autrui, pour aimer autrui, pour être une lumière ? » Et lorsque cette nation et ce monde avanceront de cette manière, en cherchant à se servir les uns les autres, en faisant avancer l’amour, alors, en effet, ce sera un monde qui vaudra la peine d’être vécu, un monde magnifique.
+Je vous invite donc tous à saisir chaque jour comme un cadeau de Dieu et à vous poser la question suivante : *« Que pourrais-je faire aujourd’hui pour apporter une plus grande lumière à moi-même et au monde, pour servir autrui, pour aimer autrui, pour être une lumière ? »* Et lorsque cette nation et ce monde avanceront de cette manière, en cherchant à se servir les uns les autres, en faisant avancer l’amour, alors, en effet, ce sera un monde qui vaudra la peine d’être vécu, un monde magnifique.
 
 Puissiez-vous travailler à ces fins, mes amis. Trouvez votre chemin vers Dieu, je vous en conjure, trouvez votre chemin vers Dieu, et de cette façon vous serez guidés et éveillés afin de pouvoir vraiment servir, vous pourrez vraiment être les serviteurs de Dieu et être efficaces pour changer le monde.
 

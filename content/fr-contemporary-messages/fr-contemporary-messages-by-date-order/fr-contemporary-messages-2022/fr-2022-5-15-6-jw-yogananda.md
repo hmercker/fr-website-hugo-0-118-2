@@ -9,7 +9,7 @@ weight:
 ---
 ### Conscience de Dieu
 
-Yogananda - reçu par Jimbeau Walsh le 15 Mai 2022, Nashville, TN, USA.
+Yogananda - reçu par Jimbeau Walsh le 15 Mai 2022, Boscobel, WI, USA.
 
 Mes chers frères et sœurs dans l’Amour de Dieu, c’est moi, Yogananda.
 

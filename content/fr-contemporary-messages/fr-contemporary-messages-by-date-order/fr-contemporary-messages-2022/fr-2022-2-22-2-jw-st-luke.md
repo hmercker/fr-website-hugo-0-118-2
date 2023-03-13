@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher à cœur ouvert
 
-St Luc - reçu par Jimbeau Walsh le 22 Février 2022, Nashville, TN, USA.
+St Luc - reçu par Jimbeau Walsh le 22 Février 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi, votre frère dans le Christ, Luc. Le grand cadeau du libre arbitre permet à chaque âme de choisir si elle est alignée en harmonie avec la volonté du Créateur et toutes les lois de l’Univers ou si elle se trouve en dehors de cette harmonie. La musique des sphères où tout coule en accord avec la Volonté de Dieu.
 

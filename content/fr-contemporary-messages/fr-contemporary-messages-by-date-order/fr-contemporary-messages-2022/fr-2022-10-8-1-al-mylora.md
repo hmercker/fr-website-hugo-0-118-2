@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez dans la grâce de Dieu ; cherchez son amour maintenant
 
-Mylora - reçu par Al Fike le 8 Octobre 2022, Menifee, CA.
+Mylora - reçu par Al Fike le 8 Octobre 2022, Menifee, CA, USA.
 
 Je suis Mylora. Le doux baiser de Dieu sur votre joue alors qu’Il pose Sa main sur vous, vous réclamant pour Lui dans l’amour, cherchant votre réveil, votre voyage vers l’union avec Lui, afin que vous puissiez être racheté dans l’amour, guéri dans l’amour, réveillé dans l’amour.
 

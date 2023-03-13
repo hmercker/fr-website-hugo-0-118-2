@@ -9,7 +9,7 @@ weight:
 ---
 ### Examinez votre cœur
 
-Jésus - reçu par Jimbeau Walsh le 7 Avril 2022, Nashville, TN, USA.
+Jésus - reçu par Jimbeau Walsh le 7 Avril 2022, Westminster, CA, USA.
 
 Mes chers, je viens sur un lit de roses blanches <sup id=”a1”>[1](#f1)</sup> afin que vous sachiez que c’est moi. Le chemin du cœur ouvert dans l’Amour de Dieu est le chemin de l’âme transformée. Car l’esprit peut informer ce qui est nécessaire dans la prière, dans le service, mais seule l’âme et un cœur ouvert peuvent vous changer. Je vous demande chaque jour d’examiner votre cœur, votre cœur spirituel, car il est la porte de votre âme. C’est l’endroit où l’Esprit Saint de Dieu apporte son essence, son grand et glorieux Amour dans vos âmes. Examinez votre cœur pour connaître l’Amour. Car prier, c’est ouvrir le cœur à l’Amour de Dieu. La vraie prière est d’être éveillé aux réalités de l’Amour de Dieu ; L’immensité de Son univers, la magnificence de toutes Ses créations, mais aucune plus que votre âme ayant la grande possibilité de devenir un avec notre glorieux Père.
 

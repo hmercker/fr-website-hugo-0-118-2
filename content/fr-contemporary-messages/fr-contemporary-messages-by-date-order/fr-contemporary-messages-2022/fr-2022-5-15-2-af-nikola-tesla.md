@@ -9,7 +9,7 @@ weight:
 ---
 ### Discours sur l’esprit et le pouvoir de l’amour
 
-Nicolas Tesla - reçu par Al Fike le 15 Mai 2022, Lee Chapel Monet, Guernesey
+Nicolas Tesla - reçu par Al Fike le 15 Mai 2022, Lee Chapel Monet, Guernesey, Royaume Uni.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite_8.jpg)
 

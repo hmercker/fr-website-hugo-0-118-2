@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous bénit et nous encourage
 
-James et Hélène Padgett - reçu par Al Fike le 9 Octobre 2022, Menifee, CA.
+James et Hélène Padgett - reçu par Al Fike le 9 Octobre 2022, Menifee, CA, USA.
 
 Que l’Amour de Dieu soit votre pilier, mes amis bien-aimés. Je suis James Padgett. Que la vérité du sujet provienne de la Bible, des œuvres qui sont passées par moi, ou des œuvres qui sont passées par cet instrument, ou d’autres sources, pourvu qu’elle dirige l’individu vers la vérité, la source importe-t-elle ? Ainsi, nous devons tous être humbles dans nos perspectives concernant les opinions des autres et la façon dont ils peuvent aborder leur propre vie spirituelle.
 

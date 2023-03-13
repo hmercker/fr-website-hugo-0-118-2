@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne vous laissez pas distraire par des questions secondaires
 
-Leslie Stone <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Janvier 2022, Nashville, TN, USA.
+Leslie Stone <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi, votre frère en Christ, Leslie Stone. J’ai souvent été présent auprès de James Padgett lorsqu’il recevait ce qu’on appelle des messages Célestes de Jésus et de tant d’autres.
 
@@ -32,6 +32,3 @@ Soyez en paix. Je suis Leslie Stone.
 <small>
 
 1. <large id=”f1”> Note du médium : Le Dr Stone m’a dit en privé dans la prière qu’il s’est retrouvé, après sa transition vers la vie spirituelle, dans la troisième sphère. Il voulait me faire savoir que c’est la première sphère de l’Amour Divin mais que c’est aussi une sphère d’amour naturel et qu’il n’y a pas deux 3e sphères distinctes. Peu après, Il a progressé vers la Cinquième sphère et finalement vers le Royaume Céleste.[↩](#a1)
-
-
-

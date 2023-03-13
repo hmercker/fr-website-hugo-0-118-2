@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par Jimbeau Walsh le 11 Janvier 2022, Nashville, TN, USA.
 
-C'est moi, Judas, votre fidèle frère et serviteur. Je peux vous dire que Monseigneur Benson, comme il était appelé, est très heureux que vous lisiez le récit de sa vie en esprit, et il viendra vous parler. Mais il souhaite d'abord que vous vous familiarisiez davantage avec son voyage.
+C'est moi, Judas, votre fidèle frère et serviteur. Je peux vous dire que Monseigneur Benson, comme il était appelé, est très heureux que vous lisiez le récit de sa vie en esprit, [et il viendra vous parler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-13-1-jw-robert-hugh-benson/). Mais il souhaite d'abord que vous vous familiarisiez davantage avec son voyage.
 
 Je voudrais que vous considériez quelque chose. Au cours de votre vie, vous avez fait la connaissance de personnes qui sont considérées comme des explorateurs. A l'extrême de cela, à notre époque, ce sont, disons, les astronautes. Ceux qui souhaitent aller dans l'espace pour visiter d'autres planètes et qui sont prêts à entreprendre ce qui peut être un voyage très dangereux. Et bien qu'il y ait un mélange de passion et de peur de l'auto-préservation, que tout être humain a dans une certaine mesure, leur passion d'explorer ce qui pour eux sont de nouveaux domaines, leur donne le courage d'aller de l'avant, de se concentrer, de faire en quelque sorte un saut dans la foi. Vous, mes chers, êtes des astronautes spirituels dont la destination est au-delà de ce monde, au-delà des planètes et des galaxies, vers, comme vous le découvrez, des royaumes de lumière et d'être au-delà de toute description terrestre à bien des égards.
 

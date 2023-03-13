@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chant du cœur et la danse de l'amour
 
-Inayat Khan - reçu par Jimbeau Walsh le 2 Mai 2022, Nashville, TN, USA.
+Inayat Khan - reçu par Jimbeau Walsh le 2 Mai 2022, Boscobel, WI, USA.
 
 C’est moi votre frère en chanson sur le chemin de l’Amour Divin du cœur. Je reviens, je suis Inayat Khan. Les prières qui ont été adressées à notre cher frère <sup id=”a1”>[1](#f1)</sup> ont amené beaucoup d’entre nous à ses côtés, influençant les soignants et le soulevant en réponse à vos prières. Comme toujours, quand vous appelez, nous venons, et nous continuerons.
 

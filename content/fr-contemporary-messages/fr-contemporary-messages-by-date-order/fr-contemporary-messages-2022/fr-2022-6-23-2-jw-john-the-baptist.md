@@ -9,7 +9,7 @@ weight:
 ---
 ### Le premier pas pour s'ouvrir à l'Amour de Dieu
 
-Jean le Baptiste - reçu par Jimbeau Walsh le 23 Juin 2022, Nashville, TN, USA.
+Jean le Baptiste - reçu par Jimbeau Walsh le 23 Juin 2022, Marietta Valley, WI, USA.
 
 C'est moi, votre frère en Christ, Jean le Baptiste. Je peux vous dire que la première étape pour s'ouvrir à l'Amour de Dieu est d'être assez humble pour ouvrir son cœur en demandant. Avant de connaître ce grand don, mon désir était de tout abandonner et de vivre dans le désert. Et quand j'ai reçu et commencé ma mission, j'ai prêché le renoncement au monde, l'abandon de ses péchés, le baptême et la purification, que les eaux représentaient.
 

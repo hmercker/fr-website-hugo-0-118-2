@@ -9,7 +9,7 @@ weight:
 ---
 ### Semences de la foi
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 5 Juin 2022, Nashville, TN, USA.
+Care Derby Walsh - reçu par Jimbeau Walsh le 5 Juin 2022, Marietta Valley, WI, USA.
 
 Mes chers frères et sœurs dans l’Amour de Dieu, c’est moi, Care.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Sonnez la cloche de la prière
 
-Judas - reçu par Jimbeau Walsh le 16 Juin 2022, Nashville, TN, USA.
+Judas - reçu par Jimbeau Walsh le 16 Juin 2022, Marietta Valley, WI, USA.
 
 Alors que les changements sur la terre deviennent plus drastiques, que les polarités physiques et spirituelles deviennent plus extrêmes, vous pouvez voir tant de gens qui tentent d'éviter l'évidence, de l'esquiver comme si elle ne se produisait pas. Et puis il y a ceux qui veulent s'accrocher à leurs croyances, ceux qui sont prêts à faire preuve de violence pour atteindre leurs objectifs. Je vous le dis, il faut beaucoup de courage pour rester dans la grâce. Il faut une grande concentration pour être calme au milieu de la tempête, pour ressentir la paix de l'Amour de Dieu alors que tant de choses tourbillonnent autour de vous, tant de négativité dans l'air, tant d'inconscience.
 

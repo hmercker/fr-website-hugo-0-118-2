@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénis et encouragés
 
-Jésus - reçu par Al Fike le 8 Octobre 2022, Menifee, CA.
+Jésus - reçu par Al Fike le 8 Octobre 2022, Menifee, CA, USA.
 
 Cherchez l’Amour de Dieu, mes frères et sœurs bien-aimés. Je suis Jésus, je viens vous élever, vous et les conditions de votre monde, et affirmer la vérité : la plus grande quête de la vie est de trouver l’union de votre âme avec Dieu. Car avec cette bénédiction et cette connaissance, toutes les choses de bien, de lumière et d’harmonie suivront à sa place.  C’est à vous de reconnaître que cette bénédiction de l’Amour du Père doit être le fondement de votre vie, et qu’elle ne vient pas de l’imposition d’une personne dans le monde, mais de votre engagement, de vos prières et de vos efforts pour atteindre Dieu.
 

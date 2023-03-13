@@ -9,7 +9,7 @@ weight:
 ---
 ### La faim de l’âme
 
-Judas - reçu par Jimbeau Walsh le 4 Juillet 2022, Nashville, TN, USA.
+Judas - reçu par Jimbeau Walsh le 4 Juillet 2022, Marietta Valley, WI, USA.
 
 Mes chers frères et sœurs, je viens dans l’Amour de Dieu, votre frère en Christ, Judas de Kerioth.
 

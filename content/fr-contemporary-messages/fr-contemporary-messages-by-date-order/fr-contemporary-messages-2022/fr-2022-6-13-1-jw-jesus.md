@@ -9,7 +9,7 @@ weight:
 ---
 ### La justice trouvera sa voie
 
-Jésus - reçu par Jimbeau Walsh le 13 Juin 2022, Nashville, TN, USA.
+Jésus - reçu par Jimbeau Walsh le 13 Juin 2022, Marietta Valley, WI, USA.
 
 Que l’Amour de Dieu soit sur vous tous, mes chers amis, mes frères et sœurs. Comment peut-on ne pas être conscient de toute l’injustice dans le monde et ne pas vouloir y répondre ? Je vous demande de vous rappeler que le soleil se lève sur le mal et le bien, que la pluie tombe également sur le juste et l’injuste, et que le Père Céleste embrasse tout le monde, aime tout le monde. J’ai dit ces choses pendant que j’étais sur terre et aussi, ne jugez pas de peur d’être jugés, car ceux qui jugent seront jugés de la même manière.
 
