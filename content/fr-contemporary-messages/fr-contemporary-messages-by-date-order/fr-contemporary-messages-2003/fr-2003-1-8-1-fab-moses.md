@@ -13,7 +13,7 @@ Moïse - reçu par FAB le 8 Janvier 2003, Santa Cruz, Californie, USA.
 
 C’est moi, Moïse.
 
-Nous sommes heureux que tu ne connaisses pas à l’avance le contenu de ces messages. Cela t’aide à développer ta confiance en ta médiumnité.
+Nous sommes heureux que vous ne connaissiez pas à l’avance le contenu de ces messages. Cela vous aide à développer votre confiance en votre médiumnité.
 
 Lorsque je vivais sur terre, il y avait, comme vous le savez bien, une perception beaucoup plus faible de Dieu. J’ai été élevé dans la croyance en la multiplicité des dieux égyptiens. Tu peux donc te demander comment j’en suis venu à être si passionné par la Déité Hébraïque. Eh bien, certains incidents de ma jeune vie m’ont amené à remettre en question les croyances égyptiennes, car, même en tant que prince, je remettais beaucoup de choses en question. J’ai eu des échanges avec les esclaves Hébreux, et j’ai appris leurs croyances. J’étais impressionné que les esclaves puissent croire comme ils le faisaient, compte tenu de leurs souffrances et de leurs fardeaux.
 
@@ -29,6 +29,6 @@ J’avais depuis longtemps rejeté la religion égyptienne, mais je n’avais pa
 
 Je vais terminer mon récit ici pour le moment. Je suis très heureux de la façon dont tu as reçu mes pensées, et tu devrais te sentir plus confiant dans ta médiumnité, considérant le fait que tu n’avais aucune connaissance préalable de ce que j’allais dire.
 
-Je vous suis sincèrement reconnaissant pour ta bonté de cœur et ton engagement.
+Je vous suis sincèrement reconnaissant pour votre bonté de cœur et votre engagement.
 
 Affectueusement, Moïse.
