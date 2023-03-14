@@ -13,7 +13,7 @@ Martin Luther - reçu par James Padgett le 29 Juin 1916, Washington, USA.
 
 C’est moi, Luther.
 
-Je désire écrire un court message ce soir sur le sujet de : « Les cérémonies observées par mon église aujourd’hui ne sont pas approuvées par Dieu ou Jésus. » Je ne vous retiendrai pas très longtemps et j’essaierai de m’exprimer aussi succinctement que possible.
+Je désire écrire un court message ce soir sur le sujet de : *« Les cérémonies observées par mon église aujourd’hui ne sont pas approuvées par Dieu ou Jésus. »* Je ne vous retiendrai pas très longtemps et j’essaierai de m’exprimer aussi succinctement que possible.
 
 Eh bien, comme vous ne le savez peut-être pas, l’église dont je suis le fondateur croit et enseigne la nécessité du baptême des enfants et l’observance de la Cène comme éléments nécessaires de la doctrine de l’église, et d’une telle importance que sans eux, il est difficile de devenir un membre accepté de l’église invisible du Christ.
 

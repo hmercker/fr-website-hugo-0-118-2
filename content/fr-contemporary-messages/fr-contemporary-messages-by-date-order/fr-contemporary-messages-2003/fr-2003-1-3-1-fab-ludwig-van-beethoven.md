@@ -11,6 +11,8 @@ weight:
 
 Ludwig van Beethoven - reçu par FAB le 3 Janvier 2003, Santa Cruz, Californie, USA.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/beethoven.webp)
+
 C’est moi, Ludwig van Beethoven.
 
 Je viens aujourd’hui pour écrire un message sur mes expériences en rapport à la vie spirituelle. J’apprécie cette merveilleuse occasion de prendre contact avec la vie terrestre.

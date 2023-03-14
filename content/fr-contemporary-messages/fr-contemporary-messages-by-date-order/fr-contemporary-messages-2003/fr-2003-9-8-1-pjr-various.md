@@ -42,6 +42,7 @@ Et donc, maintenant tu vois comment nous voyons ta vie, et peut-être peux-tu co
 Toutes ces activités terrestres, nées de l’Amour, deviennent une partie de l’univers du Père lorsque tu les partages avec Lui. Et il voit même en elles ton désir de Le trouver. Bien sûr, comme toujours, ton chemin le plus direct vers Lui peut être trouvé en Lui demandant simplement de te montrer Son chemin.
 
 Alors, tu vois ? Même des cendres du doute que tu sois capable d’écrire quelque chose qui vaille la peine d’être relu, ce matin, viendra une note, réfléchie par nature et provocante dans ce qu’elle te dit.
+
 S’il te plaît, accepte notre amour comme nous t’aimons aussi et nous sommes toujours ravis de l’opportunité de nous exprimer par ta main. Comme nous avons tous contribué aux pensées et aux mots – et t’avons soutenu – en les formant dans ton esprit, et sur la page, quelques uns parmi nous ont souhaité parmi nous ont le désir de signer ce qui est devenu un effort de groupe.
 
 Certains d’entre nous sont,
