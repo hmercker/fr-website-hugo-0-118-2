@@ -11,7 +11,7 @@ weight:
 
 Ludwig van Beethoven - reçu par FAB le 3 Janvier 2003, Santa Cruz, Californie, USA.
 
-![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/beethoven.webp)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-beethoven.webp)
 
 C’est moi, Ludwig van Beethoven.
 
