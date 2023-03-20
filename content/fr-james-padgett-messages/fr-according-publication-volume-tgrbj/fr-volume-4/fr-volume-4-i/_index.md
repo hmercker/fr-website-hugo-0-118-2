@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume IV des messages reçus par James Padgett - Première Partie
 
-![](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/paysage-des-alpes.jpg)
+![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/paysage-des-alpes.jpg)
 
 Liste des messages reçus par James Padgett faisant partie du Volume IV :
 

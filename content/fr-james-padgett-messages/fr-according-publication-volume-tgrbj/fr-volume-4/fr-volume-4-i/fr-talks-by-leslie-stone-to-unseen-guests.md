@@ -78,7 +78,7 @@ Et après avoir de nouveau fait référence à la loi du rapport et à la maniè
 
 Après avoir fait cela, j’ai la merveilleuse expérience de voir les plus belles lumières des nombreux esprits élevés. Ces lumières semblent m’entourer et envelopper tout mon corps et un sentiment merveilleux et inexprimable me vient de la part ces esprits. Ces Esprits Célestes tournent autour de moi pendant un certain temps, puis je réalise sans aucun doute que ces Esprits Divins étaient présents, et ensuite j’informe tous les esprits de la présence des esprits brillants. Je leur demande de regarder sérieusement autour d’eux jusqu’à ce qu’ils les voient, qu’ils aillent avec eux, et afin de recevoir l’aide dont ils ont grandement besoin et que leur soit montré le chemin vers les Cieux Célestes, J’étends alors mes bras à tous les esprits présents et j’irradie le merveilleux amour et la puissance et je prie le Père Céleste de les bénir et de remplir leur âme de Son Grand Amour Divin en abondance.
 
-![](/fr-james-padgett-messages/fr-StoneSig.gif)
+![title](/fr-james-padgett-messages/fr-StoneSig.gif)
 
 Dr Leslie R. Stone.
 
