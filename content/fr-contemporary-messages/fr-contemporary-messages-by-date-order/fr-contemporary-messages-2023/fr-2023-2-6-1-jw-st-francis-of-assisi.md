@@ -9,7 +9,7 @@ weight:
 ---
 ### Quand on donne beaucoup, on attend beaucoup
 
-St François d'Assise - reçu par Jimbeau Walsh le 6 Février 2023, Nashville, TN, USA
+St François d'Assise - reçu par Jimbeau Walsh le 6 Février 2023, Nashville, TN, USA.
 
 C’est moi, votre frère en Christ, François.
 

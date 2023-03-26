@@ -9,7 +9,7 @@ weight:
 ---
 ### Attribut d'âme de la foi
 
-Faith - reçu par Maureen Cardoso le 4 Février 2023, Abbotsford, Colombie-Britannique, Canada
+Faith - reçu par Maureen Cardoso le 4 Février 2023, Abbotsford, Colombie-Britannique, Canada.
 
 Bonsoir, âmes bien-aimées, je suis Faith. Quelle grande bénédiction que d’être avec vous alors que vous êtes dispersés à travers votre globe, certains en cercle ensemble et d’autres assis seuls, mais pourtant unis dans l’amour, liés dans l’âme, attirés par le treillis de lumière, par vos portails et l’amour, votre désir  d’amour pour grandir et être l’amour.
 

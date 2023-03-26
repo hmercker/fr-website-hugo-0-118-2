@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédictions pour la nouvelle année
 
-Jésus - reçu par Al Fike le 1 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Merci pour votre belle prière. Je viens. Je suis votre frère et votre ami. Je suis Jésus. Je viens prier avec vous pour ce monde et pour votre propre monde intérieur, afin que tout ce qui est de la création de Dieu et tout ce qui est en vous puisse trouver l’harmonie avec la création et les lois de Dieu, ses lois d’amour. Mes frères et sœurs bien-aimés, vous constituez une force formidable dans le monde alors que vous priez ensemble aujourd’hui avec vos intentions unifiées et un profond désir de lumière, d’amour et d’harmonie pour envelopper votre monde, un monde qui a tellement besoin de ces choses, un monde qui est souvent perdu dans les ténèbres, un monde qui ignore la vérité. Pourtant, dans l’esprit de beaucoup, ils croient qu’ils sont arrivés au sommet du développement et de l’expression humaine. Pourtant, en vérité, ce sont des enfants qui doivent encore comprendre et parvenir à appréhender le grand univers de Dieu et tout ce qu’il contient.
 

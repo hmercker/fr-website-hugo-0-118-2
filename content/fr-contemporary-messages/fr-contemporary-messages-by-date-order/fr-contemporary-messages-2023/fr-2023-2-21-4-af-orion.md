@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes l'espor du monde
 
-Orion - reçu par Al Fike le 21 Février 2023, Sechelt, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 21 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 …prières et dédicaces, âmes bien-aimées. Je suis Orion. Je viens une fois de plus pour élever, encourager et enseigner mes amis terrestres bien-aimés. En effet, notre frère parle de patience. Nous apprenons la patience avec vous, âmes bien-aimées, car nous sommes comme des parents fiers qui observent l’enfant faire ses premiers pas. Nous l’avons attendu longtemps. En effet, vous progressez et vous avancez. La patience nous vient parce que, dans notre monde, nos enfants naissent en marchant, pour ainsi dire. Ces choses viennent naturellement et dans la plénitude de la lumière et des conditions dans lesquelles ils vivent, de sorte qu’ils sont en harmonie et libres de toute inhibition spirituelle.
 

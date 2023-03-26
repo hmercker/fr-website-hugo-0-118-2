@@ -9,7 +9,7 @@ weight:
 ---
 ### La naissance de nos âmes
 
-Augustin - reçu par Al Fike le 19 Février 2023, Sechelt, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 19 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant, Augustin. Je souhaite parler de la Loi de la Récompense par laquelle chaque âme doit expier ses actions et les conditions qui sont créées dans sa vie terrestre et dans la vie de l’esprit. Car toute action a une réaction et une réponse dans l’univers, car Dieu a créé un univers intégré qui continue à être directif, à rechercher une plus grande harmonie et à exprimer un alignement avec la vérité de l’intention et des lois de Dieu. Par conséquent, chacun d’entre vous qui a vécu une vie sur le plan terrestre a également créé pour lui-même un certain niveau de disharmonie avec les lois de Dieu. Ce n’est pas que vous ayez intentionnellement voulu le faire. Au contraire, c’est souvent à cause des conditions de votre monde qu’une telle disharmonie est créée par le simple fait d’y vivre.
 

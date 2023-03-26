@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chant et la danse Divins
 
-Inayat Khan  - reçu par Jimbeau Walsh le 20 Février 2023, Nashville, TN, USA
+Inayat Khan  - reçu par Jimbeau Walsh le 20 Février 2023, Nashville, TN, USA.
 
 C’est moi votre frère dans l’Amour de Dieu. Je suis Inayat Khan. Je reviens pour parler des chants et des danses, des arts et de la musique des sphères. Sur le plan terrestre, il existe une grande variété de musique, mais pas une grande variété de musique céleste canalisée par les médiums. Les chansons d’amour sont omniprésentes, elles cherchent l’amour, désespèrent de l’amour perdu, exaltent les joies de l’amour et ainsi de suite. 
 

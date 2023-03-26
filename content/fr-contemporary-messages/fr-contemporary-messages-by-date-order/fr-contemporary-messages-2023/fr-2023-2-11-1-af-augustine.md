@@ -9,7 +9,7 @@ weight:
 ---
 ### Besoin croissant de soutien communautaire d'Amour Divin
 
-Augustin - reçu par Al Fike le 11 Février 2023, Sechelt, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 11 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c’est votre professeur, Augustin. Tu parles de tes besoins en matière de publications et de communications avec les autres. En effet, ma chère fille, tu es le point central d’une grande roue qui s’étend avec de nombreux rayons dans de nombreuses directions. Tu passes beaucoup de temps à nourrir ceux qui sont liés à toi. C’est à la fois un cadeau et un fardeau, n’est-ce pas ? Parfois, tu te sens dépassée par les événements. À d’autres moments, tu es gratifiée et satisfaite de tes efforts. C’est ainsi que fonctionne votre monde. Les vagues du besoin s’écrasent sur les rivages de votre conscience. Parfois, ces vagues représentent un fardeau énorme et compliqué, un fardeau puissant pour vous. À d’autres moments, tu ressens la légèreté de tes responsabilités et la joie qu’elles te procurent.
 

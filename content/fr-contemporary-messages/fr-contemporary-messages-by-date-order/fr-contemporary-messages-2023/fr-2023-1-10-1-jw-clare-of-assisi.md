@@ -9,7 +9,7 @@ weight:
 ---
 ### Créez votre vision
 
-Claire d'Assise - reçu par Jimbeau Walsh le 10 Janvier 2023, Nashville, TN, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 10 Janvier 2023, Nashville, TN, USA.
 
 C’est moi Claire, votre sœur dans le Christ. Je viens comme promis et je viens avec une promesse, celle d’être toujours avec vous toi quand vous aurez besoin de moi. Je n’ai pas d’ordre du jour à promouvoir, ni d’exposition réfléchie. Chaque fois que quelqu’un sur Terre peut visualiser ce qu’il souhaite rendre manifeste, cette chose, cet objet, cette actualité et cet engagement peuvent devenir réels. Lorsque cela est fait par l’âme dans la prière, pour être dans la grâce de Dieu, dans Sa volonté, alors nous donnons notre plein soutien. Ce que je veux dire, c’est que lorsque votre vision est vraie et que votre intention est sacrée, l’objet de votre désir devient une réalité, une réalité bénie. Nous parlons de guidance et chacun doit suivre la sienne. Chacun apporte ses dons au festin à la table du Père et à cette table, tous sont un dans Son amour ; ce que nous appelons la sainte communion dans le vrai sens de ces mots.
 

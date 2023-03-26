@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouverture de la retraite - Cadeau d'un portail
 
-Seretta Kem - reçu par Maureen Cardoso le 3 Février 2023, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 3 Février 2023, Abbotsford, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées, c’est Seretta Kem. Nous vous invitons à ce rassemblement. Un rassemblement mondial où nous répondons à l’orchestration de Dieu, le Plan qui amène l’humanité dans une plus grande lumière, en réveillant les âmes, en servant la condition humaine, ce qui inspirera de nombreux individus et leur permettra d’entendre les incitations de leur âme à travers leur armure de condition qui les inhibe en ce moment.
 

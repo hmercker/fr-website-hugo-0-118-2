@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne gaspillez pas ces opportunités
 
-Confucius - reçu par Al Fike le 13 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 13 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Âmes sincères bénies, je suis Confucius. Je viens, car je suis aussi un Ange dans les royaumes Célestes. Je viens pour vous bénir, petits oiseaux, beaux petits oiseaux de Dieu, cherchant la vérité, cherchant l’amour, cherchant la compagnie, alors que vous vous rassemblez pour ce temps dans la Lumière de Dieu qui est un cadeau qui vous est donné par la Main de Dieu, alors qu’Il orchestre votre rassemblement et apporte Son toucher sur chacun de vous.
 

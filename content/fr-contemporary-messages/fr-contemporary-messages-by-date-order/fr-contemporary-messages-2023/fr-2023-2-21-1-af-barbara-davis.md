@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre famille bénéficie de vos efforts
 
-Barbara Davis - reçu par Al Fike le 21 Février 2023, Sechelt, Colombie-Britannique, Canada
+Barbara Davis - reçu par Al Fike le 21 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Soyez bénis, famille bien-aimée de Dieu, je suis Barbara. Je souhaite venir vous parler de la façon dont vous attirez à vous les êtres qui vous sont chers, ceux qui sont dans le monde des esprits ; vos mères et vos pères, vos frères, vos sœurs, vos tantes, vos oncles, vos grands-parents, leurs grands-parents, et ainsi de suite. Ces générations d’âmes qui cherchent encore plus de lumière et d’amour ont trouvé une voie pour répondre à leurs questions et aux désirs de leur âme à travers vous, âmes bien-aimées, parce que vous avez fait le choix clair, vous êtes venues à Dieu d’une manière si puissante que ceux qui sont proches de vous voient votre lumière et sont attirés par votre lumière.
 

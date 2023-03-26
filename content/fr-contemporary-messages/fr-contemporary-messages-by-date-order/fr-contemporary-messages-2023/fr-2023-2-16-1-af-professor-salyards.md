@@ -9,7 +9,7 @@ weight:
 ---
 ### Apportez la volonté de Dieu dans tout ce que vous faites
 
-Professeur Salyards - reçu par Al Fike le 16 Février 2023, Sechelt, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 16 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, c’est votre professeur Salyards qui vous parle. Je suis heureux que vous soyez parvenu à certaines conclusions et à certains aperçus concernant les prochaines étapes de votre rassemblement d’âmes. En effet, il y a beaucoup à faire et ma seule préoccupation concernant votre approche est que vous pourriez vous enliser dans les détails plutôt que d’avoir la perspicacité et le sens de ce que Dieu veut dans cet effort.
 
