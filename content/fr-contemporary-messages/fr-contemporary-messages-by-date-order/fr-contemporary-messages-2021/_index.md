@@ -332,6 +332,7 @@ Jésus | [Le pouvoir de la prière (Cercle de prière en ligne)](/fr-contemporar
 St Pierre | [Considérer ce que c’est que d’être transformé en Amour Divin (Cercle de prière de Gibson)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-11-1-jw-st-peter/) | 11 Octobre 2021
 Thérèse | [Chaque prière crée un sanctuaire invisible (Cercle de Prière de Gibsons)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-11-2-jw-therese/) | 11 Octobre 2021
 Fred Rogers | [Travailler avec les petits enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-1-jw-fred-rogers/) | 12 Octobre 2021
+Faith | [Vivre la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-2-af-faith/) | 12 Octobre 2021
 Jésus | [Leçon 18 : La loi de l’attraction et la progression de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-13-1-af-jesus/) | 13 Octobre 2021
 Jean le Bien-Aimé | [Une histoire sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-14-1-jw-john-the-beloved/) | 14 Octobre 2021
 St François d'Assise | [Nous implore d’apporter une plus grande lumière dans le monde (Cercle de Prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-17-1-af-st-francis-of-assisi/) | 17 Octobre 2021
@@ -339,6 +340,7 @@ Judas | [Énergie Céleste](/fr-contemporary-messages/fr-contemporary-messages-b
 Yogananda | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-18-2-jw-yogananda/) | 18 Octobre 2021
 Orion | [Nos amis stellaires poursuivent leurs activités (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-19-1-af-orion/) | 19 Octobre 2021
 Robert James Lees | [Le monde bénéficierait de ce que j'ai reçu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-19-2-jw-robert-james-lees/) | 19 Octobre 2021
+André | [Décrit le libre arbitre - Les anges n'interviendront pas ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-21-1-af-andrew/) | 21 Octobre 2021
 Arthur Conan Doyle | [Il y a beaucoup de travail à faire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-1-jw-arthur-conan-doyle/) | 22 Octobre 2021
 Care Derby Walsh | [Encouragements à terminer les projets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-2-jw-care-derby-walsh/) | 22 Octobre 2021
 St Matthieu | [Le monde a besoin de l’amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-3-af-st-matthew/) | 22 Octobre 2021
@@ -368,6 +370,7 @@ Orion | [Notre développement se poursuit dans l'Amour de Dieu (Projet Orion 202
 Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-10-1-jw-robert-james-lees/) | 10 Novembre 2021
 Orion | [Suite de Questions et Réponses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-1-af-orion/) | 11 Novembre 2021
 Robert James Lees | [Tous sont dignes de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-2-jw-robert-james-lees/) | 11 Novembre 2021
+St Matthieu | [Prier pour l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-12-1-af-st-matthew/) | 12 Novembre 2021
 Seretta Kem | [L'éveil de votre âme sera renforcé par l'exercice de votre foi (2021 Groupe des douze)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-13-1-af-seretta-kem/) | 13 Novembre 2021
 Orion | [L’Amour Divin est la vérité universelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-14-1-af-orion/) | 14 Novembre 2021
 Yogananda | [Le voyage du cœur est véritablement le voyage de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-15-1-jw-yogananda/) | 15 Novembre 2021
