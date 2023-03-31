@@ -19,21 +19,21 @@ Ces messages nous encouragent à ne pas nous satisfaire des simples croyances de
 
 Nous vous invitons donc à découvrir les principaux concepts développés dans ce premier volume des messages:
 
-**La véritable mission de Jésus**
+- **La véritable mission de Jésus**
 
-**L’organisation des Cieux Célestes**
+- **L’organisation des Cieux Célestes**
 
-**L’Immortalité**
+- **L’Immortalité**
 
-**Qui et qu’est-ce que Dieu?**
+- **Qui et qu’est-ce que Dieu?**
 
-**L’Esprit Saint**
+- **L’Esprit Saint**
 
-**La Résurrection**
+- **La Résurrection**
 
-**Le Pardon**
+- **Le Pardon**
 
-**L’Expiation**
+- **L’Expiation**
 
 Ceci forme un ensemble cohérent, et cependant très simple, d’enseignements qui répondent à diverses questions que chacun peut se poser. Cependant, et malheureusement, ce ne sont pas les enseignements actuellement toujours donnés par les églises, même si nous pouvons remarquer que le Nouveau Testament sert souvent de fondement aux messages reçus qui peuvent alors êtres perçus comme une nouvelle compréhension de ce dernier.
 

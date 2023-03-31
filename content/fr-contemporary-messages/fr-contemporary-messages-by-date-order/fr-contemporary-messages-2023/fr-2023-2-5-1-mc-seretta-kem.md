@@ -9,7 +9,7 @@ weight:
 ---
 ### Dernières recommandations
 
-Seretta Kem - reçu par Maureen Cardoso le 5 Février 2023, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 5 Février 2023, Abbotsford, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c’est Seretta Kem. Que Dieu vous bénisse.
 

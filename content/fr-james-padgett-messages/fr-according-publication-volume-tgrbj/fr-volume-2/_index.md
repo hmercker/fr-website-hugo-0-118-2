@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume II des messages reçus par James Padgett
 
-![](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/paysage-du-canada2.jpg)
+![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/paysage-du-canada2.jpg)
 
 La première publication de ce volume de messages en anglais, a eu lieu en 1950 et celle de la première version française en Janvier 2019. Dans ce second volume des messages, l’accent est surtout mis sur le fait que Jésus fut la première personne à recevoir et à réellement personnifier l’Amour de Dieu. Il n’était pas, et n’a jamais voulu être, un messie militaire qui chasserait les occupants romains. Il a seulement cherché à témoigner de l’Amour de Dieu. Jésus explique ainsi que le but de notre vie est vraiment de nous ouvrir à la réception de l’Amour de Dieu par l’intermédiaire de l’Esprit Saint. **C’est cette réception de l’Amour Divin que Jésus qualifie de Nouvelle Naissance. Ce concept est la clef de voûte de l’ensemble des messages reçus par James Padgett.**
 
@@ -19,21 +19,21 @@ Nous découvrons ainsi le concept de la Nouvelle Naissance tel qu’il est expli
 
 Je vous invite donc à découvrir les principaux concepts développés dans cette deuxième série de messages :
 
-**Nouvelle Naissance et l’Amour Divin**
+- **Nouvelle Naissance et l’Amour Divin**
 
-**Jésus n’est pas Dieu**
+- **Jésus n’est pas Dieu**
 
-**L’importance de la Prière**
+- **L’importance de la Prière**
 
-**La vie et la progression dans le monde des esprits**
+- **La vie et la progression dans le monde des esprits**
 
-**La Nature de Dieu et de l’Esprit Saint**
+- **La Nature de Dieu et de l’Esprit Saint**
 
-**Le sens du Salut et de l’Expiation (la rédemption)**
+- **Le sens du Salut et de l’Expiation (la rédemption)**
 
-**La Résurrection**
+- **La Résurrection**
 
-**La Réincarnation**
+- **La Réincarnation**
 
 Pour terminer il convient de prêter attention au fait que tous les écrits de la Bible, quells que furent les leurs auteurs, ne sont pas identiques aux écrits originaux. Néanmoins le contenu de la bible est suffisamment explicite pour permettre à chacun des étudiants sérieux de ce livre de pouvoir entrer dans le Royaume des Cieux.
 

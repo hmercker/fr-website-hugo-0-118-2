@@ -9,7 +9,7 @@ weight:
 ---
 ### Le voyage de la nouvelle naissance
 
-Jésus - reçu par Maureen Cardoso le 4 Février 2023, Abbotsford, Colombie-Britannique, Canada
+Jésus - reçu par Maureen Cardoso le 4 Février 2023, Abbotsford, Colombie-Britannique, Canada.
 
 Que le Souffle de Dieu soit sur vous et que l’Amour coule profondément dans vos âmes. Mes bien-aimés, je suis Jésus et j’apporte mes dons, mon amour et ma reconnaissance à chacun de ceux qui jouent leur rôle, que ce soit en esprit ou dans la matière, dans cette grande aventure commune. En aidant les âmes à passer de l’humain au divin, nous apportons de grandes bénédictions sur Terre ; nous touchons les royaumes inférieurs de l’esprit, et au-delà. Nous nous rassemblons tous.
 

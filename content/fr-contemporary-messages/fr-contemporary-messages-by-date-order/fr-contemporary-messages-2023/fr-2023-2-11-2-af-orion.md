@@ -9,7 +9,7 @@ weight:
 ---
 ### Le livre d'Orion arrive bientôt
 
-Orion - reçu par Al Fike le 11 Février 2023, Sechelt, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 11 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Je souhaite confirmer les idées et les impressions de cet instrument quant à la façon dont nous pouvons communiquer les informations que nous souhaitons donner au monde sur nous-mêmes, notre planète sur laquelle nous vivons, les possibilités de vie qui existent sur d’autres planètes et qui peuvent exister sur la vôtre, à condition que l’humanité se relève du bourbier de cette condition dans laquelle vous vivez. Notre plan est de créer quelque chose qui soit facile à lire et à absorber et qui ne soit pas entièrement controversé. Plutôt, parce que nous prévoyons d’en faire un ouvrage de fiction, il peut être lu avec un esprit ouvert. Cependant, en lisant ces informations, des graines seront plantées et des idées ingérées dans l’esprit de chaque lecteur.
 

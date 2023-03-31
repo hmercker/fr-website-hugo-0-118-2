@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chemin deviendra plus facile avec l'Amour Divin (2023 groupe des douze)
 
-Orion - reçu par Al Fike le 7 Mars 2023, Sechelt, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 7 Mars 2023, Sechelt, Colombie-Britannique, Canada.
 
 Mes amis bien-aimés, je suis Orion. Je vois comment vos prières ont une grande portée, apportant une plus grande lumière à ce monde qui est le vôtre. Nous voyons comment vos désirs, votre sérieux et votre intégrité dans la prière et l’effort continuent d’ouvrir la voie au service, au développement des dons de votre âme, à l’intégration de tous les aspects de vous-même dans l’unité et l’unicité que vous êtes censés être et exprimer dans le monde. Vous devez continuer à être patients, mes amis, car ces choses ne se construisent pas facilement dans les conditions de votre monde. Elles exigent de grands efforts de la part de tous ceux qui sont impliqués, vous sur le plan matériel et nous dans les plans spirituels et extra-mondains, qui continuons à travailler ensemble pour vous aider à réaliser vos objectifs et les désirs que nous portons d’être un instrument clair et puissant dans le monde.
 

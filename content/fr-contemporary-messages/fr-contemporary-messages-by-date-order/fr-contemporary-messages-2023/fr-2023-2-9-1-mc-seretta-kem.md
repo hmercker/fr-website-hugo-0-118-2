@@ -9,7 +9,7 @@ weight:
 ---
 ### Intégration du portail
 
-Seretta Kem - reçu par Maureen Cardoso le 9 Février 2023, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Maureen Cardoso le 9 Février 2023, Abbotsford, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, c’est Seretta Kem.
 

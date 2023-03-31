@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre rôle dans le plan de dieu
 
-Michael Collier - reçu par Al Fike le 26 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+Michael Collier - reçu par Al Fike le 26 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que les bénédictions de l’Amour du Père continuent à remplir vos âmes, mes amis bien-aimés. Je reviens, Michael Collier. Je suis de retour pour parler davantage des choses relatives à la vie spirituelle et à votre instrumentalité sur la Terre.
 

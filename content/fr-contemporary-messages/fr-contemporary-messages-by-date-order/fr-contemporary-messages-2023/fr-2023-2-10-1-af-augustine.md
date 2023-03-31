@@ -9,7 +9,7 @@ weight:
 ---
 ### Les obstacles à l'éveil de l'âme
 
-Augustin - reçu par Al Fike le 10 Février 2023, Sechelt, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 10 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, étudiants bien-aimés, je suis votre enseignant, Augustin. Je viens vous parler des sensibilités que l’humanité porte dans le monde. Dans votre monde occidental, comme vous l’appelez, vos enfants sont éduqués à un point tel que beaucoup de leurs capacités intuitives et de leurs sensibilités sont entraînées. Ils ne ressentent plus ce qu’ils ressentaient lorsqu’ils étaient jeunes. Ils deviennent immunisés contre les sentiments et les perceptions qui accompagnent une âme sensibilisée vivant dans le monde matériel. Au lieu de cela, ils sont éclipsés par l’intellect et la discipline. Souvent, à travers leurs expériences d’enfants interagissant les uns avec les autres, ils se désensibilisent mutuellement par leurs actions.
 

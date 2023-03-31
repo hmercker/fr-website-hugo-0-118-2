@@ -9,7 +9,7 @@ weight:
 ---
 ### Les fondements solides de la prière et de la foi
 
-Claire d'Assise - reçu par Jimbeau Walsh le 9 Février 2023, Nashville, TN, USA
+Claire d'Assise - reçu par Jimbeau Walsh le 9 Février 2023, Nashville, TN, USA.
 
 Mes chères souris, c’est moi, Claire. Je viens avec beaucoup dans l’Amour de Dieu en réponse à vos prières. Car le Père nous envoie, et nous venons avec joie.
 

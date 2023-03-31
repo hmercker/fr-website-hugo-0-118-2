@@ -9,7 +9,7 @@ weight:
 ---
 ### N'est-ce pas le désir de votre cœur ?
 
-Anne Rollins - reçu par Jimbeau Walsh le 30 Janvier 2023, Nashville, TN, USA
+Anne Rollins - reçu par Jimbeau Walsh le 30 Janvier 2023, Nashville, TN, USA.
 
 C’est moi Anne Rollins, votre sœur et amie dans l’Amour de Dieu. Je souhaite vous rappeler gentiment le fondement de votre communauté. Elle repose sur la confiance dans cette communication et des messages reçus de nous tous ici, non seulement dans les Cieux Célestes mais dans les nombreuses demeures du royaume des Pères ; les nombreux esprits qui sont passés. N’avez-vous pas confiance en cette transition qui viendra pour vous tous au temps de Dieu ?
 

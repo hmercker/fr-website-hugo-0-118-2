@@ -9,7 +9,7 @@ weight:
 ---
 ### Un cœur ouvert est le chemin de l'âme
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 22 Février 2023, Nashville, TN, USA
+Charlie Chaplin - reçu par Jimbeau Walsh le 22 Février 2023, Nashville, TN, USA.
 
 Je suis ici votre frère dans l’Amour de Dieu sur le chemin de l’Amour Divin. Je suis Charles, Charlie Chaplin. Oh, mes beaux amis, je suis ravi de me joindre à vous dans votre prière pour ressentir vos aspirations à être libres, à être dans la joie. Vos sentiments sont la porte d’entrée de l’ouverture de vos cœurs pour que vos âmes soient bénies. L’Amour de Dieu arrive sur les ailes de vos aspirations et de vos désirs avant même qu’un seul mot ne soit prononcé. Et bien que vous puissiez trouver dans votre prière les mots qui vous relient à vos désirs, c’est un cœur ouvert qui est votre voie d’accès à l’âme.
 
