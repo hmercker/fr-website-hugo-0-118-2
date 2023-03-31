@@ -82,7 +82,7 @@ Eh bien, comme ces différents sentiments opèrent, et qu’il agit en accord av
 
 Mais cette libération graduelle de ces peines ne signifie pas qu’un esprit progresse dans son cheminement vers les sphères supérieures et plus brillantes, parce que même sans cette torture et ce tourment, il peut rester immobile quant au développement de sa nature supérieure, mentale et morale. Mais lorsqu’il a été soulagé de ces souffrances, il est alors en état de commencer la progression dont j’ai parlé.
 
-Comme tu es fatigué, je continuerai le reste de mon discours lorsque j’écrirai à nouveau.
+Comme tu es fatigué, je continuerai le reste de mon discours lorsque j’écrirai à [nouveau](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-3-1-jep-joseph-salyards/).
 
 Avec tout mon amour, je suis, ton véritable ami et professeur, Joseph H. Salyards. <sup id="a2">[2](#f2)</sup>
 <small>

@@ -25,4 +25,7 @@ Ce soir, je n’essaierai pas d’écrire un message sur ces vérités, je dirai
 
 Non – aucun sang ne sauve du péché, seul l’Amour Divin du Père le fait.
 
-Avec beaucoup d’amour, je suis votre ami, St. Paul.
+Avec beaucoup d’amour, je suis votre ami, St. Paul.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1. <large id=”f1”> Paul, dans un message du [20 Août 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-20-1-jep-st-paul/) a rejetté l’efficacité de l’expiation déléguée.[↩](#a1)

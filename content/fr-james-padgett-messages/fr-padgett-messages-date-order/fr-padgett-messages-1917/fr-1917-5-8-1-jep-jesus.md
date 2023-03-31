@@ -45,7 +45,9 @@ Aussi, vous devez comprendre que l’apparence du corps spirituel indique et dé
 
 Eh bien, j’ai écrit plus que je ne l’avais prévu, mais comme vous vouliez avoir une idée de ce que j’ai écrit, j’ai conclu (essayé) de tenter de vous expliquer ces choses, bien que je sache que mon explication ne vous a pas permis de comprendre pleinement ce que j’ai essayé de vous faire connaître. Mais nous devons arrêter maintenant. Alors avec mon amour, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> M. Padgett m’a dit plus tard que Jésus s’était révélé et qu’il l’avait vu, en clairvoyance, alors que M. P. priait pour recevoir plus de l’Amour Divin. (Dr Stone.)[↩](#a1)
+
+2. <large id=”f1”> Ce message précise et complète le message communiqué par Jean le [23 Novembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-23-1-jep-st-john/).[↩](#a1)

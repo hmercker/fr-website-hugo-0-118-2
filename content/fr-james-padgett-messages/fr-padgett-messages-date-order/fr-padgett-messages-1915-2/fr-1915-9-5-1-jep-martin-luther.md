@@ -31,3 +31,12 @@ Votre frère en Christ, Martin Luther.76
 1. <large id="f1"> Ce message est également publié dans le volume IV, deuxième édition anglaise de 2014, à la page 326.[↩](#a1)
 
 2. <large id="f2"> Vous pouvez lire cela dans le Nouveau Testament : 1 Corinthiens 11:25. (G.J.C).[↩](#a2)
+
+Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+
+•	19 Octobre 1915 : [Ce que l’homme devrait savoir afin d’éprouver les esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1915-2/fr-1915-10-19-1-jep-martin-luther/).
+
+•	29 Juin 1916 : [Martin Luther sur les cérémonies religieuses](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-29-1-jep-martin-luther/).
+
+•	31 Janvier 1917 : [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31-1-jep-martin-luther).
+

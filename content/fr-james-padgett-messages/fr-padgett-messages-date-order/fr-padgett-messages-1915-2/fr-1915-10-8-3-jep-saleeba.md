@@ -22,3 +22,10 @@ J’irai très prochainement vers mon peuple, je leur dirai ce que j’ai trouv�
 Je sais que vous êtes heureux que je sois heureuse, et que je m’intéresse à ma progression, et, par conséquent, j’aime venir vous dire quelle est ma condition. Je n’écrirai pas plus ce soir. Croyez donc que je vous aime comme une sœur, et priez pour vous et demandez au Père de vous rendre heureux et de remplir votre âme de Son Amour, et de vous bénir.
 
 Bonne nuit, votre sœur, Saleeba.
+
+Note : Saleeba a commenté son expérience de progression par les messages suivants
+
+•	2 Juin 1915 : [Un ancien esprit de la sixième sphère recherche de l’aide](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1\fr-1915-6-2-1-jep-saleeba/).
+•	5 Juillet 1915 : [Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère].(/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-1-jep-saleeba/)
+•	16 Octobre 1915 : [Saleeba partage sa progression dans l’obtention de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/).
+•	26 Octobre 1915 : [Saleeba est descendue vers la troisième sphère pour développer son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-26-3-jep-saleeba/).

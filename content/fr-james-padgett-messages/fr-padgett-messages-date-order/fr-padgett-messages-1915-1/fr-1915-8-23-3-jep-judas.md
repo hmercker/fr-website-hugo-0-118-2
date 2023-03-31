@@ -23,4 +23,4 @@ Alors bonne nuit.
 
 Judas.
 
-*Note : En 2002, un autre médium a reçu plus de détails sur ce qui a motivé Judas à trahir Jésus. [Vous pouvez lire ceci ici](*************************). L’argent n’avait rien à voir avec ses motivations.*
+*Note : En 2002, un autre médium a reçu plus de détails sur ce qui a motivé Judas à trahir Jésus. [Vous pouvez lire ceci ici](******). L’argent n’avait rien à voir avec ses motivations.*

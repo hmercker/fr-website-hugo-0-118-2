@@ -26,3 +26,10 @@ Je ne suis pas en état maintenant de vous parler de ma résidence ou de ma vie 
 Je n’écrirai pas plus ce soir.
 
 Alors avec mon amour et mes pensées les plus aimables, je suis, votre sœur en Christ, Saleeba.
+
+Note 2 : Saleeba a commenté son expérience de progression par les messages suivants
+
+•	2 Juin 915 : [Un ancien esprit de la sixième sphère recherche de l’aide](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1\fr-1915-6-2-1-jep-saleeba/).
+•	8 Octobre 1915 : [Saleeba progresse vers les Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-3-jep-saleeba/).
+•	16 Octobre 1915 : [Saleeba partage sa progression dans l’obtention de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/).
+•	26 Octobre 1915 : [Saleeba est descendue vers la troisième sphère pour développer son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-26-3-jep-saleeba/).

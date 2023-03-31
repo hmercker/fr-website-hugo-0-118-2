@@ -48,4 +48,7 @@ Vous avez écrit longuement cette nuit et je pense qu’il vaut mieux que j’ar
 
 Avec tout mon amour et mes bénédictions, et l’amour et les bénédictions du Père, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1. <large id=”f1”> [Ce même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-3-jep-st-paul/), Paul a également commenté le message du prédicateur.[↩](#a1)

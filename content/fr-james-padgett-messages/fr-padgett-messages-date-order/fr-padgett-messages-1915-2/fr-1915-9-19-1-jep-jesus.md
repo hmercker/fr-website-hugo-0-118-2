@@ -27,3 +27,13 @@ Votre frère et ami, Jésus.
 <small>
 
 1. <large id="f1"> Ce message est également publié dans le volume le volume III à la page 187 et à la page 272.[↩](#a1)
+
+Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+
+05 Septembre 1915 :  [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-9-5-4-jep-jesus/).
+
+12 Septembre 1915 :  [Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-9-12-1-jep-jesus/).
+
+06 Mai 1917 :  [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917\fr-1917-5-6-1-jep-jesus/).
+
+02 Mai 1920 : [La Vérité Divine doit être déclarée à toute l'humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-2-1-jep-jesus/).

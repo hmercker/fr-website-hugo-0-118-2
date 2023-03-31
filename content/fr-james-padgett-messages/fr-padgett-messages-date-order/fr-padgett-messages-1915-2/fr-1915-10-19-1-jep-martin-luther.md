@@ -39,3 +39,12 @@ Votre frère en Christ, Martin Luther.
 <small>
 
 1. <large id="f1"> Un autre mot pour Expiation est Rédemption.[↩](#a1)
+
+Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+
+•	05 Septembre 1915 : [Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-1-jep-martin-luther/).
+ 
+•	29 Juin 1916 : [Martin Luther sur les cérémonies religieuses](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-29-1-jep-martin-luther/).
+
+•	31 Janvier 1917 : [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31-1-jep-martin-luther).
+

@@ -59,6 +59,26 @@ Eh bien, je pense que vous êtes trop somnolent maintenant pour continuer, et vo
 
 Votre frère et ami, Jésus.
 
-*Note : Un [message contemporain de Judas](****************) prétend que Jésus avait en fait cinq frères et deux sœurs et il cite leurs noms.*
+*Note : Un [message contemporain de Judas](**message du 08 Octobre 2011**) prétend que Jésus avait en fait cinq frères et deux sœurs et il cite leurs noms.*
 
 *Credits du portrait de Jésus: [Akiane Kramarik](https://akiane.com)*
+
+Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
+
+Le 24 Mai Juin 1915 : [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/).
+
+le 08 Juin 1915 : [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus.md).
+
+le 29 Juin 1915 : [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/).
+
+le 20 Mai 1918 : [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/).
+
+le 25 Mai 1955 : [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/).
+
+le 14 Juin 1955 : [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/).
+
+
+
+
+
+

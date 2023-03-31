@@ -32,3 +32,12 @@ Il y a une loi de Dieu qui contrôle ces choses qui rend ces âmes préexistante
 Je suis heureux que vous soyez en meilleure condition et que vous puissiez continuer les messages comme nous le souhaitons depuis un certain temps. Je serai avec vous et je vous aiderai de toutes les manières possibles, et j’espère que vous garderez votre foi et vos prières au Père. Bonne nuit et que Dieu vous bénisse.
 
 Votre frère et ami, Jésus.
+
+Note : Jésus a communiqué trois autres messages sur l'incarnation de l'âme. ils ont été respectivement communiqués 
+
+•	le 02 Mars 1916 : [Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-2-1-jep-jesus/).
+
+•	le 02 Mars 1917 : [L’âme – ce qu’elle est et ce qu’elle n’est pas](//fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/).
+
+•	le 21 Mars 1920 : [Commentaire sur un prédicateur, individualisation et incarnation de l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-3-21-2-jep-jesus/).
+

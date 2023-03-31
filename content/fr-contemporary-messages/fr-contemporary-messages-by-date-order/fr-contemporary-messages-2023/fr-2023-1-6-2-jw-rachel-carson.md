@@ -20,7 +20,7 @@ Comme le voyage spirituel commence dans le cœur de chacun, une âme, un pas, en
 Comme les religions d’antan s’éteignent, beaucoup sont actuellement peut-être dans un état d’agnosticisme, mais en fin de compte, chaque âme peut savoir qu’il y a quelque chose de plus grand qu’elle-même. Vous qui avez découvert la Source dans le grand Amour de Dieu, vous êtes l’avant-garde de ce Nouvel Âge sur nous tous. Puissent vos sanctuaires devenir des réalités dans ce nouvel âge. Je vous remercie infiniment de m’avoir permis de venir à travers celui qui ne me connaît pas. Je souhaite une bénédiction pour chacun dans l’Amour de Dieu et dans l’amour d’une mère pour ses enfants et pour la planète. Je vous remercie. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Rachel Carson est l’auteur de Printemps silencieux, considéré par beaucoup comme le premier livre sur l’environnementalisme scientifique qui a attiré l’attention sur les produits chimiques/pesticides présents dans l’eau/le sol et l’air aux États-Unis.
+1. <large id=”f1”> Rachel Carson est l’auteur de Printemps silencieux, considéré par beaucoup comme le premier livre sur l’environnementalisme scientifique qui a attiré l’attention sur les produits chimiques/pesticides présents dans l’eau/le sol et l’air aux États-Unis. 
 
 Silent Spring est un livre de Rachel Carson sur l’environnement. Publié le 27 septembre 1962, ce livre documente les dommages environnementaux causés par l’utilisation inconsidérée des pesticides. Rachel Carson accuse l’industrie chimique de répandre la désinformation et les responsables publics d’accepter sans broncher les affirmations commerciales de l’industrie.
 

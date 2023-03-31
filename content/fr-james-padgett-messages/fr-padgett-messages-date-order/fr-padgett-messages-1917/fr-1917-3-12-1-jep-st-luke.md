@@ -53,3 +53,12 @@ Avec tout mon amour et bénédictions, je suis votre frère en Christ, Luc.
 <small>
 
 1. <large id="f1"> Incassable: impossible d’être violé, contrevenu ou brisé.[↩](#a1)
+
+Note : Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
+
+17 Septembre 1915 : [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-st-luke/).
+
+5 Décembre 1915 : [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/).
+
+30 Novembre 1916 : [Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-30-1-jep-st-luke/).
+

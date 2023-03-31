@@ -15,7 +15,7 @@ C’est moi, Jésus.
 
 Vous êtes en meilleure condition ce soir, je vais donc continuer mes messages.
 
-» Dieu est un Dieu d’Amour, et nul homme ne peut venir à Lui, s’il ne reçoit pas l’Amour du Père dans son âme.  » Comme les hommes sont par nature des pêcheurs et enclins à l’erreur et à la violation des lois de Dieu, ils ne peuvent être délivrés de ce péché que par l’obtention de cet Amour ; et ce dernier ne peut être obtenu que par la prière et la foi en la volonté de Dieu d’accorder cet Amour à celui qui le demande. Je ne veux pas dire qu’il doit y avoir des prières formelles ou un respect de tout credo religieux ou de dogmes ; mais la prière qui est efficace, c’est celle qui émane de l’âme et des aspirations sincères d’un homme. Que les hommes sachent donc que s’ils n’ont pas, dans leur âme, une aspiration réelle pour cet Amour, il ne leur sera pas donné – aucun désir intellectuel ne suffira. L’intellect n’est pas cette faculté de l’homme qui l’unit à Dieu. Seule l’âme est faite à la ressemblance du Père et, à moins que cette ressemblance soit parfaite par un remplissage de l’âme avec l’amour Divin du Père, la ressemblance n’est jamais totale.
+« [Dieu est un Dieu d’Amour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-31-1-jep-jesus/), et nul homme ne peut venir à Lui, s’il ne reçoit pas l’Amour du Père dans son âme. » Comme les hommes sont par nature des pêcheurs et enclins à l’erreur et à la violation des lois de Dieu, ils ne peuvent être délivrés de ce péché que par l’obtention de cet Amour ; et ce dernier ne peut être obtenu que par la prière et la foi en la volonté de Dieu d’accorder cet Amour à celui qui le demande. Je ne veux pas dire qu’il doit y avoir des prières formelles ou un respect de tout credo religieux ou de dogmes ; mais la prière qui est efficace, c’est celle qui émane de l’âme et des aspirations sincères d’un homme. Que les hommes sachent donc que s’ils n’ont pas, dans leur âme, une aspiration réelle pour cet Amour, il ne leur sera pas donné – aucun désir intellectuel ne suffira. L’intellect n’est pas cette faculté de l’homme qui l’unit à Dieu. Seule l’âme est faite à la ressemblance du Père et, à moins que cette ressemblance soit parfaite par un remplissage de l’âme avec l’amour Divin du Père, la ressemblance n’est jamais totale.
 
 L’amour est l’une des grandes choses vers une existence réelle de l’homme avec Dieu. Sans lui, tout serait chaos et malheur ; mais là où il existe, l’harmonie et le bonheur existent également. Je dis cela parce que je sais, par expérience personnelle, que c’est vrai. Que les hommes ne pensent pas que Dieu est un Dieu qui veut l’adoration des hommes avec leurs simples facultés intellectuelles ; ce n’est pas vrai. Son Amour est la seule chose qui peut L’unir à eux. Cet Amour n’est pas l’Amour qui naturellement fait partie de l’homme ; l’amour que les hommes, qui n’ont pas reçu une partie de l’Amour Divin, ont, n’est pas suffisant pour leur permettre d’être Un avec le Père ; pas plus qu’il n’est ce genre d’amour qui leur permettra d’entrer dans les Sphères Célestes et devenir comme les anges qui sont remplis de cet Amour Divin et qui font toujours la Volonté du Père. Cet Amour ne se trouve que dans les âmes de ceux qui l’ont reçu par l’action de l’Esprit Saint, seul instrument des œuvres de Dieu, qui est utilisé pour amener le salut des hommes.
 
@@ -50,3 +50,20 @@ Un esprit est seulement un homme sans un corps terrestre et les soucis qui sont 
 Eh bien, j’ai déjà écrit trop longtemps et je dois cesser. Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
 Votre frère spirituel, Jésus
+
+Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
+
+
+le 4 Juin 1915 : [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/).
+
+le 28 Février 1916 : [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/).
+
+le 15 Mars 1916 : [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père. Mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/).
+
+le 23 Mars 1916 : [Comment l’Amour Divin entre dans l’âme de l’homme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/).
+
+le 08 Mai 1916 : [Comment l’Amour Divin entre dans l’âme de l’homme (Suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/).
+
+le 10 Novembre 1916 : [Comment l’âme d’un mortel reçoit l’Amour Divin et quel est son effet, bien que, par la suite, il puisse se laisser influencer par des croyances qui peuvent avoir tendance à empêcher la croissance de l’âme. Qu’est ce qu’une âme en peine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-10-1-jep-jesus/) ?
+
+le 03 Mars 1918 : [Christ peut être en vous – ce que cela signifie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-3-3-1-jep-jesus/).

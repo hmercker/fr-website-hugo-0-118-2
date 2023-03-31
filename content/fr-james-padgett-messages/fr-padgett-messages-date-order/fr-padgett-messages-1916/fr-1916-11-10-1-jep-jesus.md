@@ -43,3 +43,20 @@ Votre frère et ami, Jésus.
 <small>
 
 1. <large id="f1"> C’est le Ciel Spirituel de l’homme parfait qui possède seulement l’amour naturel à l’état pur, mais ne possède pas l’Amour Divin qui est nécessaire pour entrer dans les Cieux Célestes.[↩](#a1)
+
+
+Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
+
+le 03 Mars 1915 : [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/).
+
+le 4 Juin 1915 : [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/).
+
+le 28 Février 1916 : [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/).
+
+le 15 Mars 1916 : [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père. Mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/).
+
+le 23 Mars 1916 : [Comment l’Amour Divin entre dans l’âme de l’homme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/).
+
+le 08 Mai 1916 : [Comment l’Amour Divin entre dans l’âme de l’homme (Suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/).
+
+le 03 Mars 1918 : [Christ peut être en vous – ce que cela signifie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-3-3-1-jep-jesus/).

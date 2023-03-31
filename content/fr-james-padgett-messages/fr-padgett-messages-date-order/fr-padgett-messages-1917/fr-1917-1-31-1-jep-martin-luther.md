@@ -22,3 +22,12 @@ Eh bien, toutes les spéculations qui ont existé sur l’Eucharistie et le chan
 Il n’approuve pas l’enseignement des hommes selon lequel sa mort et son sang étaient le moyen pour l’homme d’être sauvé de leurs péchés et de se réconcilier avec Dieu. Il dit que c’est sa vie, ses enseignements et la démonstration de l’Amour de Dieu existant dans sa propre âme qui a montré le seul vrai chemin vers le salut. Mais, je ne dois plus écrire maintenant. Alors, avec mon amour, je vous souhaite une bonne nuit.
 
 Votre frère en Christ, Martin Luther.
+
+Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+
+•	05 Septembre 1915 : [Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-1-jep-martin-luther/).
+ 
+•	19 Octobre 1915 : [Ce que l’homme devrait savoir afin d’éprouver les esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1915-2/fr-1915-10-19-1-jep-martin-luther/).
+
+•	29 Juin 1916 : [Martin Luther sur les cérémonies religieuses](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-29-1-jep-martin-luther/).
+

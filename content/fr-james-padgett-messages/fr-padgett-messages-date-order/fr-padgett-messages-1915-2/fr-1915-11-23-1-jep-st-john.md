@@ -39,6 +39,15 @@ Lorsqu’un esprit sombre apprend de ce Grand Amour, s’efforce de l’obtenir 
 
 Mais j’insiste encore que le travail de ces esprits inférieurs, dont j’ai parlé, est une grande œuvre et ne doit pas être sous-estimé. Souvenez-vous donc de ce que j’ai écrit et accordez tout le crédit qu’il convient à ce travail.
 
-Je n’écrirai pas plus maintenant et, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
+Je n’écrirai pas plus maintenant<sup id=”a1”>[1](#f1)</sup> et, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Saint Jean.
+Votre frère en Christ, Saint Jean.<sup id=”2”>[2](#f2)</sup>
+<small>
+
+1. <large id=”f1”> Jean s'est exprimé sur la réalité des enfers le [19 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-19-1-jep-st-john/).[↩](#a1)
+
+2. <large id=”f1”> Afin d'atténuer son message sur la réalité des enfers, Jean a tenu à préciser, dans un message communiqué le [19 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-19-1-jep-st-john/), que personne ne souffrira en enfer pour l'éternité.[↩](#a1)
+
+Note : Ce message a été complété par Jésus le [08 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-8-1-jep-jesus/) afin d'expliquer les conditions requises afin que cette aide puisse être effective
+
+

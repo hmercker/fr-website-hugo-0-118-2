@@ -11,6 +11,8 @@ weight:
 
 Néron - reçu par James Padgett le 16 Janvier 1917, Washington, USA.
 
+![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/neron-et-son-ame-soeur.jpg)
+
 Je suis l’esprit de celui qui a vécu sur terre la vie d’un homme méchant, un persécuteur des chrétiens, un blasphémateur de Dieu et de tout ce qui était pur et saint. Lorsque je suis arrivé à la fin de ma vie et que je me suis débarrassé de mon enveloppe mortelle pour devenir un esprit, je suis aussi devenu un habitant des enfers les plus bas où tout est obscurité et torture, la demeure des démons et de tout ce qui tend à rendre l’esprit malheureux et en contradiction avec le Dieu d’amour.
 
 Je me présente ainsi pour vous démontrer la puissance merveilleuse de l’Amour Divin, car maintenant je suis un habitant des Sphères Célestes, et je sais que cet Amour n’est pas seulement réel, mais qu’il est capable de faire du plus vil pécheur un participant et un possesseur de l’Essence Divine du Père.
@@ -41,4 +43,7 @@ Quand je lui ai parlé de ces désirs et des sentiments désespérés de mon âm
 
 Eh bien, je vais lever le voile ici, mais vous pouvez imaginer quel était mon bonheur, et à mesure que je progressais d’une sphère à l’autre, mon bonheur et mon amour pour elle augmentait de plus en plus. Ainsi je vous ai raconté l’histoire de la vie dans le monde spirituel de l’homme le plus méchant que Dieu ait jamais permis de vivre et de satisfaire ses sentiments de haine et de vengeance. Et moi, je suis passé par cette expérience, et j’ai réalisé tout ce que cela signifie, je dis que l’Amour Divin du Père est capable de sauver le plus vil pécheur et de transformer le plus grand des démons en un ange céleste de Ses sphères les plus hautes.
 
-J’ai écrit longuement et vous êtes fatigué. Je vous remercie, je vous souhaite une bonne nuit et je signerai votre frère en Christ, Néron, l’empereur romain et, pour un temps, persécuteur des vrais enfants de Dieu.
+J’ai écrit longuement et vous êtes fatigué. Je vous remercie, je vous souhaite une bonne nuit et je signerai votre frère en Christ, Néron, l’empereur romain et, pour un temps, persécuteur des vrais enfants de Dieu.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1.   <large id=”f1”> Un autre Empereur Romain, [Caligula](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-10-11-1-jep-caligula/), a également témoigné de sa délivrance des Enfers par son âme sœur.[↩](#a1)

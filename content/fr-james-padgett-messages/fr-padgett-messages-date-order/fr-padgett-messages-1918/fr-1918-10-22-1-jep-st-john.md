@@ -11,7 +11,7 @@ weight:
 
 St Jean - reçu par James Padgett le 22 Octobre 1918, Washington, USA.
 
-Permettez-moi d’écrire quelques lignes ce soir, car je n’ai pas écrit depuis longtemps et j’ai hâte de dire quelques mots qui pourraient vous être utiles. J’étais présent lors de nombreuses soirées où vous vous attendiez à recevoir des communications et j’ai été déçu pour des raisons ou des causes que vous ne pouvez pas comprendre, sauf que vous n’étiez pas dans cette condition qui permettrait aux esprits d’établir un rapport avec vous.
+Permettez-moi d’écrire quelques lignes ce soir, car je n’ai pas écrit depuis longtemps ((le précédent message sur ce sujet date du [04 janvier 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/)) et j’ai hâte de dire quelques mots qui pourraient vous être utiles. J’étais présent lors de nombreuses soirées où vous vous attendiez à recevoir des communications et j’ai été déçu pour des raisons ou des causes que vous ne pouvez pas comprendre, sauf que vous n’étiez pas dans cette condition qui permettrait aux esprits d’établir un rapport avec vous.
 
 Eh bien, c’est vrai, et c’est la cause immédiate du manque de pouvoir de communication ; mais c’est bien que vous compreniez plus que cela, car pour remédier à la difficulté, vous devez avoir une certaine connaissance du siège (raison) de celle-ci. Je vous ai expliqué le rapport de contrôle de la loi et la communication, et je me suis efforcé de le rendre aussi clair et compréhensible que possible, afin que vous, au moins, puissiez en saisir le sens. Cependant je vois qu’il y a certaines choses que vous ne comprenez pas et, à cause de cela, vous n’avez pas été en mesure, malgré votre attente, de recevoir les nombreux messages qui attendaient d’être délivrés par votre cerveau et votre main.
 
@@ -32,6 +32,3 @@ Eh bien, je suis heureux de pouvoir vous écrire de cette manière ce soir, et j
 Je n’écrirai pas plus ce soir, mais je dirai simplement que nous avons beaucoup plus de messages que nous voulons transmettre. Croyez donc que je suis souvent avec vous dans mon amour et mon désir d’aider et de protéger, et de faire de votre mission un succès. Bonne nuit.
 
 Votre frère en Christ, Jean.
-<small>
-
-1. <large id="f1"> Le titre de ce message est quelque peu trompeur, car ce message ne suit pas l’ordre chronologique des messages précédents sur ce sujet, [bien qu’il s’agisse d’une suite du sujet de Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/).[↩](#a1)

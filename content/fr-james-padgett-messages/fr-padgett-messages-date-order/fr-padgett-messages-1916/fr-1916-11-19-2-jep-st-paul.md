@@ -23,6 +23,6 @@ Moi, Paul, j’écris cela car j’ai souffert moi-même de ce fait, parce que, 
 
 Ce livre renferme de nombreux mensonges, de contrefaçons et des faux et des imputations qui n’ont aucun rapport avec ce qu’a enseigné le maître ou l’un de ses apôtres, et vous pouvez réaliser facilement notre inquiétude quant à la nécessité de supprimer tous ces mensonges et erreurs dans les esprits et les âmes des hommes. Mais je ne dois pas me permettre de devenir trop enthousiaste en considérant ces choses ce soir, ou je ne pourrais pas m’arrêter comme je le devrais dans ces circonstances.
 
-Cependant, je vais revenir très vite et vous écrire sur le sujet tel qu’il est vital pour l’humanité, et je vous expliquerai les vérités qui y sont connectées aussi complètement que possible afin que les hommes comprennent. Je voudrais écrire plus ce soir, mais je ne le dois pas. Avec tout mon amour je vais vous dire bonne nuit.
+Cependant, je vais revenir [très vite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-20-1-jep-st-paul/) et vous écrire sur le sujet tel qu’il est vital pour l’humanité, et je vous expliquerai les vérités qui y sont connectées aussi complètement que possible afin que les hommes comprennent. Je voudrais écrire plus ce soir, mais je ne le dois pas. Avec tout mon amour je vais vous dire bonne nuit.
 
 Votre frère en Christ, Paul.

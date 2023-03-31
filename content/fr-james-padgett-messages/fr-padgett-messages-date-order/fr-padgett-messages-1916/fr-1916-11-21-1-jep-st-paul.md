@@ -11,7 +11,7 @@ weight:
 
 St Paul - reçu par James Padgett le 21 Novembre 1916, Washington, USA.
 
-C’est moi, St. Paul. Ce soir, je désire terminer mon message sur l’Enfer – ce qu’il est et quel est son but.
+C’est moi, St. Paul. Ce soir, je désire [terminer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-20-1-jep-st-paul/) mon message sur l’Enfer – ce qu’il est et quel est son but.
 
 Comme je le disais avant, l’enfer est aussi bien un endroit qu’une condition, et, l’homme qui croit qu’il n’est rien d’autre qu’une condition de son esprit ou de son âme sera merveilleusement surpris mais aussi déçu. Je sais que l’état d’esprit et d’âme, dans une très large mesure, créée l’enfer de l’homme et est la source principale de sa souffrance et de l’obscurité qui l’entoure et l’enveloppe : pourtant cette condition n’est pas la seule source de cette souffrance, ou de l’obscurité dans laquelle il se trouve.
 

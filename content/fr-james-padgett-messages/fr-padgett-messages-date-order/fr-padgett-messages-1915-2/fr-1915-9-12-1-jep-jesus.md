@@ -37,3 +37,14 @@ Je suis avec vous ce soir pour vous réconforter, vous encourager et vous aider 
 Je n’écrirai pas plus ce soir car d’autres sont ici pour écrire, et je désire qu’ils le fassent.
 
 Votre frère et ami, Jésus.
+
+Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+
+05 Septembre 1915 :  [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-9-5-4-jep-jesus/).
+
+19 Septembre 1915 :  [Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-19-1-jep-jesus/).
+
+06 Mai 1917 :  [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917\fr-1917-5-6-1-jep-jesus/).
+
+02 Mai 1920 : [La Vérité Divine doit être déclarée à toute l'humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-2-1-jep-jesus/).
+

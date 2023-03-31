@@ -52,3 +52,5 @@ Ton vieil ami, George Riddle. <sup id="a3">[3](#f3)</sup>
 2. <large id="f2"> Ancien ami de M. Padgett dans le monde spirituel.[↩](#a2)
 
 3. <large id="f3"> Chaque fois que des initiales sont données au lieu du nom complet, c’est en raison d’une possible opposition de la famille encore vivante. Mais maintenant, 100 années plus tard, si nous connaissons le nom nous l’ajoutons.[↩](#a3)
+
+Note :  A G Ridle dans un message communiqué le [19 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-19-1-jep-ag-riddle/) décrit ses expériences lors de son arrivée dans le monde spirituel

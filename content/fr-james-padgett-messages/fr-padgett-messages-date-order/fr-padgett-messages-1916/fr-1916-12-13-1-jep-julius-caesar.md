@@ -35,4 +35,8 @@ J’ai pensé que j’écrirais ceci ce soir, car je sais que vous êtes intére
 
 Je connais le chemin et maintenant je ne retomberai jamais dans l’état d’esprit qui fut le mien pendant tant de siècles ; et je peux dire que César a vu la lumière du phare de l’espoir et le grand soleil de la connaissance que ces faits que les esprits aimants me disent sont vrais. Je dois m’arrêter maintenant, cependant, au fur et à mesure que je progresserai, j’aimerais venir vous décrire mes progrès. Je vous souhaite une bonne nuit, et je signerai moi-même.
 
-Votre ami et bienveillant, Jules César.
+Votre ami et bienveillant, Jules César.<sup id=”a1”>[1](#f1)</sup>.
+<small>
+
+1. <large id=”f1”> [Quelques mois plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/), Jules César est venu partager ses expériences après avoir reçu l'aide d'un esprit Divin.[↩](#a1)
+Note : Q

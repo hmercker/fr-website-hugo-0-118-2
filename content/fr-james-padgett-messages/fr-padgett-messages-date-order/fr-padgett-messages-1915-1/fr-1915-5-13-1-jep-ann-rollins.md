@@ -47,3 +47,9 @@ Bien cher fils, j’ai beaucoup écrit et je dois m’arrêter maintenant bien q
 <small>
 
 1. <large id="f1"> Des portraits des différents disciples de Jésus [sont disponibles ici](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/). Le portrait de Jésus que nous recommandons été réalisé par Glenda Green bien que maintenant la science a confirmé l’authenticité du linceul, lequel présente, à mon avis, l’image la lus appropriée.  [Elle est disponible ici](/fr-judas-of-kerioth-messages/fr-lamb-lion-sm2.jpg). Une description très similaire de Jésus est également donnée par [Jean un peu plus loin dans ce volume](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-3-1-jep-st-john/).[↩](#a1)
+
+Note : Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :
+
+    le 12 Décembre 1914 : [Affirmant qu’Anne Rollins a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914-1/fr-1914-12-12-2-jep-ann-rollins/).
+
+    le 1er Juin 1916 : [La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/).

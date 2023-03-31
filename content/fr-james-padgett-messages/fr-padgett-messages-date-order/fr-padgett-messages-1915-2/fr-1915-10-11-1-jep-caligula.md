@@ -11,6 +11,8 @@ weight:
 
 Caligula - reçu par James Padgett le 11 Octobre 1915, Washington, USA.
 
+![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/Caligula.jpg)
+
 Je suis Caligula.
 
 Je fus un Empereur Romain et l’assassin des Chrétiens, et depuis ce temps, et pour les péchés que j’ai commis, j’ai subi toutes les horreurs d’un enfer que je ne peux décrire. Qu’il suffise de dire que l’enfer de la Bible, ou de ceux qui l’interprètent, n’est pas égal dans ses tourments et ses horreurs à l’enfer que j’ai traversé. Je vous dis ceci afin que vous sachiez que chacun devra payer les pénalités pour les mauvaises actions qu’il commet lorsqu’il est sur terre, et comme mes actions furent tellement malfaisantes, mes pénalités furent en conséquence très grandes.
@@ -46,4 +48,7 @@ Oui, c’était Célestia.
 
 Et quel nom approprié ! Mon ami, tu dois aussi remercier Dieu pour sa bonté envers toi, car j’ai vu ton âme sœur et elle est un très bel esprit.
 
-Ainsi, avec l’amour d’un frère en Christ, je suis ton ami, Caligula l’Empereur Romain qui était, et le Chrétien qui est.
+Ainsi, avec l’amour d’un frère en Christ, je suis ton ami, Caligula<sup id=”a1”>[1](#f1)</sup> l’Empereur Romain qui était, et le Chrétien qui est.
+<small>
+
+1.  <large id=”f1”> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917\fr-1917-1-16-1-jep-nero/), a également témoigné que son âme sœur l'avait aidé à sortir des enfers.[↩](#a1)

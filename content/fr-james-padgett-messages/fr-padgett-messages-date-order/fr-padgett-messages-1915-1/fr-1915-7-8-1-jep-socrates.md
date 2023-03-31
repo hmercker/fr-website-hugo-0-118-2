@@ -63,4 +63,7 @@ Je dois arrêter maintenant car j’ai écrit plus que je n’aurais dû le fair
 
 Votre ami et frère, Socrate : le philosophe grec d’autrefois, mais maintenant un Chrétien.
 
-Un message contemporain a été reçu de Socrate.
+[Un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) a été reçu de Socrate.
+
+Note :  Cinq autres personnalités historiques [Salomon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--6-27-3-jep-solomon/), [Samuel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/), [Aaron](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-1-jep-aaron/), [Sarah](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah.md), [Platon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/) partagent également leur progression vers les Cieux Célestes.
+

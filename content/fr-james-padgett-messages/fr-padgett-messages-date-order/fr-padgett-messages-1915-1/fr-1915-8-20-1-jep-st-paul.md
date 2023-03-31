@@ -49,4 +49,7 @@ Je n’écrirai pas plus ce soir, mais je reviendrai et je vous écrirai au suje
 
 Je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Paul.
+Votre frère en Christ, Paul.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1. <large id=”f1”> Paul s'est exprimé le [30 Août 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-1-jep-st-paul/) sur ce qu’il sait maintenant être la vérité.[↩](#a1)

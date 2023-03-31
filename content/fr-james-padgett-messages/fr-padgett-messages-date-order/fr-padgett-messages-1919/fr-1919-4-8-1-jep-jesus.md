@@ -26,4 +26,4 @@ Priez davantage le Père, et croyez que Son Amour est le vôtre ; seulement pour
 Jésus.
 <small>
 
-1. <large id="f1"> Il semblerait qu’il s’agissait d’une série de conférences données par le Dr Swain au cours de soirées consécutives.[↩](#a1)
+1. <large id="f1"> Il semblerait qu’il s’agissait d’une série de conférences données par le Dr Swain au cours de soirées consécutives. Jésus avait déjà commenté précédemment un autre sermon du Dr Swain [le jour précédent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-7-1-jep-jesus/).[↩](#a1)

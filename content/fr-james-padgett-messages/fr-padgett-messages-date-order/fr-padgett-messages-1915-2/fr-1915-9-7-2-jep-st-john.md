@@ -38,3 +38,13 @@ Un homme qui croit ce qui n’est pas vrai est tout autant un infidèle, que cet
 Alors, je vous souhaite une bonne nuit et que Dieu vous bénisse, vous et votre travail.
 
 Votre frère en Christ, Jean de l’Apocalypse.
+
+Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+
+•	12 Septembre 1915 : [Rejette l’expiation déléguée. Si les hommes pouvaient avoir la foi des apôtres, la guérison et les soi-disant miracles existeraient aujourd’hui](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-3-jep-st-john/).
+
+•	12 Mai 1916 : [Il est important que l'homme cherche et trouve la vérité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-12-1-jep-st-john/).
+
+•	19 Octobre 1916 : [Qu’est ce qu’un homme qui n’est satisfait avec aucune église doit faire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-19-1-jep-st-john/).
+
+•	10 Mars 1918 : [Les hommes ou les prophètes ne peuvent pas dire ce qui va se passer dans les siècles à venir – cela ne peut être connu que par le Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/\fr-1918-3-10-1-jep-st-john/).

@@ -68,3 +68,5 @@ Mon conseil à tous les mortels, basé sur mon expérience personnelle, est de c
 Eh bien, il est tard et j’ai écrit assez longtemps. Mais je voulais tellement t’écrire ce soir au sujet de l’évolution de l’âme parce que que je vois son importance vitale pour le bonheur futur de l’homme et son immortalité.
 
 Avec tout mon amour et bénédictions, je suis ton frère en Christ, Albert G Riddle.
+
+Dans un message précédent, le [20 Janvier 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-20-1-jep-ag-riddle/), a expliqué sa découverte de l'Amour Divin et sa progression vers le 3ème sphère

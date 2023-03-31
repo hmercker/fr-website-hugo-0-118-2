@@ -37,4 +37,13 @@ Je suis content d’être allé avec vous à la réunion de ce soir, cela m’a 
 
 Avec tout mon amour, je suis, votre frère en Christ, Saint-Luc.
 
-*Note : Cette explication est actuellement soutenue par les toutes dernières recherches scientifiques. Lire « Portrait de Jésus ? L’histoire illustrée du Suaire de Turin » par Frank C Tribbe. Alors que la presse populaire avait une journée sur le terrain avec le test initial de C14 mené en 1988, la même presse ne s’était pas informée des derniers développements scientifiques. Ce livre a des preuves accablantes, des preuves irréfutables, que le Suaire est authentique et peut être daté de la période AD 29 à 32. Nous croyons que Jésus est mort le vendredi 18 mars 29 sur la base [d’une communication de Judas](******************).*
+*Note : Cette explication est actuellement soutenue par les toutes dernières recherches scientifiques. Lire « Portrait de Jésus ? L’histoire illustrée du Suaire de Turin » par Frank C Tribbe. Alors que la presse populaire avait une journée sur le terrain avec le test initial de C14 mené en 1988, la même presse ne s’était pas informée des derniers développements scientifiques. Ce livre a des preuves accablantes, des preuves irréfutables, que le Suaire est authentique et peut être daté de la période AD 29 à 32. Nous croyons que Jésus est mort le vendredi 18 mars 29 sur la base [d’une communication de Judas](** Janvier 2002**).*
+ 
+Note 2 : Liens vers d'autres messages relatifs à la crucifixion de jésus :
+
+16 Mars 1916 : [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-3-16-1-jep-joseph/).
+
+22 Janvier 1917 : [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/).
+
+27 Mars 1921 : [Que s’est-il réellement passé lors de la crucifixion de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) ?
+
