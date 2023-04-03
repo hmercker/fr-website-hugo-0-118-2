@@ -41,7 +41,7 @@ Votre ami et frère,
 
 Jésus.
 
-Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
+*Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*
 
 Le 24 Mai Juin 1915 : [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/).
 

@@ -45,7 +45,7 @@ Alors continuez à prier et à faire confiance au Père et vous réaliserez un m
 
 Je dois arrêter maintenant. Votre frère et ami, Jésus.
 
-Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
+*Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
 
 15 Août 1915 : [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915\fr-1915-8-15-1-jep-jesus/).
 

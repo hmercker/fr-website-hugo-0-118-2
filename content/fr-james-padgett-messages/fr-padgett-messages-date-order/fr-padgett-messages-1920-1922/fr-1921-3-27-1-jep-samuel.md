@@ -31,7 +31,7 @@ Votre frère en Christ, Samuel.
 
 1. <large id="f1"> Un post-scriptum à ce message indique que le service de Pâques mentionné ci-dessus s’est déroulé en l’année 1921, et Pâques, cette année là, fut le 27 mars. Bien sûr il est aussi possible qu’il ait attendu un service le vendredi Saint.[↩](#a1)
 
-Note 2 : Liens vers d'autres messages relatifs à la crucifixion de jésus :
+*Note 2 : Liens vers d'autres messages relatifs à la crucifixion de Jésus :*
 
 24 Octobre 1915 : [St Luc explique la dématérialisation du corps terrestre de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915\fr-1915-10-31-1-jep-luke/).
 

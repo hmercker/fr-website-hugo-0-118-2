@@ -49,8 +49,7 @@ Je ne dois pas écrire plus ce soir. Je suis satisfait de l’exactitude de votr
 
 Avec tout mon amour et mes bénédictions, je suis votre frère et votre ami, Jésus.
 
-
-Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
+*Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
 
 le 03 Mars 1915 : [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/).
 

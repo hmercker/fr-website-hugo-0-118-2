@@ -37,7 +37,7 @@ Bonne nuit. Jésus Christ.
 
 *Note : [Dans ce message](** 09 JanvIer 2002**), Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.*
 
-Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :
+*Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
 
 •	28 Septembre 1914 : [Ici, le Maître, lors de ses premiers messages, explique qui il était vraiment](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-28-1-jep-jesus/).
 

@@ -49,10 +49,14 @@ Je dois arrêter maintenant.
 
 Avec tout mon amour et mes bénédictions, je suis ta propre grand-mère adorée, Anne Rollins.
 
-Note : Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :
+*Note : Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*
 
-Message de Jésus du 22 Novembre 1915 : [La personnalité de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/)
+•	Message du professeur Salyards du 21 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-21-1-jep-joseph-salyards/)
 
-Message de Luc du 22 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/)
+•	Message de Jésus du 22 Novembre 1915 : [la pesrsonalité de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/)
 
-Message de Jésus du 25 Mai 1917 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/)
+•	Message de Jésus du 22 Novembre 1915 : [La personnalité de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/)
+
+•	Message de Luc du 22 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/)
+
+•	Message de Jésus du 25 Mai 1917 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/)

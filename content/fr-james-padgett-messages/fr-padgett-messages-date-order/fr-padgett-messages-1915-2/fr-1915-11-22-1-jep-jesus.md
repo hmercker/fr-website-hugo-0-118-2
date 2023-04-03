@@ -15,7 +15,7 @@ C’est moi, Jésus.
 
 J’ai entendu ce que le [professeur vous a dit](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915-2\fr-1915-11-21-1-jep-joseph-salyards.md) et vous devez faire de votre mieux pour en comprendre le sens, car ce message exprime une véritable conception de Dieu que seule une personne ayant une âme développée peut expliquer. La seule difficulté pour comprendre pleinement cette idée de qui et qu’est ce que Dieu, c’est que l’idée ne peut pas simplement être comprise au niveau du mental mais seulement par une âme qui est suffisamment développée. Mais vous pouvez en percevoir le sens dans une mesure qui vous permettra de vous rapprocher de notre Père en tant que Père réel et personnel, et non pas seulement en tant qu’être d’existence sans forme. Je veux dire que l’idée de personnalité peut amener le Père plus près de vous, afin que vous puissiez réaliser plus profondément le sens de Son Amour, du soin, de la miséricorde et de l’intérêt pour vous et pour toutes Ses créatures.
 
-Dans mon message sur Dieu (voir Note en bas de page), vous constaterez que l’on parle de la personnalité, mais pas autant que dans l’écriture du professeur ; mais la vérité est que notre Père est, pour les perceptions de l’âme, un être d’existence et de personnalité réelles.
+Dans [mon message sur Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/), vous constaterez que l’on parle de la personnalité, mais pas autant que dans l’écriture du professeur ; mais la vérité est que notre Père est, pour les perceptions de l’âme, un être d’existence et de personnalité réelles.
 
 Je sais combien il est difficile pour le mental de concevoir, même faiblement, comment une telle personnalité peut faire partie d’un être qui est déclaré être un simple esprit sans forme ni limitation, tout en étant présent en tous lieux en même temps. Cependant je vous dis que c’est une vérité et que seulement les facultés de l’âme permettent de comprendre les attributs personnels du Père.
 
@@ -27,4 +27,15 @@ Comme je le disais, les hommes doivent se rendre compte que Dieu connaît non se
 
 Très bientôt, je vous écrirai un autre message, un message qui sera très important pour l’humanité. Je reviendrai bientôt, et je partagerai certaines choses que vous devez connaître. Alors, avec tout mon amour et mes bénédictions, je suis, votre propre frère et ami, Jésus.
 
-*Note : Trois autres messages avec le titre « Qui et qu’est-ce-que Dieu ? », un message de Jésus et deux messages d’Anne Rollins, ont été présentés dans le Volume 1 et un autre message fut communiqué par Jésus [le 25 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/).*
+*Note : Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu ?". Ils peuvent être lus par les liens suivants :*
+
+•	Message du professeur Salyards du 21 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-21-1-jep-joseph-salyards/)
+
+•	Message de Luc du 22 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/)
+
+•	Message d'Anne Rollins du 18 Février 1916 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollin/)
+
+•	Message d'Anne Rollins du 25 Février 1916 : [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/)
+
+•	Message de Jésus du 25 Mai 1917 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/)
+

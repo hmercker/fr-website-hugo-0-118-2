@@ -39,8 +39,10 @@ Alors, avec tous mes remerciements et mes meilleures salutations, je vous dis bo
 
 *Note 1 : C’est un message très inhabituel en ce sens que l’esprit est un résident de la Sixième Sphère d’Esprit, et comme on peut le voir, il exprime encore un manque – un manque basé sur l’âme.*
 
-Note 2 : Saleeba a commenté son expérience de progression par les messages suivants
+*Note 2 : Saleeba a commenté son expérience de progression par les messages suivants :*
 
 •	8 Octobre 1915 : [Saleeba progresse vers les Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-3-jep-saleeba/).
+
 •	16 Octobre 1915 : [Saleeba partage sa progression dans l’obtention de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/).
+
 •	26 Octobre 1915 : [Saleeba est descendue vers la troisième sphère pour développer son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-26-3-jep-saleeba/).

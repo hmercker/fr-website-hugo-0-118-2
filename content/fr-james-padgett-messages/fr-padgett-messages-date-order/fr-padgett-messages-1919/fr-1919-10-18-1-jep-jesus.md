@@ -33,7 +33,9 @@ Je viendrai bientôt et j’écrirai un message sur une vérité vitale et j’e
 
 Votre frère et ami, Jésus.
 
-5 Août 1915 : [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915\fr-1915-8-15-1-jep-jesus/).
+*Note : Jésus s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+
+15 Août 1915 : [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915\fr-1915-8-15-1-jep-jesus/).
 
 10 Janvier 1916 : [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-1-10-2-jep-jesus/).
 

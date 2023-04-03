@@ -39,7 +39,7 @@ Alors mon cher frère, je vous souhaite une bonne nuit.
 
 Votre frère en Christ, Jean.
 
-Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :
+*Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*
 
 •	le 08 Juillet 1915 :  [St Jean – L’Amour Divin ne doit pas être confondu avec l’amour naturel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-2-jep-st-john/.
 

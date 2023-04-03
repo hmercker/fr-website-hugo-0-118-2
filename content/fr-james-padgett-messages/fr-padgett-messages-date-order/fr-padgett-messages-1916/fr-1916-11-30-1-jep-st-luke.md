@@ -35,7 +35,9 @@ Mais ils prétendent en outre que Jésus, par sa grande puissance, et le fait qu
 
 Votre frère en Christ, Luc.
 
-Note : Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
+*Note : Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+
+5 Septembre 1915 :  [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/).
 
 17 Septembre 1915 : [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-st-luke/).
 

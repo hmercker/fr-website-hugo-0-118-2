@@ -34,3 +34,15 @@ J’ajouterai seulement que je suis avec vous, essayant de vous influencer afin 
 Je n’écrirai pas plus, mais je dirai avec tout mon amour que je suis, votre frère et ami.
 
 Jésus.
+
+*Note 2 : Jésus s’est également exprimé sur le sujet de la prière dans les messages suivants :*
+
+•	29 Août 1915 : [Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-25-3-jep-jesus/).
+
+•	16 Mai 1916 : [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/).
+
+•	09 Juillet 1917 : [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/).
+
+•	06 Janvier 1918 : [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/).
+
+•	19 Septembre 2020 : [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/). 

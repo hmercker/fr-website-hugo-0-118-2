@@ -30,7 +30,7 @@ Votre frère et ami, Jésus.
 
 1. <large id="f1"> Ce message est également publié dans le Volume III à la page 201.[↩](#a1)
 
-Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+*Note 2 :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
 
 05 Septembre 1915 :  [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-9-5-4-jep-jesus/).
 

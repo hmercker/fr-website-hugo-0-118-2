@@ -28,5 +28,5 @@ Je n’écrirai pas plus ce soir, et je dirai qu’en unité avec les autres esp
 Votre frère en Christ, Saul.sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> [Le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-1-jep-mary/), Ce message est une confirmation du message communiqué, le même jour, par Marie.[↩](#a1)
+1. <large id=”f1”> [Le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-1-jep-mary/), Marie s'était clairement exprimée comment étant la  mère biologique de Jésus.[↩](#a1)
 

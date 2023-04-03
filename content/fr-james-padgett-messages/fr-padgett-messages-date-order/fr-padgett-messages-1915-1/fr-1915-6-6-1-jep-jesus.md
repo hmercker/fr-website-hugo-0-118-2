@@ -24,3 +24,5 @@ J’espère qu’avant que nous terminions nos écrits, j’aurai rendu clair et
 Oui, j’écrirai un message formel sur ce sujet, et vous verrez que l’Esprit Saint ne peut pas être Dieu. Alors ne laissez pas cette question interférer avec votre croyance en moi ou en ce que je vous écris. Vous êtes maintenant sur le chemin de la vérité et du royaume ; et si vous continuez à prier et à avoir la foi, vous deviendrez un habitant de ce royaume, en dépit de ce que la Bible puisse dire et apparaître en conflit avec ce que j’écris. Alors, avec tout mon amour, je vous souhaite une bonne nuit.
 
 Votre ami et votre frère, Jésus.
+
+*Note : Au mois d'Octobre et Novembre 1915, suite à un sermon prononcé par un précicateur, [Anne Rollins](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-1-jep-ann-rollins/), [Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-1-jep-luke/) et [Paul](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-st-paul/) ont également nié l'existence du péché impardonnable.*

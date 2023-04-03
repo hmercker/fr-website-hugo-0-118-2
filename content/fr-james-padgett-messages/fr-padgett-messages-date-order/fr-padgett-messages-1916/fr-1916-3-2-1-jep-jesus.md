@@ -25,9 +25,11 @@ Mais pour m’approcher du sujet de mon message. L’âme qui est vit dans le p�
 
 Avec beaucoup d’amour, votre ami et frère, Jésus.
 
-Note : Jésus a communiqué trois autres messages sur l'incarnation de l'âme. ils ont été respectivement communiqués 
+*Note : Concernant l'incarnation de l'âme Jésus a communiqué les autres messages suivants :*
 
 •	le 02 Mars 1917 : [L’âme – ce qu’elle est et ce qu’elle n’est pas](//fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/).
+
+•	le 14 Février 1920 : [Jésus donne des conseils à M. Padgett afin qu'il se mette en condition d’âme pour recevoir les messages](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-14-1-jep-jesus/).
 
 •	le 15 Février 1920 : [Incarnation de L’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-15-1-jep-jesus/).
 

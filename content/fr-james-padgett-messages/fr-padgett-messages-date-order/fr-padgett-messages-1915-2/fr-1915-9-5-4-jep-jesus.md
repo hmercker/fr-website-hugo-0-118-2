@@ -25,7 +25,7 @@ Je vous aime comme mon cher frère et disciple, et je ne vous abandonnerai pas e
 
 Donc, avec tout mon amour, je suis votre frère et votre ami, Jésus.
 
-Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+*Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
 
 12 Septembre 1915 :  [Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-9-12-1-jep-jesus/).
 

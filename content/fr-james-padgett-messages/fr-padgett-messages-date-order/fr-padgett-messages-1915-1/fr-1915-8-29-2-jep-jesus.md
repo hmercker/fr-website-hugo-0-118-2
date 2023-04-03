@@ -38,7 +38,7 @@ Alors, avec tout mon amour, je suis votre ami et Frère, Jésus.
 
 1. <large id="f1"> Cette sensation de douleur est provoquée lorsque l’âme ne peut pas supporter la quantité d’Amour Divin qu’elle désire. Au fur et à mesure que l’âme grandit, cette sensation se transforme en une sensation plus paisible et plus béate. Voir cette page pour des détails sur la façon d’atteindre cet afflux d’Amour Divin.[↩](#a1)
 
-Note 2 : Jésus s’est également exprimé sur le sujet de la prière dans les messages suivants :
+*Note 2 : Jésus s’est également exprimé sur le sujet de la prière dans les messages suivants :*
 
 •	28 Décembre 1915 : [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/).
 

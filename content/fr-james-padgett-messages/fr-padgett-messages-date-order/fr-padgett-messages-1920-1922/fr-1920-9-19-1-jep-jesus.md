@@ -27,9 +27,9 @@ Eh bien, je n’écrirai pas plus ce soir, mais je serai avec vous, je prierai a
 
 Votre frère et ami, Jésus.
 
-*Note : C’est, selon la Tablette, l’avant-dernier message reçu par James Padgett de Jésus. En fait il y a eu 5 autres messages. Le dernier message connu à ce jour date du 17 Avril 1922.*
+*Note 1: C’est, selon la Tablette, l’avant-dernier message reçu par James Padgett de Jésus. En fait il y a eu 5 autres messages. Le dernier message connu à ce jour date du 17 Avril 1922.*
 
-Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :
+*Note 2 : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
 
 •	29 Août 1915 : [Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915/fr-1915-8-29-2-jep-jesus/).
 

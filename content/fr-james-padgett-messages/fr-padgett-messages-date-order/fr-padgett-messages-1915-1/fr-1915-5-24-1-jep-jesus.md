@@ -33,7 +33,7 @@ Je ne pense pas que vous pouvez écrire plus ce soir et je vais arrêter en vous
 
 Avec mon amour et ma prière, je suis Jésus.
 
-Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
+*Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*
 
 Le 07 Juin 1915 : [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/).
 

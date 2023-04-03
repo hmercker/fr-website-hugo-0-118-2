@@ -44,12 +44,12 @@ Je vous écris donc ce soir pour montrer que le prédicateur dans son sermon n�
 Alors mon cher frère, soyez assuré que je suis votre frère et ami, Jésus.
 
 
-Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
+*Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
 
-15 Août 1915 : [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915\fr-1915-8-15-1-jep-jesus/).
+•	15 Août 1915 : [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915\fr-1915-8-15-1-jep-jesus/).
 
-10 Janvier 1916 : [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-1-10-2-jep-jesus).
+•	10 Janvier 1916 : [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-1-10-2-jep-jesus).
 
-13 Août 1916 : [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-8-13-1-jep-jesus/).
+•	13 Août 1916 : [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-8-13-1-jep-jesus/).
 
-18 Octobre 1919 : [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1919\fr-1919-10-18-1-jep-jesus/).
+•	18 Octobre 1919 : [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1919\fr-1919-10-18-1-jep-jesus/).

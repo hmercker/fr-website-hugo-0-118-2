@@ -17,9 +17,9 @@ J’étais avec vous alors que vous priiez et je me suis joint à votre prière 
 
 Vous êtes en meilleure condition ce soir quant à votre développement et perceptions de l’âme et vous pouvez recevoir mon message comme j’ai désiré, pendant un certain temps, communiquer, et faire ce que je voulais à condition que vous soyez en parfaite relation avec moi.
 
-Eh bien, vous vous rappelez que, dans les premiers stades de nos écrits, je vous ai communiqué mes connaissances et conceptions *[« Qui et qu’est ce que Dieu »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/)*, et que, récemment, je vous ai informé que je désirais réécrire le message parce que votre condition, pour recevoir ces vérités, est maintenant bien meilleure qu’elle ne l’était lorsque j’ai écrit le message ; et donc, ce soir, je prendrai plus complètement possession de votre cerveau et je contrôlerai mieux votre main que je n’ai pu le faire au moment mentionné.
+Eh bien, vous vous rappelez que, dans les premiers stades de nos écrits, je vous ai communiqué mes connaissances et conceptions *[La personalité de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/)*, et que, récemment, je vous ai informé que je désirais réécrire le message parce que votre condition, pour recevoir ces vérités, est maintenant bien meilleure qu’elle ne l’était lorsque j’ai écrit le message ; et donc, ce soir, je prendrai plus complètement possession de votre cerveau et je contrôlerai mieux votre main que je n’ai pu le faire au moment mentionné.
 
-La question qui se pose est : Qui et qu’est ce que Dieu ?
+*La question qui se pose est : Qui et qu’est ce que Dieu ?*
 
 En examinant cette question, vous devez réaliser qu’il n’est pas très facile à décrire, en langage que les mortels peuvent comprendre, l’Essence et les Attributs de Dieu, et que je sens mes limitations lorsque je m’efforce de vous donner une description satisfaisante du seul et vrai Dieu ; non pas à cause d’une absence de connaissance ou de conception de ma part, mais simplement parce que vous n’avez pas le développement d’âme nécessaire pour me permettre de former la relation nécessaire avec vous, afin que, par le biais de votre cerveau, puisse être exprimée l’exacte vérité quant à l’identité du Père.
 
@@ -60,12 +60,12 @@ Votre frère et ami, Jésus.
 
 1. <large id="f1"> Attribution de la motivation humaine, caractéristiques ou comportement d’objets  d’animaux inanimés ou de phénomènes naturels.[↩](#a1)
 
-Note : Trois autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :
+*Note 2 : Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*
 
-Message de Luc du 22 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/)
+•	Message du professeur Salyards du 21 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-21-1-jep-joseph-salyards/)
 
+•	Message de Luc du 22 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/)
 
-Message d'Anne Rollins du 18 Février 1916 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/)
+•	Message d'Anne Rollins du 18 Février 1916 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/)
 
-
-Message d'Anne Rollins du 25 Février 1916 : [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/)
+•	Message d'Anne Rollins du 25 Février 1916 : [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/)

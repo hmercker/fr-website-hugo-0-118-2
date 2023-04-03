@@ -29,7 +29,7 @@ Je vois que vous êtes fatigué et endormi et je vais donc m’arrêter.
 
 Ainsi, avec mon amour et mes vœux d’augmentation en vous de l’Amour Divin, je suis Votre frère en Christ, Luther.
 
-Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+*Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
 
 •	05 Septembre 1915 : [Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-1-jep-martin-luther/).
  

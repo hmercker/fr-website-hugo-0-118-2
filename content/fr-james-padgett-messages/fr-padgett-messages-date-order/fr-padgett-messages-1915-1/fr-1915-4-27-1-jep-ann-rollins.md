@@ -32,7 +32,7 @@ Anne Rollins.
 
 1. <large id="f1"> Ce message est également publié dans le volume III des messages de James Padgett.[↩](#a1)
 
-Note : Dans un message communiqué le [10 Mars 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--3-10-2-jep-ann-rollins/) Anne Rollins corrobore l’expérience d’Hélène Padgett et raconte le bonheur des esprits dans les sphères Célestes et dans un message communiqué le [8 Juillet 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/).
+*Note : Dans un message communiqué le [10 Mars 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--3-10-2-jep-ann-rollins/) Anne Rollins corrobore l’expérience d’Hélène Padgett et raconte le bonheur des esprits dans les sphères Célestes et dans un message communiqué le [8 Juillet 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/).*
 
-Dans un autre message communiqué le [22 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) Anne Rollins décrit certaines des différentes sphères.
+*Dans un autre message communiqué le [22 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) Anne Rollins décrit certaines des différentes sphères.*
 

@@ -33,9 +33,9 @@ Lors de ma vie sur terre, je fus connu sous le nom d’Hérode, le Roi de Judée
 
 Alors bonne nuit et que Dieu vous bénisse.
 
-Hérode.
+Hérode.<sup id="a21">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Voir le message du 17 Décembre 1915 « Swedenborg écrit sur les enfers » publié dans le volume II, 1ère édition française, page 315.[↩](#a1)
 
-Note : Trois autres esprits [Emmanuel Swendenborg](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/),[George H Butler](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/) et [Nathan Plummer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/) ont témoigné de leur expérience des enfers.[↩](#a1)
+2. <large id="f2"> Trois autres esprits [Emmanuel Swendenborg](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/),[George H Butler](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/) et [Nathan Plummer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/) ont témoigné de leur expérience des enfers.[↩](#a2)

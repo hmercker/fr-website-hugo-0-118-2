@@ -51,8 +51,7 @@ Eh bien, j’ai déjà écrit trop longtemps et je dois cesser. Aussi, avec mon 
 
 Votre frère spirituel, Jésus
 
-Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
-
+*Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
 
 le 4 Juin 1915 : [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/).
 

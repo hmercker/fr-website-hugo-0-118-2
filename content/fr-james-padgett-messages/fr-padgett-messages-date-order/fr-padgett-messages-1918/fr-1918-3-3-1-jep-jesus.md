@@ -32,8 +32,7 @@ Votre ami et frère, Jésus.
 
 1. <large id="f1"> Un message d’Hélène à cette date indique que le rapport fut perdu, le message est donc incomplet.[↩](#a1)
 
-
-Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
+*Note 2 : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
 
 le 03 Mars 1915 : [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/).
 

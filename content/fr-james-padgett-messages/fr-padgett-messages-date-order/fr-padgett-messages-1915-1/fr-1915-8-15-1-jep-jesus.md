@@ -33,7 +33,7 @@ Votre frère en Christ, Jésus.
 
 1. <large id="f1"> Ce message est également publié, volume1, 1ère édition française, page 198.[↩](#a1)
 
-Note 2 : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
+*Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
 
 10 Janvier 1916 : [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-1-10-2-jep-jesus/).
 

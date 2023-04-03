@@ -25,14 +25,14 @@ Donc, pour comprendre les vraies vérités de Dieu et la relation de l’homme a
 
 J’écrirai aussi parfois et je vous transmettrai le résultat de mes instructions et de mes connaissances telles que je les ai reçues depuis que je suis ici. Je n’écrirai plus ce soir.
 
-Votre frère en Christ, Martin Luther.76
+Votre frère en Christ, Martin Luther.
 <small>
 
 1. <large id="f1"> Ce message est également publié dans le volume IV, deuxième édition anglaise de 2014, à la page 326.[↩](#a1)
 
 2. <large id="f2"> Vous pouvez lire cela dans le Nouveau Testament : 1 Corinthiens 11:25. (G.J.C).[↩](#a2)
 
-Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+*Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
 
 •	19 Octobre 1915 : [Ce que l’homme devrait savoir afin d’éprouver les esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1915-2/fr-1915-10-19-1-jep-martin-luther/).
 

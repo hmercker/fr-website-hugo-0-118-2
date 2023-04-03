@@ -39,7 +39,7 @@ Alors, je vous souhaite une bonne nuit et que Dieu vous bénisse, vous et votre 
 
 Votre frère en Christ, Jean de l’Apocalypse.
 
-Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+*Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
 
 •	12 Septembre 1915 : [Rejette l’expiation déléguée. Si les hommes pouvaient avoir la foi des apôtres, la guérison et les soi-disant miracles existeraient aujourd’hui](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-3-jep-st-john/).
 

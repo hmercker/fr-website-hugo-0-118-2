@@ -32,7 +32,7 @@ Je vous écrirai à ce sujet quand l’occasion se présentera. Je n’écrirai 
 
 Votre frère en Christ, Jean.
 
-Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+*Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
 
 •	07 Septembre 1915 : [Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails](/fr-james-padgett-messages/fr-padgett-messages-date-orde/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/).
 

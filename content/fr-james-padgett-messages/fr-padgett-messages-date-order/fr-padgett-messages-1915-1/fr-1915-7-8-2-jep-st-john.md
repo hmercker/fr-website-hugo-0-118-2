@@ -42,7 +42,7 @@ Je vous souhaite une bonne nuit.
 
 St. Jean.
 
-Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :
+*Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*
 
 •	le 19 Juin 1916 :  [La condition de l’Âme lorsque l’Amour Divin s’écoule en elle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-6-19-1-jep-st-john/).
 

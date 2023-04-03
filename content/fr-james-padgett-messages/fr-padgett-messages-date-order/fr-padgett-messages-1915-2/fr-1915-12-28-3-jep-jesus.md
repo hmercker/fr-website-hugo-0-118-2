@@ -27,7 +27,7 @@ Eh bien, j’expliquerai, très prochainement, cette phrase dans un de mes messa
 
 Avec tout mon amour pour vous et votre collègue, et les bénédictions du Père sur vous deux, je suis votre frère et ami, Jésus.
 
-Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :
+*Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
 
 •	29 Août 1915 : [Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915/fr-1915-8-29-2-jep-jesus/).
 
