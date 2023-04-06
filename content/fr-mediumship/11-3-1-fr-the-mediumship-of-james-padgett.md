@@ -8,3 +8,4 @@ hidden: True
 weight:
 ---
 ### La médiumnité de James Padgett
+

@@ -9,6 +9,6 @@ weight: 645
 ---
 ### Les médiums de l'Amour Divin
 
-1. [La médiumnité de James Padgett](/fr-mediumship/fr-the-mediumship-of-james-padgett/)
-2. [La médiumnité du Dr. Daniel G Samuels](/fr-mediumship/fr-the-mediumship-of-dr-samuels/)
+1. [La médiumnité de James Padgett](/fr-mediumship/11-3-1-fr-the-mediumship-of-james-padgett/)
+2. [La médiumnité du Dr. Daniel G Samuels](/fr-mediumship/11-3-2-fr-the-mediumship-of-dr-daniel-g-samuels/)
 3. [Les médiums Contemporains](/fr-mediumship/fr-contemporary-mediums/)

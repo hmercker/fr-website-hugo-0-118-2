@@ -13,3 +13,6 @@ Il y a de nombreuses façons de découvrir les messages de James Padgett en deho
 
 **Thème**
 |---
+| 1. [Jesus de Nazareth Sélectionne James E Padgett](/fr-james-padgett-messages/fr-james-padgett-messages-by-theme/1-4-1-fr-jesus-of-nazareth-selects-james-padgett/) |
+| 2. [Les lois du rapport et de la communication entre les esprits et les mortels](/fr-james-padgett-messages/fr-james-padgett-messages-by-theme/1-4-2-fr-the-laws-of-rapport-and-communication-between-spirits-and-mortals/) |
+| 3. []() |
