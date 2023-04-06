@@ -55,4 +55,9 @@ J’ai terminé et j’ai l’impression que vous avez reçu mon message comme j
 
 Votre frère et ami, Jésus.
 
-*Note : Ce sont les mots contenus dans [la prière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/).*
+*Note : 
+
+1. Ce sont les mots contenus dans [la prière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/).
+
+2. Le [27 Juin 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-21-jep-jesus/), jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux.*
+

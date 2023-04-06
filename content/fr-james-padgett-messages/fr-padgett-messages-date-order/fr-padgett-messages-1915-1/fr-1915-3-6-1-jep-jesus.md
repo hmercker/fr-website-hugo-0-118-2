@@ -29,4 +29,8 @@ Seul cet Amour Divin peut transformer l’homme naturel en un homme ayant la nat
 
 Mon expérience dans ces Cieux Célestes est que cet Amour a le pouvoir de transformer le pécheur le plus endurci en un vrai enfant de Dieu, si seulement ce pécheur le cherche par la foi et la prière. Que cet Amour prenne possession d’un homme ou d’un esprit, et son pouvoir de purifier et de changer le cœur de cet homme ou de cet esprit ne faillira jamais.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1. <large id=”f1”> Jésus a complété ce message par un second message communiqué le [09 Mars 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-9-1-jep-jesus/).[↩](#a1)
+

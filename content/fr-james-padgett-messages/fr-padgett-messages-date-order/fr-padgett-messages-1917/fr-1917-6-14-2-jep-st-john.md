@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Qu’est-ce que le Saint-Esprit et comment fonctionne-t-il ?
+### Qu’est-ce que l'Esprit Saint et comment fonctionne-t-il ?
 
 St Jean - reçu par James Padgett le 14 Juin 1917, Washington, USA.
 
@@ -23,4 +23,7 @@ Eh bien, je n’avais pas l’intention d’écrire sur ce sujet ce soir et ce q
 
 Je n’écrirai pas plus maintenant. Alors, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Jean.
+Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1. <large id=”f1”> Un autre message relatif au sujet de l'Esprit Saint a été communiqué par Jésus le [10 Mai 1920](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1920-1922\fr-1920-5-10-1-jep-jesus.md).[↩](#a1)

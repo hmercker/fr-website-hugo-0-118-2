@@ -31,3 +31,5 @@ Bien à vous, dans l’Amour, Hugh Latimer.
 <small>
 
 1. <large id="f1"> Hugh Latimer (v. 1487 – 16 octobre 1555) était membre du Clare College de Cambridge et évêque de Worcester avant la Réforme, puis aumônier de l’Église d’Angleterre du roi Édouard VI. En 1555, sous la reine Marie Tudor, il fut brûlé sur le bûcher, devenant ainsi l’un des trois martyrs de l’anglicanisme d’Oxford. (Source : Wikipédia.)[↩](#a1)
+
+*Note :  Quatre autres esprits [Thomas Paine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/),[George Whitefield](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/),[Samuel B. Soulthard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) et [Lafayette](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.*

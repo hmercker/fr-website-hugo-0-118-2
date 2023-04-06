@@ -37,3 +37,15 @@ Alors, avec tout mon amour, je suis votre ami et Frère, Jésus.
 <small>
 
 1. <large id="f1"> Cette sensation de douleur est provoquée lorsque l’âme ne peut pas supporter la quantité d’Amour Divin qu’elle désire. Au fur et à mesure que l’âme grandit, cette sensation se transforme en une sensation plus paisible et plus béate. Voir cette page pour des détails sur la façon d’atteindre cet afflux d’Amour Divin.[↩](#a1)
+
+*Note 2 : Jésus s’est également exprimé sur le sujet de la prière dans les messages suivants :*
+
+•	28 Décembre 1915 : [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/).
+
+•	16 Mai 1916 : [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/).
+
+•	09 Juillet 1917 : [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/).
+
+•	06 Janvier 1918 : [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/).
+
+•	19 Septembre 2020 : [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/). 

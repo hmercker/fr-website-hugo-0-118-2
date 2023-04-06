@@ -36,3 +36,5 @@ Je n’écrirai pas plus ce soir.
 Je suis votre ami..
 
 George Whitefield.
+
+*Note :  Quatre autres esprits [Thomas Paine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/),[Hugh Latimer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/), Samuel B. Soulthard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) et [Lafayette](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.*

@@ -38,3 +38,5 @@ Je sais que mon essai de description paraîtra insuffisant pour certains mortels
 Je suis avec vous assez souvent, répartissant, autour de vous, l’influence de mon amour et m’efforçant de vous aider et de vous encourager. Ayez foi en nous et en notre développement de communications et pensez avant tout que le Maître vous a écrit la prière que vous avez reçue il y a quelques nuits. Étudiez la profondément, saisissez en le sens spirituel et laissez vos désirs et aspirations aller vers le Père comme suggéré par la prière, et vous trouverez une réponse satisfaisante et merveilleuse à eux. Nous prions pour vous et vos amis, et vous devez croire que l’amour vient dans vos âmes. Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
 Votre frère en Christ, Jean.
+
+Note : Dans un message communiqué le [30 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-30-1-jep-helen-padgett/) Hélène Padgett décrit sa maison dans la 3ème sphère spirituelle

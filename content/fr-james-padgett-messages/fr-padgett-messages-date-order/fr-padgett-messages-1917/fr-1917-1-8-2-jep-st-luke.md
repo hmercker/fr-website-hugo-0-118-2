@@ -13,7 +13,7 @@ St Luc - reçu par James Padgett le 8 Janvier 1917, Washington, USA.
 
 C’est moi, St Luc.
 
-Je veux écrire quelques lignes sur un sujet qui peut être intéressant pour vous deux. Vous avez remarqué l’expression obtenue dans la lettre que vous avez juste reçue, *« qu’il est difficile d’apprendre des choses célestes en enfer. »* C’est une déclaration, de manière succincte, d’une grande vérité, et qui, si elle était connue et pleinement appréciée par les mortels, les ferait réaliser la nécessité de la pensée et de l’étude de ces choses célestes alors qu’ils sont sur terre.
+Je veux écrire quelques lignes sur un sujet qui peut être intéressant pour vous deux. Vous avez remarqué l’expression obtenue dans la lettre que vous avez juste reçue, *« [qu’il est difficile d’apprendre des choses célestes en enfer.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/) »* C’est une déclaration, de manière succincte, d’une grande vérité, et qui, si elle était connue et pleinement appréciée par les mortels, les ferait réaliser la nécessité de la pensée et de l’étude de ces choses célestes alors qu’ils sont sur terre.
 
 Je sais que beaucoup disent qu’ils ne croient pas à l’enfer orthodoxe, ou dans la nécessité de se préoccuper du futur, ou qu’ils ne s’en préoccuperont que lors de leur arrivée dans l’au delà, si toutefois il y en a un. Si ces personnes pouvaient se rendre compte de la signification d’une telle ligne de vie, ils ne confieraient pas leur avenir au hasard, mais le chercheraient alors qu’ils sont sur la terre. Cherchez ces choses célestes et commencez la réalisation de ces choses maintenant et n’attendez pas d’avoir quitté votre corps physique.
 

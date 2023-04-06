@@ -26,3 +26,14 @@ Mais vous devez savoir et proclamer pour toujours que Dieu est amour, et que ceu
 Je reviendrai quand vous serez en meilleure condition pour prendre un long message et vous écrire.
 
 Avec tout mon amour, je suis votre frère dans le Christ, St. Luc.
+
+*Note : Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+
+•	5 Septembre 1915 :  [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/).
+
+•	5 Décembre 1915 : [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/).
+
+•	30 Novembre 1916 : [Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-30-1-jep-st-luke/).
+
+•	12 Mars 1917 : [Quels sont les faits qui prouvent l’authenticité de la Bible.](//fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-12-1-jep-st-luke/)
+

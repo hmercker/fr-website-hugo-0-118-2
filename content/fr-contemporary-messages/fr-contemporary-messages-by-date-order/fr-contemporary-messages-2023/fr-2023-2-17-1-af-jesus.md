@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité de l'Amour Divin
 
-Jesus - reçu par Al Fike le 17 Février 2023, Sechelt, Colombie-Britannique, Canada
+Jesus - reçu par Al Fike le 17 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 …de l’Amour de Dieu soit avec vous, mes frères et sœurs bien-aimés. Je viens, je suis Jésus, Maître des Cieux Célestes et votre frère et ami. Car en vérité, chacun de vous est mon frère et je me soucie de chacun de vous, j’aime chacun de vous. Car lorsqu’on est doté de l’Amour du Père, on ne peut que ressentir et exprimer de l’amour pour tous. En vous rassemblant dans votre désir de vérité, votre désir de Dieu, votre désir d’amour, vous avez étendu le treillis de lumière dans le monde, toujours plus loin. Ces brins de lumière grandissent et se connectent, d’âme à âme, avec beaucoup d’autres. Ceux de vos familles, ceux de votre vie sont influencés par cette lumière, par vos efforts vers la lumière, et en tant que tels, vous élevez vos communautés, vos pays, votre monde.
 

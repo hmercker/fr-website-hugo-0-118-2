@@ -41,4 +41,8 @@ Non, nous ne pouvons travailler qu’avec l’individu ; et alors que l’âme i
 
 Je ne pense pas qu’il soit approprié d’écrire davantage maintenant, mais je dirai que nous, Esprits Célestes, nous considérons la guerre comme la créature des mortels, qui doit être contrôlée et terminée par les mortels, et que nous ne pouvons nous prononcer sur la question d’une manière ou d’une autre ; et donc, pour nous, la guerre est un incident dans la vie et la mort des mortels que nous ne pouvons pas empêcher ou créer.
 
-Votre frère en Christ, Luc.
+Votre frère en Christ, Luc.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> Jésus s'est également exprimé sur le sujet de la guerre le [24 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-24-1-jep-jesus/).[↩](#a1)
+

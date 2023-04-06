@@ -9,7 +9,7 @@ weight:
 ---
 ### Qualités de l'âme
 
-Amon - reçu par Jimbeau Walsh le 6 Mars 2023, Nashville, TN, USA
+Amon - reçu par Jimbeau Walsh le 6 Mars 2023, Nashville, TN, USA.
 
 Je suis ici, Amon. Je viens dans l’Amour de Dieu depuis une sphère située dans les Cieux Célestes et je peux vous parler du voyage de l’âme, née sur terre, vivant une vie, passant à l’esprit et se transformant en un nouvel être. Je suis considérée comme la mère de l’humanité et je peux donc représenter toutes les mères et les qualités nourricières du sexe féminin. Lorsque Aman et moi vivions il y a tant de siècles dans le paradis de la nouvelle terre, dans la sécurité et la beauté du monde naturel, cet amour avec lequel nous sommes nés semblait si grand que je peux vous dire que la morale de notre histoire est très simple. Dans notre bonheur naturel, nous nous sentions comme des dieux en quelque sorte et nous n’avions pas besoin du grand cadeau que notre Créateur nous avait offert. Nous nous sommes sentis maîtres de notre propre royaume et, dans notre autosatisfaction, notre orgueil, notre arrogance même, nous avons rejeté le don et c’est ainsi qu’a commencé la longue chute de l’humanité. Cependant, le fil de l’amour humain s’est poursuivi et la promesse de la réinjection de l’amour divin qui avait été retiré est restée. Et avec la naissance du Maître, elle a été réattribuée.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Venez connaitre la réalité de l'amour
 
-St Pierre - reçu par Al Fike le 9 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+St Pierre - reçu par Al Fike le 9 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Quelle est la réalité de l’amour ? Je suis Pierre et je viens vous assurer qu’alors que des changements se produisent sur votre Terre, c’est le fondement de l’amour et la réalité de l’amour qui vous porteront à travers tout ce qui se manifestera dans votre monde et vous devez donc vous demander : « Quelle est la réalité de l’amour ? » Ce n’est pas la réalité de la chair, de la matière et de tout ce qui est fait par l’homme. C’est la réalité de Dieu. Et nous vous exhortons à découvrir cette réalité, à l’entretenir dans votre être, dans vos actions, dans ce que vous êtes. La réalité de l’amour est capable de surmonter n’importe quelle tempête, de contourner beaucoup de douleur, de créer pour chaque individu ce dont il a besoin pour survivre physiquement, ce qui est de l’ordre de l’émotionnel et du spirituel. Le pouvoir de l’amour, l’Amour Divin, est ce qui vous portera, âmes bien-aimées. S’il en était autrement, nous vous guiderions quant aux préparatifs matériels, aux choses que vous devez faire pour vous isoler du chaos croissant du monde. Mais je vous le dis, aucune préparation, aucune isolation, aussi bien conçue soit-elle, aucune intervention physique ne vous protégera de ce qui doit venir et de ce qui doit être dans le monde. C’est plutôt votre capacité à être en alignement avec Dieu, à être en alignement avec tout ce qui est de Dieu, Sa réalité, et comme vous le savez, Dieu est Amour.
 

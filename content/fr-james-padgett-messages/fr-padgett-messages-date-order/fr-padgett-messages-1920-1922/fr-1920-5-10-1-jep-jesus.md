@@ -37,4 +37,7 @@ Je vous ai écrit auparavant sur le fonctionnement de l’Esprit Saint, sur la m
 
 et cette réalisation n’est possible que par l’action de l’Esprit Saint.
 
-Oh, prédicateur, sur lequel repose une grande responsabilité, apprenez la vérité et conduisez les hommes dans la voie du salut. Je ne vais pas écrire plus maintenant, mais je reviendrai et je délivrerai un autre message. Croyez que je vous aime et que je suis votre ami et frère, Jésus.
+Oh, prédicateur, sur lequel repose une grande responsabilité, apprenez la vérité et conduisez les hommes dans la voie du salut. Je ne vais pas écrire plus maintenant, mais je reviendrai et je délivrerai un autre message. Croyez que je vous aime et que je suis votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
+<small>
+
+1. <large id=”f1”> Un autre message relatif à l'Esprit saint a été communiqué par St jean [le 14 Juin 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-13-1-jep-st-john./).[↩](#a1)

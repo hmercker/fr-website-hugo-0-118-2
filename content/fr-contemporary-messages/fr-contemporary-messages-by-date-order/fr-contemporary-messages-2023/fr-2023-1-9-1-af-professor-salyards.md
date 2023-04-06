@@ -9,7 +9,7 @@ weight:
 ---
 ### Avancer dans le monde par l'amour
 
-Professeur Salyards - reçu par Al Fike le 9 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+Professeur Salyards - reçu par Al Fike le 9 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes amis. Je suis le professeur Salyards. Il n’est pas surprenant pour vous qu’il y ait des différences dans le monde, car ce monde est un endroit très diversifié, n’est-ce pas ? Et, ce n’est pas un endroit harmonieux et donc tout effort vers l’harmonie doit être difficile, en surmontant les préjugés et les barrières, les pensées, les conditions, les émotions, et de nombreux aspects de votre humanité qui causent la déconnexion et le manque d’amour. Même parmi vous qui êtes proches, il y a parfois des désaccords et des désagréments et pourtant vous faites l’effort ouvertement, consciemment, d’être en harmonie les uns avec les autres et c’est tout ce que l’on peut attendre. Vous ne serez pas d’accord sur tout. Vous ne vous entendrez pas sur tout. Mais, en effet, le flux de votre travail et de vos efforts exige un certain respect et une reconnaissance de l’autre, permettant aux différences de se manifester avec facilité parmi vous.
 

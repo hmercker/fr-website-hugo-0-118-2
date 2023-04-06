@@ -28,3 +28,9 @@ Cet Amour est la vie des Cieux Célestes et la seule clé qui déverrouille les 
 En terminant, permettez-moi de répéter qu’il (l’Amour Divin) est la plus grande chose dans tout l’univers de Dieu et pas seulement le plus grand, mais la somme de toutes choses, car de lui découlent toutes les autres choses qui apportent la paix et le bonheur. Je n’écrirai pas plus ce soir, et avec mon amour pour vous, et la bénédiction du Père, je vous dirai bonne nuit.
 
 Votre frère en Christ, Jean.
+
+*Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*
+
+•	le 08 Juillet 1915 :  [St Jean – L’Amour Divin ne doit pas être confondu avec l’amour naturel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-2-jep-st-john/
+
+•	le 19 Juin 1916 :  [La condition de l’Âme lorsque l’Amour Divin s’écoule en elle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-6-19-1-jep-st-john/).

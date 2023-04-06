@@ -39,4 +39,7 @@ Alors mes chers enfants croyez ce que j’ai écrit, et sachez aussi que je vous
 
 Votre sœur et votre mère en Christ.
 
-Marie.
+Marie.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1. <large id=”f1”> [Le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-3-jep-saul/), Saul a confirmé le message de Marie.[↩](#a1)

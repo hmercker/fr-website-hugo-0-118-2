@@ -9,7 +9,7 @@ weight:
 ---
 ### Un développement plus important est nécessaire pour la manifestation physique
 
-Seretta Kem - reçu par Al Fike le 14 Février 2023, Abbotsford, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 14 Février 2023, Abbotsford, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse mes amis, je suis Seretta Kem. Il y a beaucoup de choses dans lesquelles nous sommes encore engagés et qui nécessitent votre connexion et vos efforts afin d’accomplir ces choses de développement, en affinant vos bénédictions, vos compétences et vos capacités dans le monde. Nous exigeons beaucoup de vous, car combien sont prêts à s’asseoir comme vous le faites pour recevoir les attentions de vos amis anges et de vos amis stellaires et avoir une compréhension claire de la Vérité de l’Amour de Dieu ? En effet, vous êtes précieux, très précieux dans le monde et très nécessaires dans le monde. Ainsi, nous consacrons notre temps, tout comme vous, pour que vous puissiez vous éveiller à vos dons et à vos capacités, pour que vous puissiez connaître le véritable soi spirituel qui réside en vous et qui a besoin d’être davantage cajolé et encouragé pour émerger.
 
@@ -26,4 +26,3 @@ En effet, la Voix Directe n’est qu’une manifestation des nombreuses bénédi
 Beaucoup vous attend, mes amis, tellement beaucoup. C’est à vous de découvrir combien riches sont les bénédictions de Dieu, combien beau est Son Toucher sur vous, et combien puissant est l’alignement de vos anges amis et d’autres qui sont prêts à investir beaucoup de temps et d’efforts en votre nom dans ce qui peut être donné et ce qui sera donné, pourvu que les conditions soient bonnes et que les bénédictions viennent abondamment comme résultat de vos prières sincères. Priez du fond du cœur, mes chers et beaux amis. Priez sincèrement. Soyez en alignement avec Dieu. Recherchez toujours Ses bénédictions et le reste se déroulera dans le timing et la manifestation exquise et la puissance de Son Amour qui agit à travers vous et en vous.
 
 Que Dieu vous bénisse, chers amis. Je suis Seretta Kem. Je suis heureuse de vous parler aujourd’hui et de vous encourager sur ce chemin, ce désir de servir d’une manière si intéressante et merveilleuse. Que Dieu vous bénisse, chers étudiants, beaux enfants de Dieu. Vous êtes bénis et vous serez bénis. Mon amour est avec vous. Que Dieu vous bénisse.
-

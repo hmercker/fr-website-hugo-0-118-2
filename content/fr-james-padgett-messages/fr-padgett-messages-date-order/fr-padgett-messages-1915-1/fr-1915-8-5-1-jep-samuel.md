@@ -40,3 +40,5 @@ Les différents enseignants des différentes religions qui sont venus sur terre 
 Eh bien, je dois arrêter. Alors, en vous remerciant pour votre gentillesse, je vous souhaite une bonne nuit.
 
 Samuel.
+
+Note :  Cinq autres personnalités historiques [Salomon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--6-27-3-jep-solomon/), [Socrate](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/), [Aaron](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-1-jep-aaron/), [Sarah](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah.md), [Platon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/) partagent également leur progression vers les Cieux Célestes.

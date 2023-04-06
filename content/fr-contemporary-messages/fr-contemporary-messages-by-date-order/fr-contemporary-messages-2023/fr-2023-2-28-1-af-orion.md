@@ -9,7 +9,7 @@ weight:
 ---
 ### Intégration du mental matériel et du mental de l'âme  (groupe des douze)
 
-Orion - reçu par Al Fike le 28 Février 2023, Sechelt, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 28 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Je vous remercie de votre prière, mon fils bien-aimé. En effet, les limitations du mental sont grandes. Elles apportent beaucoup à votre expérience dans la vie et dans votre vie spirituelle. C’est une force formidable qui dicte beaucoup de choses en ce qui concerne votre progrès spirituel, vos perceptions de vous-même, de Dieu et de tout l’univers de Dieu. Ce puissant filtre du mental est quelque chose que nous continuons à vous conseiller pour apporter plus de clarté et d’harmonie dans les perceptions ultimes de l’âme. Parce que vous vivez sur le plan terrestre, les deux sont en jeu et pourtant le mental matériel a un plus grand poids de perception que l’âme et la perception de l’âme.
 

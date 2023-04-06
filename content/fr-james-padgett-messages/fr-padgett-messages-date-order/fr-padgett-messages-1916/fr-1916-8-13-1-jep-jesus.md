@@ -35,4 +35,15 @@ Je suis avec vous, comme je vous l’ai dit, en essayant de vous aider et de vou
 
 Votre frère et ami, Jésus.
 
-*Note : [Dans un message contemporain](*****************), Jésus dit clairement qu’il pourrait « apparaître » à l’humanité, mais il ne serait pas un homme de chair. Il aurait ce qu’on appelle un corps matérialisé, le même que ses disciples ont vu après sa mort sur la croix. En fait, il est probablement apparu à certaines personnes de cette manière.*
+*Note 1: [Dans un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-7-20-1-ks-jesus/), Jésus dit clairement qu’il pourrait « apparaître » à l’humanité, mais il ne serait pas un homme de chair. Il aurait ce qu’on appelle un corps matérialisé, le même que ses disciples ont vu après sa mort sur la croix. En fait, il est probablement apparu à certaines personnes de cette manière.*
+
+*Note 2 : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+
+•	15 Août 1915 : [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915\fr-1915-8-15-1-jep-jesus/).
+
+•	13 Août 1916 : [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-8-13-1-jep-jesus/).
+
+•	24 Septembre 1916 : « [En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père »](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-9-24-1-jep-jesus/).
+
+•	18 Octobre 1919 : [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1919\fr-1919-10-18-1-jep-jesus/).
+

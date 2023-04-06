@@ -43,3 +43,5 @@ Votre frère en Christ, Jean.1
 <small>
 
 1. <large id="f1"> C’est l’un des trois messages auxquels Jésus fait référence dans le message publié dans le volume I, page 3 à 6.[↩](#a1)
+
+Note : Le second message communiqué par Jean sur ce sujet fut communiqué le [04 Janvier 2018](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/).

@@ -28,3 +28,6 @@ Oui, je vois un grand nombre de beaux esprits autour de vous, et certains des ap
 Je dois arrêter maintenant, mais croyez que je suis Sarah comme je vous l’ai dit. Je vais vous quitter et vous souhaiter bonne nuit.
 
 Votre sœur en Christ, Sarah, la femme d’Abraham.
+
+*Note :  Cinq autres personnalités historiques [Salomon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--6-27-3-jep-solomon/), [Socrate](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/), [Samuel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/), [Aaron](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-1-jep-aaron/), [Platon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/) partagent également leur progression vers les Cieux Célestes.*
+

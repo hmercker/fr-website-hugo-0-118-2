@@ -9,7 +9,7 @@ weight:
 ---
 ### Décrit le stress et la douleur que le monde subit
 
-Augustin - reçu par Al Fike le 7 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+Augustin - reçu par Al Fike le 7 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Chers élèves, je suis votre enseignant, Augustin. Le monde est en grande souffrance. Vous le savez bien. Nous l’avons dit à maintes reprises, et pourtant l’intensité de cette douleur augmente chaque jour qui passe. Et la stratégie commune, du moins dans votre partie du monde, est d’être extrêmement occupé, de mener un rythme de vie frénétique afin de masquer cette douleur par la distraction et l’activité. Cet instrument a demandé pourquoi ceux avec qui il a été en contact auparavant ne sont pas venus vous rejoindre dans la prière. Il y a une grande douleur parmi ceux que vous avez rencontrés dans le passé et il y a une grande activité afin de neutraliser cette douleur, au moins dans la conscience superficielle de l’individu.
 
@@ -31,4 +31,4 @@ Le mode de vie simple est le meilleur. Il nourrit l’âme, bien qu’il soit so
 
 Ayez de la joie. Car c’est la joie qui réveillera tant de choses en vous. C’est la joie qui dissipe les ténèbres, l’anxiété et les peurs. C’est la joie qui jaillit de l’âme qui reconnaît la touche de Dieu et les révélations que Dieu a à donner à chacun de vous.
 
- Mes chers étudiants, il est bon que vous soyez ensemble. Il est bon que vous parliez et réfléchissiez à de nombreuses choses, questions et idées, mais avant tout, vous devez prier pour que les réponses viennent de cette manière. Les réponses viennent avec l’amour, l’Amour de Dieu. Je vous remercie de m’avoir écouté aujourd’hui, chers étudiants, et nous continuerons à parler des choses de l’âme et de la façon dont votre vie se rapporte à l’âme émergente et à votre relation croissante avec Dieu. Mon amour est avec vous. Et je vous aime. Je vous aime tendrement, mes précieux, précieux pour Dieu, précieux pour nous dans le Royaume Céleste, précieux pour le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin, votre professeur. Que Dieu vous bénisse.
+Mes chers étudiants, il est bon que vous soyez ensemble. Il est bon que vous parliez et réfléchissiez à de nombreuses choses, questions et idées, mais avant tout, vous devez prier pour que les réponses viennent de cette manière. Les réponses viennent avec l’amour, l’Amour de Dieu. Je vous remercie de m’avoir écouté aujourd’hui, chers étudiants, et nous continuerons à parler des choses de l’âme et de la façon dont votre vie se rapporte à l’âme émergente et à votre relation croissante avec Dieu. Mon amour est avec vous. Et je vous aime. Je vous aime tendrement, mes précieux, précieux pour Dieu, précieux pour nous dans le Royaume Céleste, précieux pour le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin, votre professeur. Que Dieu vous bénisse.

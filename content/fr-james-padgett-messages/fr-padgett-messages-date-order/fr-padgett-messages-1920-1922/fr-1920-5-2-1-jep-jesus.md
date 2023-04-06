@@ -34,4 +34,15 @@ Votre frère et ami, Jésus.
 
 1. <large id="f1"> Ce message est également publié dans le volume IV à la page 160.[↩](#a1)
 
-2. <large id="f2"> La référence en bas de page publiée dans le volume II fait référence à un message de Samuel publié dans le volume I à la page 251 (1ère édition française), mais il s’agit en fait d’un message beaucoup plus ancien que celui de Jésus, donc il ne peut pas être une référence correcte. Le message reçu de Samuel postérieurement à cette date de l’année 1920 se réfère à un message du 27 Mars 1921 et est publié dans le volume I (1ère édition française) à la page 167. Il a pour titre « Que s’est -il passé en réalité lors de la crucifixion Jésus ? (G.J.C.)[↩](#a2)
+2. <large id="f2"> La référence en bas de page publiée dans le volume II fait référence à un message de Samuel publié dans le volume I à la page 251 ("1ère édition française deNouvelles Révélations sur le Nouveau Testament par Jésus de Nazareth"), mais il s’agit en fait d’un message beaucoup plus ancien que celui de Jésus, donc cela ne peut pas être une référence correcte. Le message reçu de Samuel postérieurement à cette date de l’année 1920 se réfère à un message du 27 Mars 1921 et est publié dans le volume I (1ère édition française de Nouvelles Révélations sur le Nouveau Testament par
+Jésus de Nazareth à la page 167). Ce messages a pour titre [Que s’est -il passé en réalité lors de la crucifixion Jésus ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) (G.J.C.)[↩](#a2)
+
+*Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+
+05 Septembre 1915 :  [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-9-5-4-jep-jesus/).
+
+12 Septembre 1915 :  [Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-9-12-1-jep-jesus/).
+
+19 Septembre 1915 :  [Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-19-1-jep-jesus/).
+
+06 Mai 1917 :  [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917\fr-1917-5-6-1-jep-jesus/).

@@ -22,3 +22,16 @@ Je veux maintenant que vous pensiez plus que jamais à l’importance de votre t
 Ce soir, je n’écrirai pas plus, mais j’écrirai bientôt comme je l’ai dit. Ayez la foi et sachez que vous avez été choisi pour faire le travail, et que sur vous repose la responsabilité qui n’incombe à aucun autre homme. Avec mon amour et les bénédictions du Père, je vous souhaite une bonne nuit.
 
 Votre frère et ami, Jésus.
+
+*Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
+
+•	29 Août 1915 : [Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915/fr-1915-8-29-2-jep-jesus/).
+
+•	28 Décembre 1915 : [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/).
+
+•	16 Mai 1916 : [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/).
+
+•	09 Juillet 1917 : [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/).
+
+•	19 Septembre 2020 : [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/). 
+

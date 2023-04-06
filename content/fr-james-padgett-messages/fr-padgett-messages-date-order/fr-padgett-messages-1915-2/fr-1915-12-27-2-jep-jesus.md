@@ -26,3 +26,5 @@ Je suis avec vous essayant de vous aider de toutes les manières possibles et su
 Le bonheur viendra, ayez seulement la foi et faites de votre mieux pour obtenir les résultats désirés.
 
 Je vais m’arrêter maintenant, mais, en terminant, je vous assure de mon grand amour et de mon intérêt pour vous. Donc avec tout mon amour, je suis votre frère et ami, Jésus.
+
+

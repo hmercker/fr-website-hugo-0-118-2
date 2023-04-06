@@ -9,7 +9,7 @@ weight:
 ---
 ### La foi au delà de la peur
 
-Judas - reçu par Jimbeau Walsh le 2 Janvier 2023, Nashville, TN, USA
+Judas - reçu par Jimbeau Walsh le 2 Janvier 2023, Nashville, TN, USA.
 
 C’est moi, votre frère Judas, autrefois de Kerioth, maintenant habitant du Royaume Céleste, disciple du maître, et votre frère en Christ. Que ce temps qui vous attend tous sur la Terre soit un rassemblement, non seulement dans la communion de l’Amour de Dieu, qui est de la plus haute importance, mais aussi en tant que communauté, afin que la Terre, dans tous ses changements, ait les fondations de la vérité divine fermement plantées, soutenues dans le temps.
 

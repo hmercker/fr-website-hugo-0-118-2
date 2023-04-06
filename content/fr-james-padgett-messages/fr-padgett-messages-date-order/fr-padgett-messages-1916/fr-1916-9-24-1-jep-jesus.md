@@ -42,3 +42,14 @@ Croyance et foi ne sont pas la même chose. L’une est du domaine du mental, l�
 Je vous écris donc ce soir pour montrer que le prédicateur dans son sermon n’a pas expliqué le sens véritable du texte et n’a pas compris les vérités que le texte voulait exprimer, bien qu’il n’énonçait pas mes expressions ou dans son interprétation littérale déclarait la vérité. Je n’écrirai pas plus maintenant, sauf pour dire que je vous aime d’un grand amour, et je prie le Père de vous bénir. Croyez dans le Père, ayez confiance en moi et vous ne serez pas déçus et priez pour que cet Amour Divin du Père entre dans votre âme afin que vous sachiez que vous êtes un fils accepté du Père. Gardez votre courage et ayez la foi que tout ce que vous demanderez au Père au nom de Son Amour et de Sa Vérité vous sera donné. Je suis avec vous, dans tout mon amour et toute ma sollicitude et vous ne serez pas abandonnés.
 
 Alors mon cher frère, soyez assuré que je suis votre frère et ami, Jésus.
+
+
+*Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+
+•	15 Août 1915 : [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915\fr-1915-8-15-1-jep-jesus/).
+
+•	10 Janvier 1916 : [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-1-10-2-jep-jesus).
+
+•	13 Août 1916 : [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-8-13-1-jep-jesus/).
+
+•	18 Octobre 1919 : [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1919\fr-1919-10-18-1-jep-jesus/).

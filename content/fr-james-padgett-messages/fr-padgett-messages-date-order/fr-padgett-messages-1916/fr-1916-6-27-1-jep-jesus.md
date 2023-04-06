@@ -50,3 +50,5 @@ Donc vous voyez que, sans cet Amour Divin entrant dans l’âme, il sera impossi
 J’ai suffisamment écrit pour ce soir et je suis satisfait de la façon dont vous l’avez reçu.
 
 Avec tout mon amour et bénédictions, je suis votre frère et ami, Jésus.
+
+*Note : Le [05 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/) et Le [15 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/), jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux.*

@@ -31,9 +31,9 @@ Nous avons continué à vivre au même endroit, mais nous ne pouvions plus nous 
 
 Ce fut un temps de douleurs, amer, mais la loi avait imposé sa peine, et nous ne pouvions pas nous libérer de cette peine, et nous avons alors dû vivre sans la possibilité d’obtenir cet Amour Divin et de voir notre nature spirituelle prédominer sur le physique, et le soumettre.
 
-Quand Amon et moi avons été créés, il n’y avait pas d’autres êtres humains qui vivaient sur terre, et aucun n’est venu y vivre, jusqu’à ce que nous ayons des fils et des filles qui se sont mariés et ont produit d’autres fils et filles. Je ne peux pas vous dire à quand remonte notre création, mais ce fut plusieurs milliers d’années avant la venue de Jésus. Je n’écrirai plus cette nuit, mais je reviendrai, un jour ou l’autre, vous écrire.
+Quand Amon et moi avons été créés, il n’y avait pas d’autres êtres humains qui vivaient sur terre, et aucun n’est venu y vivre, jusqu’à ce que nous ayons des fils et des filles qui se sont mariés et ont produit d’autres fils et filles. Je ne peux pas vous dire à quand remonte notre création, mais ce fut plusieurs milliers d’années avant la venue de Jésus. Je n’écrirai plus cette nuit, mais je reviendrai, [un jour ou l’autre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/), vous écrire.
 
 Votre frère en Christ, Aman.
 <small>
 
-1. <large id="f1"> Une explication détaillée a été donnée [par l’intermédiaire d’un autre médium en 2007](************************).[↩](#a1)
+1. <large id="f1"> Une explication détaillée a été donnée [par l’intermédiaire d’un autre médium en 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-3-fab-aman/).[↩](#a1)

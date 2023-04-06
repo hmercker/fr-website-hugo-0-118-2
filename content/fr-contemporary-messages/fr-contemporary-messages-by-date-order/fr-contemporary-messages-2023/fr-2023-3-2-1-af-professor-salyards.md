@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez conscients des opportunités qui s'offrent à vous
 
-Professor Salyards - reçu par Al Fike le 2 Mars 2023, Sechelt, Colombie-Britannique, Canada
+Professor Salyards - reçu par Al Fike le 2 Mars 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, je suis votre professeur Salyards. Les fenêtres et les avenues d’opportunités iront et viendront au fur et à mesure que vous continuerez à atteindre le monde et votre communauté d’Amour Divin, toutes les personnes qui sont en orbite autour de cet effort. Assurez-vous d’être conscients des opportunités qui se présentent à vous et des individus qui offrent leurs ressources au bénéfice du travail que vous faites, car Dieu orchestre les choses d’une manière qui n’est pas habituellement comprise par les mortels. Pourtant, nous nous approchons de vous et nous vous guidons afin que vous puissiez savoir et être conscients de ce que Dieu apporte comme bénédiction et bénéfice à chacun d’entre vous et à votre travail.
 

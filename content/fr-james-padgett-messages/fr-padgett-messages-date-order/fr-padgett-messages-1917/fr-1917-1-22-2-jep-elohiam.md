@@ -37,7 +37,10 @@ Vous avez reçu beaucoup de messages décrivant le plan du Père pour le salut d
 
 Je suis un croyant dans ces vérités, un disciple du Maître et un habitant des Cieux Célestes ; mais je tiens à dire que ces vérités ne sont pas venues à moi et ont fait partie de ma foi, avant de longues années de ma vie dans le monde des esprits et que, pendant certaines de ces années, j’ai vécu dans l’obscurité et la souffrance. Je vais donc vous dire bonne nuit et me déclarer votre frère en Christ, Elohiam.
 
-Cela peut aussi avoir été plus correctement « Euliam. »
+Cela peut aussi avoir été plus correctement « Euliam. »<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Ce message est aussi publié dans le Volume I et dans le Volume III des messages de James Padgett.[↩](#a1)
+
+1. <large id="f2">Liens vers d'autres messages relatifs à la crucifixion de Jésus : 24 Octobre 1915 : [St Luc explique la dématérialisation du corps terrestre de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915\fr-1915-10-31-1-jep-luke/), 16 Mars 1916 : [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-3-16-1-jep-joseph/) et 27 Mars 1921 : [Que s’est-il réellement passé lors de la crucifixion de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) ?[↩](#a2)
+

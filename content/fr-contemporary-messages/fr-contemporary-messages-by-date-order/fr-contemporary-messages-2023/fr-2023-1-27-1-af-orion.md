@@ -9,7 +9,7 @@ weight:
 ---
 ### Orion se présente et parle de l'aide disponible
 
-Orion - reçu par Al Fike le 27 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+Orion - reçu par Al Fike le 27 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Paix et amour pour vous, mes amis. Je viens à la demande de mon frère. Je suis Orion. Je viens vous parler de notre point de vue sur la vie, le véritable sens de la vie. Nous voyons les choses un peu différemment de vous car nous vivons dans un environnement qui n’est pas encombré par ce que vous appelez la condition humaine. Nous vivons en tant qu’âmes pures progressant dans l’amour pur. Nous sommes de la lumière. Nous n’avons pas de conflits ou de problèmes à résoudre comme vous le faites. Au contraire, tout est en harmonie, en paix et en joie.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre rôle sur terre
 
-Michael Collier - reçu par Al Fike le 25 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+Michael Collier - reçu par Al Fike le 25 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes amis. Je reviens. Je suis Michael Collier. Puisque vous avez apprécié mes conversations avec vous dans le passé, je suis revenu pour vous parler. Je suis un habitant du Royaume Céleste et ce, depuis un certain temps. Mais c’est un grand privilège et une bénédiction de venir sur ce plan terrestre et de parler à ceux qui désirent entendre la Vérité de l’Amour de Dieu. En effet, mon désir est de parler à beaucoup d’autres de cette vérité et du voyage vers l’entrée éventuelle dans le Royaume Céleste, mais il y en a peu qui souhaitent écouter. Ceux qui écoutent sont déjà bien engagés sur la voie du Royaume. Ainsi, je me retrouve souvent à parler à un chœur, comme le font de nombreux anges qui parlent à travers des médiums dans des Cercles de Lumière tels que celui-ci. Pourtant, notre véritable désir, comme le vôtre, est d’atteindre d’autres personnes qui cherchent à leur apporter la bonne nouvelle de l’Amour de Dieu.
 

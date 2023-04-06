@@ -41,3 +41,11 @@ Ta propre grand-mère bien-aimée.
 <small>
 
 1. <large id="f1"> Ceci fait référence au livre du Dr Peebles « Immortalité » – et Anne Rollins doute que les expériences du Dr Pierce qui y sont décrites soient exactes.[↩](#a1)
+
+
+Note : Dans un message communiqué le [10 Mars 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--3-10-2-jep-ann-rollins/) Anne Rollins corrobore l’expérience d’Hélène Padgett et raconte le bonheur des esprits dans les sphères Célestes et le [27 Avril 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) Anne Rollins décrit sa maison dans cette seconde sphère Céleste.
+
+Anne Rollins  décrit ses expériences dans cette seconde sphère dans un message communiqué le [8 Juillet 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/).
+
+
+

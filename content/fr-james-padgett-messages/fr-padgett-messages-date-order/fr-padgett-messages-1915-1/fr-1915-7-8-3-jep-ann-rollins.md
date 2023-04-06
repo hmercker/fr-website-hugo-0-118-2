@@ -58,3 +58,8 @@ Pendant de nombreuses années, les puissances du monde des esprits ont cherché 
 Je dois m’arrêter maintenant et, comme j’ai écrit depuis longtemps, tu dois te reposer un peu avant de continuer à écrire.
 
 Ta grand-mère aimante.
+
+*Note : Dans un message communiqué le [10 Mars 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--3-10-2-jep-ann-rollins/) Anne Rollins corrobore l’expérience d’Hélène Padgett et raconte le bonheur des esprits dans les sphères Célestes et dans un message communiqué le [27 Avril 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/)*
+
+*Dans un autre message communiqué le [22 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) Anne Rollins décrit certaines des différentes sphères.*
+

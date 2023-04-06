@@ -9,7 +9,7 @@ weight:
 ---
 ### Apporte une plus grande comprehension de qui nous sommes
 
-Flavius Josèphe - reçu par Al Fike le 6 Janvier 2023, Sechelt, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Al Fike le 6 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 
 Vous avez parlé de moi. Je suis Flavius Josèphe et je souhaite venir vous parler de la chimie de la spiritualité. Cela peut être quelque peu contradictoire en termes et en définition, mais je souhaite utiliser l’analogie de la chimie afin que vous puissiez mieux comprendre la composition de votre être. En biologie, la vie se forme par la fusion d’une combinaison de produits chimiques, d’éléments, d’atomes, etc. en une forme. Cette forme reçoit la vie de Dieu. Ainsi, vous êtes une forme physique qui s’est conformée à ce modèle, à cette fusion et à cette chimie pour créer vos corps, et il s’agit d’un mécanisme très complexe. Quelque chose qui a évolué pendant des éons de temps. Car les processus que Dieu a mis en place ont commencé il y a de nombreuses, nombreuses et innombrables années. Et pourtant, nous sommes là. Vous, dans votre forme physique, êtes le résultat d’une évolution de la chimie et des éléments qui se sont assemblés, non pas par hasard, mais parce que Dieu avait un plan et une manière et des moyens de le faire.
 

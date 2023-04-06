@@ -29,9 +29,11 @@ Eh bien, je n’écrirai pas plus ce soir, car il y a d’autres personnes prés
 
 Alors avec tout mon amour, je vous bénis tous les deux.
 
-Ta grand-mère.
+Ta grand-mère.<sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id="f1"> Ce message est également publié dans le volume III à la page 110. (G.J.C.)[↩](#a1)
 
 2. <large id="f2"> Il n’y a aucune trace d’une « déclaration » de Jean à cette date. Mais comme Jean était son guide particulier, il se peut qu’il s’agisse simplement d’une très courte communication qui n’a pas été consignée dans le journal intime de Jean. Le contenu de ce message est surprenant. Il n’est pas vraiment erroné, en ce sens qu’il n’y a rien que le Père refuse de pardonner, mais nous savons, grâce à un grand nombre de messages, que si l’humain refuse de recevoir l’Amour Divin du Père, cela a pour résultat que l’humain est finalement confronté à la seconde mort,et ils seront exclus du Royaume lorsque les « portes se fermeront ». Se reporter par exemple à ce message de Judas. (G.J.C.)[↩](#a2)
+
+3. <large id="f3"> Suite au message de Jésus du [06 Juin 1915](/fr-james-padgett-messages\fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) et suite au sermon prononcé par un précdicateur auquel fai référence Anne Rolins dans son message, [Paul](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-paul/), et [Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-1-jep-st-Luke/) ont également nié l'existence du péché impardonnable.↩](#a3)

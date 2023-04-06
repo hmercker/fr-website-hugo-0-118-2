@@ -26,3 +26,5 @@ Je suis S.B.S. J’ai vécu dans la ville de New York et je suis décédé il y 
 Votre frère en Christ, S.B.S.
 
 *Note : Cet esprit semble être Samuel B Southard.*
+
+*Note :  Quatre autres esprits [Thomas Paine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/),[George Whitefield](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/),[Hugh Latimer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/),  et [Lafayette](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.*

@@ -26,3 +26,15 @@ Eh bien, c’est un sujet sur lequel je vous écrirai en détail plus tard, et j
 Je vais m’arrêter maintenant et vous dire que vous serez bientôt dans l’état dans lequel nous souhaitons tous les deux que vous soyez. Je vous donne mes bénédictions et mon amour.
 
 Votre ami et frère, Jésus.
+
+Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :
+
+28 Décembre 1915 : Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés.
+
+16 Mai 1916 : Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques.
+
+09 Juillet 1917 : Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse.
+
+06 Janvier 1918 : L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin.
+
+19 Septembre 2020 : Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l'intermédiaire des esprits. 
