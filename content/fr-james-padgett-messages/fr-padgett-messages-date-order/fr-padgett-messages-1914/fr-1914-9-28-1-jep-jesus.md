@@ -28,7 +28,7 @@ Vous êtes trop faible pour écrire plus. Vous avez ma bénédiction et celle é
 *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
 
 *Messages*
----|---
+|---|---
 24 Septembre 1914 | [Jésus n’est pas Dieu. Il est le chemin, la vérité et la vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/)
 24 janvier 1915 | [Jésus n'est pas Dieu et ne doit pas être adoré comme Dieu. Explique sa mission](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-24-1-jep-jesus/)
 31 janvier 1915 | [La nature de Dieu comme mon Dieu et votre Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-31-1-jep-jesus/)
