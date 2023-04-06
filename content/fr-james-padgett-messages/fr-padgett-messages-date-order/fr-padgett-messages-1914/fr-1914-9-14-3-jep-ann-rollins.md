@@ -15,7 +15,7 @@ C’est moi, ta grand-mère.
 
 Je suis extrêmement joyeuse et je suis heureuse que tu voies la vérité telle qu’elle est en Christ. C’est le vrai fils de Dieu que j’ai trouvé dans ma vie ici. Il n’est pas le sauveur d’un simple ecclésiastique, mais de ceux qui ont reçu la Nouvelle Naissance de l’Esprit – ne laisse pas la pensée que tu dois être membre d’une église t’empêcher de chercher son aide et son amour car il est le sauveur de l’individu et non de l’ensemble des gens qui appartiennent à une église.
 
-Il était avec toi samedi soir et il t’a parlé.<sup id="a1">[1](#f1)</sup> Je le connais bien, je le vois souvent et je discute souvent avec lui, je sais donc qu’il est le vrai Christ des Écritures. Il essayait seulement de te faire sentir qu’il s’intéresse à ton bien-être spirituel, et tu dois croire qu’il était avec toi.
+Il était avec toi samedi soir et il t’a parlé <sup id="a1">[1](#f1)</sup>. Je le connais bien, je le vois souvent et je discute souvent avec lui, je sais donc qu’il est le vrai Christ des Écritures. Il essayait seulement de te faire sentir qu’il s’intéresse à ton bien-être spirituel, et tu dois croire qu’il était avec toi.
 
 Je connais l’esprit auquel M. Colburn a fait allusion et ce n’est pas un bon esprit. C’est un esprit qui a une vanité démesurée et se fait souvent passer pour Jésus et d’autres esprits de haut rang. Il ne faut pas le croire quand il affirme qu’il est le Christ. Oublie le et il ne te dérangera pas, ni toi ni ton ami, en essayant de se faire passer pour le vrai Christ.
 

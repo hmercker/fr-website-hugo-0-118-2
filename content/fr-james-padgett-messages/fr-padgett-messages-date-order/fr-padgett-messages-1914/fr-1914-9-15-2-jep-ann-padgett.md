@@ -17,7 +17,7 @@ Tu es le meilleur fils du monde. Oui, et tu dois m’aimer plus que tu ne le fai
 
 Oui, je ne crois pas à l’enfer et au châtiment éternel – ce sont les faux enseignements des églises orthodoxes.
 
-*Le oui et le non sont des réponses aux questions posées par M. Padgett*
+*[Le oui et le non sont des réponses aux questions posées par M. Padgett]*
 
 Jésus est le même que celui que je croyais qu’il était sur terre. Oui, il est toujours mon sauveur, mais je ne l’adore pas comme Dieu. Il n’est pas Dieu, mais un esprit de la plus grande perfection et de la plus grande bonté. Il est avec moi assez souvent. Il t’a parlé Samedi soir et il reviendra très bientôt vers toi pour t’expliquer le véritable enseignement de la Bible. Laisse-le être ton ami et ton conseiller.
 
