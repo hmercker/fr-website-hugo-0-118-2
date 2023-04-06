@@ -1,13 +1,13 @@
 ---
-title: "Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu."
+title: "Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu"
 menu_title: ""
-description: "Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu."
+description: "Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True
 weight:
 ---
-### Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu.
+### Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu
 
 Jésus - reçu par James Padgett le 25 Décembre 1914, Washington, USA.
 

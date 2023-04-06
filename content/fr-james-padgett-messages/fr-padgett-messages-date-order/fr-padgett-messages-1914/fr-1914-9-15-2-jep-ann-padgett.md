@@ -25,8 +25,4 @@ J’ai une maison et je vis avec un esprit qui a le même cheminement que moi. N
 
 Oui, ils le sont, mais il n’est pas encore avec elle, il est trop terrestre, mais il progresse. Oui je le sais, c’est Hélène. Elle le fait et tu dois l’aimer aussi.
 
-Tu dois aller te coucher. Bonne nuit, mon fils.
-
-Ta mère.
-
-Anne R. Padgett.
+Tu dois aller te coucher. Bonne nuit, mon fils. Ta mère. Anne R. Padgett.

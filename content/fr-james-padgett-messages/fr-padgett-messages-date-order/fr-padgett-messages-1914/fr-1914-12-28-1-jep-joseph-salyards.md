@@ -1,13 +1,13 @@
 ---
-title: "Le professeur Salyards a progressé vers la troisième sphère et a localisé son âme-sœur avec l’aide de Mme Padgett et sait qu’elle est la sienne pour toujours."
+title: "Le professeur Salyards a progressé vers la troisième sphère et a localisé son âme-sœur avec l’aide de Mme Padgett et sait qu’elle est la sienne pour toujours"
 menu_title: ""
-description: "Le professeur Salyards a progressé vers la troisième sphère et a localisé son âme-sœur avec l’aide de Mme Padgett et sait qu’elle est la sienne pour toujours."
+description: "Le professeur Salyards a progressé vers la troisième sphère et a localisé son âme-sœur avec l’aide de Mme Padgett et sait qu’elle est la sienne pour toujours"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True
 weight:
 ---
-### Le professeur Salyards a progressé vers la troisième sphère et a localisé son âme-sœur avec l’aide de Mme Padgett et sait qu’elle est la sienne pour toujours.
+### Le professeur Salyards a progressé vers la troisième sphère et a localisé son âme-sœur avec l’aide de Mme Padgett et sait qu’elle est la sienne pour toujours
 
 Professeur Salyards - reçu par James Padgett le 28 Décembre 1914, Washington, USA.
 
@@ -33,7 +33,7 @@ J’ai entendu dire qu’il existe une loi d’attraction comme vous le dites, m
 
 Elle est dans la cinquième sphère où vit votre mère. Oui, je vois que c’est le cas et je vais l’inclure dans mon catalogue d’études. Vous avez raison de dire que je dois étudier cette question car le bonheur de tant d’esprits dépendant de la connaissance de leurs âmes sœurs, il est important que j’étudie et que je puisse les aider à trouver qui est celui (celle) que Dieu a choisi pour tout esprit curieux.
 
-*Question et réponse.*
+*[Question et réponse.]*
 
 Elle ne l’a pas encore fait, mais elle le fera comme je lui demanderai et elle est si bonne que je sais qu’elle me le dira. Elle est une étudiante très assidue de beaucoup de choses relatives à l’amour des esprits pour les humains et elle a fait de merveilleux progrès dans ses études sur les divers moyens de communication entre eux. Mais elle est si belle et si remplie de l’Amour de Dieu que je sais à peine quoi vous dire de sa condition actuelle sur aucun de ces sujets. Elle est un esprit merveilleux dans ses réalisations dans presque tous les domaines d’investigation.
 

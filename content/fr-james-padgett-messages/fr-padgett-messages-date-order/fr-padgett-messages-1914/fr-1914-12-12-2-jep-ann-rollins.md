@@ -1,20 +1,22 @@
 ---
-title: "L’importance d’obtenir l’Amour Divin dans l’âme."
+title: "L’importance d’obtenir l’Amour Divin dans l’âme"
 menu_title: ""
-description: "L’importance d’obtenir l’Amour Divin dans l’âme."
+description: "L’importance d’obtenir l’Amour Divin dans l’âme"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True
 weight:
 ---
-### L’importance d’obtenir l’Amour Divin dans l’âme.
+### L’importance d’obtenir l’Amour Divin dans l’âme
 
 Anne Rollins - reçu par James Padgett le 12 Décembre 1914, Washington, USA.
 
 C’est moi, ta grand-mère.
 
 Je voudrais t’en dire plus sur les choses de l’esprit, car elles sont les choses importantes que tu dois savoir. Tu es très proche du Royaume et, si tu continues à essayer d’obtenir plus de l’Amour de Dieu dans ton âme, tu réaliseras bientôt la pleine joie et la paix qui résulte d’une telle possession. Essaies de faire en sorte que ton cœur reçoive davantage de Son Amour, car Il est toujours prêt à t’accorder Son Amour. Il est l’unique Père Amoureux dont tu dois te languir et que tu dois garder dans toutes tes pensées et aspirations. Ne laisse pas les soucis de la vie t’empêcher d’aimer et de croire qu’Il veut que tu deviennes un avec Lui dans l’Amour et la Grâce. Il n’attend pas seulement que tu laisses couler Son Amour dans ton cœur, mais il frappe anxieusement à la porte de ton cœur, afin que tu l’ouvres et le laisse entrer.
+
 Sois fidèle à tes meilleures aspirations spirituelles, et tu sentiras bientôt que tu as obtenu dans ton âme ce qui te donnera la paix et le bonheur parfaits. Tu commences seulement maintenant à apprendre que tu dois sentir que ton Père est si proche de toi qu’Il doit devenir une partie de ta vie et de ton être. Quand cet Amour aura pleinement pris possession de toi, tu sauras que tu es Son propre fils, vrai et réconcilié, comme tous ceux qui sont venus à la réalisation de cet Amour. Alors ne doute pas que tu puisses devenir un tel fils de ton Père, car je te dis ce que je sais de par ma propre l’expérience, la grandeur de vivre en faveur de Sa Bénédiction.
+
 Sois mon propre et cher garçon et essaie d’atteindre et d’obtenir cet Amour.
 
 Tu ne dois pas laisser les choses de ta vie terrestre t’éloigner des choses supérieures que le Père a préparées pour te les donner. Tu sauras bientôt, comme je le sais, que les seules choses qui valent la peine d’être recherchées sont celles de cet Amour spirituel du Père. Sois plus soucieux d’obtenir cette connaissance, et elle viendra à toi dans toute sa beauté et sa force convaincantes. J’aimerais tellement que tu puisses voir l’œuvre de l’Esprit Saint parmi les hommes et les esprits, car alors tu ne douterais plus que Dieu est un Dieu d’Amour, et non un Dieu de colère ou de vengeance.
@@ -42,12 +44,13 @@ Mais tu ne dois pas penser que nous n’aimons pas intensément car l’amour qu
 Mon cher garçon, nous devons arrêter d’écrire maintenant car tu n’es pas en condition d’écrire plus. Alors je te vais te dire bonne nuit et que Dieu te bénisse et te garde dans Son Amour et Sa sollicitude.
 
 Ta grand-mère aimante, Anne Rollins.
+
+*Note : Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) | le 13 Mai 1915
+Anne Rollins | [La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/) | le 1er Juin 1916
 <small>
 
 1. <large id="f1"> Dans un message postérieur, il est dit que Mme Padgett a atteint la 3ème sphère céleste. (Dr. Stone).[↩](#a1)
-
-Note : Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :
-
-    le 13 Mai 1915 : [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/).
-
-    le 1er Juin 1916 : [La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort ».](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/)

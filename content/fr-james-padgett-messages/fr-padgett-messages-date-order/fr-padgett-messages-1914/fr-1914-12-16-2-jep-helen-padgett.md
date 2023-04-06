@@ -1,13 +1,13 @@
 ---
-title: "Hélène confirme que M. Riddle a commencé à prier comme M. Padgett lui a suggéré de faire afin qu’il soit capable de progresser vers la lumière."
+title: "Hélène confirme que M. Riddle a commencé à prier comme M. Padgett lui a suggéré de faire afin qu’il soit capable de progresser vers la lumière"
 menu_title: ""
-description: "Hélène confirme que M. Riddle a commencé à prier comme M. Padgett lui a suggéré de faire afin qu’il soit capable de progresser vers la lumière."
+description: "Hélène confirme que M. Riddle a commencé à prier comme M. Padgett lui a suggéré de faire afin qu’il soit capable de progresser vers la lumière"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True
 weight:
 ---
-### Hélène confirme que M. Riddle a commencé à prier comme M. Padgett lui a suggéré de faire afin qu’il soit capable de progresser vers la lumière.
+### Hélène confirme que M. Riddle a commencé à prier comme M. Padgett lui a suggéré de faire afin qu’il soit capable de progresser vers la lumière
 
 Hélène Padgett - reçu par James Padgett le 16 Décembre 1914, Washington, USA.
 
@@ -15,7 +15,7 @@ C’est moi, Hélène.
 
 Tu as certainement impressionné M. Riddle, car il essaie maintenant de prier comme tu le lui as suggéré. Mais tu ne dois pas laisser ton amour pour lui t’empêcher de sentir que nous voulons tous que tu pries pour nous aussi, car tu sembles avoir une telle foi que nous nous émerveillons de toi.
 
-*Question*
+*[Question]*
 
 Non, pas cela, mais nous avons aussi besoin de tes prières, alors ne nous oublie pas. Je ne suis pas du tout égoïste en la matière, mais je veux que tu m’aides aussi.
 

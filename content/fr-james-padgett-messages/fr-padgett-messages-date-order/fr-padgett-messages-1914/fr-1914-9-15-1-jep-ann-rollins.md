@@ -1,13 +1,13 @@
 ---
-title: "La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme."
+title: "La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme"
 menu_title: ""
-description: "La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme."
+description: "La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True
 weight:
 ---
-### La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme.
+### La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme
 
 Anne Rollins - reçu par James Padgett le 15 Septembre 1914, Washington, USA.
 
@@ -26,4 +26,4 @@ Jésus viendra tranquillement dans le cœur de chaque homme et établira ainsi l
 Il n’y a qu’un seul Dieu. Jésus et le Saint-Esprit ne sont que les forces dont Dieu se sert pour réaliser ses grands desseins pour la rédemption de l’homme.
 Permets-moi de m’arrêter maintenant car je suis fatiguée.
 
-Ta grand-mère. *(Anne Rollins)*
+Ta grand-mère. *[Anne Rollins]*

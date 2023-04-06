@@ -1,13 +1,13 @@
 ---
-title: "M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme."
+title: "M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme"
 menu_title: ""
-description: "M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme."
+description: "M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True
 weight:
 ---
-### M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme.
+### M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme
 
 Hélène Padgett - reçu par James Padgett le 20 Décembre 1914, Washington, USA.
 
@@ -19,7 +19,7 @@ Tu ne dois pas te laisser emporter par l’état d’esprit de ces deux dernièr
 
 Tu as eu une journée très agréable dans ton association avec ces gens qui croient au spiritualisme et je suis heureuse que tu aies passé la journée avec le Juge Syrick et le Colonel Woods. C’est un très grand croyant dans le spiritualisme, mais il ne connaît rien de son côté spirituel. Il pense que la connaissance que ses amis spirituels communiquent avec lui est suffisante ou qu’il peut s’en satisfaire. Ses amis étaient avec toi aujourd’hui, ils ne sont pas des sphères supérieures mais ils sont de très bons esprits et semblent être très heureux dans leur condition. Il te disait la vérité lorsqu’il a dit que Jésus est venu à lui et a parlé aux séances de Mme Miller, car ta grand-mère m’a dit qu’elle le savait car Jésus lui avait dit qu’il essaierait de le faire. Bien sûr, je n’en sais rien, mais si ta grand-mère dit que c’est le cas, tu dois la croire. Elle dit que Jésus ne s’est pas montré ou n’a pas tenté de se matérialiser lors de ces séances, car il n’a jamais encore essayé de le faire, car il n’est pas enclin à se soumettre à l’influence terrestre. Ce n’est pas lui qui fera cela, car il est trop saint pour reprendre la forme de chair, comme je te l’ai déjà dit. Il accomplit maintenant son travail uniquement en influençant les hommes en leur enseignant les vérités de Dieu, au moyen de ses suggestions et de ses messages à travers d’autres esprits qui l’aident à le faire.
 
-Non, pas du tout. Il ne s’est pas matérialisé suffisamment pour cela, la photographie qu’il a était celle d’un esprit qui s’est fait passer pour le Maître, car il ne se laissera pas photographier par quiconque sur terre, ni même ici. <sup id="a1">[1](#f1)</sup> Il est trop pur dans sa nature spirituelle pour devenir un objet de photographie ou même de clairvoyance, car il est un esprit qui ne paraît à l’homme que comme je te l’ai dit. Ne crois donc pas qu’il ne soit jamais apparu à un homme, que ce soit par la photographie ou par la clairvoyance. Il viendra à toi de la manière dont il te l’a dit et écrira ses messages, mais d’aucune autre manière. Je sais seulement ce que ta grand-mère en dit et j’écris à sa dictée. Elle dit que Jésus lui a dit qu’il n’apparaîtra plus à l’humanité que comme un maître par ses écrits ou par ceux de ses esprits. Ne crois donc pas un esprit qui dit qu’il a vu Jésus se matérialiser, car il ne l’a pas fait.
+Non, pas du tout. Il ne s’est pas matérialisé suffisamment pour cela, la photographie qu’il a était celle d’un esprit qui s’est fait passer pour le Maître, car il ne se laissera pas photographier par quiconque sur terre, ni même ici <sup id="a1">[1](#f1)</sup>. Il est trop pur dans sa nature spirituelle pour devenir un objet de photographie ou même de clairvoyance, car il est un esprit qui ne paraît à l’homme que comme je te l’ai dit. Ne crois donc pas qu’il ne soit jamais apparu à un homme, que ce soit par la photographie ou par la clairvoyance. Il viendra à toi de la manière dont il te l’a dit et écrira ses messages, mais d’aucune autre manière. Je sais seulement ce que ta grand-mère en dit et j’écris à sa dictée. Elle dit que Jésus lui a dit qu’il n’apparaîtra plus à l’humanité que comme un maître par ses écrits ou par ceux de ses esprits. Ne crois donc pas un esprit qui dit qu’il a vu Jésus se matérialiser, car il ne l’a pas fait.
 
 C’était son apparence dans un rêve seulement. Il était là, mais pas en tant qu’esprit matérialisé. Tu l’as simplement vu dans ton rêve, et il n’était même pas dans la forme spirituelle avec toi ; c’était le résultat de ta propre conscience travaillant sur ton esprit. Tu sentais que tu n’avais pas fait ce que tu savais qu’il approuvait, et ta propre conscience t’a pris à partie pour cela et t’a fait rêver comme tu l’as fait.
 
@@ -35,7 +35,7 @@ D’autres esprits n’ont été attirés que par leur désir de faire connaîtr
 
 Oui, la mère du Juge Syrick ainsi que son âme-sœur étaient là. Elles voulaient lui exprimer leur amour et combien elles apprécient qu’il pense davantage à elles et aux choses spirituelles. Il ne vivra pas très longtemps, car il souffre de la maladie de Bright (néphrite aiguë ou chronique) et doit être très prudent.
 
-Je ne sais rien de ce qu’un esprit a peut lui dire, mais sa mère m’informe qu’elle sait qu’il ne vivra pas très longtemps, même si son ami spirituel lui a dit qu’il allait vivre jusqu’à ses 70 ans. Il ne doit pas le croire, sinon il découvrira soudain que sa vie n’est pas faite pour qu’il vive comme un homme de soixante-dix ans. Il ne doit pas penser qu’il va vivre jusqu’à cet âge, car il découvrira soudain que sa vie ne doit pas être prolongée jusqu’à cet âge. Je veux dire qu’il mourra soudainement et réalisera que ses informations n’étaient pas correctes. *(Le juge Syrick est mort subitement peu après que ce message ait été donné.<sup id="a2">[2](#f2)</sup>)*
+Je ne sais rien de ce qu’un esprit a peut lui dire, mais sa mère m’informe qu’elle sait qu’il ne vivra pas très longtemps, même si son ami spirituel lui a dit qu’il allait vivre jusqu’à ses 70 ans. Il ne doit pas le croire, sinon il découvrira soudain que sa vie n’est pas faite pour qu’il vive comme un homme de soixante-dix ans. Il ne doit pas penser qu’il va vivre jusqu’à cet âge, car il découvrira soudain que sa vie ne doit pas être prolongée jusqu’à cet âge. Je veux dire qu’il mourra soudainement et réalisera que ses informations n’étaient pas correctes. *[Le juge Syrick est mort subitement peu après que ce message ait été donné <sup id="a2">[2](#f2)</sup>.]*
 
 Non, ne le fais pas, car cela lui ferait du mal.
 
