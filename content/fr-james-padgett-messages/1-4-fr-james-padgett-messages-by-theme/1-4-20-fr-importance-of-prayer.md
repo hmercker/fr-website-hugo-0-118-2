@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L'importance de la Prière
+### L'Importance de la Prière
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

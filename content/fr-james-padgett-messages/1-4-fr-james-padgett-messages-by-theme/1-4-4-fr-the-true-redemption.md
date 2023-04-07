@@ -1,13 +1,13 @@
 ---
-title: "La Véritable Rédemption"
+title: "La véritable Rédemption"
 menu_title: ""
-description: "La Véritable Rédemption"
+description: "La véritable Rédemption"
 date: 2023-03-01 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### La Véritable Rédemption
+### La véritable Rédemption
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

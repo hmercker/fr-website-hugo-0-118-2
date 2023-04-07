@@ -1,13 +1,13 @@
 ---
-title: "Les Vérités concernant l'Ancien Testament"
+title: "Les vérités concernant l'Ancien Testament"
 menu_title: ""
-description: "Les Vérités concernant l'Ancien Testament"
+description: "Les vérités concernant l'Ancien Testament"
 date: 2023-03-01 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### Les Vérités concernant l'Ancien Testament
+### Les vérités concernant l'Ancien Testament
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

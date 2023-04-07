@@ -1,13 +1,13 @@
 ---
-title: "Les Vérités concertant le Nouveau Testament"
+title: "Les vérités concertant le Nouveau Testament"
 menu_title: ""
-description: "Les Vérités concertant le Nouveau Testament"
+description: "Les vérités concertant le Nouveau Testament"
 date: 2023-03-01 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### Les Vérités concertant le Nouveau Testament
+### Les vérités concertant le Nouveau Testament
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
