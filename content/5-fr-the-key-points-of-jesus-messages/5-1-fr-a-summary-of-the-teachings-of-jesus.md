@@ -4,21 +4,20 @@ menu_title: "Un résumé des enseignements de Jésus"
 description: ""
 date: 2020-08-01 06:25:48+00:80
 draft: False
-hidden: False
-weight: 240
+hidden: True
+weight:
 ---
-## Un résumé des enseignements de Jésus 
+## Un résumé des enseignements de Jésus
 
-![](/fr-the-key-points-of-jesus-messages/fr-divine-love-spirits-2-600px.jpg)
+![title](/5-fr-the-key-points-of-jesus-messages/fr-divine-love-spirits-2-600px.jpg)
 
-Ces enseignements ne sont pas complexes, mais lorsqu’ils sont lus avec une solide expérience du Christianisme orthodoxe, il y a tellement de doctrine chrétienne qui est remise en question, qu’il peut être difficile d’avoir une perspective globale. Et on ne peut pas vraiment juger une théologie sans avoir une vue d’ensemble. Le regretté Révérend R. B. Caddle a donné une série de conférences qui ont été synthétisées dans le présent document. Bien qu’il soit encore assez long, il a l’avantage de donner à chaque sujet une certaine importance. Une approche plus courte pourrait être [de lire ce que les Chrétiens de l’Amour Divin croient](***********************), car il est presque envisageable de l’exposer sur une page.
-La brochure originale complète, en anglais, peut être téléchargée sous forme de livret électronique.
+Ces enseignements ne sont pas complexes, mais lorsqu’ils sont lus avec une solide expérience du Christianisme orthodoxe, il y a tellement de doctrine chrétienne qui est remise en question, qu’il peut être difficile d’avoir une perspective globale. Et on ne peut pas vraiment juger une théologie sans avoir une vue d’ensemble. Le regretté Révérend R. B. Caddle a donné une série de conférences qui ont été synthétisées dans le présent document. Bien qu’il soit encore assez long, il a l’avantage de donner à chaque sujet une certaine importance. Une approche plus courte pourrait être de lire ce que les Chrétiens de l’Amour Divin croient, car il est presque envisageable de l’exposer sur une page.
 
-### LA VIE ET LES ENSEIGNEMENTS DE JÉSUS DE NAZARETH
+### La Vie et les Enseignements de Jésus De Nazareth
 
 D’après une conférence du Révérend R. B. Caddle de la Barbade. (Maintenant décédé).
 
-#### IL DESCENDAIT DE LA MAISON DE DAVID.
+#### Il Descendait de la Maison de David
 
 Jésus de Nazareth, frère aîné bien-aimé et chef divin pour beaucoup, est né Jeshua ben Yusef. Lorsqu’il est rendu en langue anglaise, son nom devient Josué, le fils de Joseph.
 Il est né dans le pays méditerranéen oriental de la Palestine au cours du règne de l’empereur César Auguste, qui a dirigé l’empire romain de 29 avant JC à 14 de notre ère. Au moment de sa naissance, un roi despote nommé Hérode avait été nommé par le gouvernement romain et y occupait le trône en Palestine.
@@ -37,7 +36,7 @@ La lumière de l’étoile semblait pointer vers l’ouest. Cela a déterminé l
 
 Il est intéressant de noter que l’étoile – l’étoile de Bethléem, comme on l’appelle aujourd’hui (aujourd’hui, une telle étoile serait appelée une supernova.) – qui avait d’abord attiré l’attention des mages avait disparu du ciel oriental plusieurs semaines après son apparition, et n’avait été vue du tout dans le ciel de la Judée ou Israël.
 
-#### LA FUITE EN EGYPTE ET LE RETOUR EN GALILEE.
+#### La Fuite en Egypte et le Retour en Galilee
 
 Au moment de la naissance de Jésus, les conditions dans le pays étaient instables et dangereuses. Le roi Hérode était au pire de son règne et de nombreuses personnes innocentes, adultes et enfants, ont été tuées sans raison. Lorsqu’il entendit le contenu des prophéties des Écritures hébraïques sur la naissance d’un Messie, un « roi des Juifs », Hérode détermina la date de l’apparition de l’étoile brillante et en conclut que les enfants Hébreux de Bethléem qui devaient être tués devaient être âgés de deux années ou moins.
 Pour échapper à ces conditions mettant leur vie en danger, Joseph et Marie, accompagnés de leur petit garçon, partirent pour l’Égypte, et en particulier pour la ville d’Héliopolis, près du Caire. Là, ils sont restés chez un parent qui les a accueillis et les a aidés à s’installer dans le nouveau pays.
@@ -57,7 +56,7 @@ Contrairement à la croyance populaire, Marie et Joseph n’ont jamais soupçonn
 
 Tout au long de son enfance et adolescence, en raison de son désir constant d’être en communion avec Dieu, son âme a subi une transformation continue de sa nature en la Divinité du Père. Il s’est rendu compte que cette transformation opérait à mesure qu’il devenait adulte et qu’il jouissait de communions de plus en plus étroites avec le Père et d’une relation de plus en plus étroite avec Lui.
 
-#### SES ANNEES DE FORMATION ONT ETE CONSACREES A L’ETUDE DES ECRITURES ET A L’ACCUEIL DE L’AMOUR DIVIN DU PERE.
+#### Ses annees de Formation ont ete Consacrees a L'Etude des Ecritures et a L’Accueil de L’Amour Divin du Pere
 
 Par l’intermédiaire de M. Padgett, la mère de Jésus écrivit que dans sa jeunesse, Jésus était considéré comme sérieux et studieux, un homme qui buvait avec avidité à la source des Écritures et du Talmud, montrant continuellement son amour pour sa famille en travaillant dur pour eux et en aidant Joseph dans son métier de menuisier. Il était bon et doux, mais possédait, alors qu’il devenait adulte, un certain mysticisme que ses parents avaient de la difficulté à comprendre.
 
@@ -72,5 +71,6 @@ Déjà spirituellement pur et, maintenant, en possession abondante de l’Essenc
 
 A travers son second instrument mortel, le Daniel G. Samuels, Jésus nous a fourni une explication complète de la transformation de son âme en la Nature Divine du Père. Ses sermons sur l’Ancien Testament de la Bible, écrits par le Dr Samuels, expliquent les prophéties qui prédisent le Messie à venir, ainsi que la redistribution de l’Amour Divin à l’homme, relatant le progrès spirituel fait par son peuple au cours des siècles qui permit au Père, en son temps programmé, d’accorder à nouveau ce Grand Don.
 
-**Auteur** | **Titre du message** | **Date du message**
----|---|---
+| **Plus d'informations**
+|---
+| [Un résumé des enseignements de jésus - vidéo](https://youtu.be/WrFu_fGPkK4) |

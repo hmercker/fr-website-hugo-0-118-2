@@ -29,7 +29,7 @@ Augustin | [Marcher sur le chemin Divin](/fr-contemporary-messages/fr-contempora
 Marie | [Avancez dans cette rivière d’Amour et lâchez prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-1-af-mary/) | 19 Mai 2014
 Agnès | [Ne pas ignorer l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-2-jr-agnes/) | 19 Mai 2014
 Isaïe | [Vous aurez besoin les uns des autres dans les temps à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-3-af-isaiah/) | 19 Mai 2014
-Jésus | [ Vous faites partie de mon troupeau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-4-af-jesus/) | 19 Mai 2014
+Jésus | [Vous faites partie de mon troupeau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-4-af-jesus/) | 19 Mai 2014
 Ezéchiel | [Heureux ceux qui sont prêts à aimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-1-af-ezekiel/) | 20 Mai 2014
 Goldie | [Jésus vous veut pour un rayon de soleil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-2-af-goldie/) | 20 Mai 2014
 James Padgett | [Un siècle s’est écoulé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-3-af-james-padgett/) | 20 Mai 2014

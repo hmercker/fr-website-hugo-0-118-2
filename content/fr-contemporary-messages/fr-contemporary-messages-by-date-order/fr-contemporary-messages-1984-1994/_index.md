@@ -34,7 +34,7 @@ Jésus | [Sur la loi du progrès, du hangemeny et de la Croissance](/fr-contempo
 Jésus | [L'influence des mauavis esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-25-1-dl-jesus/) | 25 Juin 1987
 Jésus | [Sur la guérison, la loi changemenyt et la croissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-7-2-1-dl-jesus/) | 2 Juillet 1987
 Jésus | [Le grand réseau de communication.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-7-9-1-dl-jesus/) | 9 Juillet 1987
-"Jésus | [ 	Assistance parmi les esprits dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-7-27-1-dl-jesus/) | 27 Juillet 1987"
+Jésus | [Assistance parmi les esprits dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-7-27-1-dl-jesus/) | 27 Juillet 1987
 Jésus | [Foi et guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-8-18-1-dl-jesus/) | 18 Août 1987
 Jésus | [Écriture automatique et impression de pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-8-31-1-dl-jesus/) | 31 Août 1987
 Jésus | [Qui est l'auteur de "Nouveaux enseignements pour une humanité en éveil" ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-9-9-1-dl-jesus/) | 9 Septembre 1987

@@ -35,7 +35,7 @@ Jésus | [La dévotion (2ème partie)](/fr-contemporary-messages/fr-contemporary
 Jacques | [Libérer la volonté propre et embrasser la volonté parfaite de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-27-1-af-james/) | 27 Mars 2017
 Jacques | [Les facultés de l’âme comparées à un objectif d’appareil photo](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-4-10-1-af-james/) | 10 Avril 2017
 Augustin | [Choisissez d’embrasser la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-4-20-1-af-augustine/) | 20 Avril 2017
-Jésus | [ Jésus parle de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/) | 11 Mai 2017
+Jésus | [Jésus parle de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/) | 11 Mai 2017
 Yogananda | [Accepter la diversité que Dieu a créée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-13-1-af-yogananda/) | 13 Mai 2017
 St François d'Assise | [Le beau jardin de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-13-2-af-st-francis-of-assisi/) | 13 Mai 2017
 Seretta Kem | [Les Anges soutiennent notre choix pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-18-1-af-seretta-kem/) | 18 Mai 2017
