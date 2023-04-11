@@ -13,7 +13,7 @@ weight: 370
 
 Les Chrétiens orthodoxes qui arrivent sur cette page web pensent peut-être que le mot "ciel" est le mot souvent utilisé dans la Bible pour désigner le Royaume de Dieu. Ce n'est pas le cas. Ce diagramme peut aider à illustrer la construction de cet aspect des royaumes qui se trouvent au-delà de ce royaume matériel
 
-![](/fr-life-after-death/fr-the-heavens-2022-1.jpg)
+![title](/fr-life-after-death/fr-the-heavens-2022-1.jpg)
 
 Ici, sur ce site, nous utilisons souvent le mot "Cieux Célestes" pour désigner ce que Jésus a appelé "Le Royaume de Dieu". Et c'est là que la confusion commence, car nous constatons qu'il existe toute une série de "cieux" inférieurs au "Royaume de Dieu". Ces cieux inférieurs, nous les avons appelés sur ce site « Sphères d'Esprit » ou « Cieux Spirituels » (mais qui ne sont pas étiquetés sur le diagramme autrement que comme une sphère), et ils sont montrés dans le diagramme numérotés de 1 à 7. C’est cette division qui est retenue par la plupart des auteurs de contenus spiritualistes.
 
@@ -29,13 +29,13 @@ Cette distinction entre les Cieux Spirituels et le Royaume de Dieu est la cause 
 
 Cependant, ceux qui suivent le chemin de la renaissance de l'âme par l'esprit progressent sur le côté droit du diagramme, à travers les sphères 1, 3, 5 et 7. Ceux qui ne le font pas, et qui peuvent par exemple être des intellectuels qui se désintéressent d'un Créateur, ou qui ne croient pas en Lui, ou qui croient en un "dieu" non personnel, peuvent encore progresser à partir des sphères 1, 2, 4 et 6. Ils peuvent également être religieux, mais ont choisi de ne pas suivre la voie de l'Amour Divin, soit délibérément, soit par ignorance. Ils ne progressent pas plus haut que la sphère 6, mais ils sont néanmoins très heureux, et ils sont satisfaits de leur sort.
 
-Les Cieux Spirituels sont tout aussi physiques que notre monde. En fait, il nous est dit que 80 % de toute la matière réside dans les mondes des esprits, invisibles pour les mortels. Les cieux sont soigneusement structurés de manière à ce que les semblables vivent avec les semblables - si ce n'était pas le cas, il en résulterait une dysharmonie. Pour y parvenir, il faut un système complexe de progression, de sorte que les âmes peuvent progresser et progressent effectivement, en devenant toujours plus raffinées. En conséquence, il semble y avoir de nombreuses sphères et sous-sphères, avec des plans à l'intérieur de celles-ci, dans les cieux. Il est vrai qu'il existe des sous-sphères où ne vivent que des Catholiques, des Mormons, des Juifs, des Musulmans, etc. et il est certain qu'il existe aussi des groupements culturels, par opposition aux groupements religieux. Cependant, les cieux sont réellement divisés en deux sections. 
+Les Cieux Spirituels sont tout aussi physiques que notre monde. En fait, il nous est dit que 80 % de toute la matière réside dans les mondes des esprits, invisibles pour les mortels. Les cieux sont soigneusement structurés de manière à ce que les semblables vivent avec les semblables - si ce n'était pas le cas, il en résulterait une dysharmonie. Pour y parvenir, il faut un système complexe de progression, de sorte que les âmes peuvent progresser et progressent effectivement, en devenant toujours plus raffinées. En conséquence, il semble y avoir de nombreuses sphères et sous-sphères, avec des plans à l'intérieur de celles-ci, dans les cieux. Il est vrai qu'il existe des sous-sphères où ne vivent que des Catholiques, des Mormons, des Juifs, des Musulmans, etc. et il est certain qu'il existe aussi des groupements culturels, par opposition aux groupements religieux. Cependant, les cieux sont réellement divisés en deux sections.
 
 D’une part il y a le Ciel des Esprits - qui culmine dans le Ciel biblique - la sixième Sphère. Il nous est dit que les âmes de cette sphère sont aussi parfaites que lorsqu'elles ont été créées, mais qu'elles ne progressent pas plus loin. Elles ne peuvent pas voir Dieu, car elles n'ont pas un grand développement de leur âme, mais elles sont, à tous égards, de nouveau parfaites. Beaucoup font preuve d’une grande intelligence.
 
 D’autre part, il y a les Cieux Célestes qui se trouvent au-dessus de ces Sphères d'Esprit. (Ou peut-être encore une autre dimension au-delà) Seules les âmes qui ont été transformées par l'Amour Divin (apporté par l’Esprit Saint) peuvent entrer dans ces Sphères. C'est le Royaume de Dieu dont parle la Bible, et en effet, comme cela y est exposé, il faut renaître par l'esprit pour entrer dans ce Royaume. Au fur et à mesure que les âmes progressent dans les Sphères Célestes, leurs perceptions de l'âme sont améliorées jusqu'à ce qu'elles soient capables de percevoir Dieu, à travers leurs perceptions de l'âme.
 
-Voici maintenant les messages qui expliquent ces cieux plus en détail. 
+Voici maintenant les messages qui expliquent ces cieux plus en détail.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

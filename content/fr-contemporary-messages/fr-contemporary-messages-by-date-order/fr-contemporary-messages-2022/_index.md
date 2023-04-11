@@ -31,7 +31,7 @@ Confucius | [Partager nos dons de guérison](/fr-contemporary-messages/fr-contem
 Professeur Salyards | [L’Amour Divin est la plus grande force de l’univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-26-1-af-professor-salyards/) | 26 Janvier 2022
 Claire d'Assise | [L’Amour de Dieu met une chanson dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-27-1-jw-clare-of-assisi/) | 27 Janvier 2022
 Professeur Salyards | [Votre attention et votre concentration sont nécessaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-29-1-af-professor-salyards/) | 29 Janvier 2022
-
+Orion | [Le réchauffement des âmes de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-29-2-af-orion/) | 29 Janvier 2022
 Care Derby Walsh | [C’est une question de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-31-1-jw-care-derby-walsh/) | 31 Janvier 2022
 St François d'Assise | [L’importance de nos cercles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-1-1-af-st-francis-of-assisi/) | 1 Février 2022
 Robert Hugh Benson | [La Septième Sphère est la porte d’entrée des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-3-1-jw-robert-hugh-benson/) | 3 Février 2022

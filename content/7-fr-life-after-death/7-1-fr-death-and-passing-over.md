@@ -7,11 +7,11 @@ draft: False
 hidden: False
 weight: 350
 ---
-## La mort et la transition vers le monde Spirituel 
+## La mort et la transition vers le monde Spirituel
 
 ### Où va l’âme après la mort
 
-Cette section traite de la mort et de la période initiale d'orientation qui s'ensuit. 
+Cette section traite de la mort et de la période initiale d'orientation qui s'ensuit.
 
 [Jean le décrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-29-2-jep-st-john/) comme suit dans un message :
 
@@ -37,3 +37,22 @@ En guise d'introduction, nous te conseillons de lire [le résumé du Dr Stone](*
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Hélène Padgett | [L’expérience de Mme Hélène Padgett en quittant son corps et en allant dans le monde des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-9-1-jep-helen-padgett/) | 9 Décembre 1914
+Professeur Salyards | [Le professeur Salyards décrit son entrée dans le monde des esprits et sa progression spirituelle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-18-1-jep-joseph-salyards/) | 18 Décembre 1914
+Hélène Padgett | [Hélène raconte le décès soudain d’une amie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-27-2-jep-helen-padgett/) | 27 Janvier 1915
+Professeur Salyards | [Expériences](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-25-1-jep-joseph-salyards/) | 25 Février 1915
+Professeur Salyards | [Lois du monde spirituel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-13-1-jep-joseph-salyards/) | 13 Avril 1915
+Professeur Salyards | [Lois du monde spirituel (Suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-3-1-jep-joseph-salyards/) | 3 Mai 1915
+Juge Syrick | [Le Juge Syrick confirme ce que M. Padgett et M. Stone lui ont dit à propos du monde spirituel, témoigne sur sa nouvelle vie et les progrès accomplis](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-6-1-jep-judge-syrick/) | 6 Mai 1915
+John Comeys | [L’expérience des esprits à leur entrée dans le monde spirituel et leur progression](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-1-jep-john-b-comeys/) | 22 Décembre 1915
+Rev Fontaine | [Expérience d’un prêtre Orthodoxe lors de son passage dans le monde spirituel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-1-1-jep-rev-fontaine/) | 1 Juillet 1917
+William Woodward | [Un ami de M. Padgett écrit que lors de sa vie sur terre, il croyait en la Nouvelle Naissance, mais qu’il l’a trouvée très différente en entrant dans le monde des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-12-18-1-jep-william-woodward/) | 18 Décembre 1917
+Nita Padgett | [Nita décrit ses expériences lors de passage dans le monde des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-25-1-jep-nita-padgett/) | 25 Mai 1920
+Hélène Padgett | [Hélène Padgett explique le soudain passage de leur fille, Nita, suite à une grave opération et sur les énormes progrès qu’elle fait dans le monde des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-6-20-1-jep-helen-padgett/) | 20 Juin 1918
+Francis Bacon | [La continuité de la vie après la mort](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-5-26-1-jep-francis-bacon/) | 26 Mai 1919
+Judas | [La mort de Judas et son passage dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-5-1-hr-judas/) | 5 Septembre 2001
+Judas | [Diverses questions concernant le passage vers l’au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-9-1-hr-judas/) | 9 Septembre 2001
+Marie | [Où se trouve le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-31-1-ar-mary/) | 31 Octobre 2004
+Amy | [La traversée : L’esprit nouvellement arrivé.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-2-1-ks-amy/) | 2 Janvier 2006
+Bill Reilly | [Un message de Bill Reilly](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-20-1-dl-bill-reilly/) | 20 Juillet 2009
+St Matthieu | [La mort peut être une transition joyeuse vers l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-19-1-af-st-matthew/) | 19 Juillet 2018

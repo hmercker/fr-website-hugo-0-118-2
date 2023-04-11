@@ -115,7 +115,7 @@ Jésus | [Cette flamme d’amour nettoiera tous les mondes](/fr-contemporary-mes
 Barbara Davies | [Désir de servir et d’être dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-1-af-barbara-davies/) | 6 Avril 2021
 Marie | [Consacrez-vous à Dieu, mes bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-2-af-mary/) | 6 Avril 2021
 Claire d'Assise | [Immunité spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-8-1-jw-clare-of-assisi/) | 8 Avril 2021
-Jésus | [Changements Terrestres – Suivi des 20 Leçons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-9-1-af-jesus/) | 9 Avril 2021
+Jésus | [Leçon 1 : Changements Terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-9-1-af-jesus/) | 9 Avril 2021
 St Matthieu | [Mon engagement envers vous est absolu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-10-1-af-st-matthew/) | 10 Avril 2021
 Jésus | [Déposez votre manteau de protection et venez nu à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-11-1-af-jesus/) | 11 Avril 2021
 Hafiz | [Cette Attente, ce Désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-11-2-jw-hafiz/) | 11 Avril 2021

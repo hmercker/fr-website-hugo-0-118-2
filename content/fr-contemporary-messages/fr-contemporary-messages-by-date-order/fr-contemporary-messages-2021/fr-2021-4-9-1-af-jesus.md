@@ -1,13 +1,13 @@
 ---
-title: "Changements Terrestres – Suivi des 20 Leçons"
+title: "Leçon 1 : Changements Terrestres"
 menu_title: ""
-description: "Changements Terrestres – Suivi des 20 Leçons"
+description: "Leçon 1 : Changements Terrestres"
 date: 2022-06-01 06:00:01+00:1462
 draft: False
 hidden: True
 weight:
 ---
-### Changements Terrestres – Suivi des 20 Leçons
+### Leçon 1 : Changements Terrestres
 
 Jésus - reçu par Al Fike le 9 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 

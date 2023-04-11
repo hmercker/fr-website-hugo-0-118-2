@@ -7,7 +7,7 @@ draft: False
 hidden: False
 weight: 390
 ---
-##  Que se passe-t-il durant notre sommeil ?
+## Que se passe-t-il durant notre sommeil ?
 
-**Author** | **Titel der Botschaft** | **Datum der Botschaft**   
+**Author** | **Titel der Botschaft** | **Datum der Botschaft**
 ---|---|---

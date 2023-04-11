@@ -23,12 +23,12 @@ En attendant, je vous propose de découvrir en même temps que nous les messages
 
 Ces messages ont été communiqués en plusieurs parties.
 
-1. [Messages de Jésus au Monde 1ère partie - 1er Octobre 2020 au 25 Mars 2021](/fr-jesus-of-nazareth-messages/fr-messages-of-jesus-to-the-world-part-1/)
-2. [Messages de Jésus au Monde 2ème partie](/fr-jesus-of-nazareth-messages/fr-messages-of-jesus-to-the-world-part-2/)
-3. [Messages de Jésus au Monde 3ème partie](/fr-jesus-of-nazareth-messages/fr-messages-of-jesus-to-the-world-part-3/)
+1. [Messages de Jésus au Monde 1ère partie - 1er Octobre 2020 au 25 Mars 2021](/4-fr-jesus-of-nazareth-messages/4-4-1-fr-messages-of-jesus-to-the-world-part-1/)
+2. [Messages de Jésus au Monde 2ème partie - 9 Avril 2021 au 15 Décembre 2021](/4-fr-jesus-of-nazareth-messages/4-4-2-fr-messages-of-jesus-to-the-world-part-2/)
+3. [Messages de Jésus au Monde 3ème partie - 21 Juin 2022 au 26 Août 2022](/4-fr-jesus-of-nazareth-messages/4-4-3-fr-messages-of-jesus-to-the-world-part-3/)
 
-#### Le 1er Octobre 2020 marque le début d'une collaboration spéciale entre Albert Fike et Jésus
+## Le 1er Octobre 2020 marque le début d'une collaboration spéciale entre Albert Fike et Jésus
 
-![](/fr-jesus-of-nazareth-messages/fr-picture-of-jeanne-al-by-dennis_small.jpg)
+![title](/fr-jesus-of-nazareth-messages/fr-picture-of-jeanne-al-by-dennis_small.jpg)
 
 Albert et Jeanne Fike vivent au Canada dans le petit village côtier de Gibsons en Colombie Britannique. Albert est jardinier de profession mais est maintenant à la retraite tout comme Jeanne qui a fait sa carrière en tant qu’activiste pour les aides aux familles en situation précaire dans sa province natale. Depuis une décennie, ils ont dédié leur vie à la propagation du message de l’Amour Divin sur Terre. Albert Fike est particulierement doué pour la réception de messages en provenance des esprits célestes . Ils oeuvrent avec d’autres au sein d’une fondation non religieuse (divinelovesancturary.com) pour la dissémination des enseignements spirituels ainsi qu’à l’établissement de cercles et portail de lumiere pour supporter l’éveil de l’humanité et la transition vers un monde plus aimant.
