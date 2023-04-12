@@ -16,12 +16,12 @@ Les 178 messages communiqués par Judas à H ont été complétés par deux autr
 
 Voici maintenant une sélection de certains sujets traités dans ces messages. Ils appartiennent aux catégories suivantes :
 
-1. [Les années perdues de Jésus](/fr-judas-of-kerioth-messages/fr-the-lost-years-of-jesus/)
-2. [Le ministère public de Jésus](/fr-judas-of-kerioth-messages/fr-the-public-ministry-of-jesus/)
-3. [Les sphères du monde spirituel (La vie après la mort)](/fr-judas-of-kerioth-messages/fr-the-spiritual-spheres-life-after-death/)
-4. [Généralités sur la spiritualité](/fr-judas-of-kerioth-messages/fr-messages-on-spirituality-in-general/)
-5. [Commentaires sur les défis de la médiumnité](/fr-judas-of-kerioth-messages/fr-comments-on-mediumship/)
-6. [Portraits des apôtres](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/)
+1. [Les années perdues de Jésus](/3-fr-judas-of-kerioth-messages/3-3-fr-the-lost-years-of-jesus/)
+2. [Le ministère public de Jésus](/3-fr-judas-of-kerioth-messages/3-4-fr-the-public-ministry-of-jesus/)
+3. [Les sphères du monde spirituel (La vie après la mort)](/3-fr-judas-of-kerioth-messages/3-5-fr-the-spiritual-spheres-life-after-death/)
+4. [Généralités sur la spiritualité](/3-fr-judas-of-kerioth-messages/3-6-fr-messages-on-spirituality-in-general/)
+5. [Commentaires sur les défis de la médiumnité](/3-fr-judas-of-kerioth-messages/3-7-fr-comments-on-mediumship/)
+6. [Portraits des apôtres](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/)
 
 Dans tous ces messages, le droit d'auteur a été revendiqué par Geoff Cutler (new-birth.net) en 2013. Il a pu revendiquer le droit d'auteur car un travail considérable a été effectué en 2012 et 2013 pour rééditer (en anglais) tous ces messages. Nous sommes donc infiniment remerciant envers Geoff Cutler pour l'énorme travail effectué afin d'effectuer la publication de ces messages en anglais.
 

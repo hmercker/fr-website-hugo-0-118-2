@@ -4,8 +4,8 @@ menu_title: ""
 description: "Le témoignage du Dr. Leslie Rippon Stone"
 date: 2022-07-10 06:25:48+00:80
 draft: False
-hidden: True
-weight:
+hidden: False
+weight: 95
 ---
 ### Le témoignage du Dr. Leslie Ribbon Stone
 

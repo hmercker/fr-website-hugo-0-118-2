@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight: 10
 ---
-# Messages de James Padgett
+## Messages de James Padgett
 
 1. [Qui était James Padgett](/fr-james-padgett-messages/1-1-fr-brief-presentation-of-james-padgett/)
 2. [Les messages de James Padgett selon leur date de publication](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/)
@@ -21,4 +21,4 @@ weight: 10
 10. [Que disent les messages de James Padgett à propos de la Bible ?](/fr-james-padgett-messages/1-10-fr-what-do-these-messages-say-about-the-bible/)
 11. [Eglises basées sur les messages de James Padgett](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/)
 12. [Continuité des messages de James Padgett](/fr-james-padgett-messages/1-12-fr-continuity-of-james-padgetts-messages/)
-13. [La grande expérience](/fr-james-padgett-messages/1-13-fr-the-great-experiment/)
+13. [Le témoignage du Dr Stone](/fr-james-padgett-messages/fr-the-testimony-of-dr-leslie-stone/)
