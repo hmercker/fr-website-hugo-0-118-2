@@ -7,7 +7,7 @@ draft: False
 hidden: False
 weight: 20
 ---
-# Messages du Dr Samuels
+## Messages du Dr Samuels
 
 1. [Un nouveau regard sur Jésus de Nazareth](/fr-samuels-messages/fr-a-new-look-at-jesus-of-nazareth/)
 2. [Révélations](/fr-samuels-messages/fr-revelations/)
