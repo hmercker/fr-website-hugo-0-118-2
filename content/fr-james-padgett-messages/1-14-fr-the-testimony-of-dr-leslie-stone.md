@@ -5,7 +5,7 @@ description: "Le témoignage du Dr. Leslie Rippon Stone"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: False
-weight: 95
+weight: 97
 ---
 ### Le témoignage du Dr. Leslie Ribbon Stone
 

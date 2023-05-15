@@ -21,4 +21,5 @@ weight: 10
 10. [Que disent les messages de James Padgett à propos de la Bible ?](/fr-james-padgett-messages/1-10-fr-what-do-these-messages-say-about-the-bible/)
 11. [Eglises basées sur les messages de James Padgett](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/)
 12. [Continuité des messages de James Padgett](/fr-james-padgett-messages/1-12-fr-continuity-of-james-padgetts-messages/)
-13. [Le témoignage du Dr Stone](/fr-james-padgett-messages/fr-the-testimony-of-dr-leslie-stone/)
+13. [La grande expérience](/fr-james-padgett-messages/1-13-fr-the-great-experiment/)
+14. [Le témoignage du Dr Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/)

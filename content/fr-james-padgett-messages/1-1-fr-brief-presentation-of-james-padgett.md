@@ -33,7 +33,7 @@ James Padgett n’a jamais pratiqué sa médiumnité comme un moyen de gagner de
 
 Ainsi, il a décidé de garder ses écrits privés, ne les révélant qu’à ses amis les plus fiables – Dr Leslie Stone, Eugène Morgan, Rollison Colburn et Dr Goerger. Il a fallu attendre le décès de James Padgett, neuf années plus tard, pour que ses écrits puissent être rendus publiques sans conséquences. La tâche de les publier fut confiée à son plus proche ami, le Dr Stone. Produire le premier livre des écrits fut une entreprise considérable car dans le style d’écriture automatique de James Padgett, les mots sont reliés entre eux sans pauses ni ponctuation. Néanmoins, le Dr Stone, entouré d'une petite équipe, a réalisé le travail prodigieux de transcrire et éditer les écrits de James Padgett. Aujourd’hui il existe quatre importants volumes de messages qui ont été publiés en 1941 pour le premier volume, en 1950 pour le deuxième volume , en 1969 pour le troisième volume et en 1972 pour le 4ème volume. Ces 4 différents volumes des écrits originaux de James Padgett ont fait respectivement fait l'objet d'une traduction et publication, en français,  entre les années 2018 et 2021.
 
-1. [Les débuts de la médiumnité de James Padgett](/fr-james-padgett-messages/1-1-1-fr-james-padgetts-early-mediumship/)
+1. [Témoignage de James Padgett ](/fr-james-padgett-messages/1-1-1-fr-testimony-of-james-padgett/)
 2. [Les détails de la vie de James Padgett](/fr-james-padgett-messages/1-1-2-fr-details-of-james-padgetts-life/)
 3. [Les détails de la vie de Hélène Padgett](/fr-james-padgett-messages/1-1-3-fr-details-of-the-life-of-helen-padgett/)
 4. [Les informations publiques à propos de James Padgett](/fr-james-padgett-messages/1-1-4-fr-public-information-about-james-padgett/)
