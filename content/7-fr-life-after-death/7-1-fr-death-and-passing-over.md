@@ -1,7 +1,7 @@
 ---
 title: "La mort et la transition vers le monde Spirituel"
 menu_title: "La mort et la transition vers le monde Spirituel"
-description: ""
+description: "La mort et la transition vers le monde Spirituel"
 date: 2020-07-03 02:18:11+11:00
 draft: False
 hidden: False

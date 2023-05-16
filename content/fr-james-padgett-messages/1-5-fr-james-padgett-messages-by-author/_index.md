@@ -13,25 +13,27 @@ La découverte du classement des messages par auteur est très intéressante car
 
 | **Auteur**
 |---
-| [Amis de James Padgett](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-amis-de-james-padgett/)|
-| [Anciens pasteurs et prédicateurs](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-anciens-pasteurs-et-predicateurs/)|
-| [Anciens Présidents, Rois, Reines](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-anciens-presidents-rois-reines/)|
-| [Anne Rollins](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-anne-rollins/)|
-| [Artistes](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-artistes/)|
-| [Daniel G. Samuels](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-daniel-g-samuels/)|
-| [Les disciples de Jésus](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-les-disciples-de-jesus/)|
-| [Divers](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-divers/)|
-| [Dr Stone et sa famille](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-dr-stone-et-sa-famille/)|
-| [Écrivains- Philosophes](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-ecrivains-philosophes/)|
-| [Hélène Padgett](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-helene-padgett/)|
-| [James Padgett et sa famille](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-james-padgett-et-sa-famille/)|
-| [Jésus et sa famille](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-jesus-et-sa-famille/)|
-| [Mary Kennedy](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-mary-kennedy/)|
-| [Musiciens célèbres](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-musiciens-celebres/)|
-| [Figures religieuses de lAncien Testament](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-figures-religieuses-de-lancien-testament/)|
-| [Figures religieuses du Nouveau Testament](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-figures-religieuses-du-nouveau-testament/)|
-| [Figures politiques historiques](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-figures-politiques-historiques/)|
-| [Figures historiques diverses](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-figures-historiques-diverses/)|
-| [St Jean](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-st-jean/)|
-| [St Luc](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-st-luc/)|
-| [St Paul](/fr-james-padgett-messages/fr-james-padgett-messages-by-author/fr-st-paul/)|
+| [Amis de James Padgett](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-1-fr-friends-of-james-padgett/) |
+| [Albert Georges Riddle](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-2-fr-albert-georges-riddle/) |
+| [Professeur Joseph Salyards](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-3-fr-professor-joseph-salyards/) |
+| [Anciens Pasteurs et Prédicateuirs](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-4-fr-former-pastors-and-predecessors/) |
+| [Anciens Empereurs, Présidents, Rois, Reines](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-5-fr-former-emperors-presidents-kings-queens/) |
+| [Anciens Esprits](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-6-fr-past-spirits/) |
+| [Famille de James Padgett](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-7-fr-family-of-james-padgett/) |
+| [Anne Rollins](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-8-fr-anne-rollins/) |
+| [Hélène Padgett](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-9-fr-helen-padgett/) |
+| [Famillle et Amis du Dr Stone](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-10-fr-family-and-friends-of-dr-stone/) |
+| [Priscilia et William Stone](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-11-fr-priscilia-and-william-stone/) |
+| [Mary Kennedy](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-12-fr-mary-kennedy/) |
+| [Jésus](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-13-fr-jesus/) |
+| [Les disciples de Jésus](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-14-fr-the-disciples-of-jesus/) |
+| [Saint Jacques](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-15-fr-saint-james/) |
+| [Saint Jean](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-16-fr-saint-john/) |
+| [Saint Luc](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-17-fr-saint-luke/) |
+| [Saint Pierre](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-18-fr-saint-peter/) |
+| [Saint Paul](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-19-fr-saint-paul/) |
+| [Divers](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-20-fr-various/) |
+| [Ecrivains et Philosophes](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-21-fr-writers-and-philosophers/) |
+| [Figures religieuses de l'Ancien Testament](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-22-fr-religious-figures-from-the-old-testament/) |
+| [Figures religieuses du Nouveau Testament](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-23-fr-religious-figures-from-the-new-testament/) |
+| [Figures historiques diverses](/fr-james-padgett-messages/1-5-fr-james-padgett-messages-by-author/1-5-24-fr-various-historical-figures/) |

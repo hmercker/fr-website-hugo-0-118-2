@@ -1,13 +1,13 @@
 ---
-title: "Écrivains- Philosophes"
+title: "Famille de James Padgett"
 menu_title: ""
-description: "Écrivains- Philosophes"
+description: "Famille de James Padgett"
 date: 2020-08-01 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### Écrivains- Philosophes
+### Famille de James Padgett
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

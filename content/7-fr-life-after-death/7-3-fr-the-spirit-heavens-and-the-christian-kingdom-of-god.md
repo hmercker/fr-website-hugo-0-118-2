@@ -1,7 +1,7 @@
 ---
 title: "Les cieux spirituels et le royaume chrétien de dieu"
 menu_title: "Les cieux spirituels et le royaume chrétien de dieu"
-description: ""
+description: "Les cieux spirituels et le royaume chrétien de dieu"
 date: 2020-07-03 02:18:11+11:00
 draft: False
 hidden: False

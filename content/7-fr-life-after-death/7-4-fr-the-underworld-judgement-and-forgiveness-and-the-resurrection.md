@@ -1,7 +1,7 @@
 ---
 title: "Les enfers, le jugement et le pardon, et la résurrection"
 menu_title: "Les enfers, le jugement et le pardon, et la résurrection"
-description: ""
+description: "Les enfers, le jugement et le pardon, et la résurrection"
 date: 2020-07-03 02:18:11+11:00
 draft: False
 hidden: False
