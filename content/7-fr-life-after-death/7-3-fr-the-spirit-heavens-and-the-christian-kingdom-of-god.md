@@ -13,7 +13,7 @@ weight: 370
 
 Les Chrétiens orthodoxes qui arrivent sur cette page web pensent peut-être que le mot "ciel" est le mot souvent utilisé dans la Bible pour désigner le Royaume de Dieu. Ce n'est pas le cas. Ce diagramme peut aider à illustrer la construction de cet aspect des royaumes qui se trouvent au-delà de ce royaume matériel
 
-![title](/fr-life-after-death/fr-the-heavens-2022-1.jpg)
+![title](/7-fr-life-after-death/fr-the-heavens-2022-1.jpg)
 
 Ici, sur ce site, nous utilisons souvent le mot "Cieux Célestes" pour désigner ce que Jésus a appelé "Le Royaume de Dieu". Et c'est là que la confusion commence, car nous constatons qu'il existe toute une série de "cieux" inférieurs au "Royaume de Dieu". Ces cieux inférieurs, nous les avons appelés sur ce site « Sphères d'Esprit » ou « Cieux Spirituels » (mais qui ne sont pas étiquetés sur le diagramme autrement que comme une sphère), et ils sont montrés dans le diagramme numérotés de 1 à 7. C’est cette division qui est retenue par la plupart des auteurs de contenus spiritualistes.
 
