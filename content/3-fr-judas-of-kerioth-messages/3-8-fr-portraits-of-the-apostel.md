@@ -19,14 +19,14 @@ Une description de Jésus, a été donnée par [Anne Rollins](/fr-james-padgett-
 
 Si vous êtes au courant des recherches scientifiques, vous savez également que le suaire de Turin a finalement été réévalué de manière exhaustive, et que les preuves, les preuves scientifiques, sont massivement en faveur de son authenticité. Cela étant, nous sommes heureux d'inclure une photo dérivée de l'image.
 
-![judas](/fr-judas-of-kerioth-messages/fr-judas_small.jpg/) | ![andreas](/fr-judas-of-kerioth-messages/fr-andreas_small.jpg/) | ![joseph](/fr-judas-of-kerioth-messages/fr-joseph_small.jpg/)
+![judas](/3-fr-judas-of-kerioth-messages/fr-judas_small.jpg/) | ![andreas](3-fr-judas-of-kerioth-messages/fr-andreas_small.jpg/) | ![joseph](/3-fr-judas-of-kerioth-messages/fr-joseph_small.jpg/)
 ---|---|---  
 [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | [André](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | Joseph  
-![matthaeus](/fr-judas-of-kerioth-messages/fr-matthaeus_small.jpg) | ![jakobus](/fr-judas-of-kerioth-messages/fr-jakobus_small.jpg) | ![lukas](/fr-judas-of-kerioth-messages/fr-lukas_small.jpg)
+![matthaeus](/3-fr-judas-of-kerioth-messages/fr-matthaeus_small.jpg) | ![jakobus](/3-fr-judas-of-kerioth-messages/fr-jakobus_small.jpg) | ![lukas](/3-fr-judas-of-kerioth-messages/fr-lukas_small.jpg)
 [St Matthieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-22-1-hr-st-matthew/) | Jacques le Jeune | St Luc  
-![markus](/fr-judas-of-kerioth-messages/fr-johannesmarkus_small.jpg) |  ![nathanel](/fr-judas-of-kerioth-messages/fr-nathanael_small.jpg) |  ![simon](/fr-judas-of-kerioth-messages/fr-simon_small.jpg)
+![markus](/3-fr-judas-of-kerioth-messages/fr-johannesmarkus_small.jpg) |  ![nathanel](/3-fr-judas-of-kerioth-messages/fr-nathanael_small.jpg) |  ![simon](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 Jean Marc | [Nathanaël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-2-1-hr-judas/) | [Simon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-1-1-hr-judas/)  
-![zebedeus](/fr-judas-of-kerioth-messages/fr-johanneszebedaeus_small.jpg) |   |
+![zebedeus](/3-fr-judas-of-kerioth-messages/fr-johanneszebedaeus_small.jpg) |   |
 [Jean Zébédée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) |   |
 
 *Le copyright de ces images appartient à Geoff Cutler 2013.*
@@ -43,7 +43,7 @@ Le linceul de Turin a fait l'objet d'études approfondies et des preuves scienti
 
 ## Autres personnalités
 
-![pilate](/fr-judas-of-kerioth-messages/fr-pilate_small.jpg) | ![title](/fr-judas-of-kerioth-messages/fr-machiventa_small.jpg)
+![pilate](/3-fr-judas-of-kerioth-messages/fr-pilate_small.jpg) | ![title](/3-fr-judas-of-kerioth-messages/fr-machiventa_small.jpg)
 ---|---
 [Pilate](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-25-1-hr-judas/) | Melchizédek
 
