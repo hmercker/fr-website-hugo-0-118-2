@@ -17,3 +17,4 @@ weight: 30
 6. [Messages sur la Spiritualité en général](/3-fr-judas-of-kerioth-messages/3-6-fr-messages-on-spirituality-in-general/)
 7. [Commentaires sur les challenges de la médiumnité](/3-fr-judas-of-kerioth-messages/3-7-fr-comments-on-mediumship/)
 8. [Portraits des apôtres](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/)
+9. [Les paraboles de Jésus](/3-fr-judas-of-kerioth-messages/3-9-fr-jesus-parables/)

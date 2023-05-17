@@ -15,11 +15,11 @@ Des techniques informatiques modernes ont été utilisées pour construire ces p
 
 Les noms affichés avec un lien hypertexte relient certains détails de ce disciple.
 
-Une description de Jésus, a été donnée par [Anne Rollins](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/). L'image de Jacques le Bailleur ci-dessous, est aussi remarquablement similaire, et Jacques était apparemment [si semblable à Jésus qu'il était souvent confondu avec lui](/fr-samuels-messages/fr-revelations/fr-rev-41-1955-3-3-41-samuels-jesus/). Une description très similaire a également [été donnée par Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-3-1-jep-st-john/). En 2018, un médium contemporain a reçu un message de Jésus contenant également [sa description lors de son passage sur terre](********11/04/2018******).
+Une description de Jésus, a été donnée par [Anne Rollins](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/). L'image de Jacques le Bailleur ci-dessous, est aussi remarquablement similaire, et Jacques était apparemment [si semblable à Jésus qu'il était souvent confondu avec lui](/fr-samuels-messages/fr-revelations/fr-rev-41-1955-3-3-41-samuels-jesus/). Une description très similaire a également [été donnée par Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-3-1-jep-st-john/). En 2018, un médium contemporain a reçu un message de Jésus contenant également [sa description lors de son passage sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-11-1-af-jesus/).
 
 Si vous êtes au courant des recherches scientifiques, vous savez également que le suaire de Turin a finalement été réévalué de manière exhaustive, et que les preuves, les preuves scientifiques, sont massivement en faveur de son authenticité. Cela étant, nous sommes heureux d'inclure une photo dérivée de l'image.
 
-![judas](/3-fr-judas-of-kerioth-messages/fr-judas_small.jpg/) | ![andreas](3-fr-judas-of-kerioth-messages/fr-andreas_small.jpg/) | ![joseph](/3-fr-judas-of-kerioth-messages/fr-joseph_small.jpg/)
+![judas](/3-fr-judas-of-kerioth-messages/fr-judas_small.jpg/) | ![andreas](/3-fr-judas-of-kerioth-messages/fr-andreas_small.jpg/) | ![joseph](/3-fr-judas-of-kerioth-messages/fr-joseph_small.jpg/)
 ---|---|---  
 [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | [André](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | Joseph  
 ![matthaeus](/3-fr-judas-of-kerioth-messages/fr-matthaeus_small.jpg) | ![jakobus](/3-fr-judas-of-kerioth-messages/fr-jakobus_small.jpg) | ![lukas](/3-fr-judas-of-kerioth-messages/fr-lukas_small.jpg)
@@ -37,7 +37,7 @@ Le linceul de Turin a fait l'objet d'études approfondies et des preuves scienti
 
 ## Le Suaire de Turin
 
-![turin](/fr-judas-of-kerioth-messages/fr-turin_face.jpg)
+![turin](/3-fr-judas-of-kerioth-messages/fr-turin_face.jpg)
 
 *Le copyright de cette image appartient à la personne qui l'a créée.*
 
