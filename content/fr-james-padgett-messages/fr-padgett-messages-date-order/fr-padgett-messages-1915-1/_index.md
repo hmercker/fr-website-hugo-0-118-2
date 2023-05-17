@@ -71,7 +71,7 @@ Hélène Padgett | [Un message d’Hélène](/fr-james-padgett-messages/fr-padge
 Aigle Blanc | [Un message d’Aigle Blanc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-2-1-jep-white-eagle/) | 2 Avril 1915
 Hélène Padgett | [Un message d’Hélène](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-2-2-jep-helen-padgett/) | 2 Avril 1915
 Jésus | [L’affirmation qu’il est Jésus. Se réfère à un esprit qui prétend avoir perdu son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-3-1-jep-jesus/) | 3 Avril 1915
-Hélène Padgett | [Hélène affirmant que Jésus a écrit ](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-3-2-jep-helen-padgett/) | 3 Avril 1915
+Hélène Padgett | [Hélène affirmant que Jésus a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-3-2-jep-helen-padgett/) | 3 Avril 1915
 Jésus | [La déclaration de foi de M. Padgett a permis sa progression spirituelle. Un Nouvelle Église va naître. Et l’Amour du Père sera la pierre d’angle de cet établissement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-4-1-jep-jesus/) | 4 Avril 1915
 Hélène Padgett | [Affirme que les esprits sombres ont été aidés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-5-1-jep-helen-padgett/) | 5 Avril 1915
 Anne Rollins | [Affirme que Jésus écrit par l’intermédiaire de M. Padgett, et non d’un imposteur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-5-2-jep-ann-rollins/) | 5 Avril 1915
