@@ -72,29 +72,95 @@ La relation entre le "péché impardonnable" et l'Amour Divin est également cla
 
 > C'est le cœur du message que j'ai diffusé sur terre à l'époque. Cependant, je n'ai jamais prétendu pouvoir prendre la place de l'Esprit Saint pour transmettre l'amour du Père ; c'est pourquoi il n'est pas possible d'obtenir une part de l'Amour Divin par la simple croyance en moi ou en faisant quelque chose en mon nom. L'homme ne trouve le salut que lorsqu'il demande au Père de lui accorder Son Amour. Celui-ci envoie alors Son Esprit Saint pour remplir l'âme concernée de l'amour divin. Ce principe fondamental se cache dans la citation que la Bible a conservée : 'Tout homme qui blasphémera contre le Fils de l'homme sera pardonné, et tout péché contre les commandements de Dieu sera pardonné ; mais celui qui péchera contre l'Esprit Saint ne sera pas pardonné' ! Ces paroles indiquent clairement qu'un homme qui s'oppose à l'influence de l'Esprit Saint ne pourra jamais obtenir le salut, car il empêche l'Amour Divin du Père de couler dans son âme. Or, tant que l'homme persiste dans cet état, il ne trouve ni le salut ni l'aptitude à entrer dans le royaume divin des cieux. – [Jésus le 03 Mars 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/)
 
-### Un traité sur l'Amour Divin :
+### Un traité sur l'Amour Divin
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Exposé de Dave Lampron | [Quelle est la substance la plus précieuse qui existe ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-undated/fr-1985-1-dl-presentation-by-dl/) |   1985
 
-
-### Le don de l'Amour Divin :
-
-**Auteur** | **Titre du message** | **Date du message**  
----|---|---
-
-### Il ressort des messages qu'Amon et Aman ont été privés du don de l'Amour Divin :
+### Le Cadeau de l’Amour Divin
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Anne Rollins | [La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins/) | 15 Septembre 1914
+Jésus | [L’Amour Divin tend la main à tous les hommes. M. Padgett est l’instrument pour recevoir les vérités](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-29-1-jep-jesus/) | 29 Septembre 1914
+Anne Rollins | [L’importance d’obtenir l’Amour Divin dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-12-2-jep-ann-rollins/) | 12 Décembre 1914
+Hélène Padgett | [Hélène confirme l’écriture et est une intermédiaire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-12-3-jep-helen-padgett/) | 12 Janvier 1915
+Albert Riddle | [L’expérience d’un Esprit après avoir écrit à travers M. Padgett. A obtenu l’Amour Divin et a progressé vers la troisième sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-20-1-jep-ag-riddle/) | 20 Janvier 1915
+Albert Riddle | [A évolué vers une nouvelle sphère spirituelle et cherche maintenant plus d’aide pour faire avancer son progrès spirituel. Et l’a reçu avec l’aide de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-20-1-jep-ag-riddle/) | 20 Février 1915
+Hélène Padgett | [Hélène écrit sur la loi de Compensation](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-23-2-jep-helen-padgett/) | 23 Mars 1915
+Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) | 13 Mai 1915
+Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/) | 4 Juin 1915
+St Jean | [St Jean – L’Amour Divin ne doit pas être confondu avec l’amour naturel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-2-jep-st-john/) | 8 Juillet 1915
+St Jean | [Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/) | 7 Septembre 1915
+St André | [L’Amour Divin chasse la peur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-1-jep-st-andrew/) | 17 Septembre 1915
+Jésus | [Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-19-1-jep-jesus/) | 19 Septembre 1915
+Jésus | [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-1-jep-jesus/) | 28 Décembre 1915
+Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
+Jésus | [L’importance pour l’humanité de chercher l’Amour Divin - Suite 1](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-11-1-jep-jesus/) | 11 Janvier 1916
+Jésus | [L’importance pour l’humanité de chercher l’Amour Divin – Suite2](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-12-1-jep-jesus/) | 12 Janvier 1916
+Robert Ingersoll | [Robert Ingersoll parle de son expérience lors de l’obtention de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-1-jep-robert-ingersoll/) | 18 Février 1916
+Jésus | [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/) | 28 Février 1916
+Jésus | [Comment l’Amour Divin entre dans l’âme de l’homme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/) | 23 Mars 1916
+Jésus | [Comment l’Amour Divin entre dans l’âme de l’homme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/) | 8 Mai 1916
+Anne Rollins | [Comment tous les hommes peuvent devenir des Anges Divins et comment les fausses croyances empêchent cette réalisation](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-28-1-jep-ann-rollins/) | 28 Mai 1916
+Hélène Padgett | [Les merveilles, les bénéfices et les bénédictions apportées par l’Amour Divin de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-8-1-jep-helen-padgett/) | 8 Juin 1916
+St Jean | [La condition de l’Âme lorsque l’Amour Divin s’écoule en elle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-19-1-jep-st-john/) | 19 Juin 1916
+Jésus | [Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-27-1-jep-jesus/) | 27 Juin 1916
+Edwin Forrest | [Edwin Forrest a progressé hors des ténèbres et est remerciant de connaître le chemin pour obtenir l’Amour du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-7-19-1-jep-edwin-forrest/) | 19 Juillet 1916
+St Jean | [L’Amour Divin – ce qu’il est et ce qu’il n’est pas. Comment il peut être obtenu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-5-1-jep-st-john/) | 5 Août 1916
+Samuel | [Le bonheur et la paix qui dépassent toute compréhension viennent au possesseur de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-10-2-jep-samuel/) | 10 Septembre 1916
+Jésus | [Le destin de l’homme qui n’a pas l’Amour Divin dans son âme et ne meurt qu’en possession de l’amour naturel et en une croyance dans le credo](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-28-1-jep-jesus/) | 28 Septembre 1916
+Jésus | [Comment l’âme d’un mortel reçoit l’Amour Divin et quel est son effet, bien que, par la suite, il puisse se laisser influencer par des croyances qui peuvent avoir tendance à empêcher la croissance de l’âme. Qu’est ce qu’une âme en peine ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-10-1-jep-jesus/) | 10 Novembre 1916
+St Jean | [Jean écrit qu’il n’y a actuellement personne à travers le monde qui est capable de faire le travail que vous faites maintenant. Vous devez continuer à faire aussi longtemps que vous serez sur terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-11-1-jep-st-john/) | 11 Février 1917
+Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/) | 5 Mai 1917
+Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/) | 15 Mai 1917
+St Jean | [Pourquoi les mortels ne cherchent-ils pas l’Amour du Père, plutôt que de s’efforcer de croire aux croyances et aux sacrements de l’église à laquelle ils appartiennent ou sont affiliés ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-4-2-jep-st-john/) | 4 Juin 1917
+Jésus | [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude - la prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/) | 9 Juillet 1917
+St Jean | [L’Amour Divin est toujours en attente de remplir l’âme et le fait lorsque les désirs de l’âme, pour sa possession, deviennent réels](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-11-1-jep-st-john/) | 11 Juillet 1917
+Priscilla Stone | [La mère de Leslie raconte ses progrès spirituels et son Grand Amour du Père ; et confirme sa visite à Eleanor Meads, 15 ans, maintenant dans le monde des esprits, pour de nouveau l’aider comme elle l’a fait lorsqu’elle était encore sur terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-12-10-1-jep-priscilla-stone/) | 10 Décembre 1917
+Jésus | [Christ peut être en vous – ce que cela signifie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-3-3-1-jep-jesus/) | 3 Mars 1918
+St Étienne | [Quelle est la signification de la nature Divine à laquelle prend part l’âme de l’homme lors de la transformation de cette âme par l’afflux et la possession de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-13-1-jep-st-stephen/) | 13 Novembre 1918
+St Matthieu | [Matthieu : le Salut que Jésus a enseigné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-16-1-jep-st-matthew/) | 16 Décembre 1918
+St Jean | [Jean explique la différence entre l’amour naturel et l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-2-19-2-jep-st-john/) | 19 Février 1919
+Anne Rollins | [La grand-mère de M. Padgett écrit sur l’importance de connaître le chemin au Ciel Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-3-12-1-jep-ann-rollins/) | 12 Mars 1919
+Joseph | [Prier pour l’Amour Divin sans avoir l’impression d’être un imposteur ; Quand reçoit-on l’immortalité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-9-1-ks-joseph/) | 9 Avril 2000
+Marie | [Comment marcher sur le Chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-2-1-af-mary/) | 2 Mai 2016
+Augustin | [Pour quoi priez-vous ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-30-1-af-augustine/) | 30 Janvier 2017
+Jésus | [Jésus parle de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/) | 11 Mai 2017
+Augustin | [Le chemin de l'Amour Divin est la voie de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-20-1-mc-augustine/) | 20 Septembre 2018
+Seretta Kem | [Chaque individu vit son voyage spirituel d’une manière unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-30-1-af-seretta-kem/) | 30 Mars 2020
+Keea Atta Kem | [L'expérience de la réception de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-11-2-mc-keea-atta-kem/) | 11 Avril 2019
+Yogananda | [Le vrai sens de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-14-1-jw-yogananda/) | 14 Octobre 2019
+Keea Atta Kem | [Plus vous donnez de l'amour et de la compréhension aux autres, plus vous recevez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-150-1970-anonymous-keea-atta-kem/) |   1970
+Jésus | [Leçon 13 : Le pouvoir créatif de l’humanité sera libéré par les bénédictions de l’Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-23-1-af-jesus/) | 23 Décembre 2020
+Jésus | [Leçon 15 : Le pouvoir de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-7-1-af-jesus/) | 7 Janvier 2021
 
-### Il est dit que le don de l'Amour Divin a été renouvelé par Jésus, qui l'a reçu le premier :
+### Il ressort des messages qu'Amon et Aman ont été privés du don de l'Amour Divin
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Aman | [Aman, le premier parent révèle sa tentation et sa chute](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/) | 29 Août 1915
+Amon | [Amon, la mère de tous les humains, partage son expérience, sa tentation et désobéissance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/) | 30 Août 1915
 
-### Il nous est dit que le don de l'Amour Divin sera à nouveau retiré :
+### Il est dit que le don de l'Amour Divin a été renouvelé par Jésus, qui l'a reçu le premier
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Jésus | [Jésus – Qu’est ce qui rend un homme Divin ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/) | 15 Mars 1916
+Jésus | [Jésus – le sens de l’immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-28-1-jep-jesus/) | 28 Mai 1915
+Samuel | [Son enseignement et expérience lors de vie terrestre. N’a pas obtenu l’Amour Divin avant la venue de Jésus à la terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-21-2-jep-samuel/) | 21 Juillet 1915
+Élie | [Élie sur les temps où il a vécu sur la terre. Il n’a jamais connu l’Amour Divin jusqu’à ce que Jésus vienne sur la terre et fasse connaître son ré-octroi](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-1-1-jep-elias/) | 1 Octobre 1916
+Jésus | [Le ministère de Jésus et les enseignements de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-2-1-af-jesus/) | 2 Avril 2016
 
+### Il nous est dit que le don de l'Amour Divin sera à nouveau retiré
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Anne Rollins | [Anne Rollins écrit de nouveau sur le Royaume de Jésus fermé pour tous ceux qui n’ont pas reçu l’Amour Divin du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-15-1-jep-ann-rollins/) | 15 Janvier 1915
+Jésus | [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père dans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) | 3 Mars 1915
+Anne Rollins | [La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/) | 1 Juin 1916
+St Jean | [Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-15-1-jep-st-john/) | 15 Mars 1917
+Jésus | [Le flux et reflux de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-10-1-1-dl-jesus/) | 1 Octobre 1989
+Jésus | [Publication du volume II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1991-8-11-1-ks-jesus/) | 11 Août 1991
+Judas | [La fermeture des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-3-1-hr-judas/) | 3 Septembre 2001
