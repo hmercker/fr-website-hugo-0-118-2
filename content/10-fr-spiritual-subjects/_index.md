@@ -1,18 +1,16 @@
 ---
 title: "Sujets Spirituels"
 menu_title: "Sujets Spirituels"
-description: ""
-date: 2020-07-03 02:18:11+11:00
+description: "Sujets Spirituels"
+date: 2023-05-19 02:18:11+11:00
 draft: False
 hidden: False
 weight: 100
 ---
 ## Sujets Spirituels
 
-1. [Les Lois Spirituelles ](/fr-spiritual-subjects/fr-spiritual-laws/)
-2. [Cercles de Lumière](/fr-spiritual-subjects/fr-circles-of-light/)
-3. [Guérison et Miracles](/fr-spiritual-subjects/fr-healing-and-miracles/)
-4. [Anges](/fr-spiritual-subjects/fr-angels/)
-5. [Les Âmes Sœurs](/fr-spiritual-subjects/fr-soul-mates/)
-6. [Les Extra Terrestres](/fr-spiritual-subjects/fr-extra-terrestrials/)
-7. [Diverses prières](/fr-spiritual-subjects/fr-various-prayers/)
+1. [Les Lois Spirituelles](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/)
+2. [Cercles de Lumière](/10-fr-spiritual-subjects/10-2-fr-circles-of-light/)
+3. [Guérison et Miracles](/10-fr-spiritual-subjects/10-3-fr-healing-and-miracles/)
+4. [Anges](/10-fr-spiritual-subjects/10-4-fr-angels/)
+5. [Les Âmes Sœurs](/10-fr-spiritual-subjects/10-5-fr-soul-mates/)
