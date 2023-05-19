@@ -8,3 +8,7 @@ hidden: False
 weight: 635
 ---
 ### Les limites de la médiumnité
+
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---

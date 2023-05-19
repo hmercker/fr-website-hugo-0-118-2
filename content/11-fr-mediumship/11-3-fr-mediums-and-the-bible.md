@@ -8,3 +8,7 @@ hidden: False
 weight: 650
 ---
 ### Les médiums et la Bible
+
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---

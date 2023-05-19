@@ -8,3 +8,7 @@ hidden: True
 weight:
 ---
 ### Les médiums Contemporains
+
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---

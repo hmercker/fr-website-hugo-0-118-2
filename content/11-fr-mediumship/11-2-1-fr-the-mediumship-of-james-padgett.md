@@ -8,3 +8,7 @@ hidden: True
 weight:
 ---
 ### La médiumnité de James Padgett
+
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
