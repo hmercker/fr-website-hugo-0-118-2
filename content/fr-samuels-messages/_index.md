@@ -13,4 +13,4 @@ weight: 20
 2. [Révélations](/fr-samuels-messages/fr-revelations/)
 3. [Sermons](/fr-samuels-messages/fr-sermons/)
 4. [Messages Divers](/fr-samuels-messages/fr-diverse-messages/)
-5. [Le 11ème commandement](/fr-samuels-messages/2-5-fr-the-11-th-commandment/)
+5. [Le 11ème commandement](/fr-samuels-messages/2-5-fr-the-11th-commandment/)

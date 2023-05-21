@@ -16,4 +16,4 @@ weight: 90
 5. [Changements terrestres](/9-fr-topical-subjects/9-5-fr-earth-changes/)
 6. [Evolution ou Création](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)
 7. [Le mental matériel, le mental spirituel et le mental de l'âme](/9-fr-topical-subjects/9-7-fr-the-material-mind-the-spiritual-mind-and-the-soul-mind/)
-8. [Les peuples de l'espace](/9-fr-topical-subjects/9-8-fr-the-peoples-of-space/)
+8. [Les peuples de l'espace](/9-fr-topical-subjects/9-8-fr-the-peoples-of-outer-space/)
