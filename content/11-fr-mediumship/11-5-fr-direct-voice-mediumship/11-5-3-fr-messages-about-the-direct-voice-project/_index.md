@@ -13,12 +13,12 @@ weight:
 
 Voici les messages reçus dans le cadre de la médiumnité physique du projet Voix directe. Ils sont divisés en 6 volumes. Le volume 1 contient des messages de 1968 à 1970, reçus par le groupe d'Alec Gaunt à Vancouver.
 
-1. [Volume I](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-4-3-fr-messages-about-the-direct-voice-project/11-4-3-1-fr-d-v-1-1/)
-2. [Volume II](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-4-3-fr-messages-about-the-direct-voice-project/11-4-3-2-fr-d-v-1-2/)
-3. [Volume III](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-4-3-fr-messages-about-the-direct-voice-project/11-4-3-3-fr-d-v-1-3/)
-4. [Volume IV](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-4-3-fr-messages-about-the-direct-voice-project/11-4-3-4-fr-d-v-1-4/)
-5. [Volume V](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-4-3-fr-messages-about-the-direct-voice-project/11-4-3-5-fr-d-v-1-5/)
-6. [Volume VI](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-4-3-fr-messages-about-the-direct-voice-project/11-4-3-6-fr-d-v-1-6/)
+1. [Volume I](/11-fr-mediumship/11-5-fr-direct-voice-mediumship/11-5-3-fr-messages-about-the-direct-voice-project/11-5-3-1-fr-d-v-1-1/)
+2. [Volume II](/11-fr-mediumship/11-5-fr-direct-voice-mediumship/11-5-3-fr-messages-about-the-direct-voice-project/11-5-3-2-fr-d-v-1-2/)
+3. [Volume III](/11-fr-mediumship/11-5-fr-direct-voice-mediumship/11-5-3-fr-messages-about-the-direct-voice-project/11-5-3-3-fr-d-v-1-3/)
+4. [Volume IV](/11-fr-mediumship/11-5-fr-direct-voice-mediumship/11-5-3-fr-messages-about-the-direct-voice-project/11-5-3-4-fr-d-v-1-4/)
+5. [Volume V](/11-fr-mediumship/11-5-fr-direct-voice-mediumship/11-5-3-fr-messages-about-the-direct-voice-project/11-5-3-5-fr-d-v-1-5/)
+6. [Volume VI](/11-fr-mediumship/11-5-fr-direct-voice-mediumship/11-5-3-fr-messages-about-the-direct-voice-project/11-5-3-6-fr-d-v-1-6/)
 
 ### Messages du deuxième projet de Voix directe
 
@@ -28,4 +28,4 @@ Un groupe de trois personnes vivant en Australie a demandé aux anges au milieu 
 
 Au milieu de l'année 2021, un troisième groupe d'individus, principalement au Canada et en Amérique du Nord, a formé un groupe DS et est dirigé par Al et Jeanne Fike. Voici les messages reçus :
 
-1. [Volume I](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-4-3-fr-messages-about-the-direct-voice-project/11-4-3-7-fr-d-v-3-1/)
+1. [Volume I](/11-fr-mediumship/11-5-fr-direct-voice-mediumship/11-5-3-fr-messages-about-the-direct-voice-project/11-5-3-7-fr-d-v-3-1/)

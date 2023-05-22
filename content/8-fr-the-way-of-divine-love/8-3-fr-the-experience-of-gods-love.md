@@ -9,7 +9,7 @@ weight: 480
 ---
 ### L'expérience de l'Amour de Dieu
 
-La grande expérience - comment faire l'expérience physique de l'Amour de Dieu.
+#### La grande expérience - comment faire l'expérience physique de l'Amour de Dieu
 
 Disposez-vous de trente minutes par jour pendant les trois prochaines semaines ? Est-ce que cela vaut la peine de travailler 10 heures pour vous montrer comment parvenir à la communion avec le Père ? Dix heures, est-ce trop demander pour vous orienter dans la bonne direction ? Une direction qui vous procurera un grand bonheur pour l'éternité ! C'est ainsi que vous obtiendrez « la paix qui surpasse toute intelligence ». Tentez la grande expérience !
 
