@@ -1,15 +1,23 @@
 ---
-title: "L'âme"
-menu_title: "L'âme"
-description: "L'âme"
+title: "La nature de l'âme"
+menu_title: "La nature de l'âme"
+description: "La nature de l'âme"
 date: 2023-05-19 06:25:48+00:80
 draft: False
 hidden: False
 weight: 510
 ---
-### L'âme
+### La nature de l'âme
 
+Les révélations renouvelées de Jésus, telles qu'elles ont été reçues par James Padgett, nous montrent le chemin vers Dieu et vers une vie éternelle dans Son Royaume Céleste. Elles nous permettent d'acquérir certaines connaissances, notamment le fait que l'âme de l'homme est la même dans ce monde et dans le suivant. Après la mort physique, l'homme continue à vivre dans le corps spirituel dans le monde de l'esprit, où l'âme continue à être purifiée jusqu'à ce qu'elle atteigne, en son temps, le niveau dans le monde de l'esprit connu sous le nom de Paradis ou encore la sphère de l'homme parfait (certains l'appellent aussi la sixième sphère). Il est également révélé qu'il existe une sphère au-delà de celle de l'homme parfait et que cette sphère est le Ciel Divin, ouvert aux âmes qui ont été transformées par l'Amour Divin du Père Céleste. Cet Amour Divin est offert à l'homme s'il le prie sérieusement et du plus profond de son âme. Il ne se contente pas de purifier l'âme humaine, mais la transforme ou la convertit en l'essence du Père, de sorte que l'âme prenne conscience de son immortalité. C'est la rédemption que Jésus, le Messie du Père, a enseignée. Qu'est-ce donc que l'âme de l'homme ?
 
+> L'homme est une âme, revêtue d'un corps spirituel et d'un corps physique ! Ce sont ces trois caractéristiques qui font de l'homme une créature parfaite, chacun de ces attributs ayant sa propre fonction et existant plus ou moins longtemps selon son rayon d'action. Le corps physique, comme chacun le sait, n'est utilisé que pour le court laps de temps que l'homme passe sur terre. Une fois qu'il a rempli son rôle, à savoir assurer l'individualisation de l'âme dans la matière, il est à nouveau dissous dans les éléments qui le composent. Une fois que l'homme a abandonné son corps terrestre, il est impossible de redonner vie à ce corps ou de le reconstruire à partir de ses éléments constitutifs antérieurs. – [Jésus le 23 Mars 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/)
+
+Les cinq sens, y compris l'intellect, par lesquels l'homme se définit, ne se trouvent donc pas dans le corps matériel, mais ont leur siège dans le corps subtil et restent ainsi à la disposition de l'âme, même si celle-ci s'est débarrassée depuis longtemps du corps terrestre. Si l'homme meurt sur terre, cela ne signifie pas la fin de son existence. Il continue à vivre dans le monde spirituel, son corps spirituel lui offrant la possibilité d'accéder à toutes les fonctions et mémoires d'expérience qui lui étaient accessibles de son vivant sur terre. En revanche, l'homme, qui est en réalité une âme, continue à vivre dans son corps spirituel, qui lui a été donné au moment de son incarnation dans la matière, en même temps que son corps de chair, et qui est à jamais indissociable de l'âme. C'est pourquoi l'homme peut continuer à penser, à ressentir et à percevoir après sa mort terrestre, même s'il n'a plus de corps matériel.
+
+Mais l'homme proprement dit, c'est l'âme. C'est elle qui est façonnée à l'image de Dieu, qui est lui-même à son tour l'âme la plus pure. L'âme est la seule partie de l'homme qui peut véritablement devenir immortelle en acceptant l'offre de Dieu de participer à la nature de Dieu par la grâce de Son Amour Divin et de devenir ainsi participante de son immortalité. C'est à l'homme seul de décider s'il choisit la possibilité d'accueillir l'Amour Divin en lui ou s'il préfère retrouver l'état de sa perfection d'antan. Mais celui qui veut atteindre les Cieux Divins doit, conformément à la loi de l'attraction, porter en lui quelque chose de divin afin d'être admis là où seul le divin trouve accès. Celui qui veut devenir immortel et participer à la nature du Père, et acquérir ainsi la conscience de la vie éternelle, doit suivre le chemin de l'Amour Divin. Cette certitude de l'immortalité est toutefois quelque chose de totalement différent de la valeur empirique qui fait que jusqu'à présent, il n'a jamais été observé si une âme peut effectivement mourir. Seul Dieu sait si une âme qui reste à l'état purement humain vit pour toujours. Ce qui est définitivement connu, en revanche, c'est que le Père a fixé un cadre temporel à Son offre de recevoir l'Amour Divin. À un moment donné, le Père retirera la possibilité d'être élevé par Son Amour hors de la condition purement humaine. Les portes des sphères Divines seront alors fermées une fois pour toutes et le royaume du Père trouvera son achèvement.
+
+Toutes les âmes créées et à créer existent dans un domaine spirituel réservé exclusivement à celles qui attendent l'incarnation. C'est-à-dire que bien avant que l'âme ne puisse s'incarner sur terre, elle vit comme un individu conscient distinctif, qui se distingue de tous les autres par une personnalité unique ; mais pour se reconnaître et se définir comme une entité indépendante, l'âme a besoin d'un milieu matériel dans lequel elle puisse vivre ses caractéristiques individuelles. Les êtres supérieurs et spirituels peuvent clairement percevoir les nombreuses âmes qui attendent encore leur incarnation, mais ne peuvent pas les "voir", car une âme n'est pas visible avec l'œil spirituel ou physique.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

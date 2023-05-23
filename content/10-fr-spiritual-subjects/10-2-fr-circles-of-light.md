@@ -93,13 +93,9 @@ La prière de groupe pour l’Amour Divin apporte des bénédictions pour chaque
 
 Le contenu de cette page est disponible en format pdf que vous pouvez partager avec d’autres personnes.
 
-[Créer des Cercles de Lumière fév 2017.pdf (146.7 KB)](********************https://new-birth.net/media/cms_page_media/6273/Creating%20Circles%20of%20Light%20Feb%202017.pdf)
+[Créer des Cercles de Lumière](/10-fr-spiritual-subjects/10-2-2-fr-creating-circles-of-light.pdf)
 
-Un autre document plus accueillant et moins structuré écrit par Al Fike est également disponible. Certains préféreront peut-être son style.
-
-[Créer des cercles de lumière par Al Fike (88.2 KB)](*********************)
-
-Il n’est pas rare non plus qu’il y ait un désir d’offrir la guérison à une personne ou même à une situation. Il est très facile d’utiliser les mêmes participants, assis dans le Cercle de Lumière pour diriger un cercle de guérison. Une technique qui peut être utilisée est [décrite ici](**************https://new-birth.net/spiritual-subjects/healing-circles-and-healing-merkabas/).
+Il n’est pas rare non plus qu’il y ait un désir d’offrir la guérison à une personne ou même à une situation. Il est très facile d’utiliser les mêmes participants, assis dans le Cercle de Lumière pour diriger un cercle de guérison. Une technique qui peut être utilisée est [décrite ici](/10-fr-spiritual-subjects/10-2-1-fr-healing-circles-and-healing-merkabas/).
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
