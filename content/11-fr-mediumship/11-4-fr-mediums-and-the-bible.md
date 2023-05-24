@@ -10,7 +10,8 @@ weight: 650
 ### Les médiums et la Bible
 
 *Source : Geoff Cutler new-birth.net*
-### Extrait d'un email récent
+
+#### Extrait d'un email récent
 
 En ce qui concerne votre section sur la médiumnité, puisque vous dites être en contact avec Jésus de Nazareth, j'ai pensé que vous pourriez être intéressé par certaines choses que son Père avait à dire au sujet des médiums...
 > Lévitique 19:31 - Ne vous tournez pas vers les médiums ou les magiciens, ne les recherchez pas pour vous souiller avec eux : Je suis l'Éternel, ton Dieu.
@@ -32,7 +33,7 @@ Assurez-vous d'avoir le bon Jésus ! Votre salut éternel en dépend !
 
 > Jérémie 29:12-14 - Alors vous m'invoquerez, vous viendrez me prier, et je vous exaucerai. Vous me chercherez et vous me trouverez ; vous me chercherez de tout votre cœur, et vous me trouverez, dit l'Éternel.
 
-### Ma réponse
+#### Ma réponse
 
 C'est une question sérieuse. Il est évidemment important de s'assurer que l'on sait à qui l'on parle. Mais abordons d'abord ces citations bibliques.
 
@@ -59,7 +60,7 @@ Mais nous avons une réponse beaucoup plus simple à donner à l'âme en recherc
 L'un des théologiens les plus compétents du Vatican, le père Gino Concetti, écrit dans l' « Osservatore Romano », le quotidien du Saint-Siège, que :
 
 > Selon le catéchisme moderne, l'Eglise a décidé de ne plus interdire le dialogue avec les défunts ... ceci à la suite de nouvelles découvertes dans le domaine du paranormal. - Novembre 1995
- 
+
 Je pense cependant qu'il serait bon que les chrétiens orthodoxes examinent attentivement le sens évident de cette citation
 > Bien-aimés, ne croyez pas tout esprit, mais éprouvez les esprits pour savoir s'ils sont de Dieu, car beaucoup de faux prophètes sont sortis dans le monde. C'est ainsi que vous connaissez l'Esprit de Dieu : Tout esprit qui confesse que Jésus-Christ est venu dans la chair est de Dieu. - I. Jean Ch 4, 1-2.
 

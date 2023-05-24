@@ -71,9 +71,7 @@ Augustin | [Changements dans le monde](/fr-contemporary-messages/fr-contemporary
 Augustin | [Accepter l'appel de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-1-1-af-augustine/) | 1 Août 2017
 Mère Terre-Gaïa | [C’est le temps de la purification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-8-1-anyas-mother-earth-gaia/) | 8 Septembre 2017
 Keea Atta Kem | [Faites de l'amour votre vérité directrice à travers les changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-13-2-af-keea-atta-kem/) | 13 Septembre 2017
-"Tahlia | [
-Marcher dans la lumière à travers les bouleversements à venir
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017"
+Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017
 Jacques | [Les changements climatiques et votre rôle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-29-3-af-james/) | 29 Octobre 2017
 Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017
 Isaïe | [Dieu apportera une nouvelle lumière dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-1-2-af-isaiah/) | 1 Décembre 2017
