@@ -10,6 +10,6 @@ weight: 140
 ## Publications et téléchargements
 
 1. []()
-2. [](/13-fr-publications-and-downloads/13-2-fr-spiritual-books/)
+2. [Livres spirituels](/13-fr-publications-and-downloads/13-2-fr-spiritual-books/)
 3. []()
 4. []()
