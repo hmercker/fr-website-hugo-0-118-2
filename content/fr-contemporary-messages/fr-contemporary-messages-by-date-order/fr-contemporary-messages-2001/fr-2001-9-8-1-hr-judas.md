@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 8 Septembre 2001, Cuenca, Équateur.
 
-![](/fr-life-after-death/fr-summerland.jpg)
+![title](/7-fr-life-after-death/fr-summerland.jpg)
 
 Mon cher frère, je viens aujourd’hui pour continuer ma description des plans terrestres. Avant la digression, lorsque j’ai voulu t’en apprendre un peu plus sur la signification du mot « lumière » dans le monde des esprits, je t’ai expliqué comment je suis passé de mon enfer dans la région appelée la zone crépusculaire. Je t’ai également expliqué que c’est la zone la plus peuplée dans le monde des esprits, et que la grande majorité des esprits commence leur voyage vers leur perfection à cet endroit, que ce soit vers la perfection dans l’amour naturel ou dans l’Amour Divin.
 
@@ -57,4 +57,4 @@ Passe une bonne journée et profite de ta visite. J’espère que demain nous no
 
 Que Dieu te bénisse, ton frère en Christ, qui veille toujours sur toi, Judas.
 
-© Geoff Cutler 2013
+*© Geoff Cutler 2013*
