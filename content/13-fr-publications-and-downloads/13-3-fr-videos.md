@@ -13,3 +13,5 @@ weight: 735
 ---|---|---
 | 5 mars 2022 | [La Prière](https://www.youtube.com/watch?v=lnTqLVEmzLQ&t=7s) | Christian Blandin
 | 9 julliet 2022 | [La Relation Historique de l’Humanité Avec Dieu](https://www.youtube.com/watch?v=40n04oSNVtU) | Raphael Legros
+|  | []() |
+|  | []() |
