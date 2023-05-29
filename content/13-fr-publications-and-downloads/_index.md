@@ -9,7 +9,6 @@ weight: 140
 ---
 ## Publications et téléchargements
 
-1. []()
+1. [Blog](https://lanouvellenaissance.com/category/blog/)
 2. [Livres spirituels](/13-fr-publications-and-downloads/13-2-fr-spiritual-books/)
-3. []()
-4. []()
+3. [Vidéos](/13-fr-publications-and-downloads/13-3-fr-videos/)
