@@ -49,7 +49,8 @@ C'est pourquoi une autre dit : « Je conseille que nous allions dans les forêts
 
 #### Le chant de l'oiseau <sup id="a1">[1](#f1)</sup>
 
-> Nous ne chantons pas pour les sages de la terre.\
+> \
+Nous ne chantons pas pour les sages de la terre.\
 Car ils n'ont plus de sagesse,\
 Et, faute de sagesse, ils ne savent pas.\
 La sagesse n'est rien\
@@ -63,37 +64,33 @@ Qui n'ont pas la même valeur que nous ;\
 Nous ne pouvons pas chanter la richesse ou les armes\
 Qui sont pour eux leurs seuls charmes.
 >
-> Mais quand, sous notre nid de feuilles
-Le travailleur fatigué se couche,
+> Mais quand, sous notre nid de feuilles\
+Le travailleur fatigué se couche,\
 Nous lui retirons son cœur de la ferme ou de la ville
-<br>
-<br>
-> Et remplissons son âme d'un repos bienveillant ;
-Nous remplissons son âme d'un repos salutaire.
+>
+> Et remplissons son âme d'un repos bienveillant ;\
+Nous remplissons son âme d'un repos salutaire.\
 Nous lui soufflons la bénédiction : "Paix".
-<br>
-<br>
-> Ainsi, celui qui cherche à dominer
-Par la force des armes ou le pouvoir du monde.
-Se retrouvera seul et triste,
-Car personne ne s'accouplera avec lui ;
-Ainsi, en s'emparant de tout, il perdra tout.
+>
+> Ainsi, celui qui cherche à dominer\
+Par la force des armes ou le pouvoir du monde.\
+Se retrouvera seul et triste,\
+Car personne ne s'accouplera avec lui ;\
+Ainsi, en s'emparant de tout, il perdra tout.\
 Parce qu'il est si grandiose.
-<br>
-<br>
-> Prenez-moi pour modèle, vous tous.
-Je ne peux que tchanter un petit air ;
-Un seul thème et seulement jour après jour.
-Mais ce que je peux, je le fais.
-Et qui dira que je n'ai pas fait mon travail ?
+>
+> Prenez-moi pour modèle, vous tous.\
+Je ne peux que tchanter un petit air ;\
+Un seul thème et seulement jour après jour.\
+Mais ce que je peux, je le fais.\
+Et qui dira que je n'ai pas fait mon travail ?\
 Que je n'ai pas fait mon travail du jour ?
-<br>
-<br>
-> Et maintenant, braves gens, vous tous.
-Ne faites que ce que vous pouvez bien faire.
-Évitez l'impossible ;
-C'est ainsi que je vous dis à tous adieu…
-Je vais saluer d'autres imbéciles,
+>
+> Et maintenant, braves gens, vous tous.\
+Ne faites que ce que vous pouvez bien faire.\
+Évitez l'impossible ;\
+C'est ainsi que je vous dis à tous adieu…\
+Je vais saluer d'autres imbéciles,\
 Et ainsi de suite, et ainsi de suite
 
 Mercredi 21 Janvier 1920,
