@@ -99,21 +99,21 @@ Dans le même hôpital où le malade a été guéri de sa fièvre, grâce au pou
 
 Cette femme, que j'appellerai Lizzie, souffrait de l'agonie en pensant à la mort, et la petite Flora éprouvait une grande compassion pour elle. Elle chercha par tous les moyens à influencer l'esprit de Lizzie par des pensées lumineuses et joyeuses. Elle lui chantait des chansons, plaçait sa harpe à un endroit où sa musique pouvait être entendue, et s'efforçait par tous les moyens d'apporter du réconfort à la jeune femme épuisée. Enfin, lorsque Lizzie devint si faible et si pâle qu'il semblait que l'âme allait se séparer du corps, son ouïe intérieure s'ouvrit et la musique de la petite harpe lui parvint. Elle écouta, écouta, oh, si attentivement. Bientôt, un sourire éclaira ses traits maigres ; c'était en effet une musique Céleste pour elle. Peu après, elle entendit une voix douce et enfantine qui chantait ces mots :
 
-> Nous arrivons, nous arrivons,
-Avec nos esprits remplis d'amour,
-Pour guider tes pas fatigués
-Vers la maison de notre Père, là-haut ;
-Nous arrivons, nous arrivons,
-Et la nuit s'envolera rapidement,
-Il y a du repos, de l'espoir et du réconfort,
-La vie et la paix approchent.
+> Nous arrivons, nous arrivons,\
+Avec nos esprits remplis d'amour,\
+Pour guider tes pas fatigués\
+Vers la maison de notre Père, là-haut ;\
+Nous arrivons, nous arrivons,\
+Et la nuit s'envolera rapidement,\
+Il y a du repos, de l'espoir et du réconfort,\
+La vie et la paix approchent.\
 
 La malade se réveilla en sursaut et regarda si étrangement l'infirmière que celle-ci dit : *« Qu'y a-t-il, Lizzie ? » « Rien, répondit Lizzie, mais je suis si contente, je me sens si heureuse. Je n'ai pas peur de mourir maintenant, Dieu est bon ; il ne détruira pas une pauvre fille comme moi qui a eu tant à supporter. Je pense qu'il m'emmènera dans Sa maison. J'ai entendu une musique si douce, des paroles si tendres ! Dieu est bon, il m'aidera. Je suis prête à aller vers lui. »*
 
 Le lendemain, Lizzie mourut avec un sourire sur les lèvres, et tandis que son âme quittait son corps, elle entendit la douce musique de la harpe et aperçut Flora qui chantait :
 
-> Il y a du repos, de l'espoir et du réconfort,
-La vie et la paix approchent !
+> Il y a du repos, de l'espoir et du réconfort,\
+La vie et la paix approchent !\
 
 Je n'ai plus qu'une seule histoire de Flora et de sa harpe à vous raconter, chers enfants, celle d'un petit garçon très malade. Lui aussi doit partir pour la Terre d'Été ; il est trop faible et trop malade pour recouvrer la santé. Ses parents étaient riches et il était leur seul enfant chéri. Ils se sentaient incapables de l'abandonner. Flora se rendait souvent dans cette luxueuse maison, et l'enfant était devenu si spirituel qu'il pouvait l'entendre chanter et écouter la musique de sa harpe mystique. Souvent, il parla à ses chers parents de la douce musique et des chants qu'il entendait, et ils secouèrent tristement la tête, car ils sentaient qu'il approchait de la porte du paradis.
 
@@ -243,43 +243,46 @@ Je vais vous livrer les paroles d'une douce petite chanson que j'ai récemment e
 
 ### Amour Céleste
 
-Joie ! joie ! La lumière du matin
-Roule dans l'allégresse sur son chemin,
-Inondant le monde de gloire
-En ce jour heureux et paisible.
-L'Amour de Dieu notre Père
-Baigne l'univers de lumière ;
-Il traverse tous les ténèbres,
-Il dissipe les ténèbres de la nuit.
-
-Joie ! joie ! La splendeur Céleste
-De la tendre puissance de notre Père
-Réconforte tous les esprits fatigués,
-Dans ses heures les plus tristes et les plus solitaires.
-Et bientôt, le saint rayonnement
-Illuminera chaque vie,
-Et chaque âme s'élèvera en triomphe
-Bien au-dessus de la douleur et de la lutte.
-
-Joie ! joie ! L'amour des anges
-S'écoule doucement du Ciel à la Terre,
-Bénissant de son pouvoir incomparable
-Tous les maux de la naissance mortelle,
-L'amour Céleste qui apporte à son porteur
-Descend avec des messages de paix
-Pour apaiser les douleurs des mortels,
-Et pour que leurs joies augmentent.
-
-Joie ! joie ! La lumière se répand,
-Nous pouvons profiter de ses rayons,
-Recueillons ses rayons de soleil
-En chantant nos louanges.
-Portons la splendeur Céleste
-De cet amour sans limite et sans mort
-A ceux qui pleurent de chagrin
-Pour leurs amis qui habitent là-haut ;
-Bénissons ceux qui ont le cœur brisé,
-Et enveloppons leur vie d'amour !
+Joie ! joie ! La lumière du matin\
+Roule dans l'allégresse sur son chemin,\
+Inondant le monde de gloire\
+En ce jour heureux et paisible.\
+L'Amour de Dieu notre Père\
+Baigne l'univers de lumière ;\
+Il traverse tous les ténèbres,\
+Il dissipe les ténèbres de la nuit.\
+<br>
+<br>
+> Joie ! joie ! La splendeur Céleste\
+De la tendre puissance de notre Père\
+Réconforte tous les esprits fatigués,\
+Dans ses heures les plus tristes et les plus solitaires.\
+Et bientôt, le saint rayonnement\
+Illuminera chaque vie,\
+Et chaque âme s'élèvera en triomphe\
+Bien au-dessus de la douleur et de la lutte.\
+<br>
+<br>
+> Joie ! joie ! L'amour des anges\
+S'écoule doucement du Ciel à la Terre,\
+Bénissant de son pouvoir incomparable\
+Tous les maux de la naissance mortelle,\
+L'amour Céleste qui apporte à son porteur\
+Descend avec des messages de paix\
+Pour apaiser les douleurs des mortels,\
+Et pour que leurs joies augmentent.\
+<br>
+<br>
+> Joie ! joie ! La lumière se répand,\
+Nous pouvons profiter de ses rayons,\
+Recueillons ses rayons de soleil\
+En chantant nos louanges.\
+Portons la splendeur Céleste\
+De cet amour sans limite et sans mort\
+A ceux qui pleurent de chagrin\
+Pour leurs amis qui habitent là-haut ;\
+Bénissons ceux qui ont le cœur brisé,\
+Et enveloppons leur vie d'amour !\
 
 Nous allons maintenant quitter le Nid d'Or et ses habitants heureux et occupés, et poursuivre un peu plus loin notre recherche des enfants qui habitent dans le pays de l'été. Nous atteindrons bientôt Rocky Nook, où vivent un certain nombre de petits êtres qui grandissent en force et en beauté sous l'effet des brises salutaires qui soufflent toujours autour de cet endroit privilégié.
 
