@@ -21,5 +21,5 @@ En cherchant du matériel pour cette page, Geoff Cutler a été conduit à une �
 ---|---|---
 Charlotte Elisabeth Dresser | [Extrait de Spirit World et Spirit Life](/7-fr-life-after-death/7-8-1-fr-bringing-up-spirit-children/) | 1922
 Mary Theresa Shelhamer | [Vie et Travail Dans le Monde des Esprits](/7-fr-life-after-death/7-8-2-fr-chapters-17-18-19-from-life-and-labor-in-the-spirit-world/) | 1885
-Rev. George Vale Owen | [ - Volume 5 - entrait de la « Life Beyond the Veil »](/7-fr-life-after-death/7-8-3-fr-chapters-6-7-from-life-beyond-the-veil-volume-5/) | 1921
+Rev. George Vale Owen | [La vie au-delà du voile - Tome 5 - entrait de la « Life Beyond the Veil »](/7-fr-life-after-death/7-8-3-fr-chapters-6-7-from-life-beyond-the-veil-volume-5/) | 1921
 Anthony Bogia | [Chapitre 10 - La Sphère des Enfants - extrait de « La vie Dans le Monde Invisible »](/7-fr-life-after-death/7-8-4-fr-chapter-10-from-life-in-the-world-unseen/) | 1954

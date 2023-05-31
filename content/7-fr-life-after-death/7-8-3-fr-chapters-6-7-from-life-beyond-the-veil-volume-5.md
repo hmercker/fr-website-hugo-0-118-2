@@ -50,10 +50,15 @@ C'est pourquoi une autre dit : « Je conseille que nous allions dans les forêts
 #### Le chant de l'oiseau <sup id="a1">[1](#f1)</sup>
 
 > Nous ne chantons pas pour les sages de la terre.
+
 Car ils n'ont plus de sagesse,
+
 Et, faute de sagesse, ils ne savent pas.
+
 La sagesse n'est rien
+
 Si elle n'est pas accompagnée
+
 Un bon silence de satisfaction.
 <br>
 <br>
