@@ -56,42 +56,42 @@ Et, faute de sagesse, ils ne savent pas.\
 La sagesse n'est rien\
 Si elle n'est pas accompagnée\
 Un bon silence de satisfaction.\
->
-<br>>
+<br>
+<br>
 > Ce n'est pas pour les grands de ce monde\
 Notre musique ne s'adresse pas aux grands de ce monde,\
 Car ils sont proches de ceux\
 Qui n'ont pas la même valeur que nous ;\
 Nous ne pouvons pas chanter la richesse ou les armes\
 Qui sont pour eux leurs seuls charmes.\
->
->
+<br>
+<br>
 > Mais quand, sous notre nid de feuilles\
 Le travailleur fatigué se couche,\
 Nous lui retirons son cœur de la ferme ou de la ville\
->
->
+<br>
+<br>
 > Et remplissons son âme d'un repos bienveillant ;\
 Nous remplissons son âme d'un repos salutaire.\
 Nous lui soufflons la bénédiction : "Paix".\
->
->
+<br>
+<br>
 > Ainsi, celui qui cherche à dominer\
 Par la force des armes ou le pouvoir du monde.\
 Se retrouvera seul et triste,\
 Car personne ne s'accouplera avec lui ;\
 Ainsi, en s'emparant de tout, il perdra tout.\
 Parce qu'il est si grandiose.\
->
->
+<br>
+<br>
 > Prenez-moi pour modèle, vous tous.\
 Je ne peux que tchanter un petit air ;\
 Un seul thème et seulement jour après jour.\
 Mais ce que je peux, je le fais.\
 Et qui dira que je n'ai pas fait mon travail ?\
 Que je n'ai pas fait mon travail du jour ?\
->
->
+<br>
+<br>
 > Et maintenant, braves gens, vous tous.\
 Ne faites que ce que vous pouvez bien faire.\
 Évitez l'impossible ;\
