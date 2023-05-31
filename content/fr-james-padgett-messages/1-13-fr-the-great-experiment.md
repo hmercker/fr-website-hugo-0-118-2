@@ -9,7 +9,7 @@ weight: 95
 ---
 ### La grande expérience - comment faire l'expérience physique de l'amour de Dieu
 
-Disposez-vous de trente minutes par jour pendant les trois prochaines semaines ? Est-ce que cela vaut la peine de travailler 10 heures pour vous montrer comment parvenir à la communion avec le Père ? Dix heures, est-ce trop demander pour vous orienter dans la bonne direction ? Une direction qui vous procurera un grand bonheur pour l'éternité ! C'est ainsi que vous obtiendrez "la paix qui surpasse toute intelligence". Tentez la grande expérience !
+Disposez-vous de trente minutes par jour pendant les trois prochaines semaines ? Est-ce que cela vaut la peine de travailler 10 heures pour vous montrer comment parvenir à la communion avec le Père ? Dix heures, est-ce trop demander pour vous orienter dans la bonne direction ? Une direction qui vous procurera un grand bonheur pour l'éternité ! C'est ainsi que vous obtiendrez « la paix qui surpasse toute intelligence ». Tentez la grande expérience !
 
 Trois fois par jour, tous les jours pendant les trois prochaines semaines, dites [la prière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/) aussi sincèrement que possible. Concentrez-vous sur votre âme qui crie au Père d'envoyer son Amour Divin dans votre âme. La prière est très belle, mais c'est le degré auquel vous pouvez crier de votre âme qui touchera le Père. Vous n'avez donc pas besoin de mots, ou vous pouvez simplement inventer votre propre prière si vous le souhaitez. De nombreuses personnes ont ressenti cet amour, mais ne savaient pas exactement ce qui l'avait provoqué. Cela se produit parce que vous avez vraiment réussi à envoyer votre amour à Dieu.
 
@@ -38,4 +38,6 @@ Et voici un message récent qui explique très bien la variation dans la façon 
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
+Anne Rollins | [L’importance d’obtenir l’Amour Divin dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-12-2-jep-ann-rollins/) | 12 Décembre 1914
+Salomon | [Quelle est la plus grande chose dans le monde ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-20-1-jep-solomon/) | 20 Avril 1916
 Seretta Kem | [Chaque individu vit son voyage spirituel d’une manière unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-30-1-af-seretta-kem/) | 30 Mars 2020
