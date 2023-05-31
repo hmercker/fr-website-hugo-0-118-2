@@ -49,21 +49,20 @@ C'est pourquoi une autre dit : « Je conseille que nous allions dans les forêts
 
 #### Le chant de l'oiseau <sup id="a1">[1](#f1)</sup>
 
-<p> Nous ne chantons pas pour les sages de la terre.>br>
-Car ils n'ont plus de sagesse,</p>
-Et, faute de sagesse, ils ne savent pas.</p>
-La sagesse n'est rien <p>
-> Si elle n'est pas accompagnée
-> Un bon silence de satisfaction.
+> Nous ne chantons pas pour les sages de la terre.\
+Car ils n'ont plus de sagesse,\
+Et, faute de sagesse, ils ne savent pas.\
+La sagesse n'est rien\
+Si elle n'est pas accompagnée\
+Un bon silence de satisfaction.
 >
-> Ce n'est pas pour les grands de ce monde
-Notre musique ne s'adresse pas aux grands de ce monde,
-Car ils sont proches de ceux
-Qui n'ont pas la même valeur que nous ;
-Nous ne pouvons pas chanter la richesse ou les armes
+> Ce n'est pas pour les grands de ce monde\
+Notre musique ne s'adresse pas aux grands de ce monde,\
+Car ils sont proches de ceux\
+Qui n'ont pas la même valeur que nous ;\
+Nous ne pouvons pas chanter la richesse ou les armes\
 Qui sont pour eux leurs seuls charmes.
-<br>
-<br>
+>
 > Mais quand, sous notre nid de feuilles
 Le travailleur fatigué se couche,
 Nous lui retirons son cœur de la ferme ou de la ville
