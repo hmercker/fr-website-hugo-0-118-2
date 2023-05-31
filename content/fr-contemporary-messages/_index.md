@@ -17,4 +17,4 @@ weight: 60
 6. [Personnalités Historiques](/fr-contemporary-messages/fr-messages-from-historical-spirits/)
 7. [Anciens Présidents Américains](/fr-contemporary-messages/fr-american-presidents-speak-about-life-after-death/)
 8. [Esprits des Temps Anciens](/fr-contemporary-messages/fr-ancient-spirits-deliver-messages/)
-9. [Messages de Shakeaspeare et de Francis Beacon](/fr-contemporary-messages/fr-messages-from-shakespear-and-francis-beacon/)
+9. [Messages de Shakespeare et de Francis Beacon](/fr-contemporary-messages/fr-messages-from-shakespear-and-francis-beacon/)

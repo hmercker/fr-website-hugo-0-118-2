@@ -11,7 +11,7 @@ weight:
 
 ![title](/5-fr-the-key-points-of-jesus-messages/fr-divine-love-spirits-2-600px.jpg)
 
-Ces enseignements ne sont pas complexes, mais lorsqu’ils sont lus avec une solide expérience du Christianisme orthodoxe, il y a tellement de doctrine chrétienne qui est remise en question, qu’il peut être difficile d’avoir une perspective globale. Et on ne peut pas vraiment juger une théologie sans avoir une vue d’ensemble. Le regretté Révérend R. B. Caddle a donné une série de conférences qui ont été synthétisées dans le présent document. Bien qu’il soit encore assez long, il a l’avantage de donner à chaque sujet une certaine importance. Une approche plus courte pourrait être [de lire ce que les Chrétiens de l’Amour Divin croient](*****************https://new-birth.net/new-birth-christians/what-do-new-birth-christians-believe/*********************), car il est presque envisageable de l’exposer sur une page.
+Ces enseignements ne sont pas complexes, mais lorsqu’ils sont lus avec une solide expérience du Christianisme orthodoxe, il y a tellement de doctrine chrétienne qui est remise en question, qu’il peut être difficile d’avoir une perspective globale. Et on ne peut pas vraiment juger une théologie sans avoir une vue d’ensemble. Le regretté Révérend R. B. Caddle a donné une série de conférences qui ont été synthétisées dans le présent document. Bien qu’il soit encore assez long, il a l’avantage de donner à chaque sujet une certaine importance. Une approche plus courte pourrait être [de lire ce que les Chrétiens de l’Amour Divin croient](/5-fr-the-key-points-of-jesus-messages/5-1-1-fr-what-do-new-birth-christians-believe/), car il est presque envisageable de l’exposer sur une page.
 
 La brochure originale complète, en anglais, peut être téléchargée sous forme de [livret électronique](/fr-james-padgett-messages/fr-padgett-summary-final-edited-booklet.pdf).
 
@@ -114,11 +114,11 @@ Après le baptême, Jean prêcha près des rives du Jourdain et ne s’en éloig
 
 Jean prêchait la repentance, et il voulait dire une repentance dans le sens traditionnel du mot – se détourner du péché et de l’erreur dans une obéissance renouvelée aux lois de Moïse, avec l’amour pour Dieu et son prochain, qui conduit à la condition de l’homme naturel parfait.
 
-Jésus a aussi prêché la repentance, car il a dit : *« Repentez-vous, car le Royaume de Dieu est proche ; croyez aux bonnes nouvelles… » <sup id="a1">[1](#f1)</sup> Mais le sens que Jésus a donné à la repentance n’était pas celui qu’appliquait Jean ; car Jésus ne signifiait pas seulement un retour à Dieu mais une recherche du Royaume Divin des Cieux par la prière. Et il enseignait qu’il était la personne qui avait reçu le Grand Don de l’Amour divin et de la vie éternelle que le Père Céleste avait redonné à l’humanité ; et que le désir de l’âme de rechercher l’amour de Dieu, ou sa recherche de cet amour par une prière sincère et sérieuse était la vraie repentance.
+Jésus a aussi prêché la repentance, car il a dit : *« Repentez-vous, car le Royaume de Dieu est proche ; croyez aux bonnes nouvelles… »* <sup id="a1">[1](#f1)</sup> Mais le sens que Jésus a donné à la repentance n’était pas celui qu’appliquait Jean ; car Jésus ne signifiait pas seulement un retour à Dieu mais une recherche du Royaume Divin des Cieux par la prière. Et il enseignait qu’il était la personne qui avait reçu le Grand Don de l’Amour divin et de la vie éternelle que le Père Céleste avait redonné à l’humanité ; et que le désir de l’âme de rechercher l’amour de Dieu, ou sa recherche de cet amour par une prière sincère et sérieuse était la vraie repentance.
 
 Lorsque Jésus a dit : *« Je ne suis pas venu appeler les justes mais les pécheurs à la repentance »*, il voulait dire que les pécheurs pouvaient recevoir le Don de l’Amour Divin aussi bien que les justes, car il était disponible pour tous. Mais, hélas, ce ne sont pas les justes, mais les pécheurs de son temps qui se sont repentis et ont cherché Dieu et Son Amour, tandis que les justes, ou ceux qui se considéraient justes, refusaient, dans leur satisfaction personnelle, le grand Don gratuit qui leur appartenait de demander.
 
-#### Il s’est Proclame lui-même Messie dans la Synagogue de Nazareth.
+#### Il s’est Proclame lui-même Messie dans la Synagogue de Nazareth
 
 Peu après avoir été baptisé par Jean et oint par Dieu comme le Christ, Jésus se présenta dans la synagogue de Nazareth comme étant celui que Dieu avait envoyé pour proclamer le ré octroi de l’immortalité par l’Amour Divin à tous ceux qui rechercheraient leur rédemption du péché et une renaissance dans ses qualités éternelles.
 
@@ -130,11 +130,12 @@ Ce fut, bien entendu une bonne chose, cependant le sens se limitait à la purifi
 
 Lorsque Jésus récita le passage d’Isaïe, il ne récita pas seulement les lignes transcrites dans le Nouveau Testament, mais, comme il était habituel, il lut le chapitre entier, et le passage principal dans ce chapitre était : *« Mon âme exulte parce qu’elle est investie du salut du Seigneur. »*
 
-Et, en lisant ce passage, il laissait entendre que son âme se réjouissait parce qu’elle avait été dotée d’immortalité, ce qui est le véritable sens du salut. Et cette immortalité de son âme était le résultat de la réception de l’Amour Divin qui était maintenant disponible par la Bienveillance Amoureuse du Père Céleste. Et c’est le sens de la déclaration qu’il a faite aux auditeurs dans la synagogue : « Aujourd’hui, je vous annonce que cette Écriture est accomplie. »
+Et, en lisant ce passage, il laissait entendre que son âme se réjouissait parce qu’elle avait été dotée d’immortalité, ce qui est le véritable sens du salut. Et cette immortalité de son âme était le résultat de la réception de l’Amour Divin qui était maintenant disponible par la Bienveillance Amoureuse du Père Céleste. Et c’est le sens de la déclaration qu’il a faite aux auditeurs dans la synagogue : *« Aujourd’hui, je vous annonce que cette Écriture est accomplie. »*
 
 Et c’est à partir de ce passage d’Isaïe qu’il s’est proclamé comme le Messie possédant une âme consciente de son immortalité. Et il proclama aussi la bonne nouvelle que cette immortalité qui était la sienne pourrait désormais appartenir à quiconque la rechercherait par une prière sérieuse et sincère au Père pour Son Amour Divin.
 
 Lorsque Jésus récita le passage sur la délivrance des captifs, il voulait parler de la libération du péché, non seulement par adhésion à la loi mosaïque, comme cela était le cas avant sa venue, mais par le pouvoir de l’Amour Divin du Père qui réagit et transforme l’âme si profondément que celle-ci perd ses pensées et actions pécheresses.
+
 Et lorsqu’il a lu : *« L’Esprit de Jéhovah est sur moi et m’a oint pour proclamer la bonne nouvelle »*, il voulait dire que le Père l’avait mandaté pour annoncer la nouvelle effusion de l’Amour Divin qui était devenu réalité dans son âme et que le Christ, oint par le Principe d’Amour, devait annoncer l’effusion de l’Amour Divin à tous les hommes et enseigner le Chemin de l’Union avec le Père par l’Amour Divin.
 
 Ainsi, il était venu comme le Messie pour proclamer l’immortalité pour toute l’humanité par la prière pour l’Amour du Père, et que le péché et la maladie pouvaient maintenant être éradiqués par le Grand Don du Père.
@@ -146,6 +147,7 @@ Jésus s’est proclamé le Messie, longtemps attendu par les Hébreux. Cependan
 L’histoire de la nation hébraïque contenue dans l’Ancien Testament de la Bible montre clairement que l’âme humaine a toujours été le véritable témoin du progrès de l’humanité dans la reconquête de son état originel de pureté et de bonté par l’amour naturel.
 
 Bien qu’il y ait eu de longues périodes dans leur histoire où la valeur fondamentale de l’âme humaine n’a pas été reconnue comme une création spéciale de Dieu, il y a eu des hommes et des femmes dans la nation Juive qui se sont élevés au-dessus de l’attitude créée par l’aveuglement spirituel. Ils ont prouvé, d’une manière qui ne laisse aucun doute dans le cœur et l’esprit des personnes sensibles à la vérité, que les qualités créées de notre âme humaine sont l’amour, la justice et la charité ; que cette création supérieure de la Volonté Divine du Père est capable de faire preuve de générosité et de dévouement, qualités qui peuvent être révélées dans le geste le plus noble des hommes.
+
 Lorsque Jésus est né sur terre, les Hébreux luttaient sous la tyrannie de l’Empire romain. La barbarie pratiquée par les conquérants païens, en plus des cruautés évoquées par les dirigeants Hébreux, plaçait un joug implacable et sans cœur d’oppression sur les Juifs et leur mode de vie.
 
 Le groupe de Juifs Palestiniens connus sous le nom de Pharisiens était composé des gens du peuple – les artisans et les commerçants opprimés par les riches et les prêtres aristocrates qui ne se souciaient des Écritures que dans la mesure où leurs propres intérêts étaient protégés. Leurs opposants juifs, les Sadducéens, étaient considérés comme le groupe élitiste. Ces deux partis religieux étaient souvent en désaccord sur l’interprétation de la loi orale, qui était le code Hébreu des interprétations non écrites de la loi mosaïque.
@@ -236,7 +238,7 @@ Et pourtant, dans la profonde humilité du grand Amour qui possède son âme, il
 
 Notre frère a parcouru les routes et les chemins de Palestine comme un exemple vivant de la Nouvelle Alliance du Cœur que Dieu avait promise à Ses enfants bien des siècles auparavant par Ses prophètes. L’Amour Divin, perçu à travers la vision spirituelle d’Osée, Isaïe, Jérémie et Ézéchiel, était maintenant devenu une réalité pour le cœur et l’âme des hommes et était manifesté, dans toute sa splendeur et beauté divine, en la personne de Jésus de Nazareth.
 
-#### Pourquoi les Chefs des Prêtres et des Dirigeants de la Religion Hébraïque ont Rejeté sa Revendication du Messianisme.
+#### Pourquoi les Chefs des Prêtres et des Dirigeants de la Religion Hébraïque ont Rejeté sa Revendication du Messianisme
 
 C’est à l’automne de l’an 28 de notre ère que Jésus eut l’occasion de faire connaître ses prétentions en tant que Messie aux principaux prêtres et dirigeants et aux plus savants parmi le peuple Hébreu sur les questions relatives à la religion. Il fit savoir que sa mission était de proclamer la Nouvelle Alliance entre le Père Céleste et les enfants d’Israël et que l’Amour Divin du Père Céleste était maintenant présent et pouvait être obtenu par tous ceux qui pourraient le chercher par un désir sincère de l’âme. Et, en outre, qu’il était le signe visible de sa présence parce que dans son âme reposait la Nature et l’Essence du Père sous la forme de l’Amour Divin ; et que son âme, étant de cette Nature et Essence du Père, était donc immortelle.
 
@@ -247,7 +249,7 @@ Ce type d’argument montrait la mauvaise foi et le recours à la technicité da
 
 Répondant aux principales objections bibliques selon leurs propres termes, Jésus a proclamé qu’il n’était pas vrai qu’ils savaient où il était né et Qui était son Père. Car, alors qu’ils appelaient Joseph son père, qu’ils connaissaient bien, il se référait à Dieu, son Père Céleste, qu’ils ne connaissaient pas. Ils ne savaient pas non plus d’où il venait en tant qu’âme divine, ni comment et quand il avait été créé. La référence des rabbins à son père, Joseph, fut plus tard éliminée des évangiles parce que la mention des parents terrestres de Jésus était une épine dans le pied des révisionnistes évangéliques ultérieurs qui ont travaillé avec zèle pour faire de Jésus un « dieu-homme » né d’une vierge et la seconde personne d’une prétendue Trinité, qui n’a en fait aucun fondement.
 
-Il leur a dit en outre que, s’ils connaissaient le Père, ils le reconnaîtraient aussi, lui, son fils, comme étant envoyé de Lui, et le reconnaîtraient comme le Messie. Citant comme l’ont fait les dirigeants Hébreux, il a déclaré que le Père avait dit : « Prêtez l’oreille, et venez à moi, Écoutez, et votre âme vivra: Je traiterai avec vous une alliance éternelle, Pour rendre durables mes faveurs envers David. 4Voici, je l’ai établi comme témoin auprès des peuples, Comme chef et dominateur des peuples »(Isaïe 55:3-4).
+Il leur a dit en outre que, s’ils connaissaient le Père, ils le reconnaîtraient aussi, lui, son fils, comme étant envoyé de Lui, et le reconnaîtraient comme le Messie. Citant comme l’ont fait les dirigeants Hébreux, il a déclaré que le Père avait dit : *« Prêtez l’oreille, et venez à moi, Écoutez, et votre âme vivra: Je traiterai avec vous une alliance éternelle, Pour rendre durables mes faveurs envers David. 4Voici, je l’ai établi comme témoin auprès des peuples, Comme chef et dominateur des peuples »* (Isaïe 55:3-4).
 
 Et ce qu’il leur a dit était connu de tous ceux qui recevaient des instructions concernant le Père Céleste, afin qu’ils sachent que le Père avait établi un Messie sur eux comme un descendant de David. Ils devaient donc l’accueillir comme leur Messie, dans la mesure où il est en effet venu, pour permettre à leurs âmes de vivre en mettant à leur disposition le Don d’immortalité dans l’Amour Divin du Père, accompagné du pouvoir de guérison et des miracles qu’il a pu accomplir par le Père, attestant ainsi la Vérité de sa mission.
 
@@ -259,7 +261,7 @@ Il n’a pas dit qu’il pouvait faire ce qu’il voyait le Père faire, ou l’
 
 Cependant, si une telle absurdité a été admise un instant, elle se prête à sa propre destruction et prouve sa propre fausseté ; car, n’ayant jamais vu le Père donner sa vie pour ses brebis, Israël, Jésus n’aurait jamais pu, lui non plus, abandonner la sienne dans la signification donnée par le Nouveau Testament, que son sang versé et le sacrifice sur la croix pardonne les péchés.
 
-Il a cité les Psaumes et le prophète Samuel sur l’alliance Davidique : « Quand tes jours seront accomplis et que tu seras couché avec tes pères, j’élèverai ta postérité après toi, celui qui sera sorti de tes entrailles, et j’affermirai son règne. Ce sera lui qui bâtira une maison à mon nom, et j’affermirai pour toujours le trône de son royaume.Je serai pour lui un père, et il sera pour moi un fils » (Samuel 7:12-14).
+Il a cité les Psaumes et le prophète Samuel sur l’alliance Davidique : *« Quand tes jours seront accomplis et que tu seras couché avec tes pères, j’élèverai ta postérité après toi, celui qui sera sorti de tes entrailles, et j’affermirai son règne. Ce sera lui qui bâtira une maison à mon nom, et j’affermirai pour toujours le trône de son royaume.Je serai pour lui un père, et il sera pour moi un fils »* - (Samuel 7:12-14).
 
 Ainsi, s’ils connaissaient le Père et honoraient sa Parole, ils connaîtraient aussi Jésus, car il a proclamé le salut éternel de l’âme par l’Amour de Dieu qui s’est manifesté dans sa propre âme et dont Son pouvoir a témoigné en agissant à travers lui.
 
@@ -272,11 +274,12 @@ Par conséquent, Jésus a déclaré que leur rejet de lui comme le Messie au mot
 Il a ajouté que, de même que le Père le connaissait et était en lui, en lui ayant fait don de son Amour par la réponse aux aspirations et à la prière de son âme, et que cet Amour était la Nature et l’Essence du Père, de même connaissait-il le Père et, de la même manière, le Père était en lui.
 
 Jésus n’a jamais dit qu’il était le Bon Berger (Pasteur), car cela se référait au Père ; et cette déclaration a été insérée de nombreuses années après sa mort afin de l’élever jusqu’à être égal à Dieu. Il a dit que le Père est le Bon Berger (Pasteur), la bergerie étant le Royaume des Cieux, et qu’il était la porte par laquelle les brebis sont entrées dans la bergerie et dans la Présence et la Connaissance du Berger (Pasteur) , Qui ouvre la porte, et qui est le Père.
+
 Le Père donne la vie éternelle à Ses brebis, et Lui, Jésus, est le Chemin, la porte par laquelle Ses brebis peuvent entrer dans la bergerie de la vie éternelle. Dans les Psaumes, il était indiqué que Dieu, le Bon Pasteur, utiliserait David, ou une racine de David, comme aide pour amener les brebis au bercail.
 
 #### « Le Royaume de Dieu est au Milieu de Vous »
 
-Lorsque certains porte-paroles des Pharisiens demandèrent à Jésus quand le Royaume de Dieu viendrait, il répondit que le Royaume de Dieu était déjà venu en sa personne ; car, partout où il allait, il apportait avec lui le Royaume de Dieu. C’est le vrai sens du verset : *« Lorsque les pharisiens demandèrent à Jésus quand viendrait le royaume de Dieu. Il leur répondit: Le royaume de Dieu ne vient pas de manière à frapper les regards. 21On ne dira point: Il est ici, ou: Il est là. Car voici, le royaume de Dieu est au milieu de vous.… »* (Luc 17:20).
+Lorsque certains porte-paroles des Pharisiens demandèrent à Jésus quand le Royaume de Dieu viendrait, il répondit que le Royaume de Dieu était déjà venu en sa personne ; car, partout où il allait, il apportait avec lui le Royaume de Dieu. C’est le vrai sens du verset : *« Lorsque les pharisiens demandèrent à Jésus quand viendrait le royaume de Dieu. Il leur répondit: Le royaume de Dieu ne vient pas de manière à frapper les regards. 21On ne dira point: Il est ici, ou: Il est là. Car voici, le royaume de Dieu est au milieu de vous.… »* - (Luc 17:20).
 
 Le mot grec « entos » a été traduit à tort par les copistes de l’Évangile original : il ne signifie pas « dedans » mais « au milieu de ». La traduction incorrecte provient du fait que le traducteur cherchait à écrire non pas ce que le mot grec signifiait réellement, mais ce qui lui semblait avoir un sens à la lumière de sa propre compréhension imparfaite de ces versets. Car il pensait que la simple foi en Jésus et la fidélité au rite de communion, qui à l’époque était déjà devenu une pratique établie, faisaient de Jésus et donc de Dieu, un avec lui.
 
@@ -298,9 +301,9 @@ Or, le mot « Christ », tel qu’il est généralement utilisé aujourd’hui, 
 
 **Car seul l’amour du Père a le pouvoir de dissiper les erreurs et les maux de l’âme humaine et de donner ainsi à l’homme un cœur nouveau, exempt de péché et transformé de l’image du Père en son essence et sa substance mêmes.**
 
-Ainsi, « avoir le Christ en soi » signifie avoir l’Amour Divin du Père qui habite dans notre âme. *« Et cet amour consiste, non point en ce que nous avons aimé Dieu…… Et nous, nous avons connu l’amour que Dieu a pour nous, et nous y avons cru. Dieu est amour; et celui qui demeure dans l’amour demeure en Dieu, et Dieu demeure en lui. »* (1 Jean 4:10,16)
+Ainsi, « avoir le Christ en soi » signifie avoir l’Amour Divin du Père qui habite dans notre âme. *« Et cet amour consiste, non point en ce que nous avons aimé Dieu…… Et nous, nous avons connu l’amour que Dieu a pour nous, et nous y avons cru. Dieu est amour; et celui qui demeure dans l’amour demeure en Dieu, et Dieu demeure en lui. »* - (1 Jean 4:10,16)
 
-Jean a dit clairement que lorsqu’il parlait d’amour, il voulait dire l’Amour de Dieu – l’Amour Divin de Dieu pour l’homme – et que, là où est cet Amour Divin, il y a aussi Dieu, et il y a le Royaume de Dieu. Si nous nous aimons les uns les autres, Dieu demeure en nous, et son amour est parfait en nous. ( 1 Jean 4:12)
+Jean a dit clairement que lorsqu’il parlait d’amour, il voulait dire l’Amour de Dieu – l’Amour Divin de Dieu pour l’homme – et que, là où est cet Amour Divin, il y a aussi Dieu, et il y a le Royaume de Dieu. Si nous nous aimons les uns les autres, Dieu demeure en nous, et son amour est parfait en nous. - ( 1 Jean 4:12)
 
 Le Royaume de Dieu peut habiter en nous, mais seulement si nous suivons la Voie tracée par Jésus et le cherchons par un désir et une prière sincère au Père pour le Don de Son Amour Divin. Et avec Son Amour Divin viendra la vie éternelle et les choses nécessaires pour la soutenir, en ce monde et dans l’au-delà.
 
@@ -375,7 +378,7 @@ Ses enseignements troublèrent les prêtres et la classe supérieure, qui le con
 Au début, sa joie d’enseigner la libération de l’âme et sa résurrection de la mort spirituelle à la vie éternelle a suscité le soutien des Pharisiens, car ils voyaient en lui un chef qui les aiderait à se libérer du joug romain. Mais Jésus ne s’intéressait pas à un Royaume terrestre. Il préparait son prochain à hériter d’un Royaume spirituel – un Royaume Divin – pour être habité par tous ceux dont l’âme aspirerait à naître de nouveau dans la Nature Divine du Créateur. Ce Royaume, par sa nature même, dépasserait de loin le Paradis de l’Homme Parfait, car la vie à l’intérieur du Royaume Divin serait complètement remplie de l’effusion de l’Amour Divin du Père coulant de la source de son Habitation et dans l’âme de tous ceux qui cherchent activement avec Lui l’expiation.
 
 Plus il réussissait dans sa mission, plus les prêtres et les dirigeants étaient déterminés à l’éliminer, sentant qu’il minait leur influence et la religion Hébraïque.
- 
+
 #### Mort par Crucifixion
 
 C’est à la veille de son arrestation par Pilate que Jésus donna à ses disciples le onzième commandement : Aimez-vous les uns les autres comme je vous ai aimés. Le sens du Commandement, qui est primordial pour la religion prêchée par la [Fondation Église de la Divine Vérité](https://fcdt.org/), [a été expliqué par notre frère aîné dans les mots suivants](/fr-samuels-messages/fr-diverse-messages/fr-18-sep-oct-1955-aug-oct-1962-may-june-1965-samuels-jesus/) (Passover – Easter) :
