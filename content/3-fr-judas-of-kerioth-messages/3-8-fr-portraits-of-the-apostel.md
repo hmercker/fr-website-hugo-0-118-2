@@ -22,9 +22,9 @@ Si vous êtes au courant des recherches scientifiques, vous savez également que
 ![judas](/3-fr-judas-of-kerioth-messages/fr-judas_small.jpg/) | ![andreas](/3-fr-judas-of-kerioth-messages/fr-andreas_small.jpg/) | ![joseph](/3-fr-judas-of-kerioth-messages/fr-joseph_small.jpg/)
 ---|---|---  
 [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | [André](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | Joseph  
-![matthaeus](/3-fr-judas-of-kerioth-messages/fr-matthaeus_small.jpg) | ![jakobus](/3-fr-judas-of-kerioth-messages/fr-jakobus_small.jpg) | ![lukas](/3-fr-judas-of-kerioth-messages/fr-lukas_small.jpg)
+![matthaeus](/3-fr-judas-of-kerioth-messages/fr-matthaeus_small.jpg) | ![jakobus](/3-fr-judas-of-kerioth-messages/fr-jakobus_small.jpg) | ![Lukas](/3-fr-judas-of-kerioth-messages/fr-lukas_small.jpg)
 [St Matthieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-22-1-hr-st-matthew/) | Jacques le Jeune | St Luc  
-![markus](/3-fr-judas-of-kerioth-messages/fr-johannesmarkus_small.jpg) |  ![nathanel](/3-fr-judas-of-kerioth-messages/fr-nathanael_small.jpg) |  ![simon](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
+![markus](/3-fr-judas-of-kerioth-messages/fr-johannesmarkus_small.jpg) |  ![nathanel](/3-fr-judas-of-kerioth-messages/fr-nathanael_small.jpg) |  ![Simon](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 Jean Marc | [Nathanaël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-2-1-hr-judas/) | [Simon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-1-1-hr-judas/)  
 ![zebedeus](/3-fr-judas-of-kerioth-messages/fr-johanneszebedaeus_small.jpg) |   |
 [Jean Zébédée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) |   |
