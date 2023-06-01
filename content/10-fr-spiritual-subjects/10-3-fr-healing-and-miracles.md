@@ -17,7 +17,7 @@ Jésus l'explique très bien dans un message communiqué le [8 mars 1998](/fr-co
 
 > Lorsque nous parlons de miracles, par exemple, c'est l'action des lois supérieures sur les moindres qui donnent l'impression que quelque chose d'extraordinaire s'est produit, ce qui est le cas, car lorsque les choses matérielles sont sous l'influence des lois de la nature, certaines choses se produisent constamment et sans erreur, test après test, mais lorsque les lois divines entrent en vigueur par l'influence des lois de la nature, alors des "miracles" se produisent. Ainsi, toutes les lois mises en mouvement pour régir l'univers fonctionnent sans échec jusqu'à ce qu'une loi supérieure entre en jeu.
 
-Dans les cercles de prière de notre communauté, il n'est pas rare qu'il y ait un désir d'offrir la guérison à un individu ou même à une situation. Il est très facile d'utiliser les mêmes participants assis dans le cercle de lumière pour effectuer un cercle de guérison. Une technique qui peut être utilisée est décrite [ici](********* Heilungskreise und Heilungs-Merkabas******).
+Dans les cercles de prière de notre communauté, il n'est pas rare qu'il y ait un désir d'offrir la guérison à un individu ou même à une situation. Il est très facile d'utiliser les mêmes participants assis dans le cercle de lumière pour effectuer un cercle de guérison. Une technique qui peut être utilisée est décrite [ici](/10-fr-spiritual-subjects/10-2-1-fr-healing-circles-and-healing-merkabas/).
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
