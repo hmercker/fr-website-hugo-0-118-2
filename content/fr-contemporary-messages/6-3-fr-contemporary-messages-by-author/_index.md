@@ -16,7 +16,7 @@ weight: 345
 5. [Artistes et Musiciens](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-5-fr-artists-and-musicians/)
 6. [Disciples de Jésus](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-fr-disciples-of-jesus/)
 7. [Personnalités Économiques et Scientifiques](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-7-fr-economic-and-scientific-personalities/)
-8. [Ecrivains et Philosophes](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/)
+8. [Écrivains et Philosophes](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/)
 9. [Famille  de Jésus](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-9-fr-family-of-jesus/)
 10. [Personnalités Historiques](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-10-fr-historical-figures/)
 11. [Personnalités Religieuses](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)

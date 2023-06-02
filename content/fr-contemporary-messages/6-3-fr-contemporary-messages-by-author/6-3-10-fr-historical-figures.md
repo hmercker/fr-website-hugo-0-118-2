@@ -13,3 +13,156 @@ Cette catégorie de messages regroupe des auteurs très divers, certains très c
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Mahatma Gandhi | [Ayez foi en nous, amis bien-aimés de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1-1958-anonymous-mahatma-gandhi/) | 11 Mai 1905
+Samuel | [Explication sur l'immortalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-10-1969-7-3-anonymous-samuel/) | 3 Juillet 1969
+Samuel | [Renforcez ce lien entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-14-1969-7-17-anonymous-samuel/) | 17 Juillet 1969
+Samuel | [La vérité ne peut jamais échouer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-17-1969-8-1-anonymous-samuel/) | 1 Août 1969
+Samuel | [Guidez vos enfants, enseignez-leur le droit chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-21-1969-8-28-anonymous-samuel/) | 28 Août 1969
+Samuel | [Préparation à la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-23-1969-9-22-anonymous-samuel/) | 22 Septembre 1969
+Mahatma Gandhi | [Priez pour mon peuple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-29-1969-10-13-anonymous-mahatma-gandhi/) | 13 Octobre 1969
+Mahatma Gandhi | [Instructions sur la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-31-1969-10-27-anonymous-mahatma-gandhi/) | 27 Octobre 1969
+Mahatma Gandhi | [Que l'Amour de Dieu vous enveloppe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-32-1969-11-3-anonymous-mahatma-gandhi/) | 3 Novembre 1969
+Samuel | [Connaître les causes de la maladie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-136-1969-12-3-anonymous-samuel/) | 3 Décembre 1969
+Samuel | [Parler aux esprits de la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-46-1969-12-22-anonymous-samuel/) | 22 Décembre 1969
+Mahatma Gandhi | [Nous devons devenir de véritables serviteurs pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-74-1969-anonymous-mahatma-gandhi/) |   1969
+Samuel | [Désirer en vous de servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-56-1969-anonymous-samuel/) |   1969
+Reine Victoria | [Parle de la loyauté (Reine d'Angleterre)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-58-1969-anonymous-queen-victoria/) |   1969
+Joan d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-d'arc/) |   1969
+Mahatma Gandhi | [Préparez-vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-104-1970-anonymous-mahatma-gandhi/) |   1970
+Mahatma Gandhi | [L'homme doit chercher à développer davantage son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-142-1970-anonymous-mahatma-gandhi/) |   1970
+Mahatma Gandhi | [Aidez l'homme à retrouver son chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-149-1970-anonymous-mahatma-gandhi/) |   1970
+Reine Victoria | [Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-162-1970-anonymous-queen-victoria/) |   1970
+Mahatma Gandhi | [La grande illumination viendra](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-166-1970-anonymous-mahatma-gandhi/) |   1970
+Napoléon | [Napoléon et la littérature française](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-7-1-fab-napoleon/) | 7 Mai 2003
+Louis XIV | [Le malheur de Louis XIV](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-7-12-1-fab-louis-xiv/) | 12 Juillet 2005
+John Wilkes Booth | [Le meurtre [d’Abraham Lincoln] est pardonné.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-2-fab-john-wilkes-booth/) | 31 Décembre 2005
+Ramsès II | [Pharaon a trouvé la Nouvelle Naissance.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-12-1-fab-rameses-ii/) | 12 Avril 2006
+Cotton Mather | [Expériences d’un puritain colonial.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-20-1-fab-cotton-mather/) | 20 Mai 2006
+Cotton Mather | [Dieu regarde le cœur.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-2-fab-cotton-mather/) | 21 Mai 2006
+Roger Williams | [La liberté dans l’Amérique coloniale et dans le futur.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-15-2-fab-roger-williams/) | 15 Juin 2006
+Malcolm X | [Malcolm X aime toute l’humanité.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-9-13-1-fab-malcolm-x/) | 13 Septembre 2006
+Malcolm X | [Les regrets de Malcolm X](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-11-18-1-fab-malcolm-x/) | 18 Novembre 2006
+William Bradford | [Pensées d'un leader Pèlerin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-14-1-fab-william-bradford/) | 14 Décembre 2006
+Joan d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-d'arc/) | 26 Décembre 2006
+Martin Luther King jr | [La Terre Promise_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-12-1-fab-martin-luther-king-jr/) | 12 Janvier 2007
+Old Joe | [Expériences d'un esclave américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-9-1-fab-old-joe/) | 9 Mars 2007
+Charles Sumner | [Réflexions d'un homme d'État américain du XIXe siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-1-fab-charles-sumner/) | 10 Mars 2007
+Thaddeus Stevens | [Réflexions d'un autre homme d'État américain du XIXe siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-3-fab-thaddeus-stevens/) | 10 Mars 2007
+Oliver Cromwell | [Souffrances d’un souverain anglais.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-12-1-fab-oliver-cromwell/) | 12 Mars 2007
+Thomas Paine | [Une discussion sur la médiumnité et la guerre.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/) | 16 Mars 2007
+Old Joe | [Old Joe ajoute un commentaire à son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-19-1-fab-old-joe/) | 19 Mars 2007
+Thomas Paine | [Thomas Paine et la guerre.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-22-2-fab-thomas-paine/) | 22 Mars 2007
+Che Guevara | [La souffrance d’un révolutionnaire.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-20-1-fab-che-guevara/) | 20 Septembre 2007
+Karl Marx | [Le célèbre révolutionnaire connaît la confusion.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-24-1-fab-karl-marx/) | 24 Septembre 2007
+Hakan | [Le maître d’œuvre Egyptien confirme le message de Moïse.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-1-fab-hakan/) | 6 Octobre 2007
+Cotton Mather | [Dieu et l'Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-15-1-fab-cotton-mather/) | 15 Novembre 2007
+John Brown | [Le destin de John Brown](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-23-1-fab-john-brown/) | 23 Novembre 2007
+Dag Hammarskjold | [Les réflexions d'un dirigeant de l'ONU](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-24-1-fab-dag-hammarskjold/) | 24 Novembre 2007
+Roi George I | [Un roi anglais est maintenant heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-2-fab-king-george-i/) | 25 Novembre 2007
+Thomas Paine | [Le militarisme a tout faux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-6-2-fab-thomas-paine/) | 6 Décembre 2007
+Martin Luther King jr | [Le Dr King réaffirme la non-violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-20-1-fab-martin-luther-king-jr/) | 20 Janvier 2008
+Charles I | [Un roi anglais fait le bilan de son règne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-2-fab-charles-i/) | 21 Février 2008
+Simon Bolivar | [Les empires tombent toujours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-12-1-fab-simon-bolivar/) | 12 Mars 2008
+Cesar Chavez | [Activité spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-13-1-fab-cesar-chavez/) | 13 Mars 2008
+Oscar Romero | [Lutter pour la justice](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-13-2-fab-oscar-romero/) | 13 Mars 2008
+Roger Williams | [Un dissident colonial](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-23-1-fab-roger-williams/) | 23 Mars 2008
+Cotton Mather | [La conscience dans le procès des sorcières de Salem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-24-1-fab-cotton-mather/) | 24 Mars 2008
+Smedley Butler | [Le dégoût d'un marine américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-27-1-fab-smedley-butler/) | 27 Mars 2008
+Nat Turner | [Le meurtre n’est pas justifié](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-23-2-fab-nat-turner/) | 23 Avril 2008
+Pelage | [Pélage possède la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-12-1-fab-pelagius/) | 12 Août 2008
+Robert Kennedy | [Guidance divine d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-29-1-fab-robert-kennedy/) | 29 Août 2008
+Robert Kennedy | [Guidance divine d'un Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-30-1-fab-robert-kennedy/) | 30 Août 2008
+Rose Kennedy | [La Famille Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-9-1-fab-rose-kennedy/) | 9 Septembre 2008
+Rose Kennedy | [La famille Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-16-1-fab-rose-kennedy/) | 16 Septembre 2008
+Roi George III | [Le point de vue de George III sur la Révolution Américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-20-1-fab-king-george-iii/) | 20 Septembre 2008
+Sarah | [La naissance d'Isaac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-sarah/) | 12 Octobre 2008
+John F Kennedy | [Les expériences d'un Kennedy en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-16-1-fab-john-f-kennedy/) | 16 Octobre 2008
+John F Kennedy | [Les expériences d'un Kennedy en esprit - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-17-1-fab-john-f-kennedy/) | 17 Octobre 2008
+Moctezuma II | [La tristesse d'un Empereur Aztèque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-13-1-fab-moctezuma-ii/) | 13 Décembre 2008
+Le roi Arthur | [Un roi légendaire - le roi Arthur - est réel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-1-1-fab-king-arthur/) | 1 Février 2009
+Wat Tyler | [La négativité à la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-14-1-fab-wat-tyler/) | 14 Février 2009
+Wat Tyler | [La négativité dans la guerre - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-16-1-fab-wat-tyler/) | 16 Février 2009
+Wat Tyler | [La négativité à la guerre - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-17-1-fab-wat-tyler/) | 17 Février 2009
+Harvey Milk | [L'expérience spirituelle d'un militant gay](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-18-1-fab-harvey-milk/) | 18 Février 2009
+Harvey Milk | [L'expérience spirituelle d'un militant gay - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-20-1-fab-harvey-milk/) | 20 Février 2009
+Cotton Mather | [Réflexions sur la sorcellerie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-28-2-fab-cotton-mather/) | 28 Février 2009
+Napoléon | [Les expériences de Napoléon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-25-1-fab-napoleon/) | 25 Mars 2009
+Jerry Falwell | [La tristesse de Jerry Falwell](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-4-5-1-fab-jerry-falwell/) | 5 Avril 2009
+Max Smith | [La souffrance d'un soldat](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-4-29-1-fab-max-smith/) | 29 Avril 2009
+Walt Disney | [L'espoir de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-1-fab-walt-disney/) | 1 Mai 2009
+Karl Marx | [Les difficultés de Karl Marx](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-27-1-fab-karl-marx/) | 27 Mai 2009
+Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/) | 16 Juillet 2009
+Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-1-fab-jeannette-rankin/) | 17 Juillet 2009
+Jeannette Rankin | [L’opinion de Jeannette Rankin sur ses biographes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-2-fab-jeannette-rankin/) | 17 Juillet 2009
+W.E.B. Du Bois | [La passion d'un militant afro-américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-25-1-fab-web-du-bois/) | 25 Juillet 2009
+James Albert Okawsaw Gronniosaw | [Un voyage spirituel au dix-huitième siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-27-1-fab-james-albert-okawsaw-gronniosaw/) | 27 Juillet 2009
+Frederick Douglass | [La joie d'un abolitionniste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-27-2-fab-frederick-douglass/) | 27 Juillet 2009
+Malcolm X | [Semer et récolter pour un leader afro-américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-28-1-fab-malcolm-x/) | 28 Juillet 2009
+Harriet Ann Jacobs | [Le bonheur d'une Ancienne Esclave](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-26-1-fab-harriet-ann-jacobs/) | 26 Août 2009
+Robert Kennedy | [Pensées d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-28-1-fab-robert-kennedy/) | 28 Août 2009
+Walt Disney | [Un changement de perspective_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-8-1-fab-walt-disney/) | 8 Septembre 2009
+Robert Kennedy | [La première vie de Robert Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-3-1-fab-robert-kennedy/) | 3 Décembre 2009
+Robert Kennedy | [Robert Kennedy dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-1-fab-robert-kennedy/) | 4 Décembre 2009
+Robert Kennedy | [La famille Kennedy_3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-1-fab-robert-kennedy/) | 4 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-1-fab-robert-kennedy/) | 7 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-2-fab-robert-kennedy/) | 7 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-1-fab-robert-kennedy/) | 8 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-2-fab-robert-kennedy/) | 8 Décembre 2009
+Martin Luther King jr | [Encouragements de Martin Luther King pour Pâques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-4-4-1-fab-martin-luther-king-jr/) | 4 Avril 2010
+Judah Maccabee | [La sanction de la violence physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-18-1-fab-judah-maccabee/) | 18 Juin 2010
+Emmett Till | [Affirmation afro-américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-30-1-fab-emmett-till/) | 30 Août 2010
+Walt Disney | [Walt Disney et La grève de ses studios](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-30-1-fab-walt-disney/) | 30 Octobre 2010
+Walt Disney | [Walt Disney et ses studios en grève - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-20-1-fab-walt-disney/) | 20 Novembre 2010
+Walt Disney | [Walt Disney, l’histoire et l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-6-1-fab-walt-disney/) | 6 Janvier 2011
+Cecil Rhodes | [Les inconvénients de la poursuite de l’empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-23-1-fab-cecil-rhodes/) | 23 Janvier 2011
+Neville Chamberlain | [Les remords d’un dirigeant britannique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-31-1-fab-neville-chamberlain/) | 31 Janvier 2011
+John Bricker | [L’espoir du sénateur John Bricker](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-25-2-fab-john-bricker/) | 25 Mars 2012
+Mao Zedong | [Les pensées d’un Leader Chinois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-7-1-fab-mao-zedong/) | 7 Avril 2012
+Cecil Rhodes | [Confirmation d’un bâtisseur d’empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-31-1-fab-cecil-rhodes/) | 31 Mai 2012
+Walt Disney | [Inharmonie et Boomerang](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-10-1-fab-walt-disney/) | 10 Juin 2012
+Juan Jose Arevalo | [Une victime de l’Empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-16-1-fab-juan-jose-arevalo/) | 16 Juin 2012
+Walt Disney | [Le sens moral de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-21-2-fab-walt-disney/) | 21 Juin 2012
+William Donovan | [Le confort d’un initié](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-7-14-1-fab-william-donovan/) | 14 Juillet 2012
+Mohammad Mossadegh | [Pensées d’un Leader Iranien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-8-9-2-fab-mohammad-mossadegh/) | 9 Août 2012
+Salvador Allende | [L'appel à la vengeance d'un dirigeant Chilien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-8-14-1-fab-salvador-allende/) | 14 Août 2012
+Walt Disney | [La mentalité de guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-2-fab-walt-disney/) | 21 Février 2013
+John F Kennedy | [La pensée réconfortante d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-25-1-fab-john-f-kennedy/) | 25 Mars 2013
+Oscar Romero | [Le réconfort d’un martyr de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-29-1-fab-oscar-romero/) | 29 Mars 2013
+Reine Liliuokalani | [Un message de réconfort d’une Reine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-9-1-fab-queen-liliuokalani/) | 9 Avril 2013
+John Wilkes Booth | [Comprendre un fanatique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-5-1-fab-john-wilkes-booth/) | 5 Septembre 2013
+Massoud | [Ne prenez pas les choses personnellement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-21-1-wv-massoud/) | 21 Octobre 2014
+Mahatma Gandhi | [La faim spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-5-1-af-mahatma-gandhi/) | 5 Avril 2016
+Mahatma Gandhi | [Vous pouvez changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-2-af-mahatma-gandhi/) | 19 Mai 2017
+Samuel | [C'est aujourd'hui que vous servez Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-19-1-af-samuel/) | 19 Septembre 2017
+Samuel | [Les dons et le but de chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-27-3-af-samuel/) | 27 Septembre 2017
+Mahatma Gandhi | [C'est votre travail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-30-1-af-mahatma-gandhi/) | 30 Octobre 2017
+Reine Victoria | [Beaucoup travaillent ensemble pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-2-af-queen-victoria/) | 3 Novembre 2017
+John F Kennedy | [De grands projets sont en préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-1-af-john-f-kennedy/) | 14 Novembre 2017
+Roi George VI | [Continuez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-2-af-king-george-vi/) | 14 Novembre 2017
+Winston Churchill | [On a besoin de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-3-af-winston-churchill/) | 14 Novembre 2017
+Joan d'Arc | [S'avancer pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-1-af-joan-darc/) | 15 Novembre 2017
+Mahatma Gandhi | [Soyez forts dans l'amour, car les autres ont besoin de vous dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-1-af-mahatma-gandhi/) | 16 Novembre 2017
+La princesse Diana Windsor | [Vous connaissez cet amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-2-af-princess-diana-windsor/) | 16 Novembre 2017
+Louis XIV | [Il y a tant de choses à dire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-5-af-louis-xiv/) | 19 Novembre 2017
+Samuel | [Les choix de l'âme - Le bien contre le mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-3-af-samuel/) | 8 Décembre 2017
+Samuel | [Message pour la Nouvelle Année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-31-2-af-samuel/) | 31 Décembre 2017
+Samuel | [Le changement est la constante de l’univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-4-af-samuel/) | 13 Mars 2018
+Mahatma Gandhi | [Le changement intervient âme par âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-10-1-af-mahatma-gandhi/) | 10 Mai 2018
+Salomon | [La sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-4-af-solomon/) | 17 Octobre 2018
+Mahatma Gandhi | [Encouragement à poursuivre les projets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-21-1-af-mahatma-gandhi/) | 21 Novembre 2018
+Mahatma Gandhi | [Retenez la vision de Dieu et ne vous laissez pas distraire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-28-1-mc-mahatma-gandhi/) | 28 Mars 2019
+Samuel | [Un fleuve puissant commence par une goutte d'eau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-1-2-af-samuel/) | 1 Décembre 2019
+Mahatma Gandhi | [Nous serons avec vous au cours de vos défis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-1-3-mc-mahatma-gandhi/) | 1 Décembre 2019
+Nicodème | [Se rassembler en tant que communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-18-1-af-nicodemus/) | 18 Décembre 2019
+Mahatma Gandhi | [Soyez l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-23-2-jw-mahatma-gandhi/) | 23 Juin 2020
+Ramsès II | [Apprenez à connaître l’humilité et la joie qui accompagnent le service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-26-2-af-ramses-ii/) | 26 Juin 2020
+Marie Antoinette | [Le rachat d’une âme perdue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-28-3-af-marie-antoinette/) | 28 Juin 2020
+Mahatma Gandhi | [L'Amour de Dieu apporte la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-30-1-jw-mahatma-gandhi/) | 30 Juin 2020
+Mahatma Gandhi | [Paix et Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-17-1-jw-mahatma-gandhi/) | 17 Mai 2021
+Martin Luther King jr | [Gardez les yeux sur le prix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-17-2-jw-martin-luther-king-jr/) | 17 Août 2021
+Samuel | [Fait briller sa lumière sur la voie de l’Amour Divin et ses adeptes (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-31-1-af-samuel/) | 31 Octobre 2021
+Samuel | [Les changements à venir et nos familles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-5-1-af-samuel/) | 5 Décembre 2021
+Reine Victoria | [Désire l’harmonie, la lumière, l’amour et la joie pour tous dans son pays : Guernesey](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-5-af-queen-victoria/) | 15 Mai 2022
+Rachel Carson | [Chaque voyage commence par un pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-2-jw-rachel-carson/) | 6 Janvier 2023
+Joan d'Arc | [La prière avec les Liens de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-3-af-joan-d'arc/) | 30 Mars 2023
+Samuel | [Deux parcours spirituels distincts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-18-1-af-samuel/) | 18 Avril 2023
