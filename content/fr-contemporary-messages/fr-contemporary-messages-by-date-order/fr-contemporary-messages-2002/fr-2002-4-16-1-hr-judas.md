@@ -45,9 +45,7 @@ De nouveau, l’Amour Divin, qui convertit l’âme, par sa puissance de transfo
 
 Le pain de vie, c’est-à-dire, les enseignements du Maître, qui nous entretiennent et nous donnent la vie, parce que c’est seulement par eux que nous sommes capables de réaliser notre véritable union et réconciliation avec Dieu. Ces enseignements sont la façon de trouver le bonheur parfait, sans être affamé ou assoiffé.
 
-Et puis, la levure des Pharisiens et des Sadducéens. Eh bien, cette formule *« des Pharisiens et des Sadducéens »* ou *« des Pharisiens et des Scribes »* est une citation monolithique et stéréotypée d’un temps postérieur, lorsque les adversaires de Jésus ont été symbolisés au moyen de cette
-
-expression. Mais de nouveau, Jésus compare ses enseignements à de la levure ou à de la nourriture. Les gens comprenaient cela.
+Et puis, la levure des Pharisiens et des Sadducéens. Eh bien, cette formule *« des Pharisiens et des Sadducéens »* ou *« des Pharisiens et des Scribes »* est une citation monolithique et stéréotypée d’un temps postérieur, lorsque les adversaires de Jésus ont été symbolisés au moyen de cette expression. Mais de nouveau, Jésus compare ses enseignements à de la levure ou à de la nourriture. Les gens comprenaient cela.
 
 Dans une autre partie du Nouveau Testament tu peux lire :
 

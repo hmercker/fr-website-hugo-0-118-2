@@ -15,11 +15,11 @@ C’est moi, Jésus.
 
 Sophonie de Cushi, le prophète de la dite journée de la colère de Dieu, est né à Jérusalem, sous le règne du roi Manassé, aux environs de 665 av. J.-C. Son activité prophétique date du début de l’invasion Scythe de la Palestine vers l’an 636 B.C. Sophonie était relié, par le sang, à la maison royale de Juda, par une suscription au livre du prophète nommé Ézéchias, le père du grand-père de Sophonie :
 
-> « La parole de l’Éternel qui fut adressée à Sophonie, fils de Cuschi, fils de Guedalia, fils d’Amaria, fils d’Ezéchias. » (Sophonie 1 : 1)
+> *« La parole de l’Éternel qui fut adressée à Sophonie, fils de Cuschi, fils de Guedalia, fils d’Amaria, fils d’Ezéchias. »* **(Sophonie 1 : 1)**
 
 Son grand-père était un ancêtre de ce Guedalia, qui devint gouverneur de Judée après la chute de Jérusalem en 556 av. J.-C. Cette dénomination des ancêtres allait à l’encontre de la coutume et indiquait que les ancêtres du prophète remontaient au Roi Ézéchiel, dans les jours d’Isaïe. Sophonie a vécu à Jérusalem près du palais, et il a décrit sa topographie brièvement :
 
-> « En ce jour-là, dit l’Éternel, Il y aura des cris à la porte des poissons, des lamentations dans l’autre quartier de la ville, et un grand désastre sur les collines… En ce temps-là, je fouillerai Jérusalem avec une lampe. » (Sophonie 1 : 10-12)
+> *« En ce jour-là, dit l’Éternel, Il y aura des cris à la porte des poissons, des lamentations dans l’autre quartier de la ville, et un grand désastre sur les collines… En ce temps-là, je fouillerai Jérusalem avec une lampe. »* **(Sophonie 1 : 10-12)**
 
 Il fut l’un de ceux qui pensaient qu’une réaction contre l’idolâtrie et les fléaux de Manassé et de son fils, Amon, était indispensable si le pays de Juda et ses habitants ne voulaient pas être détruits. Par cela, je ne veux pas dire que les rois seuls étaient coupables, car beaucoup de personnes avaient accepté les divinités assyriennes et leurs rites, y compris même l’abomination des sacrifices humains. Ceux qui avaient résisté en défendant Jéhovah et sa morale vivante avaient été persécutés et tués, et donc la vraie religion en Juda fut contrainte de devenir, pour ainsi dire, souterraine.
 
@@ -37,17 +37,17 @@ Maintenant, Sophonie n’aurait pas pu commencer la prophétie de la journée de
 
 Ainsi, durant la grande fête du printemps, quand la Pâque fut célébrée avec le sacrifice de l’Agneau – même si ce n’est que plus tard que Josias ré-institua la Pesah (terme Hébreu pour Pâque) comme la grande fête de la délivrance d’Égypte. Sophonie, dans l’esprit d’Amos, a déclaré un terrible jour du jugement :
 
-> « Silence devant le Seigneur, l’Éternel ! Car le jour de l’Éternel est proche, Car l’Éternel a préparé le sacrifice, Il a sanctifié ses conviés. » (Sophonie 1 : 7)
+> *« Silence devant le Seigneur, l’Éternel ! Car le jour de l’Éternel est proche, Car l’Éternel a préparé le sacrifice, Il a sanctifié ses conviés. »* **(Sophonie 1 : 7)**
 
 Ces invités, étant « sanctifiés », signifiait « détruits » – les Judéens et les habitants de Jérusalem, les prêtres païens, qui ont sanctifié les lumières célestes depuis les toits, les Juifs hypocrites qui adoraient Dieu et Milcom, le Dieu des Ammonites, et les officiers et les princes royaux de la maison de Josias qui ont résisté à la réforme et porté des habits Assyriens. Ils pratiquaient des coutumes païennes telles que sauter par-dessus le « seuil » et ainsi, dans leur superstition, ils ont cherché à éviter tout contact avec les esprits des humains et des animaux qui étaient sacrifiés et enterrés dans les fondations des maisons (en tant que protection contre les envahisseurs ou des bandes de pillards, à l’origine, mais qui dans l’esprit populaire se sont peu à peu développés en mauvais esprits). Sophonie, était antagoniste à la croyance dans les esprits, comme les prophètes antérieurs, car il reconnaissait le pouvoir spirituel indépendant de Jéhovah.
 
-L’image de la bataille de Sophonie a été prise de (Amos 1 : 14 et 22) :
+L’image de la bataille de Sophonie a été prise de **(Amos 1 : 14 et 2.2)** :
 
-> « J’allumerai le feu dans les murs de Rabba, Et il en dévorera les palais, Au milieu des cris de guerre au jour du combat, Au milieu de l’ouragan au jour de la tempête; …. Et Moab mourra avec tumulte, avec des cris et le son de la corne. »
+> *« J’allumerai le feu dans les murs de Rabba, Et il en dévorera les palais, Au milieu des cris de guerre au jour du combat, Au milieu de l’ouragan au jour de la tempête; …. Et Moab mourra avec tumulte, avec des cris et le son de la corne. »*
 
 Sophonie a développé cette description de terreur en ajoutant la ligne de ténèbres et d’obscurité à une scène illustrant la guerre et la terreur pour les habitants qui ne pouvaient pas se battre avec assurance car ils n’avaient pas le courage moral donné par le respect à Dieu :
 
-> « Proche est le jour de l’Éternel ! Proche et progressant rapidement. … Ce jour-là est un jour de colère, une journée d’ennui et de détresse, un jour de destruction et de désolation, un jour de ténèbres et d’obscurité, un jour de nuées et d’obscurité, un jour de la trompette et le cri de bataille, contre les villes fortifiées et les remparts élevés. » (Sophonie 1 : 14-16)
+> *« Proche est le jour de l’Éternel ! Proche et progressant rapidement. … Ce jour-là est un jour de colère, une journée d’ennui et de détresse, un jour de destruction et de désolation, un jour de ténèbres et d’obscurité, un jour de nuées et d’obscurité, un jour de la trompette et le cri de bataille, contre les villes fortifiées et les remparts élevés. »* **(Sophonie 1 : 14-16)**
 
 Ainsi Sophonie a prévenu de la destruction de Juda pour la commission des péchés contre les lois morales du Seigneur.
 

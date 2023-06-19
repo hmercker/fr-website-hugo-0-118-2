@@ -25,4 +25,9 @@ Oui, j’écrirai un message formel sur ce sujet, et vous verrez que l’Esprit 
 
 Votre ami et votre frère, Jésus.
 
-*Note : Au mois d'Octobre et Novembre 1915, suite à un sermon prononcé par un précicateur, [Anne Rollins](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-1-jep-ann-rollins/), [Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-1-jep-luke/) et [Paul](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-st-paul/) ont également nié l'existence du péché impardonnable.*
+*Note 1 : Au mois d'Octobre et Novembre 1915, suite à un sermon prononcé par un précicateur, [Anne Rollins](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-1-jep-ann-rollins/), [Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-1-jep-luke/) et [Paul](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-st-paul/) ont également nié l'existence du péché impardonnable.*
+
+*Note 2 : Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins le [15 Septembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins.md) et [11 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/), par Jésus le [10 Mai 1920](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/), par Luc le [05 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/) et par Jean le [14 Juin 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/).*
+
+
+

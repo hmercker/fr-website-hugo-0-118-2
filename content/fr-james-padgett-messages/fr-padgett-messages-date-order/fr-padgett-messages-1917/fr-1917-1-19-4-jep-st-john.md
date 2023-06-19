@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages.
+### Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages <sup id=”a1”>[1](#f1)</sup>.
 
-St Jean - reçu par James Padgett le 19 Janvier 1917, Washington, USA.
+Saint Jean - reçu par James Padgett le 19 Janvier 1917, Washington, USA.
 
 C’est moi, Jean. Je suis ici ce soir pour dire quelques mots sur votre condition spirituelle et pour vous montrer que vous devez faire un effort pour sortir de votre indifférence quant à notre écriture. Je sais que vous pensez que vous n’êtes pas en état d’écrire et que le fait d’être ainsi ne vous permet pas de faire l’effort et le succès ne peut pas venir dans les communications.
 
@@ -42,5 +42,8 @@ Non, cela n’interférerait pas et, le moment venu, nous vous conseillerons tou
 Je vous souhaite une bonne nuit.
 
 Votre frère dans le Christ, Jean.
+<small>
 
-*Remarque : Ce message ne figure pas dans les volumes publiés. Il a été extrait des archives par Geoff Cutler et préparé par Catherine Whiteside en mai 2019.*
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été extrait des archives par Geoff Cutler et préparé par Catherine Whiteside en mai 2019.[↩](#a1)
+
+

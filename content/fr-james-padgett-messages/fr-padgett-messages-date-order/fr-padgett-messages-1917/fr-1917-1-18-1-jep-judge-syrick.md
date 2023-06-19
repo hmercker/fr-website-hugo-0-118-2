@@ -9,7 +9,7 @@ weight:
 ---
 ### Le juge Syrick essaie l’impersonalisation pour tester la perception de l’âme de M. Padgett <sup id="a1">[1](#f1)</sup>
 
-Juge Syrick - reçu par James Padgett le 28 Janvier 1917, Washington, USA.
+Juge Syrick - reçu par James Padgett le 18 Janvier 1917, Washington, USA.
 
 C’est moi, Frank D. Syrick.
 

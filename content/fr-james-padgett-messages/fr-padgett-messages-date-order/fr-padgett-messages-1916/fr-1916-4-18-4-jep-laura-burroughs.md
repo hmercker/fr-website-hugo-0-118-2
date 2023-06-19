@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Laura Burroughs écrit qu’elle est si reconnaissante de connaître la vérité
+### Laura Burroughs écrit qu’elle est si reconnaissante de connaître la vérité <sup id=”a1”>[1](#f1)</sup>.
 
 Laura Burroughs - reçu par James Padgett le 18 Avril 1916, Washington, USA.
 
@@ -26,3 +26,7 @@ Parfois, je viens alors que les esprits supérieurs sont avec toi, mais je ne pe
 Je ne peux pas écrire plus ce soir, mais comme je deviens plus forte et meilleure, je veux venir te voir de temps à autre pour te parler de mes progrès. Alors, avec mon amour, je te souhaiterai une bonne nuit.
 
 Ta cousine qui t’aime, Laura.
+<small>
+
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
+

@@ -15,7 +15,7 @@ C’est moi, Hélène.
 
 Oui, de tout mon cœur. J’étais et je fus si heureuse.Tu ne dois pas être malheureux parce que je suis avec toi tout le temps, et tu ne seras pas seul si tu m’aimes comme tu l’as fait ce matin. Tu es mon seul amour et c’est mon cher privilège de t’avoir pour moi. Sois fidèle à moi et tu seras heureux.
 
-Oui, le Maître était avec toi le samedi soir et il est le seul qui peut vous aider à sentir l’amour de Dieu comme vous l’avez fait.
+Oui, le Maître était avec toi [samedi soir](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-12-1-jep-jesus/) et il est le seul qui peut vous aider à sentir l’amour de Dieu comme vous l’avez fait.
 
 *(La question suivante fait référence à M. Colburn qui a dit qu’il s’agissait peut-être d’une usurpation d’identité).*
 
@@ -50,4 +50,4 @@ Bonne nuit, avec tout mon amour et beaucoup de baisers.
 
 Hélène.
 
-*Note : [Dans ce message de Judas](?????), il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.*
+*Note : [Dans ce message de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.*

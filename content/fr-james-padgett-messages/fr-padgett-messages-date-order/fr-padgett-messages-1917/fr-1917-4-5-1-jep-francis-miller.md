@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Francis Miller écrit
+### Francis Miller écrit <sup id=”a1”>[1](#f1)</sup>.
 
 Francis Miller - reçu par James Padgett le 5 Avril 1917, Washington, USA.
 
@@ -22,5 +22,9 @@ J’essaie également d’influencer les mortels et, comme vous pouvez le suppos
 Je voulais simplement vous faire savoir que je suis sur une terre si vivante, que je suis très heureux et en paix avec tous, que j’aime le Père de toute mon âme et que j’essaie de faire Sa volonté. Je ne vais pas vous en dire plus maintenant, mais je reviendrai un jour pour vous parler de certaines de mes connaissances et de vos connaissances de la terre et de leurs conditions.
 
 Bonne nuit, votre ancien partenaire, Francis Miller.
+<small>
+
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
+
 
 Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King. Cet esprit était un associé de James Padgett.

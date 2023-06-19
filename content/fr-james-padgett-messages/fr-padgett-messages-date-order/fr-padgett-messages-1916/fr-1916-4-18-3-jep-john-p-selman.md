@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### John P. Selman a trouvé l’Amour Divin
+### John P. Selman a trouvé l’Amour Divin<sup id=”a1”>[1](#f1)</sup>.
 
 John P Selman - reçu par James Padgett le 18 Avril 1916, Washington, USA.
 
@@ -28,3 +28,7 @@ Je n’écrirai pas plus ce soir.
 Ton vieil ami.
 
 John P. Selman
+<small>
+
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
+

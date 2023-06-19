@@ -25,4 +25,4 @@ James L Young.
 2. <large id="f2"> Ce message a certainement été enregistré parmi les très courts messages reçus des esprits des ténèbres auxquels James Padgett permettait d’écrire le mercredi. Ces messages n’ont pas été publiés.[↩](#a2)
 
 
-1
+

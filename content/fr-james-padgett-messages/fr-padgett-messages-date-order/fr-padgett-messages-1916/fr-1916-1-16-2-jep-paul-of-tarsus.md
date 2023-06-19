@@ -52,3 +52,10 @@ Il est trop tard ce soir pour expliquer cette Résurrection, mais je reviendrai 
 Je vais maintenant vous dire bonne nuit et que Dieu vous bénisse et vous protège.
 
 Votre frère en Christ, Paul.
+
+Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :
+
+    - le 08 Février 1916 : [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/).
+
+    - le 04 Octobre 1916 : [Quel est le corps réel qui est ressuscité au moment de la mort physique}(/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-4-1-jep-st-paul/).
+
