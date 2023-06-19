@@ -21,4 +21,4 @@ Bonne nuit.
 
 Hélène.
 
-*Note : [Dans ce message](?????), Judas explique que les propos attribués, dans le message ci-dessus, ne sont probablement exacts.*
+*Note : [Dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), Judas explique que les propos attribués, dans le message ci-dessus, ne sont probablement exacts.*

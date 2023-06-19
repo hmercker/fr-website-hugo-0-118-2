@@ -17,7 +17,7 @@ Oui, je l’étais, et tu as bénéficié des services bien que tu n’aies pas 
 
 Tu n’as pas prié Dieu comme tu aurais dû le faire. C’est à lui que tu aurais dû davantage penser.
 
-*Questions et réponses :*
+*[Questions et réponses :]*
 
 Oui, je sais, mais ils essayaient seulement de sentir la présence de Dieu et de l’Esprit Saint. Tu n’as pas profité pleinement du service. Oui, c’est vrai, mais tu ne dois pas laisser cette idée t’empêcher d’adorer Dieu, car Il ne veut pas qu’on l’adore autrement qu’en Esprit et en Vérité.
 
@@ -27,7 +27,7 @@ Jésus, bien entendu est celui avec qui tu dois garder un rapport saint, alors n
 
 Son sang ne te sauve pas, ni sa mort, mais son amour et ses enseignements te sauvent du péché et de la mort. Il ne te laissera pas sentir qu’il n’est pas ton ami, à moins que tu te détournes de lui au profit de l’amour de la terre et des plaisirs matériels et physiques.
 
-*Question et réponse :*
+*[Question et réponse :]*
 
 Oui, mais tu ne priais pas le Père comme tu aurais dû le faire. Ne pense pas que tu vas écrire pour lui, car cela t’empêchera de prier le Père et tu n’avanceras pas dans ta vie spirituelle. Tu n’es pas en condition pour écrire davantage ce soir ou je n’écrirais simplement que sur ce que tu devrais savoir. Je le ferai ultérieurement. Tu comprendras bientôt ce que je veux dire. Va te coucher et repose-toi.
 

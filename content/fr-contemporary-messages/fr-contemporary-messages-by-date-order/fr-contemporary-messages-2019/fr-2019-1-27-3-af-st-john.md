@@ -11,7 +11,7 @@ weight:
 
 St Jean - reçu par Al Fike le 27 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-période-de-sommeil.png)
+![Periode de Sommeil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-periode-de-sommeil.png)
 
 Que Dieu vous bénisse, je suis Jean le Bien-Aimé. Oui, vous vous interrogez sur le voyage de vos âmes lorsque vous dormez la nuit. Où allez-vous ? A qui parlez-vous ? Avez-vous un but et une mission pendant ces périodes de sommeil ? Dieu utilise Ses instruments de bien des façons. Lorsque vous êtes dans cet état de sommeil, l’esprit est plus détendu et capable de libérer son contrôle, il y a donc plus de possibilités, de flexibilité dans le mouvement de l’âme dans votre monde et dans le nôtre. Car le voile entre les deux est vraiment très mince.
 

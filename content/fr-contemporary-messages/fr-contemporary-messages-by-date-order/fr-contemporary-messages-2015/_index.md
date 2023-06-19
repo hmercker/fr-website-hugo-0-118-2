@@ -27,7 +27,7 @@ Joseph Smith | [L’imagination et les idées des hommes créent des faussetés 
 Alec Gaunt | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-7-6-1-af-alec-gaunt/) | 6 Juillet 2015
 Jean le Bien Aimé | [Les vents du changement soufflent sur ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-7-25-1-af-john-the-beloved/) | 25 Juillet 2015
 Augustin | [La liberté par l'activation de l'âme-mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-14-1-af-augustine/) | 14 Août 2015
-Jésus | [ Le monde s’approche rapidement d’une période de chaos](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-17-1-af-jesus/) | 17 Août 2015
+Jésus | [Le monde s’approche rapidement d’une période de chaos](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-17-1-af-jesus/) | 17 Août 2015
 Augustin | [Le chemin le moins parcouru et conseils pour le voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-18-1-af-augustine/) | 18 Août 2015
 James Padgett | [Exprimer la vérité aux autres. Padgett explique pourquoi c’est si important](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-20-1-af-james-padgett/) | 20 Août 2015
 St François d'Assise | [Soyez un phare et une source de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-20-2-af-st-francis-of-assisi/) | 20 Août 2015

@@ -39,4 +39,4 @@ weight: 330
 | [1984-1994](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/) |
 | [1970](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/) |
 | [1969](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/) |
-| [1963](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/) |
+| [1963 et avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/) |

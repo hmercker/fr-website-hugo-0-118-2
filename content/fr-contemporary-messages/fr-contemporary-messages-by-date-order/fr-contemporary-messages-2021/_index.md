@@ -115,7 +115,7 @@ Jésus | [Cette flamme d’amour nettoiera tous les mondes](/fr-contemporary-mes
 Barbara Davies | [Désir de servir et d’être dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-1-af-barbara-davies/) | 6 Avril 2021
 Marie | [Consacrez-vous à Dieu, mes bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-2-af-mary/) | 6 Avril 2021
 Claire d'Assise | [Immunité spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-8-1-jw-clare-of-assisi/) | 8 Avril 2021
-Jésus | [Changements Terrestres – Suivi des 20 Leçons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-9-1-af-jesus/) | 9 Avril 2021
+Jésus | [Leçon 1 : Changements Terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-9-1-af-jesus/) | 9 Avril 2021
 St Matthieu | [Mon engagement envers vous est absolu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-10-1-af-st-matthew/) | 10 Avril 2021
 Jésus | [Déposez votre manteau de protection et venez nu à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-11-1-af-jesus/) | 11 Avril 2021
 Hafiz | [Cette Attente, ce Désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-11-2-jw-hafiz/) | 11 Avril 2021
@@ -340,7 +340,7 @@ Judas | [Énergie Céleste](/fr-contemporary-messages/fr-contemporary-messages-b
 Yogananda | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-18-2-jw-yogananda/) | 18 Octobre 2021
 Orion | [Nos amis stellaires poursuivent leurs activités (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-19-1-af-orion/) | 19 Octobre 2021
 Robert James Lees | [Le monde bénéficierait de ce que j'ai reçu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-19-2-jw-robert-james-lees/) | 19 Octobre 2021
-André | [Décrit le libre arbitre - Les anges n'interviendront pas ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-21-1-af-andrew/) | 21 Octobre 2021
+André | [Décrit le libre arbitre - Les anges n'interviendront pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-21-1-af-andrew/) | 21 Octobre 2021
 Arthur Conan Doyle | [Il y a beaucoup de travail à faire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-1-jw-arthur-conan-doyle/) | 22 Octobre 2021
 Care Derby Walsh | [Encouragements à terminer les projets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-2-jw-care-derby-walsh/) | 22 Octobre 2021
 St Matthieu | [Le monde a besoin de l’amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-3-af-st-matthew/) | 22 Octobre 2021
@@ -392,11 +392,15 @@ Jésus | [La confiance dans le plan de Dieu](/fr-contemporary-messages/fr-contem
 Orion | [Sera avec nous dans les temps troublés à venir (2021 Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-2-af-orion/) | 17 Décembre 2021
 Archange Michael | [Déclaration du début de la transformation de notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-3-af-archangel-michael/) | 17 Décembre 2021
 Orion | [Ce à quoi nous pouvons nous attendre pour l’année 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-18-1-af-orion/) | 18 Décembre 2021
+Jésus | [Nous appelle tous à être ses disciples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-19-1-af-jesus/) | 19 Décembre 2021
 St François d'Assise | [Ce choix simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-20-1-jw-st-francis-of-assisi/) | 20 Décembre 2021
 Seretta Kem | [Attendez-vous à la ruée vers l’Or](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-21-1-af-seretta-kem/) | 21 Décembre 2021
+Jésus | [Bénédiction de la grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-21-2-af-jesus/) | 21 Décembre 2021
 Care Derby Walsh | [La joie dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-23-1-jw-care-derby-walsh/) | 23 Décembre 2021
+Mabeko | [Personnel pour Lorika en Afrique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-23-2-af-mabeko/) | 23 Décembre 2021
 St Étienne | [Parlez au monde depuis votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-1-jw-st-stephen/) | 26 Décembre 2021
 Dr Gordon Leonard  | [Le pouvoir de la foi pour guérir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-2-af-dr-gordon-leonard/) | 26 Décembre 2021
 Care Derby Walsh | [Liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-3-jw-care-derby-walsh/) | 26 Décembre 2021
 Orion | [Deux pas en avant, un pas en arrière (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-28-1-af-orion/) | 28 Décembre 2021
+Jésus | [Une bénédiction profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-28-2-af-jesus/) | 28 Décembre 2021
 Jude, le frère de Jésus | [Chaque voyage commence par un premier pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-30-1-jw-jesus-brother-jude/) | 30 Décembre 2021

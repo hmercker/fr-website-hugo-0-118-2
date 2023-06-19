@@ -15,7 +15,7 @@ Oui, c’est moi, ton père.
 
 [Oui c’est vrai](/james-padgett-messages/padgett-messages-date-order/padgett-messages-1914/fr-1914-9-12-1-jep-jesus/). Il était avec toi et tu apprendras bientôt beaucoup plus de lui parce qu’il dit qu’il t’enseignera la Vérité, la Lumière et la Voie. Aime Dieu et garde Ses commandements. Laisse ton cœur être ouvert aux enseignements Divins du Maître. Il ne te montrera pas tout l’amour qu’il a pour toi, mais te laissera sentir qu’il est ton ami et sauveur affectueux.
 
-*(Pourquoi est-il venu à moi ?)*
+*[Pourquoi est-il venu à moi ?]*
 
 Parce qu’il t’aime et croit que tu peux être utile au monde.
 

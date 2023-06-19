@@ -22,3 +22,4 @@ Beaucoup dans votre monde sont réticents à lutter, à s'élever, à être dans
 Puissiez-vous continuer sur cette voie du service et trouver facilement votre chemin sans trop de détours et de distractions, mais avec un objectif clair. Vous trouverez votre chemin. Il vous suffit de demander à Dieu de vous aider, de vous aider à trouver la clarté, la direction et la force. Cette concentration viendra avec l'intention de le faire et les interventions de Dieu et de ses anges sur vous.  Vous avez beaucoup reçu, mes amis. Vous êtes grandement aimés. Puissiez-vous trouver votre chemin et vous libérer de tout ce qui fait obstacle à une plus grande lumière, un plus grand service et un plus grand amour.
 
 Que Dieu vous bénisse. Je suis André. Mon amour est avec vous tous. Que Dieu vous bénisse, mes amis bien-aimés.
+

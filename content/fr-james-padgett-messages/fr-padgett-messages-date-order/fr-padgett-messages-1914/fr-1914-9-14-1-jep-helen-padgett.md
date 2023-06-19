@@ -17,7 +17,7 @@ Oui, de tout mon cœur. J’étais et je fus si heureuse.Tu ne dois pas être ma
 
 Oui, le Maître était avec toi [samedi soir](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-12-1-jep-jesus/) et il est le seul qui peut vous aider à sentir l’amour de Dieu comme vous l’avez fait.
 
-*(La question suivante fait référence à M. Colburn qui a dit qu’il s’agissait peut-être d’une usurpation d’identité).*
+*[La question suivante fait référence à M. Colburn qui a dit qu’il s’agissait peut-être d’une usurpation d’identité.]*
 
 Oui et j’ai entendu ce qui a été dit – il n’a pas raison de dire que je ne reconnais pas Jésus quand il vient parmi nous. Il est si lumineux avec l’amour de Dieu et l’esprit de justice dans tout son être que nous savons tous qu’il est le vrai Christ. Ne te laisse pas envahir par le doute que celui qui t’a écrit n’était pas Jésus ; il était le vrai Jésus de la Bible.
 
@@ -34,7 +34,7 @@ Oui, et je progresse très rapidement et je serai bientôt dans la troisième sp
 
 Non, je t’attendrai et nous irons ensemble sur les plans supérieurs de l’amour et de la lumière. Nous serons toujours ensemble comme mari et femme.
 
-*(M. Padgett a posé la question, aimait-elle beaucoup ses enfants ?)*
+*[M. Padgett a posé la question, aimait-elle beaucoup ses enfants ?]*
 
 Oui, je les aime et je suis avec eux très souvent, mais ils sont les compagnons d’amour d’autres. Ils trouveront leur bonheur dans la société de ces autres, ils n’auront plus besoin de moi après un certain temps, si ce n’est que je les aiderai à sentir que leur mère veille sur eux et les aime comme une mère. Ne leur permet pas n’empiétez trop sur ta vie car tu n’es pas celui que Dieu a décrété comme devant être avec eux comme leur véritable amour pour toujours. Que ton amour pour eux les aide seulement à apprendre qu’ils doivent vivre correctement et aimer leur Dieu.
 
@@ -46,8 +46,6 @@ Oui, et j’ai vu le livre que tu lisais, le dernier n’est pas utile, laisse-l
 
 Sois un vrai disciple de Christ et tu n’auras besoin d’aucune autre connaissance ou aide. Oui, et je ne suis pas d’accord avec lui sur le Spiritualisme ou la Science Chrétienne. Il n’est pas assez bien informé sur l’un ou l’autre pour former un jugement correct. Il est trop sectaire et n’a pas une vraie conception de la Bible. Laissez-le tranquille.
 
-Bonne nuit, avec tout mon amour et beaucoup de baisers.
-
-Hélène.
+Bonne nuit, avec tout mon amour et beaucoup de baisers. Hélène.
 
 *Note : [Dans ce message de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.*

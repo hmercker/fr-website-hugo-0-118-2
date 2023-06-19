@@ -17,7 +17,7 @@ Tu es le meilleur fils du monde. Oui, et tu dois m’aimer plus que tu ne le fai
 
 Oui, je ne crois pas à l’enfer et au châtiment éternel – ce sont les faux enseignements des églises orthodoxes.
 
-*Le oui et le non sont des réponses aux questions posées par M. Padgett*
+*[Le oui et le non sont des réponses aux questions posées par M. Padgett]*
 
 Jésus est le même que celui que je croyais qu’il était sur terre. Oui, il est toujours mon sauveur, mais je ne l’adore pas comme Dieu. Il n’est pas Dieu, mais un esprit de la plus grande perfection et de la plus grande bonté. Il est avec moi assez souvent. Il t’a parlé [Samedi soir](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-12-1-jep-jesus/) et il reviendra [très bientôt](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/) vers toi pour t’expliquer le véritable enseignement de la Bible. Laisse-le être ton ami et ton conseiller.
 
@@ -25,8 +25,4 @@ J’ai une maison et je vis avec un esprit qui a le même cheminement que moi. N
 
 Oui, ils le sont, mais il n’est pas encore avec elle, il est trop terrestre, mais il progresse. Oui je le sais, c’est Hélène. Elle le fait et tu dois l’aimer aussi.
 
-Tu dois aller te coucher. Bonne nuit, mon fils.
-
-Ta mère.
-
-Anne R. Padgett.
+Tu dois aller te coucher. Bonne nuit, mon fils. Ta mère. Anne R. Padgett.

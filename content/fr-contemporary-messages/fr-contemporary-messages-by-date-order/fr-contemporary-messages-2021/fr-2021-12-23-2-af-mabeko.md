@@ -1,0 +1,26 @@
+---
+title: "Personnel pour Lorika en Afrique"
+menu_title: ""
+description: "Personnel pour Lorika en Afrique"
+date: 2022-06-01 06:00:01+00:1739
+draft: False
+hidden: True
+weight:
+---
+### Personnel pour Lorika en Afrique
+
+Mabeko - reçu par Al Fike le 23 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
+
+Salutations à vous, mes compagnons enfants de Dieu. Je m’appelle Mabeko. Je viens de la même habitation que toi, ma chère fille, mais j’ai vécu dans cette région il y a très, très longtemps. Pas aussi longtemps que lorsque Jésus a marché sur la Terre, mais certainement plusieurs centaines d’années se sont écoulées depuis que je suis passé à l’état d’esprit. Je suis un habitant du Royaume céleste. Oui, il y a des anges noirs dans ce royaume. Bien que la couleur de la peau ne soit pas si prédominante, car nous nous fondons tous dans un beau ton de chair qui continue à établir l’unité et l’homogénéité du Royaume Céleste.
+
+Mais je m’intéresse beaucoup à toi, ma fille, car il est temps d’apporter cette vérité, la vérité du salut de l’âme, à tes frères et sœurs, au continent africain tel qu’il s’appelle maintenant, car c’est une grande frontière dans laquelle la vérité n’a pas pénétré profondément. Il a besoin d’âmes fortes et belles comme toi pour marcher et dire cette vérité avec bravoure et amour, pour être fermes mais doux, pour être clairs et guidés sur votre chemin. Je vois en ton âme une belle lumière et un grand destin. Tu ressens maintenant en toi la joie qui accompagne la compréhension de ton véritable but et tu viens à Dieu en toute humilité et avec le désir de marcher sur Son chemin d’amour et de partager ce chemin avec les autres.
+
+Dieu vous a donc amené à ceux qui souhaitent vous aider et vous soutenir sur ce chemin. Tu trouveras beaucoup d’autres personnes qui te viendront en aide et qui se joindront à toi dans cette belle croisade de l’amour. Tu trouveras de nombreux esprits qui t’accompagneront et te soutiendront. C’est un honneur pour moi de te guider, âme bien-aimée. C’est une bénédiction pour moi et pour toi que Dieu nous réunisse ainsi, que tu aies ma force et ma lumière qui a grandi au cours de nombreux siècles, qui m’a fait entrer dans le royaume il y a très longtemps. Je partage donc avec toi mes dons, ma lumière et mon amour pour te soutenir, chère fille, et pour t’amener à plus de lumière, d’amour et de vérité. Cela vient toujours après la bénédiction de Dieu dans votre âme, éveillant la beauté de votre âme, la puissance de votre âme, la magnificence de votre âme. Vous apprendrez à vous connaître d’une manière si profonde. Ces parties de toi qui émergent, s’éveillent, ressentent la joie de vivre continueront à s’ouvrir et à grandir.
+
+Prie souvent, chère fille. Prie pour ton peuple. Prie pour ton monde. Prie pour la transformation qui s’opère dans ton monde, car c’est dans cette transformation que s’ouvriront les portes et les opportunités qui te permettront d’apporter ton message à de nombreuses personnes. Tu seras guidée, protégée et pourvue, ma fille bien-aimée, afin que tu puisses faire ton travail, suivre la route qui est ta mission d’apporter la Vérité de l’Amour à tous ceux que tu rencontreras sur ton chemin.
+
+Il est temps pour le monde entier de se réveiller. Dieu déclenche ce réveil chez ses beaux enfants qui cherchent la vérité, qui le cherchent. Ainsi, comme une flamme qui en allume une autre, ta belle lumière contribuera à en éclairer beaucoup d’autres. Continue à prier pour être guidée, chère fille. Continue à chercher l’amour de Dieu, ce grand et beau cadeau, cette bénédiction pour toi et pour tous ses enfants. Vous êtes une force formidable et vous allez vous en rendre compte et la voir émerger et s’exprimer dans votre vie. Vous êtes une force formidable pour l’amour, pour apporter l’amour à beaucoup, pour apporter le don de la guérison et du réconfort, pour amener beaucoup de gens à Dieu.
+
+Permettez-vous d’émerger de la chrysalide qui est votre état en ce moment, car un magnifique papillon est sur le point de sortir, de faire flotter ses ailes éblouissantes à la lumière du jour. C’est ainsi que votre beauté, votre magnificence attirera beaucoup de monde vers vous. Beaucoup voudront avoir ce que vous avez, être comme vous êtes, marcher sur ce Chemin de l’Amour et connaître la Main de Dieu sur eux. Je t’apporte mon amour et mes bénédictions, ma fille bien-aimée. Sache que je suis proche et que je ne suis pas le seul. Il y a d’autres anges parmi vous, belle âme. Tu apprendras à les connaître et à travailler avec eux dans cette magnifique effusion d’amour et de vérité.
+
+Bénédictions pour vous, bénédictions d’amour, bénédictions d’une véritable perspicacité, bénédictions de l’ouverture de nombreux cadeaux, bénédictions de joie alors que tu continues à marcher sur ce chemin que Dieu a désigné pour toi et qui te guidera infailliblement vers la vérité, une plus grande lumière et l’accord avec ton cher et bien-aimé Créateur. Nous marchons avec toi, mon amie. Nous sommes avec toi dans l’amour. Nous vous renforçons, nous vous inspirons et nous vous protégeons. Bénédictions, bien-aimé, âme bien-aimée, enfant de Dieu, chercheur de vérité. Nous sommes avec vous et Dieu continue à vous bénir puissamment, ma belle fille bien-aimée. Que Dieu vous bénisse.

@@ -1,13 +1,13 @@
 ---
-title: "Le professeur Salyards décrit son entrée dans le monde des esprits et sa progression spirituelle."
+title: "Le professeur Salyards décrit son entrée dans le monde des esprits et sa progression spirituelle"
 menu_title: ""
-description: "Le professeur Salyards décrit son entrée dans le monde des esprits et sa progression spirituelle."
+description: "Le professeur Salyards décrit son entrée dans le monde des esprits et sa progression spirituelle"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True
 weight:
 ---
-### Le professeur Salyards décrit son entrée dans le monde des esprits et sa progression spirituelle.
+### Le professeur Salyards décrit son entrée dans le monde des esprits et sa progression spirituelle
 
 Professeur Salyards - reçu par James Padgett le 18 Décembre 1914, Washington, USA.
 
@@ -61,6 +61,6 @@ Oui, je suis vraiment le professeur Salyards qui écrit et vous devez me croire 
 
 Votre ancien professeur et ami, Joseph Salyards.
 
-![](/james-padgett-messages/padgett-messages-date-order/padgett-messages-1914/salyards_tombstone.jpg)
+![title](/james-padgett-messages/padgett-messages-date-order/padgett-messages-1914/salyards_tombstone.jpg)
 
 Voici une photo de la pierre tombale du professeur Salyards avec l'inscription : *« JOSEPH SALYARDS, M.A. POÈTE, ÉRUDIT ET PROFESSEUR INSPIRÉ. 1808-1885 »* (G.J.C.)

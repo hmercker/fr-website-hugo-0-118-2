@@ -1,17 +1,17 @@
 ---
-title: " Le monde s’approche rapidement d’une période de chaos"
+title: "Le monde s’approche rapidement d’une période de chaos"
 menu_title: ""
-description: " Le monde s’approche rapidement d’une période de chaos"
+description: "Le monde s’approche rapidement d’une période de chaos"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True
 weight:
 ---
-###  Le monde s’approche rapidement d’une période de chaos
+### Le monde s’approche rapidement d’une période de chaos
 
 Jésus - reçu par Al Fike le 17 Août 2015, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-chaos-st-brieuc.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-chaos-st-brieuc.jpg)
 
 Bénis soient les enfants qui cherchent à guérir ce monde,
 Bénis soient les enfants qui aspirent à l’Amour du Père,

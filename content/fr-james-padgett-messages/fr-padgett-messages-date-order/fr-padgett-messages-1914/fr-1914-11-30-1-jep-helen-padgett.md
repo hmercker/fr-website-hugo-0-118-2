@@ -65,4 +65,4 @@ Nous devons terminer cette cession d’écriture automatique car tu es fatigué 
 
 N’oublie pas de m’aimer et prie pour ressentir toujours plus l’Amour de Dieu et l’illumination spirituelle, Hélène.
 
-Note : Dans un message communiqué le [08 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-8-1-jep-st-john/) Jean décrit également la 3ème sphère spirituelle
+*Note : Dans un message communiqué le [08 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-8-1-jep-st-john/) Jean décrit également la 3ème sphère spirituelle*

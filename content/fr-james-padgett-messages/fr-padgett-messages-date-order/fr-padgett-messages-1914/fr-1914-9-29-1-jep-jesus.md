@@ -29,4 +29,4 @@ Vous devez arrêter d’écrire maintenant.
 
 Jésus Christ.
 
-*Note: [Dans ce message](), Judas explique que les propos attribués à Jésus, dans le message ci-dessus, ne sont probablement pas exacts.*
+*Note: [Dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), Judas explique que les propos attribués à Jésus, dans le message ci-dessus, ne sont probablement pas exacts.*

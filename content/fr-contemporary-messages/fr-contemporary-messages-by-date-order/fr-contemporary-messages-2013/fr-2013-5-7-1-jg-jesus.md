@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jane Gartshore le 7 Mai 2013.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-paix-interieure-3-2013.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-paix-interieure-3-2013.jpg)
 
 C’est moi, Yeshua. Le thème du message de ce soir est la paix qui dépasse l’entendement.
 

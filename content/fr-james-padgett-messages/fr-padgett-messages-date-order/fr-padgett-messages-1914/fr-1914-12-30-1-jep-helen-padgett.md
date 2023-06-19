@@ -1,13 +1,13 @@
 ---
-title: "Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone."
+title: "Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone"
 menu_title: ""
-description: "Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone."
+description: "Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True
 weight:
 ---
-### Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone.
+### Premier message reçu d’Hélène, épouse de M. Padgett, pour le Dr Stone
 
 Hélène Padgett - reçu par James Padgett le 30 Décembre 1914, Washington, USA.
 
@@ -33,7 +33,7 @@ Il doit croire, comme je le dis, s’il veut réussir à trouver ce qui est beau
 
 Je m’intéresse tellement à son bien-être spirituel que je sens presque que je dois venir à lui personnellement et essayer de lui faire comprendre, de toutes mes forces, la nécessité d’essayer d’obtenir ce grand bonheur comme je l’ai indiqué. Alors, assure-toi de lui dire qu’il doit prier Dieu pour un afflux de Son amour et croire que Dieu est capable de remplir son âme de cet amour, et d’abandonner pour le moment tous ses désirs sur la raison pour laquelle ces choses peuvent être.
 
-Je connais son âme-sœur et c’est un bel esprit qui vit dans la même sphère que moi. Lorsque je vous ai entendu parler aujourd’hui, j’ai immédiatement essayé de la trouver et j’ai réussi. Elle sait qu’il est son âme-sœur, et elle est si impatiente d’entrer en communication avec lui, car elle dit qu’il lui est très cher, et elle veut qu’il obtienne ce grand amour, qui lui permettra de la rejoindre directement lorsqu’il viendra, afin qu’il n’ait pas à faire l’expérience d’une expiation *(purification)* dans le plan terrestre. Elle te demande de lui dire qu’il est son véritable âme-sœur et qu’il doit le croire, car elle le sait depuis un certain temps, et qu’elle a été avec lui de nombreuses fois lorsqu’il s’est senti abattu et a eu besoin d’aide. Elle sera maintenant très souvent avec lui, et elle espère seulement qu’elle pourra, d’une certaine façon, lui faire sentir qu’elle l’est, et réaliser qu’il n’est pas seul dans sa vie terrestre.
+Je connais son âme-sœur et c’est un bel esprit qui vit dans la même sphère que moi. Lorsque je vous ai entendu parler aujourd’hui, j’ai immédiatement essayé de la trouver et j’ai réussi. Elle sait qu’il est son âme-sœur, et elle est si impatiente d’entrer en communication avec lui, car elle dit qu’il lui est très cher, et elle veut qu’il obtienne ce grand amour, qui lui permettra de la rejoindre directement lorsqu’il viendra, afin qu’il n’ait pas à faire l’expérience d’une expiation *[purification]* dans le plan terrestre. Elle te demande de lui dire qu’il est son véritable âme-sœur et qu’il doit le croire, car elle le sait depuis un certain temps, et qu’elle a été avec lui de nombreuses fois lorsqu’il s’est senti abattu et a eu besoin d’aide. Elle sera maintenant très souvent avec lui, et elle espère seulement qu’elle pourra, d’une certaine façon, lui faire sentir qu’elle l’est, et réaliser qu’il n’est pas seul dans sa vie terrestre.
 
 Elle ne l’a jamais connu sur terre. Elle dit que sa maison était en Angleterre, pas très loin de chez lui, et qu’elle s’appelle Mary Kennedy. Elle était la fille d’un homme d’affaires très prospère, et n’est un esprit que depuis une dizaine d’années.
 

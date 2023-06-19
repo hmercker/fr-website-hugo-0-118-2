@@ -9,7 +9,11 @@ weight: 76
 ---
 ### Les messages relatifs à Adam et Eve
 
-text to follow
+L'histoire d'Adam et Ève <sup id="a1">[1](#f1)</sup> a suscité de nombreux débats au fil des ans et a également conduit au concept du péché originel, à la nécessité du baptême et à l'idée que l'homme est fondamentalement pécheur. D'autres pensent que cela prouve que les femmes doivent être subordonnées aux hommes, et d'autres encore que l'homme ne s'est jamais réveillé après la création. Il est également clair que le corps mortel peut avoir évolué sur une très longue période de temps, mais que le don d'une âme a été un événement instantané et le point auquel l'homme est devenu conscient de lui-même et de son Créateur.
+
+Malheureusement, la Genèse est un mélange de la venue d'Adam et Ève (dont il n'est pas question sur ce site) et des premiers parents, avec beaucoup plus de détails appartenant à Adam et Ève, simplement parce qu'ils étaient là beaucoup plus récemment. Mais les premiers parents, que nous appelons Aman et Amon, étaient tellement épris de leur beauté et de leurs capacités que lorsque Dieu leur a offert un cadeau incroyable - le don de l'immortalité - ils ne l'ont pas vu pour le merveilleux cadeau qu'il est. Ils l'ont donc refusé et Dieu a retiré ce don. Ce n'est qu'avec l'arrivée du Messie que ce don a été offert à nouveau, et que Jésus l'a accepté.
+
+Nous avons divisé ces messages en deux sections : les messages ci-dessous, qui présentent simplement le contexte de nos premiers parents, et ceux qui abordent la question de l'évolution par rapport à la création. Comme il s'agit d'un sujet complexe, il a été placé sur une page séparée.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -46,3 +50,6 @@ Amon | [La nature maternelle d’Amon](/fr-contemporary-messages/fr-contemporary
 Aman | [La négativité dans l'humanité primitive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-17-1-fab-aman/) | 17 Octobre 2010
 Aman | [Aucun être ne s’est jamais réincarné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-10-26-1-af-aman/) | 26 Octobre 2015
 Aman | [Aman parle du paradis sur terre qu’il a expérimenté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-30-1-af-aman/) | 30 Mai 2016
+<small>
+
+1. <large id="f1"> Adam et Ève étaient là il y a 37 000 ans, ils avaient un jardin, un arbre de la connaissance et ils ont également enfreint les règles. Mais les premiers parents sont arrivés il y a environ 1 million d'années, et j'ai laissé "Adam et Ève" dans ce texte parce que la plupart des gens pensent qu'ils étaient les premiers parents.[↩](#a1)

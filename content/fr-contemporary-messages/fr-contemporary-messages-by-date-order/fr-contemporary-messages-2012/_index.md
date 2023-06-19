@@ -61,7 +61,7 @@ Père | [Je ne choisirai jamais pour toi](/fr-contemporary-messages/fr-contempor
 Martin Luther | [Continuez à tendre la main](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-1-jb-martin-luther/) | 29 Mai 2012
 Anne Rollins | [Les changements sont à votre portée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-2-jb-ann-rollins/) | 29 Mai 2012
 Martin Luther | [Tes prières ont été entendues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-3-jb-martin-luther/) | 29 Mai 2012
-Jésus | [ Une glorieuse journée de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-4-jb-jesus/) | 29 Mai 2012
+Jésus | [Une glorieuse journée de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-4-jb-jesus/) | 29 Mai 2012
 Cecil Rhodes | [Confirmation d’un bâtisseur d’empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-31-1-fab-cecil-rhodes/) | 31 Mai 2012
 Clarence Streit | [Idéalisme brisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-8-1-fab-clarence-streit/) | 8 Juin 2012
 Père | [Révéler ce qui est caché](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-9-1-cog-father/) | 9 Juin 2012
@@ -90,7 +90,7 @@ Père | [N’oublie pas que nous sommes UN](/fr-contemporary-messages/fr-contemp
 Père | [Tu demandes comment Me servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-3-1-cog-father/) | 3 Septembre 2012
 Père | [Sentir Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-4-1-cog-father/) | 4 Septembre 2012
 Jésus | [Le réconfort du Maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-4-2-fab-jesus/) | 4 Septembre 2012
-Jésus | [ Fais partie de notre voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-21-1-hm-jesus/) | 21 Septembre 2012
+Jésus | [Fais partie de notre voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-21-1-hm-jesus/) | 21 Septembre 2012
 Judas | [Les conseils viennent de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-22-1-hm-judas/) | 22 Septembre 2012
 Jésus | [Pas toutes les puissances de l’enfer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-30-1-fab-jesus/) | 30 Septembre 2012
 Jésus | [Ne néglige jamais ta relation avec le Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-10-11-1-hm-jesus/) | 11 Octobre 2012

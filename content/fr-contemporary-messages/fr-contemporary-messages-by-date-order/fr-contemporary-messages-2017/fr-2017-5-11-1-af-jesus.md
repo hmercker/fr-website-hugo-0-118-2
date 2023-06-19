@@ -1,17 +1,17 @@
 ---
-title: " Jésus parle de la Pentecôte"
+title: "Jésus parle de la Pentecôte"
 menu_title: ""
-description: " Jésus parle de la Pentecôte"
+description: "Jésus parle de la Pentecôte"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True
 weight:
 ---
-###  Jésus parle de la Pentecôte
+### Jésus parle de la Pentecôte
 
 Jésus - reçu par Al Fike le 11 Mai 2017, Indio, Californie, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-pentecost-and-mission-1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-pentecost-and-mission-1.jpg)
 
 Cher Dieu miséricordieux, que toutes vous bonnes bénédictions viennent vers ces sincères âmes dans ce monde, que toute la Lumière et le Confort et l’Amour soient Votre Cadeau pour elles. Car elles travaillent dur sur ce Chemin de recherche de la Vérité, cherchant à être un canal de Votre Amour pour les autres. Elles travaillent dur pour venir à te connaître et être avec Vous. Qu’elles soient bénies dans la plénitude et la richesse de Votre Promesse, qu’en temps voulu leurs âmes puissent être rachetées dans l’Amour, que leurs âmes puissent être refaites dans l’Amour et s’unir et se réconcilier avec Vous, Dieu bien-aimé.
 

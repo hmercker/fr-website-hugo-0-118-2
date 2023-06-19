@@ -26,7 +26,7 @@ Jésus | [La loi de l’histoire](/fr-contemporary-messages/fr-contemporary-mess
 Oscar Wilde | [Dieu se fiche de votre homosexualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-5-24-1-fab-oscar-wilde/) | 24 Mai 2011
 Thomas J. Watson | [Thomas J. Watson et les nazis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-5-24-2-fab-thomas-j-watson/) | 24 Mai 2011
 Nelson Rockefeller | [L’honnêteté d’un Rockefeller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-5-30-1-fab-nelson-rockefeller/) | 30 Mai 2011
-Jésus | [ Posséder l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-24-1-fab-jesus/) | 24 Juin 2011
+Jésus | [Posséder l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-24-1-fab-jesus/) | 24 Juin 2011
 Jésus | [le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-28-1-fab-jesus/) | 28 Juin 2011
 Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-4-1-chris-ophelius/) | 4 Septembre 2011
 H.G. Wells | [Les expériences de H.G. Wells dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-13-1-fab-hg-wells/) | 13 Septembre 2011
@@ -35,7 +35,7 @@ Tony Curtis | [Le point de vue d’une star de cinéma dans le monde des esprits
 Thomas Jefferson | [L’intérêt angélique pour la vie mortelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-10-8-1-fab-thomas-jefferson/) | 8 Octobre 2011
 Rock Hudson | [La confusion d’une star de cinéma](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-10-9-1-fab-rock-hudson/) | 9 Octobre 2011
 John Lennon | [Espoir d’un Beatle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-3-1-fab-john-lennon/) | 3 Novembre 2011
-Jésus | [ Le réconfort de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-6-1-fab-jesus/) | 6 Novembre 2011
+Jésus | [Le réconfort de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-6-1-fab-jesus/) | 6 Novembre 2011
 Soigneur | [Efficacité de la planète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-18-1-gmb-a-carer/) | 18 Novembre 2011
 Victor Summers | [Message de Victor Summers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-18-2-fab-victor-summers/) | 18 Novembre 2011
 Jésus | [Le sommeil et la responsabilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-22-1-fab-jesus/) | 22 Novembre 2011

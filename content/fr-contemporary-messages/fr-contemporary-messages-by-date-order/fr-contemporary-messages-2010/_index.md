@@ -67,7 +67,7 @@ Jésus | [Préoccupations terrestres et spirituelles](/fr-contemporary-messages/
 Jésus | [Le spirituel, le matériel, et le message de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-10-2-fab-jesus/) | 10 Septembre 2010
 Jésus | [Le spirituel et le matériel - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-13-1-fab-jesus/) | 13 Septembre 2010
 Jésus | [La religion par opposition à la spiritualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-14-1-fab-jesus/) | 14 Septembre 2010
-Jésus | [ Négativité héritée et péché originel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-21-1-fab-jesus/) | 21 Septembre 2010
+Jésus | [Négativité héritée et péché originel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-21-1-fab-jesus/) | 21 Septembre 2010
 Jésus | [Soutien au médium](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-14-1-fab-jesus/) | 14 Octobre 2010
 Jésus | [L'importance relative de la politique et de l'économie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-16-1-fab-jesus/) | 16 Octobre 2010
 Aman | [La négativité dans l'humanité primitive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-17-1-fab-aman/) | 17 Octobre 2010

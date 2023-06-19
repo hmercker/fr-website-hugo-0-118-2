@@ -105,7 +105,7 @@ Judas | [Les Esséniens, les Sadducéens et les rouleaux de la mer Morte](/fr-co
 Judas | [Le rôle des Pharisiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-19-1-hr-judas/) | 19 Novembre 2001
 Judas | [Les trois rois mages et l’étoile de Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-20-1-hr-judas/) | 20 Novembre 2001
 St Matthieu | [Matthieu, apôtre de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-22-1-hr-st-matthew/) | 22 Novembre 2001
-André | [ Surmonter les obstacles au voyage.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-23-1-ks-andrew/) | 23 Novembre 2001
+André | [Surmonter les obstacles au voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-23-1-ks-andrew/) | 23 Novembre 2001
 Judas | [Médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-26-1-hr-judas/) | 26 Novembre 2001
 Judas | [La médiumnité et l’esprit du mortel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-30-1-hr-judas/) | 30 Novembre 2001
 Marie | [S’opposer fermement à la violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-1-1-ar-mary/) | 1 Décembre 2001

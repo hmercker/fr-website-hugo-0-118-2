@@ -31,7 +31,7 @@ Confucius | [Partager nos dons de guérison](/fr-contemporary-messages/fr-contem
 Professeur Salyards | [L’Amour Divin est la plus grande force de l’univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-26-1-af-professor-salyards/) | 26 Janvier 2022
 Claire d'Assise | [L’Amour de Dieu met une chanson dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-27-1-jw-clare-of-assisi/) | 27 Janvier 2022
 Professeur Salyards | [Votre attention et votre concentration sont nécessaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-29-1-af-professor-salyards/) | 29 Janvier 2022
-
+Orion | [Le réchauffement des âmes de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-29-2-af-orion/) | 29 Janvier 2022
 Care Derby Walsh | [C’est une question de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-31-1-jw-care-derby-walsh/) | 31 Janvier 2022
 St François d'Assise | [L’importance de nos cercles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-1-1-af-st-francis-of-assisi/) | 1 Février 2022
 Robert Hugh Benson | [La Septième Sphère est la porte d’entrée des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-3-1-jw-robert-hugh-benson/) | 3 Février 2022
@@ -231,7 +231,7 @@ Grace | [Un message de réconfort](/fr-contemporary-messages/fr-contemporary-mes
 Orion | [Cultiver la réalité de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-26-1-af-orion/) | 26 Novembre 2022
 Jésus | [Continuez à vous concentrer sur la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-27-1-af-jesus/) | 27 Novembre 2022
 Robert James Lee | [Une synchronicite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1 Décembre 2022
-Orion | [Ccommentaire sur le developpement de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-4-1-af-orion/) | 4 Décembre 2022
+Orion | [Commentaire sur le developpement de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-4-1-af-orion/) | 4 Décembre 2022
 Yogananda | [Prière, méditation et guérison dans l'amour humain et Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-5-1-jw-yogananda/) | 5 Décembre 2022
 Augustin | [Leçon sur le chagrin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-10-1-af-augustine/) | 10 Décembre 2022
 St François d'Assise | [Dons de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-12-1-jw-st-francis-of-assisi/) | 12 Décembre 2022
