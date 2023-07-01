@@ -24,6 +24,7 @@ Oui, Jésus est le maître, et le Saint-Esprit est le messager ou l’instrument
 Jésus viendra tranquillement dans le cœur de chaque homme et établira ainsi le millénaire. Il n’aura pas un royaume à lui tout seul. Il est le fils de son Père et restera dans le monde des esprits pour enseigner aux hommes à progresser vers les plans célestes qui atteignent la présence de Dieu. Il est l’esprit le plus glorieux dans tous les cieux et il est le plus grand esprit sous la domination de son Père.
 
 Il n’y a qu’un seul Dieu. Jésus et le Saint-Esprit ne sont que les forces dont Dieu se sert pour réaliser ses grands desseins pour la rédemption de l’homme.
+
 Permets-moi de m’arrêter maintenant car je suis fatiguée.
 
 Ta grand-mère. *(Anne Rollins)*
