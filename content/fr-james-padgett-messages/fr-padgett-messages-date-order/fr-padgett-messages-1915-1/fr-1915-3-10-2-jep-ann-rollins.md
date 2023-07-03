@@ -15,7 +15,7 @@ C’est moi, ta grand-mère.
 
 Eh bien, je suis extrêmement heureuse et contente que tu te sentes tellement mieux.
 
-Tu as reçu une assez longue lettre et, j’espère, très satisfaisante, d’Hélène. Quand elle essaie, elle peut écrire une très bonne lettre.
+Tu as reçu une assez [longue lettre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-10-1-jep-helen-padgett/) et, j’espère, très satisfaisante, d’Hélène. Quand elle essaie, elle peut écrire une très bonne lettre.
 
 Je suis, comme tu le sais, dans la même sphère qu’elle et ta mère, et nous sommes toutes très unies, bien que nous vivions dans des foyers différents. Hélène, bien sûr, n’est pas aussi avancée que moi et ta mère ne l’est pas non plus, mais nous sommes néanmoins très conviviales et nous nous aimons beaucoup. Bientôt, cependant, je les laisserai pour une sphère supérieure, et alors elles me manqueront, je le sais, parce qu’elles me le disent sans cesse ; elles me disent aussi qu’elles me suivront peu après, et je crois qu’elles le feront, car elles sont de merveilleux esprits dans l’Amour et la foi ; et ces deux possessions, comme tu le sais, sont le « sésame d’ouverture » aux choses et aux sphères supérieures.
 
@@ -27,7 +27,7 @@ Notre temps ici est occupé à nous aider les uns les autres à une plus grande 
 
 Nous sommes engagés dans l’étude des choses qui se rapportent davantage aux choses spirituelles de cette vie qu’à l’étude des choses des autres mondes de l’univers ; ces choses pour nous sont ce que l’on pourrait appeler des choses matérielles, et bien que leur connaissance serait très intéressante, nos pensées sont tournées vers les vérités plus importantes de Dieu.
 
-Oui, nous avons, tous et toutes, nos bibliothèques et nos maisons, comme Hélène te l’a dit, mais, bien sûr, il y a une grande différence entre ces maisons, en fonction de la quantité d’Amour que l’esprit a dans son âme. Je vis maintenant dans une maison si belle que je ne pourrais pas, dans le court laps de temps que je vais t’écrire ce soir, te la décrire ; mais bientôt je le ferai en détail, et alors tu pourras réaliser ce que c’est une maison.
+Oui, nous avons, tous et toutes, nos bibliothèques et nos maisons, comme Hélène te l’a dit, mais, bien sûr, il y a une grande différence entre ces maisons, en fonction de la quantité d’Amour que l’esprit a dans son âme. Je vis maintenant dans une maison si belle que je ne pourrais pas, dans le court laps de temps que je vais t’écrire ce soir, te la décrire ; mais [bientôt je le ferai en détail](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/), et alors tu pourras réaliser ce que c’est une maison.
 
 *[commentaire de M. Padgett]*
 
@@ -46,12 +46,15 @@ Les sphères supérieures dans lesquelles vivent ces anciens voyants et ces sage
 
 Oui, j’ai rencontré Paul et Pierre et Jean et Jacques et plusieurs autres moins avancés ; tous sont dans les sphères célestes et très heureux, mais ils vont dans les sphères inférieures pour faire le travail qui leur est confié. Aucun esprit qui n’a pas reçu cette Nouvelle Naissance n’est jamais autorisé à entrer dans les Sphères Célestes et, par conséquent, l’esprit dont tu parles n’a jamais vu la maison de Jean, et ne le fera jamais avant d’avoir été racheté par l’Amour du Père.
 
-Je ne pense pas que ces mortels qui prétendent avoir quitté leur corps et être entrés dans les Sphères Célestes, ne l’aient jamais fait, et je doute sérieusement qu’ils soient jamais entrés dans les sphères spirituelles au-dessus de la troisième. Je dois arrêter maintenant, et tu ne dois pas écrire plus ce soir.
+Je ne pense pas que ces mortels qui prétendent avoir quitté leur corps et être entrés dans les Sphères Célestes, ne l’aient jamais fait, et je doute sérieusement qu’ils soient jamais entrés dans les sphères spirituelles au-dessus de la troisième<sup id="a1">[1](#f1)</sup>. Je dois arrêter maintenant, et tu ne dois pas écrire plus ce soir.
 
 Alors, avec tout mon amour, je suis ta propre grand-mère aimante.
 
 Anne Rollins.
+<small>
 
-*Note : Dans un message communiqué le [27 Avril 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) Anne Rollins décrit la seconde sphère Céleste et elle décrit ses expériences dans cette seconde sphère dans un message communiqué le [8 Juillet 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/).*
+1. <large id="f1">Cette remarque d'Anne Rollins n'est pas exacte. En effet Mère Teresa et François d'Assise ont tous deux atteint la cinquième sphère. Bien sûr, Mère Teresa n'était pas encore décédée en 1915, mais Saint François d'Assise était décédé en 1226. Et d'après les récentes communications de Yogananda, Sri Yukteswar, Osho et d'autres, il semble que de nombreux gourous du sous-continent (continent asiatique) aient atteint la quatrième sphère.[↩](#a1)
 
-*Dans un autre message communiqué le [22 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) Anne Rollins décrit certaines des différentes sphères.*
+Dans un message communiqué le [27 Avril 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) Anne Rollins décrit la seconde sphère Céleste et elle décrit ses expériences dans cette seconde sphère dans un message communiqué le [8 Juillet 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/).*
+
+Dans un autre message communiqué le [22 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) Anne Rollins décrit certaines des différentes sphères.

@@ -47,6 +47,6 @@ Comme vous êtes fatigué, je dois m’arrêter.
 Avec toutes mes bénédictions et mon amour, je suis votre frère en esprit, Jésus.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le Vol. II, 1ère édition, française, page XXX. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Ce message est également publié dans le Vol. II, 1ère édition, française, page 26. (G.J.C.)[↩](#a1)
 
 2. <large id="f2"> Lire Romains 13:10 (G.J.C.)[↩](#a2)

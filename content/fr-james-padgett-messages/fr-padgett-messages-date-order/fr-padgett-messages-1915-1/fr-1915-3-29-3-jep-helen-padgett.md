@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 29 Mars 1915, Washington, USA.
 
 C’est moi, Hélène.
 
-Tu as reçu une lettre du juge. Il était si impatient d’écrire que nous avons pensé que cela lui ferait du bien d’essayer et lui ferait réaliser, plus judicieusement, qu’il est maintenant seulement un esprit et que cela le renforcerait.
+Tu as reçu une [lettre du juge](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-29-2-jep-judge-syrick/). Il était si impatient d’écrire que nous avons pensé que cela lui ferait du bien d’essayer et lui ferait réaliser, plus judicieusement, qu’il est maintenant seulement un esprit et que cela le renforcerait.
 
 Eh bien, tu ne le penses peut-être pas, mais c’est un fait. Pour beaucoup d’esprits quand leur environnement est bon et beaucoup d’aide spirituelle leur est donnée, ils leur est presque possible, dès qu’ils quittent le corps, de dépasser leurs fonctions mentales et faire des choses inattendues. Le juge était prêt, dans une certaine mesure, à comprendre ce pouvoir de communication et, lorsque nous l’avons tous aidé avec nos pouvoirs, il a essayé avec succès de t’écrire. Il n’est pas encore très fort mais il le sera bientôt et je n’ai aucun doute qu’il voudra t’écrire souvent, mais bien sûr nous ne pourrons pas lui permettre parce qu’il n’est pas en relation avec notre groupe. Il n’a pas beaucoup de développement spirituel et les conditions qui l’entourent ne sont pas telles qu’elles seraient en accord avec nos conditions, et donc nous devrons refuser de le laisser écrire très souvent mais il pourra communiquer à travers certains d’entre nous.
 
@@ -48,7 +48,7 @@ Le temps viendra peut-être où je ne reverrai plus jamais mes parents et où j�
 
 C’est une réalité que peu de mortels comprennent et il se peut fort bien qu’ils ne la comprennent pas parce que l’amour qui existe entre beaucoup de parents est une chose belle et qui cause beaucoup de bonheur et de préservation de soi. Il n’y a rien sur terre comme l’amour de la mère et rien n’égale ce grand don de l’amour d’une mère pour les mortels que les bénédictions de Dieu lui accordent. Et ainsi avec les autres amours naturels dans une moindre mesure.
 
-Mais, comme Jésus l’a dit : *« Celui qui fait la volonté de mon Père est ma mère, mon frère et ma sœur ».*
+Mais, comme Jésus l’a dit : [ « Celui qui fait la volonté de mon Père est ma mère, mon frère et ma sœur » ](https://saintebible.com/matthew/12-50.htm).*
 
 Tu dois donc te rendre compte ce que toi et l’amour naturel des relations n’est que pour la vie terrestre et pour peu de temps après. Chaque individu est en lui et de lui-même une unité complète qui ne dépend pas de sa relation aux autres, et en tant que telle doit trouver sa place dans la grande éternité qui doit être déterminée par le développement et le progrès de sa propre âme dans l’attente de ce que peuvent devenir les âmes de ses relations terrestres. Il n’est attiré que par des âmes au développement similaire et trouvera son foyer en compagnie de ces âmes indépendamment de la question de la relation naturelle.
 

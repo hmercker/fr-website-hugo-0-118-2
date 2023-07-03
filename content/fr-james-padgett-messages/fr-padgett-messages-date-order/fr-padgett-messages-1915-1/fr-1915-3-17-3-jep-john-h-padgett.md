@@ -31,11 +31,11 @@ Oui, ils prient encore et je les vois souvent. Mackey progresse plus rapidement 
 
 Oui, surtout Taggart qui dit qu’il aimerait avoir une autre conversation avec toi d’ici peu, il veut te poser quelques questions et peut-être que tu pourras y répondre afin que certains de ses doutes puissent être levés.
 
-Oui, elle (Mme Emmons) n’est pas très heureuse et n’a pas encore pleinement réalisé qu’elle est exclusivement dans le monde spirituel. Mais Hélène est avec elle et essaie de l’aider à voir la lumière et à tourner ses pensées vers les choses spirituelles.
+Oui, elle [Mme Emmons](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-27-2-jep-helen-padgett/) n’est pas très heureuse et n’a pas encore pleinement réalisé qu’elle est exclusivement dans le monde spirituel. Mais Hélène est avec elle et essaie de l’aider à voir la lumière et à tourner ses pensées vers les choses spirituelles.
 
 Je dois arrêter, alors bonne nuit, mon cher fils.
 
 Ton père qui t’aime.
 <small>
 
-1. <large id="f1"> Il s’agit de M. Eugène Crowell, auteur de « L’identité du christianisme des premiers jours et du spiritualisme moderne ». Son message, communiqué le 17 Mars 1955, est publié dans le volume IV, 2ème édition de Juillet 2014, page 283 (G.J.C.)[↩](#a1)
+1. <large id="f1"> Il s’agit de M. Eugène Crowell, auteur de « L’identité du christianisme des premiers jours et du spiritualisme moderne ». Son message, communiqué le 17 Mars 1915, est publié dans le volume IV, édition françaose de Janvier 1921, page 308 (G.J.C.)[↩](#a1)
