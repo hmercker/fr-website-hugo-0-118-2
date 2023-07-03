@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 18 Décembre 1914, Washington, USA
 
 C’est moi, Hélène.
 
-Tu as certainement écrit une longue lettre. Le professeur Salyards s’intéresse beaucoup à toi et tu dois croire qu’il t’a écrit car il l’a fait. J’étais ici tout le temps qu’il écrivait et j’étais très impatiente car je voulais moi-même dire quelque chose.
+Tu as certainement écrit une longue lettre. [Le professeur Salyards](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-18-1-jep-joseph-salyards/) s’intéresse beaucoup à toi et tu dois croire qu’il t’a écrit car il l’a fait. J’étais ici tout le temps qu’il écrivait et j’étais très impatiente car je voulais moi-même dire quelque chose.
 
 Il disait la vérité et tu es vraiment mesquin de me faire croire que tu doutes que je le fasse. Sois un bon garçon et écoute ce que j’ai à dire.
 
