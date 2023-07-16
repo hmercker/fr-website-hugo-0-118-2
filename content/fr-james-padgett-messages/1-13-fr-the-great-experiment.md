@@ -25,7 +25,7 @@ Veuillez noter que cette expérience peut être réalisée sans remettre en caus
 
 Pourquoi cela fonctionne-t-il ? Parce que l'Amour Divin est une véritable essence - l'essence même de Dieu. En nous donnant un peu de Lui-même chaque fois que nous le demandons, lentement, au fil des années, notre âme se transformera d'une âme mortelle en une âme immortelle. C'est là le véritable salut.
 
-Demander l'Amour Divin sera la façon la plus productive de recevoir cet Amour, mais un message récent communiqué par l’Apôtre Jean le 15 Juillet 2001(/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-15-1-ar-st-john/) a indiqué qu'un grand nombre de personnes qui ne comprennent pas ce concept ont quand même reçu l'Amour Divin, parce que Dieu entend les aspirations de notre âme, et non les mots que notre esprit crée.
+Demander l'Amour Divin sera la façon la plus productive de recevoir cet Amour, mais un message récent communiqué par [l’Apôtre Jean le 15 Juillet 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-15-1-ar-st-john/) a indiqué qu'un grand nombre de personnes qui ne comprennent pas ce concept ont quand même reçu l'Amour Divin, parce que Dieu entend les aspirations de notre âme, et non les mots que notre esprit crée.
 
 Un résumé de l'Amour Divin et de ses effets est disponible sous la forme d'une vidéo présentée ci-dessous :
 

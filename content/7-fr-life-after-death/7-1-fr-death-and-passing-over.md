@@ -40,7 +40,7 @@ Cette section traite de la mort et de la période initiale d'orientation qui s'e
 
 ### Qu'est-ce qui se passe après la mort ?
 
-En guise d'introduction, nous te conseillons de lire [le résumé du Dr Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/). La majorité de ces messages ignorent la triste condition que l'on appelle « earthbound (lié à la terre) ». Ces messages proviennent d'esprits plus avancés que ceux qui finissent dans le plan terrestre sombre et sont appelés « earthbound (esprits liés à la terre) ».
+En guise d'introduction, nous te conseillons de lire [le résumé du Dr Stone](/7-fr-life-after-death/7-1-1-fr-important-truths-that-everyone-should-know/). La majorité de ces messages ignorent la triste condition que l'on appelle « earthbound (lié à la terre) ». Ces messages proviennent d'esprits plus avancés que ceux qui finissent dans le plan terrestre sombre et sont appelés « earthbound (esprits liés à la terre) ».
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
