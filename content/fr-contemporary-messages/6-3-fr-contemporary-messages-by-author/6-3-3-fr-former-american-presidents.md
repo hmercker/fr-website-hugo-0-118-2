@@ -20,9 +20,7 @@ Abraham Lincoln | [Abraham Lincoln et la Guerre](/fr-contemporary-messages/fr-co
 Abraham Lincoln | [Le véritable esprit du Pardon.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/) | 31 Décembre 2005
 Franklin D Roosevelt | [F.D. Roosevelt parle sur ses expériences spirituelles.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-1-fab-franklin-d-roosevelt/) | 20 Décembre 2006
 Theodore Roosevelt | [Un président américain se confronte au monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-2-fab-theodore-roosevelt/) | 20 Décembre 2006
-"George Washington | [
-Le fondateur de son pays apporte son soutien
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-3-fab-george-washington/) | 20 Décembre 2006"
+George Washington | [Le fondateur de son pays apporte son soutien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-3-fab-george-washington/) | 20 Décembre 2006
 Woodrow Wilson | [L'idéalisme d'un Président Américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-4-fab-woodrow-wilson/) | 20 Décembre 2006
 Franklin D Roosevelt | [Le président Roosevelt complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-25-1-fab-franklin-d-roosevelt/) | 25 Décembre 2006
 Franklin D Roosevelt | [La moralité du président Roosevelt](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-1-fab-franklin-d-roosevelt/) | 26 Décembre 2006
