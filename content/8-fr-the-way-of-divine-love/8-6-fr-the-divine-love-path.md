@@ -56,9 +56,9 @@ Voici maintenant plus d'informations sur
 
 L'âme humaine peut évoluer, que ce soit sur terre ou en tant qu'être spirituel. Une âme peut se tourner vers Dieu à tout moment et lui demander d'être libérée du péché. La grande aide à la purification et à la transformation de l'âme humaine en une âme divine passe par la prière sincère au Père pour son amour et sa miséricorde divins, de sorte que l'âme devienne une unité avec Dieu et obtienne finalement une place dans son royaume, les cieux Divins, où Jésus est le Seigneur et le Prince de la paix. Nous reconnaissons également que le Saint-Esprit est l'instrument du Père qui apporte son amour à l'âme.
 
-2.1 Avant tout, voici un traité sur [la prière](/8-fr-the-way-of-divine-love/8-6-1-fr-prayer/).
+2.1. Avant tout, voici un traité sur [la prière](/8-fr-the-way-of-divine-love/8-6-1-fr-prayer/).
 
-2.2 [Qu'est-ce que la foi](/8-fr-the-way-of-divine-love/8-6-2-fr-faith/) ? Ici, plus de détails.
+2.2. [Qu'est-ce que la foi](/8-fr-the-way-of-divine-love/8-6-2-fr-faith/) ? Ici, plus de détails.
 
 ### 3. l'Amour Divin
 
