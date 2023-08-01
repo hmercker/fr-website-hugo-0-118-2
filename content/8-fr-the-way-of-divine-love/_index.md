@@ -14,3 +14,4 @@ weight: 80
 3. [L'expérience de l'Amour de Dieu](/8-fr-the-way-of-divine-love/8-3-fr-the-experience-of-gods-love/)
 4. [La progression spirituelle et l'Amour Divin](/8-fr-the-way-of-divine-love/8-4-fr-spiritual-progression-and-divine-love/)
 5. [Amour Divin et Péché](/8-fr-the-way-of-divine-love/8-5-fr-divine-love-and-sin/)
+6. [Le chemin de l'Amour Divin](/8-fr-the-way-of-divine-love/8-6-fr-the-divine-love-path/)

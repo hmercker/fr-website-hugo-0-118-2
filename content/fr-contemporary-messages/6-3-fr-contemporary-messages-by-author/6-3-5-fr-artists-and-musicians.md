@@ -28,8 +28,7 @@ Johann Sebastian Bach | [La foi inébranlable de Bach en Dieu](/fr-contemporary-
 Rembrandt Harmenszoon van Rijn | [Rembrandt n’était pas spirituel sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-16-1-fab-rembrandt-harmenszoon-van-rijn/) | 16 Mars 2003
 Stephen Foster | [Maladie mentale et musique dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-9-1-fab-stephen-foster/) | 9 Janvier 2005
 Michelangelo | [Artisan de la Renaissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-18-1-na-michelangelo/) | 18 Décembre 2005
-"Will Rogers | [La paix et l'amour sont assurés
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-3-1-fab-will-rogers/) | 3 Août 2006"
+Will Rogers | [La paix et l'amour sont assurés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-3-1-fab-will-rogers/) | 3 Août 2006
 Wolfgang Amadeus Mozart | [Mozart complète son message precedent.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/) | 17 Juillet 2007
 Phil Ochs | [L'expérience d'un chanteur populaire américain dans le monde de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-8-1-fab-phil-ochs/) | 8 Février 2008
 Phil Ochs | [Un Folksinger est heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-1-fab-phil-ochs/) | 5 Mars 2008

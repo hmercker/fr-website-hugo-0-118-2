@@ -13,7 +13,7 @@ Judas - reçu par H____ le 22 Août 2001, Cuenca, Équateur.
 
 *[H : Cher Dieu, tu me permets d’entrer en contact avec mon guide, Judas. Je voudrais recevoir ce qu’il désire me dire, sans l’interférence de mes propres pensées. S’il te plaît protège-moi de l’influence des esprits obscurs. Oui, je veux, de tout mon cœur, apprécier la compagnie de mon ami Judas…]*
 
-.. .plus qu’un ami, je suis ton frère et je t’aime plus que tu ne peux l’imaginer.
+...plus qu’un ami, je suis ton frère et je t’aime plus que tu ne peux l’imaginer.
 
 Oui, je suis Judas, et tu peux me visualiser. Ne t’inquiète pas sur ce qui s’est passé hier soir. Tu as senti ma présence, mais notre rapport s’est interrompu. Tu étais trop somnolent, et nous avons besoin que tu sois en bonne condition afin que nous puissions communiquer. Ne t’inquiète pas si un jour tu ne peux pas me parler directement, tu ne dois pas non plus désespérer, nous n’avons pas besoin d’entreprendre une marche forcée, nous avons le temps, nous voulons que tout se passe pour le mieux.
 
