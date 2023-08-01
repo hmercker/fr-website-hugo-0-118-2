@@ -19,7 +19,7 @@ Je ne veux pas que vous pensiez que vous n’êtes pas digne de faire cette gran
 
 Laissez-moi vous dire maintenant que peu importe ce que vous pouvez penser arrivera à vos affaires et travail, je vais prendre soin de vous et éliminer tous les obstacles afin que, comme je le dis, vous soyez bientôt en mesure de commencer vos fonctions.
 
-Dans mes enseignements, je veux montrer que je suis seulement le fils de mon Père, comme vous êtes son fils et que je ne veux pas être adoré comme Dieu. Il est le seul Dieu et le peuple qui, aujourd’hui, dans toutes les régions du monde, m’adore, ne fait pas ce que je veux, car ils mettent Dieu en arrière plan et font de moi leur objet de culte, ce qui est absolument à proscrire et je suis si impatient de voir cela cesser.
+Dans mes enseignements, je veux montrer que je suis seulement le fils de mon Père, comme vous êtes Son fils et que je ne veux pas être adoré comme Dieu. Il est le seul Dieu et le peuple qui, aujourd’hui, dans toutes les régions du monde, m’adore, ne fait pas ce que je veux, car ils mettent Dieu en arrière plan et font de moi leur objet de culte, ce qui est absolument à proscrire et je suis si impatient de voir cela cesser.
 
 Ils doivent me regarder seulement comme un fils de Dieu et leur frère aîné qui a reçu du Père Son plein Amour et confiance, et que j’avais pour mission de leur enseigner. Vous ne devez pas laisser quiconque tenter de laisser votre amour pour Dieu être remplacé par tout amour que vous pouvez avoir pour moi, car votre amour pour moi ne doit pas être du même genre que celui que vous avez pour Lui. Il est le seul Dieu et vous ne devez adorer que Lui. Soyez donc prudent et faites la distinction, ou vous ferez une énorme erreur.
 
@@ -40,8 +40,6 @@ Votre propre véritable ami et enseignant.
 Que les bénédictions de Dieu et les miennes reposent sur vous cette nuit.
 
 Jésus.
-
-*Note : Ce message est aussi publié dans le Volume II, page 16. Pour plus de détails, consultez cette page (lien en anglais, non encore traduit).*
 <small>
 
 1. <large id="f1"> Il semblerait, fondé sur un récent message de Judas, que la référence à Bethesda ci-dessus est erronée, il s’agit soit d’une erreur d’édition, soit d’une erreur de transmission.[↩](#a1)

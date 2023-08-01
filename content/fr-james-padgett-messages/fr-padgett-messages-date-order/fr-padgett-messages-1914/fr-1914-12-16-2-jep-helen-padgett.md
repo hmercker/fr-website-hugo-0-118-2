@@ -25,7 +25,7 @@ Mais laisse-moi te dire que tu dois aussi prier pour toi-même, car tu as aussi 
 
 Tu ne dois pas en douter, car c’est vrai. Comme je l’ai dit, nous ne comprenons pas, mais un jour nous pourrons comprendre, alors crois-moi quand je te dis cela alors que nous t’écrivons et que nous ne te disons que ce que nous savons être vrai.
 
-Dieu semble te prendre en charge à un tel point que personne ne peut plus te détourner de son amour, mais ne laisse pas la pensée qu’il n’est pas ton Père aimant t’empêcher de prier pour toi-même.
+Dieu semble te prendre en charge à un tel point que personne ne peut plus te détourner de Son amour, mais ne laisse pas la pensée qu’il n’est pas ton Père aimant t’empêcher de prier pour toi-même.
 
 Je suis fatiguée et je dois m’arrêter. J’ai perdu mes forces lorsque j’ai essayé de te dire ce qu’elle faisait. Je te le dirai demain soir dans son intégralité.
 

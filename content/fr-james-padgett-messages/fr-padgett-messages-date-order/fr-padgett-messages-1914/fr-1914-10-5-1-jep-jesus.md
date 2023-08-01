@@ -13,7 +13,7 @@ Jésus - reçu par James Padgett le 5 Octobre 1914, Washington, USA.
 
 C’est moi, Jésus.
 
-Vous ne devez pas être trop anxieux afin que je puisse expliquer tous les mystères de la création de Dieu. Je ne dois pas tous vous les enseigner maintenant, mais plus tard, quand vous serez purifié et en communion avec Lui.
+Vous ne devez pas être trop anxieux afin que je puisse expliquer tous les mystères de la création de Dieu. Je ne dois pas tous vous les enseigner maintenant, mais plus tard, lorsque vous serez purifié et en communion avec Lui.
 
 Vous êtes le messager que j’utiliserai pour faire connaître mon évangile à l’humanité et je vous enseignerai ces vérités que vous ne pouvez pas comprendre maintenant. J’expliquerai toutes les qualités de l’âme et de l’esprit afin que l’humanité n’ait plus besoin de rester dans les ténèbres quant à la signification de mes enseignements et quant à la nécessité absolue qu’elle comprenne et suive mes enseignements.
 
@@ -28,7 +28,8 @@ Que votre cœur ne soit pas troublé ou ébranlé, car je suis avec vous pour to
 Vous êtes mon élu sur terre pour proclamer ma bonne nouvelle de vie et d’amour. Soyez fidèle à vous-même et à votre Dieu et Il vous bénira abondamment.
 
 Gardez Ses commandements et vous serez très heureux et recevrez bientôt la satisfaction qu’Il donne à Ses vrais enfants. Tournez-vous vers Lui dans toutes vos peines et vous trouverez le repos et la paix.
-Des questions inconnues ?
+
+*Des questions inconnues ?*
 
 Oui, dans un très court laps de temps, vous serez libre de consacrer toute votre attention à mes objets et à votre travail. Vous serez bientôt en état de laisser les choses de ce monde seules comme J’ai besoin de vous pour mon service. Laissez-moi vous dire que vous obtiendrez votre maison comme vous le désirez et que votre environnement sera harmonieux pour recevoir mes messages. Et vous serez avec votre fille pour vous garder heureux et libre de soins.
 

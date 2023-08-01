@@ -14,9 +14,10 @@ Hélène Padgett - reçu par James Padgett le 8 Décembre 1914, Washington, USA.
 C’est moi, Hélène *(Mme J. E. Padgett, épouse de James Padgett.)*.
 
 Laisse-moi te dire que tu te rends seulement malheureux en essayant de tout apprendre sur la façon dont je t’écris. Tu ne peux pas le faire, car tu n’es pas en mesure de voir ma méthode, et je ne peux pas complètement te l’expliquer. Mais je vais essayer de faire de mon mieux.
+
 Lorsque tu saisis le crayon, j’exerce tout mon pouvoir pour déplacer le crayon afin qu’il écrive exactement ce que je pense, mais pour cela je dois laisser passer mes pensées dans ton cerveau. Tu ne penses pas réellement, mais tu laisses simplement passer les pensées à travers ton cerveau, et le mouvement du crayon est causé par l’exercice de ton cerveau en conjonction avec le pouvoir que j’exerce sur le crayon. Tu vois, donc, que tu n’es pas à l’origine de la pensée, tu la transmets simplement à ta main que je guide selon ma pensée. Tu ne fais rien de plus qu’un fil électrique qui transmet un message du début à la fin où le message est donné.
 
-Laisse-moi t’expliquer autrement. Quand je pense une pensée, je la transmets par ton cerveau jusqu’à ta main, et mon pouvoir de bouger votre main est mis en action, tout comme lorsque tu émets une pensée ton pouvoir de bouger ta main est mis en action.
+Laisse-moi t’expliquer autrement. Quand je pense une pensée, je la transmets par ton cerveau jusqu’à ta main, et mon pouvoir de bouger ta main est mis en action, tout comme lorsque tu émets une pensée ton pouvoir de bouger ta main est mis en action.
 
 Mes pensées ne sont pas tes pensées ; et quand je pense, ton esprit attrape la pensée mais ne crée pas la même. Tu dois donc croire que c’est moi qui écris et non toi, car j’écris des pensées que tu ne pourrais pas écrire si tu essayais. Qu’est-ce que tu en penses ?
 
