@@ -11,6 +11,8 @@ weight:
 
 Hélène Padgett - reçu par James Padgett le 13 Novembre 1915, Washington, USA.
 
+![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/spiritualite2-1jpg)
+
 C’est moi, Hélène.
 
 Oui, j’étais là et j’ai apprécié le spectacle. Les images contiennent une vérité très importante que toutes les femmes devraient comprendre et apprécier, car beaucoup refusent de devenir mères et d’accomplir les devoirs que Dieu veut qu’elles accomplissent. Je n’ai aucun doute que les images auront un bon effet sur beaucoup d’entre elles, et les feront réfléchir avant de recourir à ce moyen de se débarrasser des bébés à naître.
@@ -19,8 +21,7 @@ Dans mon enquête sur les bébés qui sont venus dans le monde des esprits à la
 
 Mais dans le cas des bébés qui meurent prématurément, ou de ceux qui meurent très jeunes, ces bébés retournent à leur mère sous la direction de leur tuteur spirituel et reçoivent de leur mère l’amour et les sentiments qui vont vers eux.
 
-La loi de l’attraction s’applique ici ainsi que dans d’autres domaines et ceci est la loi en référence aux bébés qui meurent prématurément.
-Lorsqu’il existe l’amour d’une mère, le bébé reviendra et recevra cet amour et cette aide après avoir été en contact avec cette mère. Mais quand il n’y a pas d’amour maternel, il n’y a pas d’attirance, et le bébé peut ne jamais connaître sa mère.
+La loi de l’attraction s’applique ici ainsi que dans d’autres domaines et ceci est la loi en référence aux bébés qui meurent prématurément. Lorsqu’il existe l’amour d’une mère, le bébé reviendra et recevra cet amour et cette aide après avoir été en contact avec cette mère. Mais quand il n’y a pas d’amour maternel, il n’y a pas d’attirance, et le bébé peut ne jamais connaître sa mère.
 
 Dans de nombreux cas, le bébé, avant que la mère n’arrive dans le monde des esprits, trouve d’autres attraits, et il n’y a donc aucun sentiment d’amour ou de sympathie entre le bébé et sa mère.
 

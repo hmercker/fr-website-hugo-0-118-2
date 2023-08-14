@@ -13,11 +13,11 @@ Albert Riddle - reçu par James Padgett le 6 Avril 1915, Washington, USA.
 
 C’est moi, ton ancien partenaire, A. G. Riddle.
 
-Eh bien, je veux te parler de cet homme au mental merveilleux, qui surpasse tous les autres esprits dans sa connaissance des lois du monde des esprits. J’ai eu une conversation avec lui et j’ai constaté qu’il savait relativement peu de choses.
+Eh bien, je veux te parler de cet homme [au mental merveilleux](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-23-2-jep-samuel-r-smith/), qui surpasse tous les autres esprits dans sa connaissance des lois du monde des esprits. J’ai eu une conversation avec lui et j’ai constaté qu’il savait relativement peu de choses.
 Son savoir consistait à ne pas savoir ce qu’il y avait à savoir. Il avait certaines idées sur le monde des esprits, mais elles étaient peu nombreuses et superficielles. Il était tellement convaincu qu’il avait tout appris qu’il n’était pas capable d’en apprendre davantage.
 
 J’ai vite constaté que sa capacité d’apprentissage était limitée par l’horizon de ce qu’il ne savait pas, c’est-à-dire qu’il pensait que comme il savait tout, il n’y avait rien dans tout l’univers de Dieu qui lui restait à apprendre.
-C’était le plus grand cas d’un homme qui possédait toutes les connaissances que j’ai jamais rencontré. Dès le début de notre conversation, j’ai vu que la seule façon de traiter avec lui était de lui laisser croire qu’il était le grand mental qu’il croyait être, et je me suis donc posé en quelqu’un qui lui était inférieur sur le plan intellectuel, et qui était prêt à s’asseoir aux pieds de Gamalie <sup id="a1">[1](#f1)</sup> pour apprendre.
+C’était le plus grand cas d’un homme qui possédait toutes les connaissances que j’ai jamais rencontré. Dès le début de notre conversation, j’ai vu que la seule façon de traiter avec lui était de lui laisser croire qu’il était le grand mental qu’il croyait être, et je me suis donc posé en quelqu’un qui lui était inférieur sur le plan intellectuel, et qui était prêt à s’asseoir aux pieds de Gamaliel <sup id="a1">[1](#f1)</sup> pour apprendre.
 
 Il a commencé à me parler de son merveilleux esprit et des grandes connaissances qu’il possédait et m’a dit qu’il se sentait très seul dans le monde des esprits, car il ne trouvait personne de compétent pour discuter de sujets que seuls les esprits de sa grandeur pouvaient saisir et comprendre.
 
@@ -27,7 +27,7 @@ Enfin, il a dit qu’il y avait peut-être des réalités qu’il ne connaissait
 
 Puis j’ai commencé à lui parler des réalités spirituelles et du grand amour du Père, et du pouvoir qu’il avait d’embellir et de rendre heureux les âmes des esprits. Au début, il a déclaré que l’âme n’existait pas et a réitéré que le mental est la seule réalité qui appartient et détermine le caractère et les qualités d’un esprit. Que Dieu n’est que la créature du mental de l’homme, et que l’amour n’est qu’une réalité de l’imagination.
 
-Tu peux imaginer les difficultés rencontrées en vue de le convaincre qu’il avait une âme, que l’âme est la réalité de son existence, et que le mental n’est qu’une partie subordonnée de l’âme. Il ne semblait pas saisir la proposition, mais au bout d’un moment, je lui ai montré la beauté et le bonheur de plusieurs membres de notre groupe et je lui ai demandé si le mental est la plus grande réalité et comme il savait qu’aucun de ces esprits n’a un mental égal au sien, pourquoi sont-ils tellement plus beaux et plus heureux que lui.
+Tu peux imaginer les difficultés rencontrées en vue de le convaincre qu’il avait une âme, que l’âme est la réalité de son existence, et que le mental n’est qu’une partie subordonnée de l’âme. Il ne semblait pas saisir la proposition, cependant finalement, je lui ai montré la beauté et le bonheur de plusieurs membres de notre groupe et je lui ai demandé si le mental est la plus grande réalité et comme il savait qu’aucun de ces esprits n’a un mental égal au sien, pourquoi sont-ils tellement plus beaux et plus heureux que lui.
 
 Il hésita un instant et dit que son mental ne se dirigeait pas vers la création de la beauté ou du bonheur, mais que s’il l’avait consacré à ces réalités, il serait plus beau et plus heureux que n’importe lequel de ces esprits.
 
@@ -51,4 +51,5 @@ A. G. Ridle.
 <small>
 
 1. <large id="f1"> Gamaliel l’Ancien, ou Rabbi Gamaliel Ier, était une autorité de premier plan au sein du Sanhédrin au milieu du premier siècle. Petit-fils du grand maître Juif Hillel l’Ancien, il est mort vingt ans avant la destruction du deuxième temple de Jérusalem. Il a eu un fils, qu’il a appelé Siméon, du nom de son père, et une fille, dont la fille (c’est-à-dire la petite-fille de Gamaliel) a épousé un prêtre nommé Simon ben Nathanael. Le nom Gamaliel est la forme grecque du nom hébreu qui signifie récompense de Dieu.
+
 Dans la tradition Chrétienne, Gamaliel est célébré comme un Pharisien docteur en droit juif, qui fut le maître de l’apôtre Paul ; l’auteur du livre des Actes des Apôtres dépeint Gamaliel avec beaucoup de respect. (Source : Wikipedia) (G.J.C.)[↩](#a1)

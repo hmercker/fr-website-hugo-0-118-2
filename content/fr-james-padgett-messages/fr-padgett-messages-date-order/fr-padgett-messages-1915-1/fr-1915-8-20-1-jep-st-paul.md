@@ -11,6 +11,8 @@ weight:
 
 St Paul - reçu par James Padgett le 20 Août 1915, Washington, USA.
 
+![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/saint-paul-l-apotre.jpg)
+
 C’est moi, St Paul.
 
 Je veux simplement écrire sur la vérité de la Nouvelle Naissance, parce que je suis supposé avoir dit, ou plutôt il est écrit, que le sang de Jésus sauve les hommes de la condamnation, du péché et de la mort.

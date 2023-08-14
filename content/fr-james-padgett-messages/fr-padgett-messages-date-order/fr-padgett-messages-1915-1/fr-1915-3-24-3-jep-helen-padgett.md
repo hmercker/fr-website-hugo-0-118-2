@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène écrit qu’elle est heureuse que le Maître ait écrit et qu’il était si aimant et fraternel<sup id=”a1”>[1](#f1)</sup>.
+### Hélène écrit qu’elle est heureuse que le Maître ait écrit et qu’il était si aimant et fraternel
 
 Hélène Padgett - reçu par James Padgett le 24 Mars 1915, Washington, USA.
 
@@ -37,6 +37,3 @@ Eh bien, mon chéri, tu as beaucoup écrit et tu dois arrêter.
 Elle va bien et est un peu troublée, mais cela disparaîtra bientôt si tu fais ce que le Maître a dit.
 
 Alors avec tout mon amour, et avec beaucoup de câlins et de baisers, je suis ta propre vraie et bien-aimée, Hélène.
-<small>
-
-1. <large id="f1">Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1) 

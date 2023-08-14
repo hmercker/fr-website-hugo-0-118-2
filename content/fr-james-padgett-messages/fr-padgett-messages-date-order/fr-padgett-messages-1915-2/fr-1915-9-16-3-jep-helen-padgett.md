@@ -17,6 +17,8 @@ Eh bien, je suis venu te dire que tu ne dois pas écrire plus ce soir, car tu n�
 
 C’était César, comme on me l’a dit. Ce n’est pas un esprit très brillant, mais peut-être que ton ancien professeur pourrait l’aider.
 
-Eh bien, ils ne sont pas encore tout à fait prêts à reprendre leur écriture, car il semble que certains anciens souhaitent alors que leur sujet projeté entre en conflit avec le plan que les messages du Maître entendent établir et élaborer. Je dois m’arrêter maintenant et dire bonne nuit.
+Eh bien, ils ne sont pas encore tout à fait prêts à reprendre leur écriture, car il semble que certains de ces anciens veuillent écrire, et qu'ils aient un objectif, en t'écrivant, qui entre en conflit avec le plan que le Maître, avec ces messages, ait l'intention d'établir et d'élaborer. 
+
+Je dois m’arrêter maintenant et dire bonne nuit.
 
 Ta véritable et bien-aimée Hélène.

@@ -28,8 +28,14 @@ Ils ont combattu et souffert pour leur religion durant tous ces siècles et le f
 Je suis tellement intéressé par cette phase des Grandes Vérités qui doit être donnée à et acceptée par les hommes, parce que je suis, plus que tout autre homme, responsable des croyances actuelles des Juifs, qui les fait se maintenir distincts, et à part de tout le reste de l’humanité, comme le peuple choisi et spécialement sélectionné comme peuple de Dieu.
 
 Je n’écrirai pas plus ce soir, mais je pense que je dois vous demander la permission d’écrire à nouveau, parce que j’ai une mission à accomplir sur la terre pour dire la vérité sur un travail que j’ai exécuté si efficacement alors que j’étais le chef de mon peuple.
+
 Comme Jésus enseigne et enseignera à toute l’humanité le chemin au Père et l’immortalité, je dois enseigner à mon peuple le moyen de se débarrasser de ces croyances, erronées et fausses, qui sont contenues dans l’Ancien Testament.
 
 Ainsi, avec mes remerciements, je vous dis bonne nuit.
 
-Moïse, le législateur des Juifs.
+Moïse, le législateur des Juifs.<sup id="a1">[1](#f1)</sup>
+small>
+
+1. <large id="f1"> [Un plus récent commentaire sur ce message a été reçu de Moïse](fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2006\fr-2006-10-23-1-fab-moses.md).[↩](#a1)
+
+

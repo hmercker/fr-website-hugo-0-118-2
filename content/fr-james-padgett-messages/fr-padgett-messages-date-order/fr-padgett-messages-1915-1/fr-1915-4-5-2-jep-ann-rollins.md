@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Affirme que Jésus écrit par l’intermédiaire de M. Padgett, et non d’un imposteur <sup id="a1">[1](#f1)</sup>
+### Affirme que Jésus écrit par l’intermédiaire de M. Padgett, et non d’un imposteur<sup id=”a1”>[1](#f1)</sup>
 
 Anne Rollins - reçu par James Padgett le 5 Avril 1915, Washington, USA.
 
@@ -38,6 +38,7 @@ J’aimerais écrire plus ce soir, mais il y en a d’autres ici qui sont très 
 Ta propre grand-mère aimante et fidèle Anne Rollins.2
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III.[↩](#a1)
+1. <large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 54 et dans le volume III à la page 339. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
-2. <large id="f2"> M. Padgett a permis aux esprits malheureux de visualiser les esprits plus brillants afin qu’ils puissent recevoir de l’aide. M. Padgett consacrait une soirée par semaine à cette fin. (Dr. S.)[↩](#a2)
+2. <large id="f2"> M. Padgett a permis aux esprits malheureux de visualiser les esprits plus brillants afin qu’ils puissent recevoir de l’aide. M. Padgett consacrait une soirée par semaine à cette fin. (Dr. Stone.) [↩](#a2)
+

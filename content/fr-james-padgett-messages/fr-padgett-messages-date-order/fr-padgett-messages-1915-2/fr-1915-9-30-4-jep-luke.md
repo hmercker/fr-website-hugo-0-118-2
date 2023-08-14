@@ -18,4 +18,4 @@ Je vois à quel point vous avez été inquiet aujourd’hui et comme vous vous s
 Faites confiance au Maître car il est plus puissant que vous ne le pensez et je sais qu’il vous apportera le soulagement dont vous avez besoin. Je n’écrirai pas plus ce soir, mais je dirai que je suis votre frère en Christ, Luc.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III.[↩](#a1)
+1. <large id="f1"> Ce message est également publié  dans le volume II, deuxième édition française, à la page 191 et dans le volume III à la  page 424. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

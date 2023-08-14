@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre<sup id=”a1”>[1](#f1)</sup>.
+### Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre<sup id=”a1”>[1](#f1)</sup>
 
 Jean le Baptiste - reçu par James Padgett le 10 Août 1915, Washington, USA.
 

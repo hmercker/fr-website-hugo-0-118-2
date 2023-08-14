@@ -28,6 +28,7 @@ Oui, vous recevrez cet afflux de l’Esprit Saint comme ils l’ont fait, même 
 Je vous le dis maintenant, parce que vous allez bientôt commencer à prendre mes messages et vous devez avoir ces pouvoirs et cette foi.
 
 Oui, j’entends vos prières au Père et j’essaie de vous faire sentir mon amour, et vous le faites parfois. Mais vous ne devez pas laisser vos prières venir à moi comme Dieu ; je ne suis que votre ami et votre frère. Oui, je sais, mais je n’ai pas du tout prononcé ces paroles. J’ai simplement prétendu être le fils et le messager de mon Père. Je n’ai pas prétendu être Dieu.
+
 Oui, j’ai dit que mon Père m’a envoyé et c’est vrai. Je vivais avant de venir sur terre avec mon Père dans les Cieux et vous aussi.
 
 Je voulais dire que dans le Royaume de Dieu il y a des demeures et que j’irais préparer un endroit où mes disciples devraient avoir une demeure avec moi, séparée des demeures des esprits qui ne croient pas en moi ou ne me suivent pas ; que mon royaume devait être un royaume séparé des sphères spirituelles, et que ceux qui veulent vivre avec moi devraient obtenir, afin de le faire, cet amour de Dieu dans leur cœur. Mon royaume est un royaume où l’Amour est suprême et où il se manifeste dans le degré le plus pur et le plus élevé. Je n’ai pas vu Dieu dans le sens où je vous ai vu, mais dans le sens où mon amour est si abondant et Son Amour est si authentique, qu’Il apparaît aux yeux de mon âme aussi clairement que vous apparaissez à mes yeux naturels.

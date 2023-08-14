@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène affirmant que Jésus a écrit <sup id="a1">[1](#f1)</sup>
+### Hélène affirmant que Jésus a écrit<sup id=”a1”>[1](#f1)</sup> 
 
 Hélène Padgett - reçu par James Padgett le 3 Avril 1915, Washington, USA.
 
@@ -22,4 +22,5 @@ Eh bien, je t’aime, comme tu le sais, de tout mon cœur et de toute mon âme, 
 Alors mon cher Ned, je dois dire bonne nuit, ton Hélène.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III.[↩](#a1)
+<large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 53 et dans le volume III à la page 32. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
+

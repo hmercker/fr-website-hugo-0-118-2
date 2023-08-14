@@ -15,7 +15,7 @@ Je suis, Selim.
 
 J’ai été le premier sultan musulman de ce nom, et je veux vous écrire un peu, si vous n’avez pas d’objection.
 
-J’ai écouté ce que Paul a écrit et certaines choses qu’il a dites je ne les comprends pas. Je veux parler de la différence entre l’esprit qui reçoit ce qu’il appelle la Nouvelle Naissance, et l’esprit qui n’a que son amour naturel.
+J’ai écouté [ce que Paul a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-20-1-jep-st-paul/) et certaines choses qu’il a dites je ne les comprends pas. Je veux parler de la différence entre l’esprit qui reçoit ce qu’il appelle la Nouvelle Naissance, et l’esprit qui n’a que son amour naturel.
 
 Je sais que j’ai un amour pour Dieu et un amour pour mon prochain, que je suis très heureux et que je ne désire pas un plus grand bonheur, et que des environnements, que je ne peux concevoir, peuvent être exceptionnels par leur beauté et leur désirabilité.
 

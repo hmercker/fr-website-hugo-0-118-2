@@ -15,7 +15,7 @@ C’est moi, ton Hélène.
 
 Chéri, nous avons eu une scène d’amour entre Mary et le Docteur, et elle était si heureuse de pouvoir lui écrire que toute son âme était remplie d’émotion et que de nombreuses larmes sont tombées sur sa lettre, bien que vous ne puissiez pas les voir.
 
-Quel bel esprit d’amour elle a, et comme elle aime le Docteur. J’ai apprécié la scène plus que je ne peux te le dire ; et lorqu’elle a eu terminé ses écrits, elle est venue et a jeté ses bras autour de mon cou et a pleuré jusqu’à ce que je pense qu’elle ne pouvait plus avoir de larmes, mais c’étaient des larmes de joie. Oh, comme elle m’est chère, car elle semble avoir un amour qui fait appel à mon amour pour toi, et lorqu’elle me parle de son grand amour pour le Docteur, je me joins à elle dans ses larmes, et nous remercions tous les deux Dieu qu’il nous ait donné de telles âmes sœurs, et le grand amour que nous avons pour elles.
+Quel bel esprit d’amour elle a, et comme elle aime le Docteur. J’ai apprécié la scène plus que je ne peux te le dire ; et lorsqu’elle a eu terminé ses écrits, elle est venue et a jeté ses bras autour de mon cou et a pleuré jusqu’à ce que je pense qu’elle ne pouvait plus avoir de larmes, mais c’étaient des larmes de joie. Oh, comme elle m’est chère, car elle semble avoir un amour qui fait appel à mon amour pour toi, et lorsqu’elle me parle de son grand amour pour le Docteur, je me joins à elle dans ses larmes, et nous remercions tous les deux Dieu qu’il nous ait donné de telles âmes sœurs, et le grand amour que nous avons pour elles.
 
 J’ai été avec toi toute la journée pour essayer de te réconforter et de t’aider à oublier les soucis de tes affaires terrestres, et dans une certaine mesure, j’ai réussi.
 

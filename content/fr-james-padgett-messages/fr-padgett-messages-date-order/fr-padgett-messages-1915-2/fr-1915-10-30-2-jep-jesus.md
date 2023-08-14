@@ -23,7 +23,7 @@ Aucun mortel n’est si insignifiant, ou si peu important, que je ne le chercher
 
 Faites donc savoir à votre ami qu’il a un frère et un ami en Jésus, et que son bonheur est le bonheur de son frère.
 
-J’écris ainsi ce soir parce que je veux voir cet homme comme un fils racheté du Père, et comme un possesseur de ce Grand Amour qui le rendra heureux sur terre, et encore plus heureux lorsqu’il viendra dans le monde des esprits. Pour moi, tout mortel qui n’est pas dans le bercail des enfants de Dieu est celui qui s’est égaré, et pour le retrouver j’ai laissé les quatre-vingt-dix-neuf autres *(Cf Parabole des brebis égarées – Luc 15.1-10)*.
+J’écris ainsi ce soir parce que je veux voir cet homme comme un fils racheté du Père, et comme un possesseur de ce Grand Amour qui le rendra heureux sur terre, et encore plus heureux lorsqu’il viendra dans le monde des esprits. Pour moi, tout mortel qui n’est pas dans le bercail des enfants de Dieu est celui qui s’est égaré, et pour le retrouver j’ai laissé les quatre-vingt-dix-neuf autres *[Parabole des brebis égarées – Luc 15.1-10](https://saintebible.com/luke/15-4.htm)*.
 
 Vous, mon cher frère, vous comprendrez cela, et vous pouvez aider votre frère – et de nombreux frères – à apprendre les grandes vérités du salut de leur âme et de leur progression spirituelle.
 

@@ -23,8 +23,6 @@ Oui, je le ferai, et vous apprendrez que beaucoup d’erreurs ont été écrites
 
 Vous êtes trop faible pour écrire plus. Vous avez ma bénédiction et celle également de l’Esprit Saint. Jésus le Christ <sup id="a3">[3](#f3)</sup>.
 
-*Note: C’est le troisième message de Jésus reçu par James E. Padgett.*
-
 *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
 
 **Auteur** | **Titre du message** | **Date du message**
@@ -41,8 +39,8 @@ Jésus | [La religion du futur sera complète et finale, fondée sur les Vérit�
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
 <small>
 
-1. <large id="f1"> Ceci est le troisième message de Jésus reçu par Jacques E. Padgett. Le terme « formel » a été utilisé pour différencier les communications les plus importantes des communications les plus conviviales. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Ceci est le troisième message de Jésus reçu par James Padgett. Le terme « formel » a été utilisé pour différencier les communications les plus importantes des communications les plus conviviales. (G.J.C.)[↩](#a1)
 
 2. <large id="f2"> Jésus explique qu’il n’est pas Dieu, et ce qu’il voulait dire par « Je suis le chemin, la vérité et la vérité ».la vie » dans le Tome II (4e éd.) page 3. (G.J.C.)[↩](#a2)
 
-3. <large id="f3"> Ce message est également publié dans le Volume I, 1ère édition française, page 360. C’est le troisième message de Jésus reçu par James E. Padgett. (G.J.C.).[↩](#a3)
+3. <large id="f3"> Ce message est publié dans le Volume I desmessages de James Padgett, 12ème édition française, page 365 et dans le volume III des messages à la page 56.  Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a3)

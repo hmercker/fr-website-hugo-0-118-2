@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### loi de compensation <sup id="a1">[1](#f1)</sup>
+### loi de compensation 
 
 John Bunyan - reçu par James Padgett le 9 Janvier 1917, Washington, USA.
 
@@ -20,6 +20,4 @@ Si les mortels pouvaient seulement comprendre cette vérité, ils ne continuerai
 La Loi de l’Amour Divin est la plus grande loi et supplante toutes les autres lois lors de leurs fonctionnements sur les âmes et les esprits des mortels. Eh bien, mon ami, je ne dois pas écrire plus et donc avec mon amour, je vais vous dire bonne nuit.
 
 Votre frère en Christ, John Bunyan.
-<small>
 
-1. <large id="f1"> Ce message est aussi publié dans le Volume III à la page 363. Pour plus de détails, consultez cette page.[↩](#a1)

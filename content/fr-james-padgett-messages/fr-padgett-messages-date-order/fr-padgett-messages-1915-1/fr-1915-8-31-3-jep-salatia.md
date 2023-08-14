@@ -13,7 +13,7 @@ Sainte Salatia - reçu par James Padgett le 31 Août 1915, Washington, USA.
 
 Je suis Sainte Salatia. <sup id="a1">[1](#f1)</sup>
 
-J’étais Italienne lors de ma vie sur terre. J’ai beaucoup travaillé pour l’Église et j’étais à la tête de certaines de ses institutions et, après ma mort, c’est-à-dire après plusieurs années, j’ai été canonisée. Je suis morte en 1689 à Milan. Mon nom est parmi les saints de l’église Romane.
+J’étais Italienne lors de ma vie sur terre. J’ai beaucoup travaillé pour l’Église et j’étais à la tête de certaines de ses institutions et, après ma mort, c’est-à-dire après plusieurs années, j’ai été canonisée. Je suis morte en 1689 à Milan. Mon nom est parmi les saints de l’église Romaine.
 
 Je suis venu simplement pour vous dire que je suis maintenant dans les Cieux Célestes et une disciple du Maître. Mais je dois dire que lorsque je suis arrivée dans le monde des esprits, je fus dans les ténèbres et la souffrance, à cause de mes fausses croyances et de ma fausse vie d’enseignante. Ce n’est qu’après être devenue une habitante du monde des esprits que j’ai appris les vérités. Oh, les faux enseignements de l’église et de ses prêtres ! Il y en a beaucoup ici dans le monde des esprits qui sont encore dans les ténèbres et le tourment et qui ont vécu à la même époque que moi sur terre.
 

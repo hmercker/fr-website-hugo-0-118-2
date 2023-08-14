@@ -13,7 +13,7 @@ Lazare - reçu par James Padgett le 5 Août 1915, Washington, USA.
 
 C’est moi, Lazare.
 
-J’étais celui que Jésus a appelé de la tombe. Je veux simplement dire que je n’étais pas mort quand je fus ressuscité, mais que j’avais sur moi le sommeil de la mort. Cependant mon esprit n’était pas entièrement séparé de mon corps. Je le sais parce que si mon esprit avait été entièrement séparé, Jésus n’aurait pas pu me ramener à la vie. Aucun esprit, une fois entièrement libéré du corps, ne peut jamais y retourner et réanimer le corps. Je sais que la Bible dit ou laisse entendre que j’étais mort, mais ce n’est pas vrai comme je l’ai dit plus haut.
+J’étais celui que Jésus a appelé de la tombe. Je veux simplement dire que je n’étais pas mort lorsque je fus ressuscité, mais que j’avais sur moi le sommeil de la mort. Cependant mon esprit n’était pas entièrement séparé de mon corps. Je le sais parce que si mon esprit avait été entièrement séparé, Jésus n’aurait pas pu me ramener à la vie. Aucun esprit, une fois entièrement libéré du corps, ne peut jamais y retourner et réanimer le corps. Je sais que la Bible dit ou laisse entendre que j’étais mort, mais ce n’est pas vrai comme je l’ai dit plus haut.
 
 Je suis maintenant dans les Cieux Célestes dans une sphère qui n’est pas numérotée, mais très proche de celles dans lesquelles vivent les disciples.
 

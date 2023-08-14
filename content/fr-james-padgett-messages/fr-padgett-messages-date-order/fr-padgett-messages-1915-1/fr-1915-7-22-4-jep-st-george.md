@@ -15,7 +15,7 @@ Je suis Saint Georges (du Dragon). <sup id="a1">[1](#f1)</sup>
 
 Je fus un guerrier, pas un saint. Je fus enthousiaste dans la cause des Chrétiens contre les Turcs, je me suis battu, j’ai souffert et je suis mort mais en tant que saint, je n’ai été qu’un guerrier, en aucun point supérieur à un autre, qui a été ému par la grande cause qui nous a poussés à œuvrer pour délivrer la Terre Sainte des infidèles.
 
-Mais, bien que je n’aie jamais été un saint, j’avais une mentalité religieuse et les choses spirituelles faisaient appel à ma nature supérieure, et parfois mon âme ressentait l’influence du monde spirituel.
+Cependant, bien que je n’aie jamais été un saint, j’avais une mentalité religieuse et les choses spirituelles faisaient appel à ma nature supérieure, et parfois mon âme ressentait l’influence du monde spirituel.
 
 Mais je n’ai jamais été un vrai possesseur de l’Amour du Père tel que je suis maintenant. Depuis mon arrivée dans le monde des esprits, j’ai reçu ce Grand Amour, et je suis maintenant un disciple du Maître dans ma foi en ses enseignements, et dans mes efforts pour œuvrer pour le bien de l’humanité.
 

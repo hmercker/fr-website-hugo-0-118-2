@@ -15,7 +15,7 @@ Je suis Sainte Camélia. <sup id="a1">[1](#f1)</sup>
 
 Oui, je fus une nonne Catholique. Je veux simplement dire que je ne suis plus une religieuse ou une catholique, mais une Chrétienne rachetée par l’Amour du Père et les enseignements du Maître.
 
-J’ai vécu en 1676 à Florence, en Italie, et j’ai été canonisée presque cent ans après ma mort. Oui, dans l’histoire de l’église romane. Je suis maintenant dans les Cieux célestes où sont ceux qui ont reçu la Nouvelle Naissance.
+J’ai vécu en 1676 à Florence, en Italie, et j’ai été canonisée presque cent ans après ma mort. Oui, dans l’histoire de l’église romaine. Je suis maintenant dans les Cieux célestes où sont ceux qui ont reçu la Nouvelle Naissance.
 
 Je n’écrirai plus ce soir. Je voulais simplement écrire et je n’avais jamais écrit avec des mortels.
 

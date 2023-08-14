@@ -24,4 +24,4 @@ Aussi Leslie croie ce que nous te disons, accorde ta confiance à Dieu et tu ser
 Ton père aimant, William Stone.
 <small>
 
-1. <large id="f1"> Ce message est aussi publié dans le Volume IV, page 41. Pour plus de détails, consultez cette page (lien non traduit)[↩](#a1)
+1. <large id="f1"> Ce message est aussi publié dans le Volume I des messages, 1ère édition française, à la page 320 et dans le volume IV, page 47.. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

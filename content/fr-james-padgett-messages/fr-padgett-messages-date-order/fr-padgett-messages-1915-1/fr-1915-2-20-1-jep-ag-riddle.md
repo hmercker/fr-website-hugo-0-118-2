@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### A évolué vers une nouvelle sphère spirituelle et cherche maintenant plus d’aide pour faire avancer son progrès spirituel. Et l’a reçu avec l’aide de Jésus <sup id="a1">[1](#f1)</sup>
+### A évolué vers une nouvelle sphère spirituelle et cherche maintenant plus d’aide pour faire avancer son progrès spirituel. Et l’a reçu avec l’aide de Jésus
 
 Albert Riddle - reçu par James Padgett le 20 Février 1915, Washington, USA.
 
-C’est moi, ton vieil ami, George Riddle.
+C’est moi, ton vieil ami, George Riddle.<sup id=”a1”>[1](#f1)</sup>
 
 Je suis très heureux ce soir et je suis heureux que tu ailles beaucoup mieux. Tu as eu des moments plutôt difficiles, et cela m’a un peu rappelé la souffrance que j’ai souvent enduré lorsque je vivais à Washington. Eh bien, tu es guéri de ton indigestion, et tes organes digestifs seront bientôt en parfait état de fonctionnement.
 
@@ -27,7 +27,7 @@ Je suis aussi heureux parce que j’ai très souvent mon âme sœur avec moi, et
 
 Ta grand-mère est si merveilleusement belle et remplie de cet Amour, que sa présence même m’inspire à croire et à chercher le bonheur de ces sphères supérieures.
 
-Eh bien, comme tu veux que je parle de certaines des lois du monde des esprits, je dirai seulement que la seule grande loi est que Dieu est Amour et qu’Il est prêt à donner cet amour à quiconque, esprit ou mortel, qui le Lui demande. Je suis non seulement très heureux mais je trouve que mon esprit se développe en grande partie à cause de cet Amour que je possède. Nul homme ou esprit ne peut être rempli de cet Amour, et ne pas avoir la sagesse qui vient nécessairement avec l’Amour. Je ne suis plus tellement intéressé par les phénomènes purement mentaux comme je l’étais avant de recevoir cet Amour et de croire en un Père d’Amour et de Vérité ; mais je suis, néanmoins, capable de comprendre beaucoup plus de choses que je ne pouvais le faire lorsque je n’avais que des objectifs mentaux en tête. Je ne connais pas encore parfaitement les lois de communication que t’ai dit vouloir étudier et t’instruire à leur sujet, mais j’en connais assez pour pouvoir dire que chaque esprit essaie de communiquer avec ses amis sur terre. S’il ne réussit pas c’est parce que les mortels ne sont pas dans cet état de rapport physique qui leur permette de recevoir les communications de l’esprit. Je ne sais pas encore pourquoi certains mortels sont si sensibles à ces influences qu’ils peuvent facilement comprendre, et d’autres non. Certains esprits disent que la loi qui régit cette matière n’est pas comprise par les esprits qui sont ici depuis de nombreuses années et qui ont beaucoup étudié le sujet.
+Eh bien, comme tu veux que je parle de certaines des lois du monde des esprits, je dirai seulement que la seule grande loi est que Dieu est Amour et qu’Il est prêt à donner cet amour à quiconque, esprit ou mortel, qui le Lui demande. Je suis non seulement très heureux mais je trouve que mon esprit se développe en grande partie à cause de cet Amour que je possède. Nul homme ou esprit ne peut être rempli de cet Amour, et ne pas avoir la sagesse qui vient nécessairement avec l’Amour. Je ne suis plus tellement intéressé par les phénomènes purement mentaux comme je l’étais avant de recevoir cet Amour et de croire en un Père d’Amour et de Vérité ; mais je suis, néanmoins, capable de comprendre beaucoup plus de choses que je ne pouvais le faire lorsque je n’avais que des objectifs mentaux en tête. Je ne connais pas encore parfaitement les lois de communication que JE t’ai dit vouloir étudier et t’instruire à leur sujet, mais j’en connais assez pour pouvoir dire que chaque esprit essaie de communiquer avec ses amis sur terre. S’il ne réussit pas c’est parce que les mortels ne sont pas dans cet état de rapport physique qui leur permette de recevoir les communications de l’esprit. Je ne sais pas encore pourquoi certains mortels sont si sensibles à ces influences qu’ils peuvent facilement comprendre, et d’autres non. Certains esprits disent que la loi qui régit cette matière n’est pas comprise par les esprits qui sont ici depuis de nombreuses années et qui ont beaucoup étudié le sujet.
 
 Mais je sais que lorsque le rapport existe, les communications peuvent avoir lieu.
 
@@ -50,4 +50,7 @@ Avec tout mon amour et mes bénédictions.
 George Riddle.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume IV.[↩](#a1)
+<large id=”f1”> Ce message est publié dans le volume II, deuxième version française, à la page 22 et dans le volume IV à la page 370. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
+
+
+

@@ -17,7 +17,7 @@ Non, et pas plus qu’aucun esprit dans tout l’univers de Dieu. Lui, Jésus, e
 
 Oui, je sais qu’il vient vers vous et vous enseigne les vérités de Dieu et Son amour pour vous et pour toute l’humanité. Je sens qu’il est impatient que vous receviez ces vérités et que vous les fassiez connaître à l’humanité, et vous aurez le pouvoir de le faire, car il est déterminé à ce que vous soyez son disciple comme je l’ai été sur terre ; et je veux vous dire qu’il vous aime beaucoup et qu’il est attiré par vous au-delà de son attirance pour tout autre mortel en ce moment. Vous aurez une merveilleuse occasion de vous rapprocher de lui et de bénéficier de l’influence de sa présence ainsi que de son amour. Ne manquez donc pas de faire tout ce qui est en votre pouvoir pour accomplir la tâche que vous avez entreprise.
 
-La première grande vérité est – Dieu est Amour, et la seconde est – vous devez naître de nouveau. Ce sont les deux plus grandes vérités de la Bible. Je les considère plus grandes que les commandements d’aimer Dieu et d’aimer son prochain comme soi-même.
+**La première grande vérité est – Dieu est Amour, et la seconde est – vous devez naître de nouveau. Ce sont les deux plus grandes vérités de la Bible. Je les considère plus grandes que les commandements d’aimer Dieu et d’aimer son prochain comme soi-même.**
 
 Oui, je suis Saint Jean de la Bible. Je vis dans une Sphère Céleste qui est bien au-dessus de la septième sphère spirituelle. Je suis avec un certain nombre de disciples et d’autres qui ont dans leur cœur une abondance de l’Amour de Dieu. Ma sphère n’est pas numérotée, et elle n’a pas besoin d’être numérotée, car elle est proche de la plus haute. Le Maître est, dans sa maison, plus haut que n’importe qui d’autre.
 

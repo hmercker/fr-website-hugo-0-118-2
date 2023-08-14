@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La prière donnée par Jésus comme la seule prière
+### La prière donnée par Jésus comme la seule prière<sup id=”a1”>[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 2 Décembre 1916, Washington, USA.
 
@@ -53,11 +53,13 @@ Nous avons une très bonne relation ce soir et je voie que l’amour du Père es
 
 Votre frère et ami,
 
-Jésus.
+Jésus.<sup id=”a2”>[2](#f2)</sup>
+<small>
 
-(*********to be edited******************)
-Une suggestion a récemment été reçue afin de changer « faux prophètes » pour « anciens prophètes » parce que beaucoup de maîtres spirituels ont été honnêtes mais égarés; très peu étaient techniquement faux. Et ceci est potentiellement offensant pour ces gens égarés.
+1. <large id=”f1”> [Il est possible d'écouter la narration de cette prière par l'intermédiaire de ce lien](https://www.youtube.com/watch?v=viwN9wsCMfw). Cette prière est classée 1200 sur la carte de la conscience du Dr David R. Hawkins ! !! (1000 étant un état de pure conscience)[↩](#a1)
 
-Il existe, en anglais, une version plus moderne de cette prière. Cette prière originale a été également modifiée subtilement, plusieurs années plus tard, dans un message reçu par l’intermédiaire du Dr Samuels. Cette version modifiée est accessible ici. Le message se référant à la modification apportée le 26 septembre 1965, est accessible ici. Dans cette version, la phrase « même ci certains croient qu’un homme puisse être ton égal en puissance et en gloire. » a été supprimée. La traduction française a été faite d’après cette version à l’exception  de la phrase mentionnée ci-dessus qui a été conservée.
+2. <large id=”f2”> Dans [une très belle vidéo réalisée](https://www.youtube.com/watch?v=m4WdGwt-X9A) par Care Darby Walsh qui est disponible sur YouTube, il est possible d’écouter la narration de la version originale de cette prière en anglais.
+. Il est également possible, toujours en anglais, de visualiszer une seconde vidéo relative à la prière de l'Amour Divin. J'apprécie particulièrement cette seconde vidéo car ke trouve que l'accompagnement musical est juste maginifique. Vous pouvez visualiser cette seconde par [l'intermédiaire de ce lien](https://www.youtube.com/watch?v=Pg6p3rivAZw&t=127s
+) [↩](#a2)
 
-Dans une très belle vidéo établie par Care Darby Walsh qui est disponible sur YouTube, il est possible d’écouter la narration de la version originale de cette prière en anglais.
+

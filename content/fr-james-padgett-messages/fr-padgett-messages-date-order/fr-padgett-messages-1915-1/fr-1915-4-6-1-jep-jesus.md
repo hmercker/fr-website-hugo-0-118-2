@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’effet de la déclaration de M. Padgett <sup id="a1">[1](#f1)</sup>
+### L’effet de la déclaration de M. Padgett<sup id=”a1”>[1](#f1)</sup> 
 
 Jésus - reçu par James Padgett le 6 Avril 1915, Washington, USA.
 
@@ -32,8 +32,8 @@ Ainsi, avec tout mon amour et les bénédictions du Père, je suis votre propre 
 Jésus.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III des messages reçus par James Padgett.[↩](#a1)
+1. <large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 5 et dans le volume III à la page 98. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
-2. <large id="f2"> Bien qu’un certain nombre de titres différents aient été utilisés par le Dr Stone, y compris « Messages de Jésus et des Célestes », »Livre des vérités », »Vrai Évangile révélé de nouveau par Jésus » et même « Vrai Évangile de Jésus révélé de nouveau », ce titre n’a jamais été utilisé. Je l’ai cependant utilisé pour publier le livre lié ici.[↩](#a2)
+2. <large id="f1"> Bien qu’un certain nombre de titres différents aient été utilisés par le Dr Stone, y compris « Messages de Jésus et des Célestes », « Livre des vérités », « Vrai Évangile révélé de nouveau par Jésus » et même « Nouvelles Révélations de Jésus de Nazareth », ce titre n’a jamais été utilisé.[↩](#a2)
 
-3. <large id="f3"> L’œuvre à laquelle il est fait référence est celle d’aider les esprits qui écrivent par l’intermédiaire de M. Padgett et de leur permettre de visualiser les esprits brillants qui les aident dans leur progression.[↩](#a3)
+3. <large id="f2"> Le travail auquel il est fait référence est celle d’aider les esprits qui écrivent par l’intermédiaire de M. Padgett et de leur permettre de visualiser les esprits brillants qui les aident dans leur progression.[↩](#a3)

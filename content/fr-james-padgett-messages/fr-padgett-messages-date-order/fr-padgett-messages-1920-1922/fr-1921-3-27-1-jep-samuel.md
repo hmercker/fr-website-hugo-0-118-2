@@ -33,8 +33,8 @@ Votre frère en Christ, Samuel.
 
 *Note 2 : Liens vers d'autres messages relatifs à la crucifixion de Jésus :*
 
-24 Octobre 1915 : [St Luc explique la dématérialisation du corps terrestre de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915\fr-1915-10-31-1-jep-luke/).
-
-16 Mars 1916 : [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-3-16-1-jep-joseph/).
-
-22 Janvier 1917 : [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/).
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+St Luc | [Explique la dématérialisation du corps terrestre de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-24-1-jep-st-luke/) | 24 Octobre 1915
+Joseph d’Arimathie | [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-16-1-jep-joseph/)  | 16 Mars 1916 
+Elohiam [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/) | 22 Janvier 1917

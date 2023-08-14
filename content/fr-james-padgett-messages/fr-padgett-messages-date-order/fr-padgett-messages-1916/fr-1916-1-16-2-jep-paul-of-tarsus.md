@@ -49,13 +49,17 @@ Il y a une Résurrection que le Maître a enseignée, et que ses apôtres, quand
 
 Il est trop tard ce soir pour expliquer cette Résurrection, mais je reviendrai très prochainement et j’essaierai de vous la faire comprendre ainsi qu’au monde.
 
-Je vais maintenant vous dire bonne nuit et que Dieu vous bénisse et vous protège.
+Je vais maintenant vous |dire bonne nuit et que Dieu vous bénisse et vous protège.
 
 Votre frère en Christ, Paul.
 
-Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :
+*Note : Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*
 
-    - le 08 Février 1916 : [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/).
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus |  [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/) |  08 Février 1916
+Jésus | [Quel est le corps réel qui est ressuscité au moment de la mort physique.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-4-1-jep-st-paul/)  | 04 Octobre 1916
 
-    - le 04 Octobre 1916 : [Quel est le corps réel qui est ressuscité au moment de la mort physique}(/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-4-1-jep-st-paul/).
+
+
 

@@ -17,6 +17,6 @@ Mon cher fils. Je sens que je dois t’écrire juste une ligne, parce que je veu
 
 Il était glorieux et, avec son grand amour, il y avait tellement gloire, que, de ce fait, nous avons tous été subjugué par ces influences de sorte que nous avons pu seulement écouter dans l’adoration.
 
-Fais moi confiance quand je dis que tu dois croire, parce que jamais un message a été donné avec plus d’autorité.. Je sais que c’est difficile pour toi de concevoir ce que je veux dire, mais un jour tu sauras.
+Fais moi confiance quand je dis que tu dois croire, parce que jamais un message a été donné avec plus d’autorité. Je sais que c’est difficile pour toi de concevoir ce que je veux dire, mais un jour tu sauras.
 
-Ta propre grand-mère adorée, Ann Rollins.
+Ta propre grand-mère adorée, Anne Rollins.

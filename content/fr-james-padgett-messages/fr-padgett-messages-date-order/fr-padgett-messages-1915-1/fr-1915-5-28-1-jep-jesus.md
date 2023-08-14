@@ -13,6 +13,9 @@ Jésus - reçu par James Padgett le 28 Mai 1915, Washington, USA.
 
 C’est moi, Jésus.
 
+![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/lumiere-spirituelle1.jpg)
+
+
 Je veux partager avec vous ce que j’entends par immortalité, alors que vous et votre ami différiez aujourd’hui sur ce que cela signifie.
 
 Quand il fut dit à Adam (comme il est appelé) que s’il désobéissait à Dieu et mangeait du fruit défendu, il mourrait certainement, le mot mort signifiait la mort de l’âme, pour autant que ses progrès futurs, dans ce qui pourrait assurer sa réception de l’essence Divine de l’Amour du Père, soient en cause. Cela ne signifiait pas la mort physique ou la mort du corps, car il est évident qu’après que sa mort a été prononcée, il a vécu dans la chair pendant de très nombreuses années.
@@ -29,7 +32,7 @@ Lorsque je fus envoyé sur terre, Dieu m’a envoyé avec la vérité concernant
 
 Adam n’a pas été créé immortel, mais seulement avec la potentialité de l’immortalité, après sa « mort » les hommes ont cessé d’avoir cette potentialité – jusqu’à ce que Dieu le leur procure avec ma venue sur terre.
 
-Quand il a été dit, « comme en Adam tous les hommes sont morts, alors (en moi) tous les hommes sont rendus à la vie », cela signifiait simplement que lorsque Adam a chuté, ce qui lui permettait de devenir immortel lui fut retiré. Autrement dit, il est mort quant à cette potentialité et ce privilège, et ne fut plus en mesure d’atteindre la condition qui lui permettrait de devenir un avec le Père, ou à prendre part à Sa Divinité. L’humanité est restée dans cette condition de mort jusqu’à ce que, comme je le dis, je vienne et apporte avec moi le don restauré de l’attribut de l’âme qui permette à l’homme de devenir de nouveau immortel.
+Quand il a été dit, *« comme en Adam tous les hommes sont morts, alors (en moi) tous les hommes sont rendus à la vie »*, cela signifiait simplement que lorsque Adam a chuté, ce qui lui permettait de devenir immortel lui fut retiré. Autrement dit, il est mort quant à cette potentialité et ce privilège, et ne fut plus en mesure d’atteindre la condition qui lui permettrait de devenir un avec le Père, ou à prendre part à Sa Divinité. L’humanité est restée dans cette condition de mort jusqu’à ce que, comme je le dis, je vienne et apporte avec moi le don restauré de l’attribut de l’âme qui permette à l’homme de devenir de nouveau immortel.
 
 Quand ce don a été accordé à l’homme, il a également été accordé à tous ceux qui vivaient alors dans le monde des esprits, mais ils ne pouvaient l’obtenir que de la manière fournie à l’homme pour l’obtenir. Comprenez moi, tout ce qui fut perdu par la chute d’Adam a été restauré par ma venue avec le don restauré ; et il a embrassé tout esprit qui n’avait pas pu l’obtenir comme mortel et chaque mortel qui par la suite a vécu jusqu’à aujourd’hui.
 
@@ -69,4 +72,19 @@ Alors, vous et votre ami, réfléchissez à ce que j’ai écrit, et si, dans ce
 
 Je dois arrêter maintenant,- et vous donner ma bénédiction et la bénédiction du Père.
 
-Votre ami et frère, Jésus.
+Votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
+<small>
+
+<large id=”f1”> Il y trois autres messages sur le thème de l'immortalité.[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Henry Ward Beecher | [L'immportalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) | 05 Juillet 1915
+Jésus | [L'immportalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
+St Luc | [L'immportalité] |  (/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
+
+
+
+
+
+Jésus a communiqué le 02 Juin 1920 [un second message sur l'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/).[↩](#a1)

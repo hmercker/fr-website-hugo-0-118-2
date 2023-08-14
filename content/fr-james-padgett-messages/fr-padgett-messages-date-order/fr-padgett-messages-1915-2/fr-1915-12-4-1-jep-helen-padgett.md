@@ -28,6 +28,7 @@ Non, cela n’interférera pas avec tes capacités d’écriture, mais au contra
 Non, je n’ai pas entendu dire qu’il (Ed Thomas) est passé, et je ne connais aucun de ses amis ici, mais je vais essayer de le trouver, de lui parler et de lui dire que tu m’as envoyé vers lui, et s’il a besoin d’aide, je vais essayer de l’aider, et s’il le désire, je vais te l’amener et le laisser écrire. Tu vois, si nous pouvons faire du bien à un esprit, nous sommes toujours prêts à le faire.
 
 Ne penses-tu pas que nous ferions mieux d’arrêter maintenant, car tu es fatigué, même si tu ne t’en rends peut-être pas compte.
+
 Eh bien, mon chéri, je t’aime de tout mon cœur et de toute mon âme et je resterai avec toi, je te consolerai et te ferai sentir ma présence. Je suis si heureuse que tu m’aimes tant et que tu me veuilles autant que toi avec toi ; mais nous devons observer les lois qui régissent nos communications, et il n’est pas préférable pour nous d’écrire davantage en ce moment.
 
 Je viendrai ce soir et te parlerai encore de mon amour.

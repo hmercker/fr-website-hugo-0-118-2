@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Que fait l’esprit de l’homme lorsqu’il quitte le corps physique pour l’éternité ? <sup id="a1">[1](#f1)</sup>
+### Que fait l’esprit de l’homme lorsqu’il quitte le corps physique pour l’éternité ? 
 
 St Jean - reçu par James Padgett le 29 Mai 1916, Washington, USA.
 
@@ -21,11 +21,11 @@ Beaucoup d’esprits, je le sais, vous ont écrit à ce sujet et certains d’en
 
 Lorsque l’esprit quitte le corps, il y a rupture de la corde d’argent, comme on l’appelle, et toute connexion entre l’esprit et le corps est ainsi coupée pour l’éternité. Cet esprit ne peut jamais plus entrer dans ce corps, et aucun autre esprit ne le peut, bien que, je le sais, certains spiritualistes affirment qu’un autre esprit peut habiter le corps rejeté. Mais tout cela est faux, car aucun esprit ne pénètre jamais dans le corps qui a autrefois été la demeure d’un autre esprit, et, par conséquent, les affirmations de certains sages de l’Orient qu’une telle chose puisse être possible, n’a en fait aucun fondement.
 
-Lorsque la corde d’argent est coupée, aucun pouvoir connu du monde des esprits <sup id="a2">[2](#f2)</sup> ou des esprits de la sphère supérieure ne peut ressusciter ce corps et provoquer la manifestation de la vie, et, par conséquent, dans les miracles mentionnés dans la Bible, où il est dit que les morts ont été ramenés à la vie, il faut comprendre que ce lien entre l’esprit et le corps n’a jamais été brisé.
+Lorsque la corde d’argent est coupée, aucun pouvoir connu du monde des esprits <sup id="a1">[1](#f1)</sup> ou des esprits de la sphère supérieure ne peut ressusciter ce corps et provoquer la manifestation de la vie, et, par conséquent, dans les miracles mentionnés dans la Bible, où il est dit que les morts ont été ramenés à la vie, il faut comprendre que ce lien entre l’esprit et le corps n’a jamais été brisé.
 
 Dans ces temps anciens, comme maintenant, il y avait des personnes qui avaient l’air d’être mortes, et, en ce qui concernait la connaissance humaine, elles étaient mortes. Cependant elles étaient vraiment dans un état qu’on peut appeler vie suspendue. En l’absence de signes de vie apparaissant à la conscience des hommes, on pensait que la mort avait eu lieu. Pourtant, en aucun cas, où les morts supposés ont été élevés à la vie, le mortel était vraiment mort.
 
-[Comme Lazare vous l’a déjà dit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-3-jep-lazarus/), quand Jésus lui a ordonné de se lever, il n’était pas mort, et il en était de même pour tous les autres morts supposés appelés à la vie. Quand ce lien a été rompu, il y a certaines lois chimiques affectant le corps physique, et certaines lois spirituelles affectant l’esprit, qui rendent absolument impossible à l’esprit d’entrer à nouveau dans le corps ; et comme vous avez été informés, nous tous, les mortels, les esprits et les anges également, sont régis par des lois qui n’ont aucune exception, et ne varient jamais dans leurs fonctionnements. Aussi je dis que, lorsque l’esprit et le corps se séparent, c’est pour toute l’éternité, et l’esprit devient alors de lui-même, une chose séparée, contrôlée entièrement et exclusivement par des lois régissant le corps d’esprit <sup id="a3">[3](#f3)</sup>.
+[Comme Lazare vous l’a déjà dit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-3-jep-lazarus/), quand Jésus lui a ordonné de se lever, il n’était pas mort, et il en était de même pour tous les autres morts supposés appelés à la vie. Quand ce lien a été rompu, il y a certaines lois chimiques affectant le corps physique, et certaines lois spirituelles affectant l’esprit, qui rendent absolument impossible à l’esprit d’entrer à nouveau dans le corps ; et comme vous avez été informés, nous tous, les mortels, les esprits et les anges également, sont régis par des lois qui n’ont aucune exception, et ne varient jamais dans leurs fonctionnements. Aussi je dis que, lorsque l’esprit et le corps se séparent, c’est pour toute l’éternité, et l’esprit devient alors de lui-même, une chose séparée, contrôlée entièrement et exclusivement par des lois régissant le corps d’esprit <sup id="a2>[2](#f2)</sup>.
 
 Avec l’entrée de l’esprit dans le monde des esprits, vient l’âme, toujours enfermée dans ce corps spirituel et, d’une certaine manière, contrôlée par ce corps, qui est aussi, dans certains cas, contrôlé par l’âme. Le corps spirituel n’a pas, par lui-même, le pouvoir de déterminer son propre emplacement ou destin, parce que la loi d’attraction qui opère dans ce cas particulier, opère sur l’âme, et la condition de l’âme détermine sa localisation, et comme le corps spirituel est la couverture de l’âme, il doit aller là où cette loi d’attraction décrète que l’âme doit demeurer.
 
@@ -50,11 +50,10 @@ J’ai assez écrit pour ce soir, je vais vous laisser et, avec mon amour et mes
 
 Votre frère en Christ, Jean.
 
-*Note : Un résumé complet des sphères que l’homme peut atteindre après la mort [est présenté sur cette page](/fr-judas-of-kerioth-messages/fr-the-spiritual-spheres-life-after-death/).*
+*Note : Un résumé complet des sphères que l’homme peut atteindre après la mort [est présenté sur cette page](/7-fr-life-after-deat/7-3-fr-the-spirit-heavens-and-the-christian-kingdom-of-god/).*
 <small>
 
-1. <large id="f1"> Ce message est aussi publié dans le Volume III à la page194. Pour plus de détails, consultez cette page.[↩](#a1)
+1. <large id="f1"> De même les expressions monde des esprits ou monde spirituel sont identiques et correspondent à la résidence des esprits après la fin de leur vie terrestre.[↩](#a1)
 
-2. <large id="f2"> De même les expressions monde des esprits ou monde spirituel sont identiques et correspondent à la résidence des esprits après la fin de leur vie terrestre.[↩](#a2)
+2. <large id="f2"> les termes corps esprit ou corps spirituel sont synonymes. Ils correspondent à « l’enveloppe » qui entoure l’esprit (l’âme) durant sa vie terrestre ou durant sa vie dans l’au-delà.[↩](#a2)
 
-3. <large id="f3"> Les termes corps esprit ou corps spirituel sont synonymes. Ils correspondent à « l’enveloppe » qui entoure l’esprit (l’âme) durant sa vie terrestre ou durant sa vie dans l’au-delà.[↩](#a3)

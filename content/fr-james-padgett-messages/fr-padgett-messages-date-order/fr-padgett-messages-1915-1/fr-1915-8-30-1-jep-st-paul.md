@@ -11,6 +11,8 @@ weight:
 
 St Paul - reçu par James Padgett le 30 Août 1915, Washington, USA.
 
+![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/saint-paul-l-apotre-2-1.jpg)
+
 C’est moi, Saint Paul.
 
 Je désire vous dire que je suis très désireux de vous révéler quels sont les vrais enseignements de Jésus, et quelles erreurs mes épîtres, telles qu’elles sont contenues dans la Bible, renferment.

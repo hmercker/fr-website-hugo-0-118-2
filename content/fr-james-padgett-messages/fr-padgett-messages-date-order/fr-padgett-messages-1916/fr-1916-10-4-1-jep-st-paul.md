@@ -33,13 +33,12 @@ Alors, avec tout mon amour, je vous souhaite une bonne nuit.
 
 Ton frère en Christ, Paul.
 
-Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :
+*Note : Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*
 
-    - le 16 janvier 1916 : [La résurrection qui est commune à chacun, qu’il soit saint ou pécheur](/fr-James-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-16-2-jep-paul-of-tarsus/).
-
-    - le 08 Février 1916 : [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/).
-
-    
+*Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus |  [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/) | 16 janvier 1916
+Jésus |  [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/) |  08 Février 1916
 
 
    

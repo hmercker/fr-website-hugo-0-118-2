@@ -22,6 +22,7 @@ Eh bien, Leslie, ne la crois pas, car tu sais que je t’aime, et elle est seule
 *[Maintenant, Hélène :]*
 
 Oui, docteur, je plaisantais, car de toutes les filles malades que j’ai vues, je ne pense pas en avoir jamais vu une aussi malade que votre Mary. Maintenant, elle dit que je ne dois pas dire cela, alors vous voyez que je ne peux pas lui plaire. Allons, Mary, avais-je raison lorsque je lui ai dit que vous le tromperiez, ou lorsque j’ai dit que vous étiez malade d’amour ? Eh bien, je ne le tromperai pas, et je suppose que je n’aurai plus rien à dire.
+
 Vous voyez, docteur, elle reconnaît qu’elle est une petite fille malade d’amour et qu’elle n’est pas heureuse à moins qu’elle ne puisse vous le dire.
 
 Mais n’oubliez pas, docteur, qu’elle vous aime et que vous devriez être très reconnaissant d’avoir une âme sœur aussi belle et aussi aimante. Eh bien, mon chéri, je n’écrirai pas plus.
@@ -36,4 +37,4 @@ Alors, avec tout notre amour à vous deux, je vous souhaite une bonne nuit.
 Ta vraie et bien aimée, Hélène.
 <small>
 
-1. <large id="f1"> Ce message montre que les esprits aiment s’amuser un peu et qu’ils en profitent autant que les mortels, et que leur existence est tout aussi naturelle que celle des mortels. (Leslie R. Stone).[↩](#a1)
+1. <large id="f1">* Ce message montre que les esprits aiment s’amuser un peu et qu’ils en profitent autant que les mortels, et que leur existence est tout aussi naturelle que celle des mortels.* (Leslie R. Stone).[↩](#a1)

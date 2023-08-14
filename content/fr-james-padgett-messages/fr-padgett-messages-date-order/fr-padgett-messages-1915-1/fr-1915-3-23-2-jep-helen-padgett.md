@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène écrit sur la loi de Compensation <sup id="a1">[1](#f1)</sup>
+### Hélène écrit sur la loi de Compensation 
 
 Hélène Padgett - reçu par James Padgett le 23 Mars 1915, Washington, USA.
 
-C’est moi, ta vraie Hélène.
+C’est moi, ta vraie Hélène.<sup id=”a1”>[1](#f1)</sup>
 
 Tu ne pensais pas que je pouvais changer l’annonce de ma venue, mais tu dois savoir, mon cher Ned, que je peux faire n’importe quoi pour te plaire.
 
@@ -40,4 +40,4 @@ Je ne suis pas seulement le possesseur de cet Amour dans une large mesure, mais 
 Ta propre Hélène.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III des messages de James Padgett.[↩](#a1)
+<large id=”f1”>  Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 34 et dans le volume III à la page 136. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

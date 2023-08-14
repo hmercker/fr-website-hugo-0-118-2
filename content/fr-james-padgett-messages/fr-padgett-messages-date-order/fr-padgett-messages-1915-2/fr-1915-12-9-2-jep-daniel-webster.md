@@ -25,6 +25,6 @@ Je peux difficilement réaliser que la vérité puisse être présentée de cett
 
 Je pourrais écrire davantage ce soir, mais je n’abuserai plus de votre temps ou de votre force, et j’espère que, à l’avenir, j’aurai l’occasion de revenir et de révéler certaines de mes connaissances concernant ces vérités et l’importance qu’elles revêtent pour les hommes.
 
-Je vis dans la première Sphère Céleste où se trouvent Jefferson, Washington, et beaucoup d’autres des vieux patriotes de l’époque révolutionnaire et des jours suivants. Je signerai moi-même votre serviteur et frère obéissant en Christ.
+Je vis dans la première Sphère Céleste où se trouvent [Jefferson](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-9-1-jep-thomas-jefferson/), [Washington](/fr-james-padgett-message/\fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-1-1-jep-george-washington/), et beaucoup d’autres des vieux patriotes de l’époque révolutionnaire et des jours suivants. Je signerai moi-même votre serviteur et frère obéissant en Christ.
 
 Dan’l. Webster.

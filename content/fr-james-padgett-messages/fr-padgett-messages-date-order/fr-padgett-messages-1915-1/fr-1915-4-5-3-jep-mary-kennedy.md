@@ -32,4 +32,4 @@ Je n’écrirai pas plus maintenant, car Hélène dit que vous êtes fatigué.
 Alors, avec mon amour pour lui, et mes meilleurs vœux pour vous, Je suis, Mary.
 <small>
 
-1. <large id="f1"> Cette date est imprimée dans la première édition de ce 4ème volume, mais il n’y a pas d’entrée dans l’index (journal quotidien de James Padgett) pour cette date.[↩](#a1)
+1. <large id="f1"> Cette date est imprimée dans la première édition du 4ème volume des messages de James Padgett, mais il n’y a pas d’entrée dans l’index (journal quotidien de James Padgett) pour cette date.[↩](#a1)

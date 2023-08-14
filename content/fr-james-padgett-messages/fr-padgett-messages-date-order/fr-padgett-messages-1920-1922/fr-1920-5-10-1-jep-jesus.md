@@ -40,4 +40,15 @@ et cette réalisation n’est possible que par l’action de l’Esprit Saint.
 Oh, prédicateur, sur lequel repose une grande responsabilité, apprenez la vérité et conduisez les hommes dans la voie du salut. Je ne vais pas écrire plus maintenant, mais je reviendrai et je délivrerai un autre message. Croyez que je vous aime et que je suis votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
 <small>
 
-1. <large id=”f1”> Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins le [15 Septembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins.md) et [11 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/), par Jésus le [06 Juin 1915](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915-1\fr-1915-6-6-1-jep-jesus/, par Luc le [05 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/) et par Jean le [14 Juin 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/).[↩](#a1)
+1. <large id=”f1”> Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Jean ou Luc. Is sont listés c-dessous.[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Anne Rollins | [le flot de l’Esprit de Dieu dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins/) | 15 Septembre 1914
+Anne Rollins | [Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/) | 11 Novembre 1914
+Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
+Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/)| 05 Novembre 1916
+Jean | [Qu’est-ce que l’Esprit Saint et comment fonctionne-t-il ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/) | 14 Juin 1917
+
+
+

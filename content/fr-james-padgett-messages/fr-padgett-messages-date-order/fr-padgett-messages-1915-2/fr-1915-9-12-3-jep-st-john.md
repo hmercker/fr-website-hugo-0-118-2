@@ -23,7 +23,7 @@ Eh bien, j’ai entendu ce que le [Maître](/fr-james-padgett-messages/fr-padget
 
 Je voulais dire que beaucoup d’esprits essaieraient de communiquer avec l’homme et tenteraient d’enseigner de fausses doctrines sur Jésus et sa mission.
 
-Que les seuls esprits capables de transmettre la vérité et dignes de foi étaient ceux qui reconnaissaient que Jésus était le fils de Dieu de la manière dont on vous l’a expliqué. Et non que Jésus ou Jésus-Christ était Dieu. Seuls les esprits qui reconnaissent Jésus comme Fils de Dieu, qui ont reçu la Nouvelle Naissance, qui connaissent le royaume du Christ, ou le don de l’Amour Divin du Père, et la manière de l’obtenir, comme Jésus l’a enseigné, doivent être reconnus. Tous les autres esprits qui n’ont pas cette connaissance, et par conséquent ne reconnaissent pas Jésus comme le fils de Dieu, devraient entendre ses enseignements ; ils ne peuvent pas être considérés comme de vrais disciples de Jésus.
+Les esprits capables de transmettre la vérité et dignes de foi sont seulement ceux qui reconnaissent que Jésus était le fils de Dieu en accord avec les différentes explications que vous avez reçues. Jésus ou Jésus-Christ n'était Dieu. Seuls les esprits qui reconnaissent Jésus comme Fils de Dieu, qui ont reçu la Nouvelle Naissance, qui connaissent le royaume du Christ, ou le don de l’Amour Divin du Père, et la manière de l’obtenir, comme Jésus l’a enseigné, doivent être reconnus. Tous les autres esprits qui n’ont pas cette connaissance, et par conséquent ne reconnaissent pas Jésus comme le fils de Dieu, devraient entendre ses enseignements ; ils ne peuvent pas être considérés comme de vrais disciples de Jésus.
 
 Cela n’a rien de mystérieux ou de contraire aux lois qui régissent la conduite ou les croyances des hommes. Si un esprit ou un homme ne sait rien d’un certain sujet, il ne peut certainement pas enseigner aux autres ses qualités ou ses mérites, et, par conséquent, j’appliquais une loi ordinaire de la nature à la manière dont les esprits doivent être jugés. Car je dois vous dire maintenant, et c’est une vérité, tout comme c’était une vérité au moment où j’ai écrit mon évangile et mes épîtres et tout comme c’est une vérité maintenant, et le restera toujours, que tout esprit qui reconnaît que Jésus est le fils de Dieu est un esprit racheté, qui a reçu une partie de l’Amour Divin, et progresse dans le royaume que Jésus est en train de former. Et lorsque j’ai donné ces instructions à mes enfants, comme je les appelais, j’avais l’intention de ne communiquer qu’avec les esprits ou les hommes qui avaient reçu cette Nouvelle Naissance.
 
@@ -46,10 +46,7 @@ Alors je dis, ne laissez pas ce que la Bible peut dire à propos de Jésus étan
 
 Je n’écrirai plus ce soir, mais je vous dirai bonne nuit.
 
-Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
-<small>
-
-1 <large id=”f1”> Se reporter au message de Jésus du [12 Septembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2\fr-1915-9-12-1-jep-jesus/) : « Jésus nie qu’il est Dieu, ou que son sang lave les péchés des hommes ».[↩](#a1)
+Votre frère en Christ, Jean.
 
 
 *Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*

@@ -19,7 +19,7 @@ Cela me dépasse presque de voir les grands esprits du Royaume de Jésus venir v
 
 C’est tellement merveilleux et étonnant que je peux difficilement concevoir que c’est vrai. Je n’ai jamais pensé que tu serais si favorisé dans ta vie sur terre, mais maintenant je vois que tu auras un travail à faire qu’aucun autre mortel n’a jamais eu. Et dire que tu es mon Ned et un simple homme.
 
-Je remercie donc Dieu pour sa grande bonté envers toi, et aussi le Maître pour t’avoir choisi comme disciple pour faire cette grande œuvre.
+Je remercie donc Dieu pour Sa grande bonté envers toi, et aussi le Maître pour t’avoir choisi comme disciple pour faire cette grande œuvre.
 
 Nous louons Dieu et le remercions pour sa miséricorde envers toi.
 

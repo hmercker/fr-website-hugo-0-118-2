@@ -24,3 +24,16 @@ Cependant la grande miséricorde et l’Amour du Père, malgré mon grand péch�
 Votre frère en Christ et votre père dans la chair.
 
 Aman.
+
+*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](Création et Evolution)**
+
+*Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Aman | [Aman, le premier parent révèle sa tentation et sa chute.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/)| 29 Août 1915
+Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/r-1915-8-30-2-jep-amon/)| 30 Août 1915
+Jean | [Affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/)| 30 Août 1915
+Jésus | [La relation de l’homme à la création du monde et l’origine de la vie.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 janvier 1916
+Luc  | [Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/) | 22 Juillet 1917
+
+
+

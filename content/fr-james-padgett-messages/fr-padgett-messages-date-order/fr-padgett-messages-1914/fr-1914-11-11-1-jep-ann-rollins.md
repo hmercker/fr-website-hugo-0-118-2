@@ -11,7 +11,7 @@ weight:
 
 Anne Rollins - reçu par James Padgett le 11 Novembre 1914, Washington, USA.
 
-C’est moi, ta grand-mère.
+C’est moi, ta grand-mère.<sup id="a1">[1](#f1)</sup>
 
 Oui, je suis là et je veux te dire que tu ne dois pas te laisser décourager par ce que je t’ai dit hier soir car j’essayais seulement de te faire savoir que tu ne dois pas oublier de prier Dieu pour Sa bénédiction. Tu n’étais pas en état de comprendre ce que j’ai écrit. Tu étais seulement dans le doute quant à ce que tu devais faire pour ressentir l’influence de ce que j’exprimais.
 
@@ -43,8 +43,20 @@ Les hommes ne sont pas l’objet de la colère de Dieu, mais sont les chers enfa
 
 Tu dois arrêter d’écrire maintenant sinon tu ne pourras pas aller à ton dîner.
 
-Ta grand-mère adorée.
+Ta grand-mère adorée.<sup id="a2">[2](#f2)</sup>
+<small>
 
-*Note 1 : Ce message gagnerait beaucoup à être recréé à partir de l’original. Il est clair qu’Anne Rollins éprouve quelques difficultés à s’exprimer. Cependant, il est aussi probable que James Padgett n’avait pas, en ce moment, la condition d’âme pour recevoir aussi fidèlement qu’il l’a eu plus tard. (G.J.C.)*
+<large id=”f1”> Ce message est publié dans le Volume III à la page 65 et dans le Volume IV à la page 225. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
 
-*Note 2 : Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins le [15 Septembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins.md), par Jésus le [06 Juin 1915](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915-1\fr-1915-6-6-1-jep-jesus/ et le [10 Mai 1920](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/), par Luc le [05 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/) et par Jean le [14 Juin 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/).*
+<large id=”f2”> Ce message gagnerait beaucoup à être recréé à partir de l’original. Il est clair qu’Anne Rollins éprouve quelques difficultés à s’exprimer. Cependant, il est aussi probable que James Padgett n’avait pas, en ce moment, la condition d’âme pour recevoir aussi fidèlement qu’il l’a eu plus tard. (G.J.C.).[↩](#a2)
+
+*Note 3 : Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*
+
+*Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Anne Rollins | [le flot de l’Esprit de Dieu dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins/) | 15 Septembre 1914
+Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
+Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/) | 05 Novembre 1916
+Jean | [Qu’est-ce que l’Esprit Saint et comment fonctionne-t-il ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/) | 14 Juin 1917
+Jésus|  | [Dfférence entre l’Esprit de Dieu et l’Esprit Saint.](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
+

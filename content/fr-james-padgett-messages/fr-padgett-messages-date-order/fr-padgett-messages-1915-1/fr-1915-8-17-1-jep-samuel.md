@@ -13,7 +13,7 @@ Samuel - reçu par James Padgett le 17 Août 1915, Washington, USA.
 
 C’est moi Samuel, le Prophète.
 
-Je suis le prophète qui vous a déjà écrit. Cette nuit, je veux vous parler des merveilleuses choses que Dieu a préparées pour ses enfants rachetés dans les Sphères Célestes, où seuls ceux qui ont reçu la Nouvelle Naissance peuvent entrer.
+Je suis le prophète [qui vous a déjà écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-21-2-jep-samuel/). Cette nuit, je veux vous parler des merveilleuses choses que Dieu a préparées pour ses enfants rachetés dans les Sphères Célestes, où seuls ceux qui ont reçu la Nouvelle Naissance peuvent entrer.
 
 Dans ces sphères se trouvent des habitations faites des plus beaux matériaux que l’on puisse imaginer, et qui ont un caractère réel et permanent, et qui ne sont pas sujettes à la décomposition ou à la détérioration d’aucune sorte, qui ne sont pas construites manuellement, mais par le développement de l’âme, et l’amour que chaque esprit possède.
 

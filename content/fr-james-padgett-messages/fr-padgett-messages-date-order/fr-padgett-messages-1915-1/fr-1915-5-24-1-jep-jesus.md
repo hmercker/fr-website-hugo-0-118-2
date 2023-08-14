@@ -19,7 +19,7 @@ Quand je suis venu dans le monde pour enseigner les vérités de mon Père, le m
 
 Ils n’avaient aucune idée de ma véritable mission sur la terre, et même mes disciples, peu de temps avant ma mort, me considéraient plus comme un sauveur des fardeaux que le joug romain leur avait imposé. Le seul de mes disciples qui avait une idée approximative de ce que signifiait ma venue sur terre était Jean, et c’était à cause de la grande quantité d’amour qui semblait faire partie de sa nature et de son être. A lui, j’ai expliqué ma vraie mission et lui ai enseigné les vérités spirituelles que j’étais venu enseigner ainsi que la seule manière dont les mortels pouvaient recevoir cet Amour du Père qui était nécessaire pour les rendre un avec le Père et leur permettre de partager la Divinité du Père. Par conséquent, seulement dans l’Évangile de Jean il est mentionné l’exigence nécessaire pour un salut complet et la rédemption de l’humanité. Je veux dire la déclaration que les hommes doivent naître de nouveau afin d’entrer dans le Royaume des Cieux. C’est le seul vrai moyen par lequel un homme peut devenir un vrai enfant du Père, équipé pour vivre dans et profiter pleinement du Royaume du Père.
 
-Les autres disciples avaient plus ou moins la conception de cette nécessaire vérité, mais pas la compréhension complète de ce qu’elle implique. Pierre possédait plus cet Amour que ne le faisaient les autres disciples, à part Jean et, grâce à cela, il a aussi compris que j’étais le fils de mon Père ; mais il n’a jamais compris ni déclaré que j’étais Dieu. C’était un homme rempli de zèle et d’ambition, mais son développement d’amour n’était pas suffisant pour lui permettre de réaliser pleinement que mon royaume ne devait ne pas être terrestre, et cela jusqu’après ma mort. C’est alors que la conviction lui est venue, dans toute sa vérité et plénitude, et il est devenu le plus puissant et le plus influent de tous mes disciples.
+Les autres disciples avaient plus ou moins la conception de cette nécessaire vérité, mais pas la compréhension complète de ce qu’elle implique. Pierre possédait plus cet Amour que ne le faisaient les autres disciples, à part Jean et, grâce à cela, il a aussi compris que j’étais le fils de mon Père ; mais il n’a jamais compris ni déclaré que j’étais Dieu. C’était un homme rempli de zèle et d’ambition, mais son développement d’amour n’était pas suffisant pour lui permettre de réaliser pleinement que mon royaume ne devait pas être terrestre, et cela jusqu’après ma mort. C’est alors que la conviction lui est venue, dans toute sa vérité et plénitude, et il est devenu le plus puissant et le plus influent de tous mes disciples.
 
 Après la Pentecôte, tous mes disciples ont compris ce qu’était ma vraie mission, et ils sont allés dans le monde et ont prêché les doctrines vraies de ma mission sur terre, l’Amour du Père pour ses enfants, et le fait que cet Amour était disponible pour tous ceux qui le chercherait.
 
@@ -35,14 +35,11 @@ Avec mon amour et ma prière, je suis Jésus.
 
 *Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*
 
-Le 07 Juin 1915 : [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/).
-
-le 08 Juin 1915 : [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus.md).
-
-le 29 Juin 1915 : [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/).
-
-le 20 Mai 1918 : [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/).
-
-le 25 Mai 1955 : [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/).
-
-le 14 Juin 1955 : [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/).
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus `| [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/). | 07 Juin 1915
+Jésus `| [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus.md).  | 08 Juin 1915
+Jésus `| [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/).   | 29 Juin 1915
+Jésus `| [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/).   | 20 Mai 1918
+Jésus `| [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/).   | 25 Mai 1955
+Jésus `|  [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/).   | 14 Juin 1955
