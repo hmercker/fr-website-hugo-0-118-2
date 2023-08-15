@@ -42,7 +42,7 @@ Jésus | [La nature de Dieu comme mon Dieu et votre Dieu](/fr-james-padgett-mess
 Jésus | [Pourquoi les hommes doivent croire qu’il est le vrai Jésus et pourquoi il écrit à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-15-1-jep-jesus/) | 15 Juin 1915
 Jésus | [Le pouvoir merveilleux qui pourrait venir vers M. Padgett s’il avait seulement la Foi](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-26-2-jep-jesus/) | 26 Septembre 1915
 Jésus | [Jésus dit que sa mission d’écriture de ces messages est sa seconde venue sur terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-1-jep-jesus/) | 02 Décembre 1915
-Jésus | [Jésus a montré sa grande gloire et a donné son amour à M. Padgett](//fr-james-padgett-messages/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
+Jésus | [Jésus a montré sa grande gloire et a donné son amour à M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
 Jésus | [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/) | 06 Novembre 1917
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
 

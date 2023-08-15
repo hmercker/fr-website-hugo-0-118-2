@@ -38,4 +38,4 @@ Je dois arrêter, alors bonne nuit, mon cher fils.
 Ton père qui t’aime.
 <small>
 
-1. <large id="f1"> Il s’agit de M. Eugène Crowell, auteur de « L’identité du christianisme des premiers jours et du spiritualisme moderne ». Son message, communiqué le 17 Mars 1915, est publié dans le volume IV, édition françaose de Janvier 1921, page 308 (G.J.C.)[↩](#a1)
+1. <large id="f1"> Il s’agit de M. Eugène Crowell, auteur de *« L’identité du christianisme des premiers jours et du spiritualisme moderne »*. Son message, communiqué le 17 Mars 1915, est publié dans le volume IV, édition françaose de Janvier 1921, page 308.  Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/). (G.J.C.)[↩](#a1)

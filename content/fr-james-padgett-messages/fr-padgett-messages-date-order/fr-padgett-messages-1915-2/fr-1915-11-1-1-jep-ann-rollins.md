@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La croyance dans le péché impardonnable est diffamatoire sup id="a1">[1](#f1)</sup>
+### La croyance dans le péché impardonnable est diffamatoire<sup id="a1">[1](#f1)</sup>
 
 Anne Rollins - reçu par James Padgett le 1 Novembre 1915, Washington, USA.
 

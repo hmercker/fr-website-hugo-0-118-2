@@ -13,7 +13,7 @@ Jésus - reçu par James Padgett le 29 Août 1915, Washington, USA.
 
 C’est moi, Jésus.
 
-J’étais avec vous ce soir et mon esprit était dans votre cœur au point de vous faire sentir sa présence et de vous faire un peu souffrir physiquement <sup id="a1">[1](#f1)</sup> – mais il était là pour vous dire que j’étais présent et que mon amour vous aidait à vous rapprocher du Père et de Son Amour.
+J’étais avec vous ce soir et mon esprit était dans votre cœur au point de vous faire sentir sa présence et de vous faire un peu souffrir physiquement<sup id="a1">[1](#f1)</sup> – mais il était là pour vous dire que j’étais présent et que mon amour vous aidait à vous rapprocher du Père et de Son Amour.
 
 Je sais que les gens qui m’adoraient ne faisaient pas ce que j’approuve ou ce que j’aime, cependant leur cœur était tourné vers Dieu ; et, alors qu’ils faisaient de moi l’objet de leur adoration, l’esprit de Dieu était avec eux, et l’action de l’Esprit Saint était dans le cœur de beaucoup d’entre eux en leur montrant l’Amour du Père et la vérité de Son salut.
 Ils se trompent, bien sûr, lorsqu’ils disent qu’ils sont sauvés par mon sang, car mon sang n’a rien à voir avec leur salut, mais comme on leur a enseigné cela, je ne peux pas m’attendre à ce qu’ils connaissent le vrai Salut que le Père leur a apporté. Un jour, ils sauront que seul l’Amour Divin du Père sauve du péché et de l’erreur, et que mon sang et ma mort sur la croix ne peuvent les sauver.

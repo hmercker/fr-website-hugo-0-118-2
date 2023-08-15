@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La Vérité Divine doit être déclarée à toute l’humanité <sup id="a1">[1](#f1)</sup>
+### La Vérité Divine doit être déclarée à toute l’humanité<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 02 Mai 1920, Washington, USA.
 

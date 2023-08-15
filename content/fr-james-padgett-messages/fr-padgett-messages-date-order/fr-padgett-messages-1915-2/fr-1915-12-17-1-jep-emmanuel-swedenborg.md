@@ -50,7 +50,7 @@ Comme je l’ai écrit longuement, je vais m’arrêter, et dire que je suis un 
 
 Note : Dans une série de plusieurs messages communiqués [le 16 Septembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-16-2-jep-julius-caesar/), [le 13 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) et [le 1er Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/), Jules Cesar relate son cheminement à travers les enfers.  Ces différents messages nous permettent de comprendre que Jules César avécu dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 2060 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois. 
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Hérode | [Corrobore le message de Swedenborg sur les enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-18-1-jep-herodes/) | 18 Décembre 1915
 Georges Butler | [Un esprit décrit son expérience dans l’un des enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)    | 5 Janvier 1916

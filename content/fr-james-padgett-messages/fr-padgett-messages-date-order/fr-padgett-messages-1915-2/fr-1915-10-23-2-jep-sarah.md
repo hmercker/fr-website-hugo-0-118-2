@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Sarah est maintenant chrétienne
+### Sarah est maintenant Chrétienne
 
 Sarah - reçu par James Padgett le 23 Octobre 1915, Washington, USA.
 
@@ -31,7 +31,7 @@ Votre sœur en Christ, Sarah, la femme d’Abraham.
 
 *Note :  Diverses personnalités historiques partagent également leur progression vers les Cieux Célestes :*
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Salomon | [La position de Salomon dans les Sphères Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-3-jep-solomon/) | 27 Juin 1915
 Socrate | [Socrate écrit sur son expérience de progression.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) | 08 Juillet 1915 

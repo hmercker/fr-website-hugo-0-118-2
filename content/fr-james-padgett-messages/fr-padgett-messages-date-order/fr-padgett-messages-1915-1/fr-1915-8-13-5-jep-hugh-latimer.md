@@ -34,7 +34,7 @@ Bien à vous, dans l’Amour, Hugh Latimer.
 
 *Note  : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.:*
 
-*Auteur** | **Ttre du message** | **Date du message**
+**Auteur** | **Ttre du message** | **Date du message**
 ---|---|---
 Thomas Paine | [L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/) | 20 Juin 1915
 George Whitefield | [A changé ses fausses croyances qu’il a enseignées sur la terre et est maintenant dans le Ciel Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/)  | 08 Août 1915

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Comment et quand Dieu répond à la prière. Lois du rapport et de la communication <sup id="a1">[1](#f1)</sup>
+### Comment et quand Dieu répond à la prière. Lois du rapport et de la communication<sup id="a1">[1](#f1)</sup>
 
 St Jean - reçu par James Padgett le 2 Novembre 1917, Washington, USA.
 

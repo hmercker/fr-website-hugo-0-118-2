@@ -27,7 +27,7 @@ Aman.
 
 *Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](Création et Evolution)**
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Aman | [Aman, le premier parent révèle sa tentation et sa chute.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/)| 29 Août 1915
 Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/r-1915-8-30-2-jep-amon/)| 30 Août 1915

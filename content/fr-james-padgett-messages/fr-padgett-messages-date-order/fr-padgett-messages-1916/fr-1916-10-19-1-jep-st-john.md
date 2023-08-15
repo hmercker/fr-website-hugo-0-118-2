@@ -39,7 +39,7 @@ Jean.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saint Jean | [Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails.](/fr-james-padgett-messages/fr-padgett-messages-date-orde/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/)   | 07 Septembre 1915
+Saint Jean | [Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/)   | 07 Septembre 1915
 Saint Jean |  [Rejette l’expiation déléguée. Si les hommes pouvaient avoir la foi des apôtres, la guérison et les soi-disant miracles existeraient aujourd’hui.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-3-jep-st-john/)  | 12 Septembre 1915
 Saint Jean |  [Il est important que l'homme cherche et trouve la vérité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-12-1-jep-st-john/)   | 12 Mai 1916
 Saint Jean | [Les hommes ou les prophètes ne peuvent pas dire ce qui va se passer dans les siècles à venir – cela ne peut être connu que par le Père.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/\fr-1918-3-10-1-jep-st-john/)   | 10 Mars 1918

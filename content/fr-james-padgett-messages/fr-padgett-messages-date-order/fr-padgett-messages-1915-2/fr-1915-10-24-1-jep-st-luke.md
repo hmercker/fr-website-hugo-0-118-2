@@ -43,7 +43,7 @@ Note 2 : Cette explication est actuellement soutenue par les toutes dernières r
  
 *Note 3 : Liens vers d'autres messages relatifs à la crucifixion de Jésus :*
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Joseph d’Arimathie | [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-16-1-jep-joseph/)  | 16 Mars 1916 
 Elohiam | [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/) | 22 Janvier 1917

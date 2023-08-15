@@ -1,4 +1,4 @@
----
+[---
 title: "Samuel – Décrit les Cieux Célestes"
 menu_title: ""
 description: "Samuel – Décrit les Cieux Célestes"
@@ -31,10 +31,11 @@ Je suis dans ces cieux depuis de nombreuses années, et je sais de quoi je parle
 
 Eh bien, en ce qui concerne nos plaisirs sociaux, nous sommes tellement attentionnés et aimants, l’un envers l’autre, que rien ne surgit, comme sur la terre, pour provoquer le moindre trouble dans notre magnifique harmonie. Nous nous visitons les uns les autres et partageons nos expériences de la vie de cœur que nous menons, nous avons une vie musicale, et nous échangeons nos pensées sur notre progrès continu et notre travail dans le monde spirituel. Tout esprit dans notre sphère peut visiter tout autre esprit, et savoir que la porte est toujours ouverte et qu’un accueil chaleureux l’attend.
 
-Je ne peux pas pleinement parler de toutes ces merveilles parce qu’il n’y a pas de mots qui puissent transmettre notre pensée. Votre capacité à comprendre est entravée par vos limites mentales et, par conséquent, je suis désavantagé. Cependant je peux vous dire, c’est qu’un jour, si vous avez suffisamment d’Amour Divin dans votre âme, vous verrez et comprendrez, par vous-mêmes, ce que Dieu a en réserve pour vous. Il a été dit en vérité : *« Qu’aucun œil n’a vu, et qu’aucun esprit n’a conçu, les choses merveilleuses qui attendent le véritable enfant du Père »* (1 Corinthiens 2-9).
+Je ne peux pas pleinement parler de toutes ces merveilles parce qu’il n’y a pas de mots qui puissent transmettre notre pensée. Votre capacité à comprendre est entravée par vos limites mentales et, par conséquent, je suis désavantagé. Cependant je peux vous dire, c’est qu’un jour, si vous avez suffisamment d’Amour Divin dans votre âme, vous verrez et comprendrez, par vous-mêmes, ce que Dieu a en réserve pour vous. Il a été dit en vérité : *« Qu’aucun œil n’a vu, et qu’aucun esprit n’a conçu, les choses merveilleuses qui attendent le véritable enfant du Père »* [1 Corinthiens 2-9](https://saintebible.com/1_corinthians/2-9.htm).
 
 Non, il n’y a pas de rues pavées d’or ou de murs de jaspe, ni aucune de ces choses matérielles que Jean a utilisées dans son Apocalypse pour décrire la Cité de Dieu. Elles ont été simplement utilisés comme symboles, mais elles n’exprimaient pas les merveilles de nos maisons.
 
 Je n’écrirai pas plus ce soir, mais je reviendrai un jour vous parler de choses qui sont plus importantes qu’une description de nos maisons.
 
 Avec tout mon amour, je suis votre frère en Christ, Samuel.
+]

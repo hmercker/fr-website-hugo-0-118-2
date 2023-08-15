@@ -17,7 +17,7 @@ Je suis beaucoup plus heureuse que lorsque [je vous ai précédemment écrit](/f
 
 Je vis dans la troisième sphère parce que je trouve là beaucoup plus de cet Amour de l’âme que dans la sixième, et ce que je veux maintenant c’est cet Amour. Vous voyez donc que je ne peux pas vivre là où cet Amour n’est pas si abondant. Quand j’en obtiendrai davantage, je me rendrai à la sixième et je raconterai aux esprits qui y résident le bonheur que j’ai trouvé, et je tenterai de les persuader de le chercher également et je crois que beaucoup le feront.
 
-Je suis si heureuse [d’avoir pu entrer par effraction](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1\fr-1915-6-2-1-jep-saleeba/) dans votre écriture lorsque je l’ai fait car, si je ne l’avais pas fait, je n’aurais pas appris le chemin de cet Amour et de ce bonheur. Je vous considérerai toujours comme mon ami et mon frère, et je ferai tout ce qui est en mon pouvoir pour vous aider.
+Je suis si heureuse [d’avoir pu entrer par effraction](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-1-jep-saleeba/) dans votre écriture lorsque je l’ai fait car, si je ne l’avais pas fait, je n’aurais pas appris le chemin de cet Amour et de ce bonheur. Je vous considérerai toujours comme mon ami et mon frère, et je ferai tout ce qui est en mon pouvoir pour vous aider.
 
 Je n’ai encore trouvé aucune personne de ma race dans ces sphères de l’âme, mais il y en a peut-être quelques-unes. Mais si je peux l’accomplir, il y en aura quelques-unes dans ma sphère très bientôt.
 

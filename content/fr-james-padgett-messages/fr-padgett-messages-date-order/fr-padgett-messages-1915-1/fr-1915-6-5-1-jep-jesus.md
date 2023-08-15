@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus reconnaît la capacité de la grand-mère de M. Padgett en écrivant les Vérités du Pèr<sup id=”a1”>[1](#f1)</sup> 
+### Jésus reconnaît la capacité de la grand-mère de M. Padgett en écrivant les Vérités du Père<sup id=”a1”>[1](#f1)</sup> 
 
 Jésus - reçu par James Padgett le 5 Juin 1915, Washington, USA.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste
 
-Jésus - reçu par James Padgett le 4 Juin 1915 <sup id="a1">[1](#f1)</sup>, Washington, USA.
+Jésus - reçu par James Padgett le 4 Juin 1915<sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 C’est moi, Jésus.
 
@@ -30,7 +30,7 @@ Dieu a certains principes qui sont définis et nécessaires et que les hommes do
 
 Dans une telle condition, ou faute de qualifications, même s’ils étaient admis dans le Royaume, ils ne seraient pas heureux car leur condition ne répondrait pas du tout à ces choses dans le Royaume qui procurent le bonheur aux vrais enfants du Père. Ils seraient, par nécessité, très malheureux, et les cieux ne seraient pas leur ciel. Ainsi vous voyez, tous les esprits, pour habiter ce Royaume, doivent avoir les exigences prescrites de l’amour des âmes et du développement de l’âme.
 
-Comme je l’ai dit sur terre, *« Celui qui entre dans la bergerie autrement que par la porte est un voleur et un brigand »*|[**Jean 10:1**](https://saintebible.com/john/10-1.htm), et aucun voleur ou brigand n’est qualifié pour ce Royaume de l’Amour Divin.
+Comme je l’ai dit sur terre, *« Celui qui entre dans la bergerie autrement que par la porte est un voleur et un brigand »* [**Jean 10:1**](https://saintebible.com/john/10-1.htm), et aucun voleur ou brigand n’est qualifié pour ce Royaume de l’Amour Divin.
 
 Faites savoir à l’homme qu’aucune Miséricorde ni aucun Amour du Père ne lui seront donnés pour lui permettre d’entrer dans ce Royaume, à moins que cet homme ne cherche cet Amour et cette Miséricorde de la manière dont le Père a ordonné qu’ils soient recherchés. Aucune providence spéciale ne sera accordée à un homme, et, s’il vient à la fête du mariage sans son vêtement de mariage, il sera chassé et ne sera pas autorisé à jouir de la fête. Les hommes peuvent raisonner, dans la limite de tous leurs pouvoirs de réflexion, pour prouver que le Père, étant un Père aimant et miséricordieux, ne les rejettera pas et ne les empêchera pas d’entrer dans ce Royaume, parce qu’ils sont tous Ses enfants et les objets de Son Amour et de Sa faveur. L’un lui étant aussi cher que l’autre, et comme il ne fait pas de différence entre les personnes, Il les traitera donc tous de la même manière. Mais je leur dis qu’ils se trompent, et s’ils attendent le grand jour où les brebis seront séparées des chèvres, ils réaliseront à leur exclusion éternelle de ce Royaume que ce que je dis est vrai.
 
