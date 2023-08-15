@@ -65,6 +65,6 @@ Très cordialement, Henry Ward Beecher.<sup id=”a1”>[1](#f1)</sup>
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [Le sens de l'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-28-1-jep-jesus/) | 28 Mai 1915
-Jésus | [L'immportalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
-St Luc | [L'immportalité] |  (/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
+Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
+St Luc | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
 

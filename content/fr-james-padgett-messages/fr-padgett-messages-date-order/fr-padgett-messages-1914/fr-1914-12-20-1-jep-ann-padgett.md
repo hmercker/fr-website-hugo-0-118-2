@@ -32,4 +32,4 @@ Je dois m’arrêter maintenant car tu es fatigué.
 Ta mère.
 <small>
 
-1. <large id="f1"> La référence au « plan terrestre » est probablement le plan astral, qui n’est pas décrit en détail dans les messages de Padgett. Ce plan est décrit dans le 17ème chapitre du livre "Mes aventures dans l'autre vie" en vente sur Internet. Ce livre a été écrit il y a un siècle, par le médium nommé Farnese, sous la dictée d'un habitant du monde spirituel, nommé Franchezzo.(Geoff Cutler)[↩](#a1)
+1. <large id="f1"> La référence au « plan terrestre » est probablement le plan astral, qui n’est pas décrit en détail dans les messages de Padgett. Ce plan est décrit dans le 17ème chapitre du livre *« Mes aventures dans l'autre vie »* en vente sur Internet. Ce livre a été écrit il y a un siècle, par le médium nommé Farnese, sous la dictée d'un habitant du monde spirituel, nommé Franchezzo.(Geoff Cutler)[↩](#a1)

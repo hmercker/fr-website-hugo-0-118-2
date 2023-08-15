@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le père de l’éditeur déclare qu’il fait des efforts sérieux afin d’atteindre la maison de sa femme et être avec elle par la prière au Père pour Son Amour <sup id="a1">[1](#f1)</sup>
+### Le père de l’éditeur déclare qu’il fait des efforts sérieux afin d’atteindre la maison de sa femme et être avec elle par la prière au Père pour Son Amour<sup id="a1">[1](#f1)</sup>
 
 William Stone - reçu par James Padgett le 23 Novembre 1915, Washington, USA.
 

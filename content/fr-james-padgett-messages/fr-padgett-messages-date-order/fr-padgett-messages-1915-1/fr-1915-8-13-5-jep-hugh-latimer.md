@@ -11,7 +11,7 @@ weight:
 
 Hugh Latimer - reçu par James Padgett le 13 Août 1915, Washington, USA.
 
-Je suis Latimer. <sup id="a1">[1](#f1)</sup>
+Je suis Latimer.<sup id="a1">[1](#f1)</sup>
 
 Je fus un martyr brûlé sur le bûcher à cause de ma foi en Dieu et en raison de mes croyances en le salut par la foi et les œuvres comme enseigné dans les Écritures. Je m’appelais Hugh Latimer.
 
@@ -38,6 +38,6 @@ Bien à vous, dans l’Amour, Hugh Latimer.
 ---|---|---
 Thomas Paine | [L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/) | 20 Juin 1915
 George Whitefield | [A changé ses fausses croyances qu’il a enseignées sur la terre et est maintenant dans le Ciel Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/)  | 08 Août 1915
-Samuel B. Soulthard [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
+Samuel B. Soulthard | [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
 Lafayette | [Relate son changement d’attitude envers les allemands.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) | 23 Avril 1916
 

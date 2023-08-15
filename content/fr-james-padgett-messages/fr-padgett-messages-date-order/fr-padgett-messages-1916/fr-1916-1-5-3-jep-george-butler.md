@@ -41,6 +41,6 @@ Note : Dans une série de plusieurs messages communiqués [le 16 Septembre 1915]
 ---|---|---
 Emmanuel swvedenborg | [Swedenborg écrit sur les enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/)  | 17 Décembre 1915
 Hérode | [Corrobore le message de Swedenborg sur les enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-18-1-jep-herodes/) | 18 Décembre 1915
-Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/)  | 08 Janvier 1917
+Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/)  | 08 Janvier 1917
 
 

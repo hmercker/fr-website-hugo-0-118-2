@@ -55,4 +55,4 @@ Eh bien, j’ai beaucoup écrit ce soir et vous êtes fatigué, et moi aussi, et
 
 1. <large id="f1"> Lire les messages « Expiation déléguée » de St Jean, St Luc, St. Paul et St. Pierre, pages 209 à 218, dans l’édition française du premier volume des messages de James Padgett. (Dr. S.).[↩](#a1)
 
-2. <large id="f2"> Dans un message délivré le [30 Août 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas.md/), Judas précise que les partenaires ou âmes-soeur ne sont pas obligatoirement des partenaires de sexe opposé.[↩](#a2)
+2. <large id="f2"> Dans un message délivré le [30 Août 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas/), Judas précise que les partenaires ou âmes-soeur ne sont pas obligatoirement des partenaires de sexe opposé.[↩](#a2)

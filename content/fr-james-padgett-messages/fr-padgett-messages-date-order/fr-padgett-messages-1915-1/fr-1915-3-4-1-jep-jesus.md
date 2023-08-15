@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus – Sur l’amour de l’Homme ou l’Amour Naturel en contraste avec l’Amour Divin qui est nécessaire d’obtenir afin de procurer à l’homme le plus haut degré de Bonheur <sup id="a1">[1](#f1)</sup>
+### Jésus – Sur l’amour de l’Homme ou l’Amour Naturel en contraste avec l’Amour Divin qui est nécessaire d’obtenir afin de procurer à l’homme le plus haut degré de Bonheur<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 4 Mars 1915, Washington, USA.
 

@@ -48,4 +48,4 @@ Et quel nom approprié ! Mon ami, tu dois aussi remercier Dieu pour sa bonté en
 Ainsi, avec l’amour d’un frère en Christ, je suis ton ami, Caligula<sup id=”a1”>[1](#f1)</sup> l’Empereur Romain qui était, et le Chrétien qui est.
 <small>
 
-1.  <large id=”f1”> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917\fr-1917-1-16-1-jep-nero/), a également témoigné que son âme sœur l'avait aidé à sortir des enfers.[↩](#a1)
+1.  <large id=”f1”> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-16-1-jep-nero/), a également témoigné que son âme sœur l'avait aidé à sortir des enfers.[↩](#a1)

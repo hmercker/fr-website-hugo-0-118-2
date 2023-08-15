@@ -42,7 +42,7 @@ Votre frère en Christ, Aman.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1\fr-1915-8-30-2-jep-amon/)| 30 Août 1915
+Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/)| 30 Août 1915
 Jean | [Affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/)| 30 Août 1915
 Aman | [Aman apporte une correction.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/)| 07 Septembre 1915
 Jésus | [La relation de l’homme à la création du monde et l’origine de la vie.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 janvier 1916

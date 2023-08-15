@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Dans un autre message commun, Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs <sup id="a1">[1](#f1)</sup>
+### Dans un autre message commun, Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs<sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett & Mary Kennedy - reçu par James Padgett le 15 Décembre 1915, Washington, USA.
 
@@ -37,4 +37,4 @@ Alors, avec tout notre amour à vous deux, je vous souhaite une bonne nuit.
 Ta vraie et bien aimée, Hélène.
 <small>
 
-1. <large id="f1">* Ce message montre que les esprits aiment s’amuser un peu et qu’ils en profitent autant que les mortels, et que leur existence est tout aussi naturelle que celle des mortels.* (Leslie R. Stone).[↩](#a1)
+1. <large id="f1"> Ce message montre que les esprits aiment s’amuser un peu et qu’ils en profitent autant que les mortels, et que leur existence est tout aussi naturelle que celle des mortels. (Leslie R. Stone).[↩](#a1)

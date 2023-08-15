@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean – M. Padgett est l’objet d’une attention particulière de la part du Maître <sup id="a1">[1](#f1)</sup>
+### Jean – M. Padgett est l’objet d’une attention particulière de la part du Maître<sup id="a1">[1](#f1)</sup>
 
 St Jean - reçu par James Padgett le 30 Septembre 1915, Washington, USA.
 

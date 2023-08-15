@@ -11,7 +11,7 @@ weight:
 
 Ulysses S Grant - reçu par James Padgett le 19 Octobre 1915, Washington, USA.
 
-Je suis le général Grant. <sup id="a1">[1](#f1)</sup>
+Je suis le général Grant.<sup id="a1">[1](#f1)</sup>
 
 Je fus le président de votre pays ainsi que le général des armées fédérales.
 

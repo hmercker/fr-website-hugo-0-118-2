@@ -13,7 +13,7 @@ Hérode - reçu par James Padgett le 18 Décembre 1915, Washington, USA.
 
 Je suis Hérode.
 
-Permettez-moi d’écrire juste une ligne avant que vous terminiez, car j’ai hâte de vous parler d’une question qui pourrait être importante pour vous en ce qui concerne les descriptions des enfers que vous avez reçues hier soir de [Swedenborg](/fr-james-padgett-message/\fr-padgett-messages-date-order/fr-padgett-messages-1915-/\fr-1915-12-17-1-jep-emmanuel-swedenborg/).
+Permettez-moi d’écrire juste une ligne avant que vous terminiez, car j’ai hâte de vous parler d’une question qui pourrait être importante pour vous en ce qui concerne les descriptions des enfers que vous avez reçues hier soir de [Swedenborg](/fr-james-padgett-message/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/).
 
 Il dit que les enfers sont des lieux aussi bien que des conditions, et qu’ils comportent certains aspects et un environnement qui intensifient les souffrances des mauvais esprits. Eh bien, c’est vrai, et en plus je veux dire que non seulement ces apparences et cet environnement sont réels et existent pour la conscience de l’esprit, mais que la réalité de leur existence est indépendante de la conscience. S’il n’y avait pas d’esprits dans ces enfers, ces apparences et cet environnement existeraient tout de même.
 
@@ -44,5 +44,5 @@ Note : Dans une série de plusieurs messages communiqués [le 16 Septembre 1915]
 ---|---|---
 Emmanuel swvedenborg | [Swedenborg écrit sur les enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/)  | 17 Décembre 1915
 Georges Butler | [Un esprit décrit son expérience dans l’un des enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)    | 5 Janvier 1916
-Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/)  | 08 Janvier 1917
+Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/) | 08 Janvier 1917
 

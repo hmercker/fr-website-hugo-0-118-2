@@ -11,7 +11,7 @@ weight:
 
 Anne Rollins - reçu par James Padgett le 14 Décembre 1915, Washington, USA.
 
-Permets-moi d’écrire alors que le pouvoir [du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-14-1-jep-jesus/)est encore ici, et te dire que tu as eu, ce soir, une expérience inoubliable, tout comme nous qui avons vu le Maître t’écrire et t’accorder son grand amour.
+Permets-moi d’écrire alors que le pouvoir [du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-14-1-jep-jesus/) est encore ici, et te dire que tu as eu, ce soir, une expérience inoubliable, tout comme nous qui avons vu le Maître t’écrire et t’accorder son grand amour.
 
 Il était glorieux en te parlant du Grand Amour du Père qui viendrait à toi et comme il serait avec toi dans tout son amour et toutes ses bénédictions en essayant de te rendre heureux.
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’affirmation qu’il est Jésus. Se réfère à un esprit qui prétend avoir perdu son âme <sup id="a1">[1](#f1)</sup>
+### L’affirmation qu’il est Jésus. Se réfère à un esprit qui prétend avoir perdu son âme<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 3 Avril 1915, Washington, USA.
 
@@ -28,7 +28,7 @@ Je ne vais pas écrire plus sur ce sujet maintenant. Comme exprimé dans mon aut
 Votre vrai frère, Jésus.
 <small>
 
-1. <large id="f1"> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 51 et dans le volume III à la page 30. Pour plus de détails, vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
+1. <large id="f1"> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 51 et dans le volume III à la page 30. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
 2. <large id="f2"> Littéralement un Esprit éclipsé ou enveloppé (en anglais : overshadowing spirit).[↩](#a2)
 

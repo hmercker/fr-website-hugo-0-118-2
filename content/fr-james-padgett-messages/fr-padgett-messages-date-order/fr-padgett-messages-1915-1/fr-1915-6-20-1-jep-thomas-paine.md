@@ -41,6 +41,6 @@ Donc, mon cher frère, je vais vous dire bonne nuit et que Dieu soit avec vous, 
 ---|---|---
 George Whitefield | [A changé ses fausses croyances qu’il a enseignées sur la terre et est maintenant dans le Ciel Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/)  | 08 Août 1915
 Hugh Latimer | [Hugh Latimer dans les Cieux Célestes. Ses croyances sur terre. Jésus vint et lui dit qu’il n’était pas Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/) | 13 Août 1915
-Samuel B. Soulthard [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
+Samuel B. Soulthard | [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
 Lafayette | [Relate son changement d’attitude envers les allemands.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) | 23 Avril 1916
 

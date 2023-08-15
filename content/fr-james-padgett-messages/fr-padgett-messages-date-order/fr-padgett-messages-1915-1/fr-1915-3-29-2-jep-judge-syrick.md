@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Confirme beaucoup de choses que M. Padgett lui a dites sur la vie dans le monde des esprits <sup id="a1">[1](#f1)</sup>
+### Confirme beaucoup de choses que M. Padgett lui a dites sur la vie dans le monde des esprits<sup id="a1">[1](#f1)</sup>
 
 Juge Syrick - reçu par James Padgett le 29 Mars 1915, Washington, USA.
 

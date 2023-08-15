@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus a montré sa grande gloire et a donné son amour à M. Padgett <sup id="a1">[1](#f1)</sup>
+### Jésus a montré sa grande gloire et a donné son amour à M. Padgett<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 14 Décembre 1915, Washington, USA.
 

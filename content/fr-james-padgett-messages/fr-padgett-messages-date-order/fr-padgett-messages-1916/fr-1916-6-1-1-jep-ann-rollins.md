@@ -49,5 +49,5 @@ Ta grand-mère aimante.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Anne Rollins | [Affirmant qu’Anne Rollins a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914-1/fr-1914-12-12-2-jep-ann-rollins/) | 12 Décembre 1914
+Anne Rollins | [Affirmant qu’Anne Rollins a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-12-2-jep-ann-rollins/)
 Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) | 13 Mai 1915

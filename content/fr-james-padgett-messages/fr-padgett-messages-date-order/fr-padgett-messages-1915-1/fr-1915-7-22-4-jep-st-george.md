@@ -11,7 +11,7 @@ weight:
 
 St Georges - reçu par James Padgett le 15 Juillet 1915, Washington, USA.
 
-Je suis Saint Georges (du Dragon). <sup id="a1">[1](#f1)</sup>
+Je suis Saint Georges (du Dragon).<sup id="a1">[1](#f1)</sup>
 
 Je fus un guerrier, pas un saint. Je fus enthousiaste dans la cause des Chrétiens contre les Turcs, je me suis battu, j’ai souffert et je suis mort mais en tant que saint, je n’ai été qu’un guerrier, en aucun point supérieur à un autre, qui a été ému par la grande cause qui nous a poussés à œuvrer pour délivrer la Terre Sainte des infidèles.
 
@@ -28,4 +28,4 @@ Je n’écrirai pas plus maintenant. Je vous souhaite une bonne nuit.
 Votre frère dans la cause, St. Georges.
 <small>
 
-1. <large id="f1"> Saint Georges (275-281 au 23 avril 303), selon la légende, fut un soldat de l’armée Romaine qui devint par la suite un martyr Chrétien vénéré. Ses parents étaient des Chrétiens d’origine Grecque ; son père Gérontius était un officier de l’armée Romaine de Cappadoce et sa mère Polychronia était une Chrétienne de Lydda dans la province Romaine de Syrie Palaestina (Palestine). Les récits diffèrent selon que George est né en Cappadoce ou en Syrie Palaestine, mais conviennent qu’il a été élevé au moins partiellement à Lydda. Saint Georges devint officier dans l’armée Romaine de la Garde de Dioclétien, qui ordonna sa mort pour ne pas avoir renié sa foi Chrétienne. (Source : Wikipédia.)[↩](#a1)
+1. <large id="f1"> **Saint Georges** (275-281 au 23 avril 303), selon la légende, fut un soldat de l’armée Romaine qui devint par la suite un martyr Chrétien vénéré. Ses parents étaient des Chrétiens d’origine Grecque ; son père Gérontius était un officier de l’armée Romaine de Cappadoce et sa mère Polychronia était une Chrétienne de Lydda dans la province Romaine de Syrie Palaestina (Palestine). Les récits diffèrent selon que George est né en Cappadoce ou en Syrie Palaestine, mais conviennent qu’il a été élevé au moins partiellement à Lydda. Saint Georges devint officier dans l’armée Romaine de la Garde de Dioclétien, qui ordonna sa mort pour ne pas avoir renié sa foi Chrétienne. (Source : Wikipédia.)[↩](#a1)

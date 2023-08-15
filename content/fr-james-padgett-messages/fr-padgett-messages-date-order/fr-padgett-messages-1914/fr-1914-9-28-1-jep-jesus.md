@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Ici, le Maître, lors de ses premiers messages, explique qui il était vraiment <sup id="a1">[1](#f1)</sup>
+### Ici, le Maître, lors de ses premiers messages, explique qui il était vraiment<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 28 Septembre 1914, Washington, USA.
 

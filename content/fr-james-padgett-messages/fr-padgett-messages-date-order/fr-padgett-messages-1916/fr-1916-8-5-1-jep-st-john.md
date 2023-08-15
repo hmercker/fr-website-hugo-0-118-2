@@ -34,4 +34,4 @@ Votre frère en Christ, Jean.
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Saint Jean |   [St Jean – L’Amour Divin ne doit pas être confondu avec l’amour naturel.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-2-jep-st-john/) | 08 Juillet 1915
-Saint Jean | [La condition de l’Âme lorsque l’Amour Divin s’écoule en elle.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-6-19-1-jep-st-john/)  | 19 Juin 1916
+Saint Jean | [La condition de l’Âme lorsque l’Amour Divin s’écoule en elle.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-19-1-jep-st-john/)  | 19 Juin 1916

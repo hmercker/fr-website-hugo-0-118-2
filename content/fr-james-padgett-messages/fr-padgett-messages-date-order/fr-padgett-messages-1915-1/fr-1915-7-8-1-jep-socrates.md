@@ -11,7 +11,7 @@ weight:
 
 Socrate - reçu par James Padgett le 8 Juillet 1915, Washington, USA.
 
-![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/Socate.webp)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/Socrate.webp)
 
 C’est moi, Socrate, le Grec.
 
@@ -71,8 +71,8 @@ Votre ami et frère, Socrate : le philosophe grec d’autrefois, mais maintenant
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Salomon | [La position de Salomon dans les Sphères Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--6-27-3-jep-solomon/) | 27 Juin 1915
+Salomon | [La position de Salomon dans les Sphères Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-3-jep-solomon/) | 27 Juin 1915
 Samuel  | [Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/) | 5 Août 1915
 Aaron   | [Aaron partage son expérience et ce qu’il sait maintenant de l’immortalité depuis que Jésus est venu et a enseigné comment l’obtenir.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-1-jep-aaron/) |  23 Octobre 1915
-Sarah   |[Sarah est maintenant chrétienne.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah/)  |  23 Octobre 1915
+Sarah   |[Sarah est maintenant Chrétienne.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah/)  |  23 Octobre 1915
 Platon  | [Platon, le disciple de Socrate est maintenant Chrétien.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/)  | 11 Novembre 1915

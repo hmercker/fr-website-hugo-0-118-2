@@ -15,7 +15,7 @@ C’est moi, ton père.
 
 *[Question : qui vient d’écrire ?]*
 
-[Jésus, celui de la Bible](/fr-james-padgett-message/\fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/). Il était avec toi et tu es celui qui doit se sentir très honoré. Tu dois croire que c’était lui. Non, c’était le vrai Jésus. Aucun imposteur n’aurait pu écrire comme lui.
+[Jésus, celui de la Bible](/fr-james-padgett-message/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/). Il était avec toi et tu es celui qui doit se sentir très honoré. Tu dois croire que c’était lui. Non, c’était le vrai Jésus. Aucun imposteur n’aurait pu écrire comme lui.
 
 Bonne nuit.
 

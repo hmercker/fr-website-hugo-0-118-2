@@ -13,7 +13,7 @@ Jésus - reçu par James Padgett le 28 Mai 1915, Washington, USA.
 
 C’est moi, Jésus.
 
-![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/lumiere-spirituelle1.jpg)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/lumiere-spirituelle1.jpg)
 
 
 Je veux partager avec vous ce que j’entends par immortalité, alors que vous et votre ami différiez aujourd’hui sur ce que cela signifie.
@@ -79,9 +79,9 @@ Votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup>
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Henry Ward Beecher | [L'immportalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) | 05 Juillet 1915
-Jésus | [L'immportalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
-St Luc | [L'immportalité] |  (/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
+Henry Ward Beecher | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) | 05 Juillet 1915
+Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
+St Luc | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
 
 
 

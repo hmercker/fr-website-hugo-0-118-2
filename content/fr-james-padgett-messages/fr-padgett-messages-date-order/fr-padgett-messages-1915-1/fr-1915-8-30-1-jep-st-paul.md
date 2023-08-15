@@ -11,7 +11,7 @@ weight:
 
 St Paul - reçu par James Padgett le 30 Août 1915, Washington, USA.
 
-![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/saint-paul-l-apotre-2-1.jpg)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/saint-paul-l-apotre-2-1.jpg)
 
 C’est moi, Saint Paul.
 

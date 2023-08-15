@@ -11,7 +11,7 @@ weight:
 
 John Brown - reçu par James Padgett le 1 Août 1915, Washington, USA.
 
-Je suis John Brown. <sup id="a1">[1](#f1)</sup>
+Je suis John Brown.<sup id="a1">[1](#f1)</sup>
 
 Je fus l’homme qui a donné sa vie pour la liberté des esclaves et la purification de la nation. Je viens donc à vous en tant qu’esprit qui, au cours des longues années qui ont suivi ma mort, a vu les principes pour lesquels je me suis battu, et suis mort, établis dans les lois de mon pays, et les principes de liberté et d’égalité politique ont fait partie intégrante de l’économie de votre pays.
 

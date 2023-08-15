@@ -13,7 +13,7 @@ Anne Rollins - reçu par James Padgett le 22 Décembre 1915, Washington, USA.
 
 C’est moi, ta grand-mère.
 
-Je viens, parce que je vois que tu t’es beaucoup intéressé à la description des différentes sphères du monde des esprits telle que contenue dans le livre <sup id="a1">[1](#f1)</sup> que tu viens de lire.
+Je viens, parce que je vois que tu t’es beaucoup intéressé à la description des différentes sphères du monde des esprits telle que contenue dans le livre<sup id="a1">[1](#f1)</sup> que tu viens de lire.
 
 Eh bien, mon fils, j’ai lu le livre comme tu l’as lu et je dois dire que je doute sérieusement qu’un mortel ait jamais eu l’expérience que le Dr. décrit dans ce livre. Bien sûr, je ne peux pas affirmer pas qu’il n’a pas quitté son corps pour visiter certaines sphères du monde des esprits, et tenter de donner une description de ce qu’il a vu, mais je ne pense pas qu’il lui ait été possible de visiter une sphère qui soit supérieure à son développement d’âme. Comme il n’est pas, selon mes informations, une personne dont le développement de d’âme pourrait le qualifier pour les hautes sphères de l’âme, je ne vois pas comment il aurait pu pénétrer une sphère supérieure à la sixième. Je doute donc qu’il y soit entré car, selon ma connaissance, aucun mortel n’a pu entrer, et visiter, une sphère plus élevée que la troisième, que Saint Paul dit avoir visitée.
 

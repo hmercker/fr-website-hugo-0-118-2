@@ -43,4 +43,4 @@ Alors, avec cet amour, je vous bénis maintenant, et je prie pour que l’amour 
 
 Jésus.
 
-*Note : Ce message est également publié dans le premier volume des messages de James Padgett.*
+

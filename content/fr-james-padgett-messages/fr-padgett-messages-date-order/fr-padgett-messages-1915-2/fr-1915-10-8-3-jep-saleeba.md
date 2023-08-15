@@ -27,7 +27,7 @@ Bonne nuit, votre sœur, Saleeba.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saleeba | [Un ancien esprit de la sixième sphère recherche de l’aide.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1\fr-1915-6-2-1-jep-saleeba/)  | 2 Juin 1915
+Saleeba | [Un ancien esprit de la sixième sphère recherche de l’aide.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/\fr-1915-6-2-1-jep-saleeba/)  | 2 Juin 1915
 Saleeba |  [Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-1-jep-saleeba/) | 5 Juillet 1915
 Saleeba | [Saleeba partage sa progression dans l’obtention de l’Amour Divin.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/) | 16 Octobre 1915
 Saleeba | [Saleeba est descendue vers la troisième sphère pour développer son âme.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-26-3-jep-saleeba/)   | 26 Octobre 1915

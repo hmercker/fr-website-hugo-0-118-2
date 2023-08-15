@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Étonnés par la merveilleuse gloire du Maître – Les Esprits ont été impressionnés par l’éclat et la magnificence de sa présence <sup id="a1">[1](#f1)</sup>
+### Étonnés par la merveilleuse gloire du Maître – Les Esprits ont été impressionnés par l’éclat et la magnificence de sa présence<sup id="a1">[1](#f1)</sup>
 
 Aigle blanc - reçu par James Padgett le 1 Octobre 1915, Washington, USA.
 

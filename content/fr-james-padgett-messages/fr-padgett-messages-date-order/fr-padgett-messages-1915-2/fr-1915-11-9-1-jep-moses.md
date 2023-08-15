@@ -36,6 +36,6 @@ Ainsi, avec mes remerciements, je vous dis bonne nuit.
 Moïse, le législateur des Juifs.<sup id="a1">[1](#f1)</sup>
 small>
 
-1. <large id="f1"> [Un plus récent commentaire sur ce message a été reçu de Moïse](fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2006\fr-2006-10-23-1-fab-moses.md).[↩](#a1)
+1. <large id="f1"> [Un plus récent commentaire sur ce message a été reçu de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-23-1-fab-moses/).[↩](#a1)
 
 

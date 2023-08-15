@@ -11,7 +11,7 @@ weight:
 
 Lafayette - reçu par James Padgett le 1 Août 1915, Washington, USA.
 
-Je suis Lafayette. <sup id="a1">[1](#f1)</sup>
+Je suis Lafayette.<sup id="a1">[1](#f1)</sup>
 
 Je suis le Français qui fut un amoureux de la liberté et un soldat de votre pays et du mien, et qui a aidé votre grand général et le père de son pays – je veux dire Washington.
 

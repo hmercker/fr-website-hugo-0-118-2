@@ -17,7 +17,7 @@ Eh bien chéri, tu as reçu ce soir une lettre d’un esprit qui devait savoir d
 
 Mais en ce qui te concerne personnellement, je tiens à te dire que cela ne changera rien à la nature des enfers, ni à la question de savoir s’ils existent ou non. Tu ne les verras jamais, à moins que tu n’aies envie de les visiter pour faire du bien à un pauvre malheureux.
 
-Et je remercie Dieu pour cette assurance et cette connaissance. <sup id="a1">[1](#f1)</sup>
+Et je remercie Dieu pour cette assurance et cette connaissance.<sup id="a1">[1](#f1)</sup>
 
 Je n’écrirai pas plus ce soir.
 

@@ -11,7 +11,7 @@ weight:
 
 John G Carlisle - reçu par James Padgett le 20 Novembre 1915, Washington, USA.
 
-Laissez-moi écrire, John G. Carlisle. <sup id="a1">[1](#f1)</sup>
+Laissez-moi écrire, John G. Carlisle.<sup id="a1">[1](#f1)</sup>
 
 Je veux juste dire que j’ai tellement besoin d’aide. Je souffre tellement et je suis dans une telle obscurité que je ne peux trouver aucun soulagement à ma condition. Alors s’il vous plaît, dites-moi si vous pouvez m’aider. Certains esprits ici disent que vous les avez aidés, si possible je veux que vous m’aidiez.
 

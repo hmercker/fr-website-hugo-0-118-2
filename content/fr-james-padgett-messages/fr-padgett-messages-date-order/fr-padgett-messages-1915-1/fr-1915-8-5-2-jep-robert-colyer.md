@@ -11,7 +11,7 @@ weight:
 
 Robert Colyer - reçu par James Padgett le 5 Août 1915, Washington, USA.
 
-C’est moi, Colyer. <sup id="a1">[1](#f1)</sup>
+C’est moi, Colyer.<sup id="a1">[1](#f1)</sup>
 
 Je fus un pasteur et un prédicateur. Je suis maintenant un pasteur et mes doctrines sont celles du Christ dépouillé des croyances et des dogmes des églises. Je ne fus pas un pasteur orthodoxe, mais quelqu’un qui croyait en Dieu et en Jésus comme l’homme le meilleur et le plus spirituel qui ait jamais vécu sur terre, et qui enseignait les vérités de son Père.
 J’ai toujours la même croyance, et, depuis que je suis dans le monde des esprits, j’ai appris beaucoup de choses qui confirment ma croyance. La doctrine orthodoxe selon laquelle il est Dieu ou l’un des trois Dieux est pernicieuse et opposée à toute raison et vérité. Il est juste ce qu’il a dit qu’il était – le fils de Dieu et le fils de l’homme – le premier au sens spirituel et le second au sens matériel ou naturel.
@@ -25,4 +25,4 @@ Je n’écrirai plus ce soir, car vous êtes fatigués, mais je reviendrai un jo
 Alors, avec tout mon amour de frère en Christ, je suis Robert Colyer.
 <small>
 
-1. <large id="f1"> Robert Coyler fut un prédicateur anglais qui a émigré aux USA et est décédé en 1912. Il fut le premier pasteur itinérant pour la First Unitarian Church (Première Église Unitarienne).[↩](#a1)
+1. <large id="f1"> **Robert Coyler** fut un prédicateur anglais qui a émigré aux USA et est décédé en 1912. Il fut le premier pasteur itinérant pour la First Unitarian Church (Première Église Unitarienne).[↩](#a1)

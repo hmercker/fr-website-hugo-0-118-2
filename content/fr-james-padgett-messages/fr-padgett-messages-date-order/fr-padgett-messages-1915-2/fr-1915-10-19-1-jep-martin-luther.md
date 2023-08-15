@@ -13,7 +13,7 @@ Martin Luther - reçu par James Padgett le 19 Octobre 1915, Washington, USA.
 
 C’est moi, Luther.
 
-Je suis venu vous dire que le livre (Pastor Russel – « Expiation. ») <sup id="a1">[1](#f1)</sup> que vous avez lu ce soir, ne vous profitera pas beaucoup, car il ignore le fondement même du plan de la rédemption de l’homme, c’est-à-dire l’Amour Divin que le Père a donné à l’humanité lors de la venue de Jésus. L’expiation par le sang est fausse et trompeuse, et elle a fait beaucoup de mal aux vérités de Dieu et à l’humanité.
+Je suis venu vous dire que le livre (Pastor Russel – « Expiation. »)<sup id="a1">[1](#f1)</sup> que vous avez lu ce soir, ne vous profitera pas beaucoup, car il ignore le fondement même du plan de la rédemption de l’homme, c’est-à-dire l’Amour Divin que le Père a donné à l’humanité lors de la venue de Jésus. L’expiation par le sang est fausse et trompeuse, et elle a fait beaucoup de mal aux vérités de Dieu et à l’humanité.
 
 J’admettrai qu’il y a beaucoup de vérités énoncées dans le livre et beaucoup de vérités qui aideront l’humanité dans sa compréhension et sa foi. Cependant à cause de la grande erreur concernant la déclaration primordiale relative au salut de l’homme, ces vérités que contient le livre peuvent ne pas faire le bien qu’elles auraient pu faire.
 
@@ -46,5 +46,5 @@ Votre frère en Christ, Martin Luther.
 ---|---|---
 Martin Luther | [Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-1-jep-martin-luther/) | 05 Septembre 1915 
 Martin Luther |  [Martin Luther sur les cérémonies religieuses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-29-1-jep-martin-luther/) | 29 Juin 1916
-Martin Luther | [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31.-1-jep-martin-luther) | 31 Janvier 1917
+Martin Luther | [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31-1-jep-martin-luther) | 31 Janvier 1917
 

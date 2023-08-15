@@ -54,6 +54,6 @@ Note : Dans une série de plusieurs messages communiqués [le 16 Septembre 1915]
 ---|---|---
 Hérode | [Corrobore le message de Swedenborg sur les enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-18-1-jep-herodes/) | 18 Décembre 1915
 Georges Butler | [Un esprit décrit son expérience dans l’un des enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)    | 5 Janvier 1916
-Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/)  | 08 Janvier 1917
+Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/)  | 08 Janvier 1917
 
 

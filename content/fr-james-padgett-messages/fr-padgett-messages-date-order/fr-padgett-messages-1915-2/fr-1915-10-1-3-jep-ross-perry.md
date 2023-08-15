@@ -60,4 +60,4 @@ C’est pourquoi, mon cher ami, permettez-moi de vous dire que je vous remercie 
 Votre ami, R. Ross Perry.
 <small>
 
-1. <large id="f1"> Il semble que cela se soit produit le 28 juillet 1915, mais que ce message n’ait pas été publié.[↩](#a1)
+1. <large id="f1"> Il semble que cela se soit produit le 28 Juillet 1915, mais que ce message n’ait pas été publié.[↩](#a1)

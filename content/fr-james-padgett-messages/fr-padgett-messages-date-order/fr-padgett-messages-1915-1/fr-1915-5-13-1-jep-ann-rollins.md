@@ -46,11 +46,11 @@ Parfois, les hommes n’essaient pas de tirer tous les avantages de cette épreu
 Bien cher fils, j’ai beaucoup écrit et je dois m’arrêter maintenant bien que j’aimerais t’écrire beaucoup plus longtemps. Alors, avec tout mon amour, je terminerai et signerai ta grand-mère aimante, Anne Rollins.
 <small>
 
-1. <large id="f1"> Des portraits des différents disciples de Jésus [sont disponibles ici](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/). Le portrait de Jésus que nous recommandons été réalisé par [Glenda Green](https://www.lovewithoutend.com/Miracle_Story_Lamb_Lion.htm) bien que maintenant la science a confirmé l’authenticité du linceul, lequel présente, à mon avis, l’image la plus appropriée.  [Elle est disponible ici](/fr-judas-of-kerioth-messages/fr-lamb-lion-sm2.jpg). Une description très similaire de Jésus est également donnée dans un message ultérieur par [Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-3-1-jep-st-john/).[↩](#a1)
+1. <large id="f1"> Des portraits des différents disciples de Jésus [sont disponibles ici](/3-fr-judas-of-kerioth-messages\3-8-fr-portraits-of-the-apostel/). Le portrait de Jésus que nous recommandons été réalisé par [Glenda Green](https://www.lovewithoutend.com/Miracle_Story_Lamb_Lion.htm) bien que maintenant la science a confirmé l’authenticité du linceul, lequel présente, à mon avis, l’image la plus appropriée. [Elle est disponible ici](![](3-fr-judas-of-kerioth-messages/fr-lamb-lion-sm2.jpg)). Une description très similaire de Jésus est également donnée dans un message ultérieur par [Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-3-1-jep-st-john/).[↩](#a1)
 
 *Note : Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Anne Rollins | [Affirmant qu’Anne Rollins a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914-1/fr-1914-12-12-2-jep-ann-rollins/) | 12 Décembre 1914
+Anne Rollins | [Affirmant qu’Anne Rollins a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-12-2-jep-ann-rollins/)
 Anne Rollins | [La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort ».](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/) | 1er Juin 1916

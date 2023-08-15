@@ -49,8 +49,8 @@ Votre frère en Christ, Luc.
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [Le sens de l'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-28-1-jep-jesus/) | 28 Mai 1915
-Henry Ward Beecher | [L'immportalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) | 05 Juillet 1915
-Jésus | [L'immportalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
+Henry Ward Beecher | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) | 05 Juillet 1915
+Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
 
 
 

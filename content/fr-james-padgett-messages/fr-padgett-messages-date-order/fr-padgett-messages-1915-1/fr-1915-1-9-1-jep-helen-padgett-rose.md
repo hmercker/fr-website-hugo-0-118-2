@@ -51,4 +51,4 @@ Non, pas autant que la mienne, et je t’aimerai de tout mon cœur aussi. Je sui
 Ta propre vraie, Hélène.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le Volume III à la page 157 et dans le Volume IV à la page 278.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III à la page 157 et dans le Volume IV à la page 278.[↩](#a1)

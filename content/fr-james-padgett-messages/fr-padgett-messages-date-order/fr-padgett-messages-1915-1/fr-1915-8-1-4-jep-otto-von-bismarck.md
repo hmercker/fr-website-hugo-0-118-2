@@ -11,7 +11,7 @@ weight:
 
 Otto von Bismarck - reçu par James Padgett le 1 Août 1915, Washington, USA.
 
-Je suis Bismarck. <sup id="a1">[1](#f1)</sup>
+Je suis Bismarck.<sup id="a1">[1](#f1)</sup>
 
 Laissez-moi vous dire un mot. J’ai vu ce que Lafayette a écrit et je ne suis pas d’accord avec lui sur les deux propositions.
 

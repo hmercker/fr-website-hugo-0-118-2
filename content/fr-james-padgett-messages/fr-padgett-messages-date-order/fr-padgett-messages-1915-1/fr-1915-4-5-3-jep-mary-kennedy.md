@@ -9,7 +9,7 @@ weight:
 ---
 ### Mary écrit que seul l’Amour du Père, pour son âme sœur, Leslie, est important ce soir
 
-Mary Kennedy - reçu par James Padgett le 5 Avril 1915 <sup id="a1">[1](#f1)</sup>, Washington, USA.
+Mary Kennedy - reçu par James Padgett le 5 Avril 1915<sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 C’est moi, Mary Kennedy.
 

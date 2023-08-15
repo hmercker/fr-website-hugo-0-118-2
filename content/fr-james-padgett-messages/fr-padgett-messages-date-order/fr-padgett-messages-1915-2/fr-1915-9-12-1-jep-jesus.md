@@ -40,7 +40,7 @@ Votre frère et ami, Jésus.
 
 *Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-4-jep-jesus/)| 05 Septembre 1915
 Jésus | [Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-19-1-jep-jesus/) | 19 Septembre 1915

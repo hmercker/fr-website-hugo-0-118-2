@@ -13,9 +13,7 @@ Professeur Salyards - reçu par James Padgett le 24 Mai 1915, Washington, USA.
 
 C’est moi, Prof. Salyards.
 
-Je voudrais vous donner un autre message, si vous vous sentez enclin à l’écrire.
-
-[C’était le Maître, vous ne devez pas douter.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/)
+Je voudrais vous donner un autre message, si vous vous sentez enclin à l’écrire. [C’était le Maître, vous ne devez pas douter.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/)
 
 Eh bien, il y a une autre loi du monde des esprits qui prévoit qu’aucun esprit ne peut jamais progresser à la sphère supérieure jusqu’à ce qu’il se rende compte qu’il doit chercher l’Amour et l’aide du Père.
 

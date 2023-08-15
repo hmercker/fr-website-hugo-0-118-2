@@ -11,7 +11,7 @@ weight:
 
 Blaine - reçu par James Padgett le 14 Septembre 1915, Washington, USA.
 
-C’est moi, James G. Blaine. <sup id="a1">[1](#f1)</sup>
+C’est moi, James G. Blaine.<sup id="a1">[1](#f1)</sup>
 
 Je suis ici pour te dire que tu es un médium merveilleux, et que tu feras beaucoup de bien avant de mourir.
 
@@ -26,4 +26,4 @@ Je n’écrirai pas plus ce soir.
 James G. Blaine.
 <small>
 
-1. <large id="f1"> James Gillespie Blaine (31 janvier 1830 – 27 janvier 1893) était un homme d’État américain et un politicien républicain qui a représenté le Maine à la Chambre des représentants des États-Unis de 1863 à 1876, a été président de la Chambre des représentants des États-Unis de 1869 à 1875, puis au Sénat américain de 1876 à 1881. Il a été deux fois secrétaire d’État (1881, 1889-1892), la seule personne à occuper ce poste sous trois présidents distincts, et a tenté sans succès de se faire élire à la présidence républicaine en 1876 et 1880 avant d’être nommé en 1884. Aux élections générales, il a été battu de justesse par le démocrate Grover Cleveland. Blaine était l’un des républicains les plus importants de la fin du XIXe siècle et le champion de la faction réformiste modérée du parti connu sous le nom des « Métis ». (Source : Wikipédia)[↩](#a1)
+1. <large id="f1"> **James Gillespie Blaine** (31 Janvier 1830 – 27 Janvier 1893) était un homme d’État américain et un politicien républicain qui a représenté le Maine à la Chambre des représentants des États-Unis de 1863 à 1876, a été président de la Chambre des représentants des États-Unis de 1869 à 1875, puis au Sénat américain de 1876 à 1881. Il a été deux fois secrétaire d’État (1881, 1889-1892), la seule personne à occuper ce poste sous trois présidents distincts, et a tenté sans succès de se faire élire à la présidence républicaine en 1876 et 1880 avant d’être nommé en 1884. Aux élections générales, il a été battu de justesse par le démocrate Grover Cleveland. Blaine était l’un des républicains les plus importants de la fin du XIXe siècle et le champion de la faction réformiste modérée du parti connu sous le nom des « Métis ». (Source : Wikipédia)[↩](#a1)

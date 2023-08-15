@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La croyance dans le péché impardonnable est diffamatoire <sup id="a1">[1](#f1)</sup>
+### La croyance dans le péché impardonnable est diffamatoire sup id="a1">[1](#f1)</sup>
 
 Anne Rollins - reçu par James Padgett le 1 Novembre 1915, Washington, USA.
 
@@ -32,7 +32,7 @@ Alors avec tout mon amour, je vous bénis tous les deux.
 Ta grand-mère.<sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume II première édition française, à la page 249 et dans le volume III à la page 142. Pour plus de détails, vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/). (G.J.C.)[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume II première édition française, à la page 249 et dans le volume III à la page 142. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/). (G.J.C.)[↩](#a1)
 
 2. <large id="f2"> Il n’y a aucune trace d’une « déclaration » de Jean à cette date. Mais comme Jean était son guide particulier, il se peut qu’il s’agisse simplement d’une très courte communication qui n’a pas été consignée dans le journal intime de James padgett. Le contenu de ce message est surprenant. Il n’est pas vraiment erroné, en ce sens qu’il n’y a rien que le Père refuse de pardonner, mais nous savons, grâce à un grand nombre de messages, que si l’humain refuse de recevoir l’Amour Divin du Père, cela a pour résultat que l’humain est finalement confronté à la seconde mort,et ils seront exclus du Royaume lorsque les « portes se fermeront ». Se reporter par exemple à [ce message de Judas](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-191/fr-1916-10-21-1-jep-judas/). (G.J.C.)[↩](#a2)
 
@@ -42,5 +42,5 @@ Ta grand-mère.<sup id="a3">[3](#f3)</sup>
 ---|---|---/
 Jésus | [L'Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) 06 Juin 1915
 Luc  | [Pas de péché impardonnable tel qu’enseigné par le prédicateur.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-1-jep-luke/) | 31 Octobre 1915
-Paul | [Paul nie le péché impardonnable.](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-st-paul/)) | 31 Octobre 1915
+Paul | [Paul nie le péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-st-paul/) | 31 Octobre 1915
 

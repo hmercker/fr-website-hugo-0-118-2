@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 26 Avril 1915, Washington, USA.
 
 C’est moi, Hélène.
 
-Laissez-moi écrire <sup id="a1">[1](#f1)</sup>, car j’ai attendu si longtemps l’occasion d’envoyer un message à mon âme-sœur et de lui faire savoir que je suis si heureuse, non seulement à cause de l’amour que je possède dans mon âme, mais parce qu’il a une grande partie de cet amour abondant.
+Laissez-moi écrire<sup id="a1">[1](#f1)</sup>, car j’ai attendu si longtemps l’occasion d’envoyer un message à mon âme-sœur et de lui faire savoir que je suis si heureuse, non seulement à cause de l’amour que je possède dans mon âme, mais parce qu’il a une grande partie de cet amour abondant.
 
 Je suis très souvent avec lui comme il le sait et je suis si heureuse pour lui que je peux lui faire sentir ma présence et mon amour. Nous sommes tous très heureux qu’il progresse tellement dans son âme et nous réalisons qu’il progresse de la bonne façon vers une position qui, lorsqu’il vient ici pour jouir du bonheur, est en dehors des sphères des ténèbres. Beaucoup d’esprits l’accompagnent dans ses sérieux entretiens avec les mortels sur les vérités du monde des esprits tels qu’il les connaît et sur l’effet qu’ils ont sur les esprits qui l’écoutent et pensent à ce qu’il leur dit. Il doit poursuivre ce travail car il connaît ou réalise à peine le grand nombre d’esprits qui l’entourent et qui sont impatients d’entendre parler de ces choses qui montrent le chemin vers une nouvelle vie.
 

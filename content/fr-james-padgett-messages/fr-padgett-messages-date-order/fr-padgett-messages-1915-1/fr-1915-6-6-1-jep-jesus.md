@@ -29,12 +29,12 @@ Votre ami et votre frère, Jésus.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Anne Rollins | [La croyance dans le péché impardonnable est diffamatoire.](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-1-jep-ann-rollins/) | 1er Novembre 1915
+Anne Rollins | [La croyance dans le péché impardonnable est diffamatoire.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-1-jep-ann-rollins/) | 1er Novembre 1915
 Luc  | [Pas de péché impardonnable tel qu’enseigné par le prédicateur.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-1-jep-luke/) | 31 Octobre 1915
-Paul | [Paul nie le péché impardonnable.](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-st-paul/)) | 31 Octobre 1915
+Paul | [Paul nie le péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-st-paul/) | 31 Octobre 1915
 
 
-*Note 2: Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*
+*Note 2: Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, Jésus, Luc et Jean. Ils sont listés ci-dessous :*
 
 *Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -42,7 +42,7 @@ Anne Rollins | [le flot de l’Esprit de Dieu dans l’âme](/fr-james-padgett-m
 Anne Rollins | [Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/) | 11 Novembre 1914
 Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/)| 05 Novembre 1916
 Jean | [Qu’est-ce que l’Esprit Saint et comment fonctionne-t-il ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/) | 14 Juin 1917
-Jésus|  | [Dfférence entre l’Esprit de Dieu et l’Esprit Saint.](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
+Jésus|  | [Différence entre l’Esprit de Dieu et l’Esprit Saint.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
 
 
 
