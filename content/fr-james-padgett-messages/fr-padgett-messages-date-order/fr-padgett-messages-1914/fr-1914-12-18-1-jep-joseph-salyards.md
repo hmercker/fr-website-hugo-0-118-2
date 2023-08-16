@@ -63,6 +63,6 @@ Oui, je suis vraiment le professeur Salyards qui écrit et vous devez me croire 
 
 Votre ancien professeur et ami, Joseph Salyards.
 
-![](/james-padgett-messages/padgett-messages-date-order/padgett-messages-1914/salyards_tombstone.jpg)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/padgett-messages-1914/salyards_tombstone.jpg)
 
 Voici une photo de la pierre tombale du professeur Salyards avec l'inscription : *« JOSEPH SALYARDS, M.A. POÈTE, ÉRUDIT ET PROFESSEUR INSPIRÉ. 1808-1885 »* (G.J.C.)

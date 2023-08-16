@@ -52,7 +52,7 @@ Ta grand-mère adorée.<sup id="a2">[2](#f2)</sup>
 
 *Note 3 : Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Anne Rollins | [le flot de l’Esprit de Dieu dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins/) | 15 Septembre 1914
 Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915

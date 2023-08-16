@@ -38,9 +38,9 @@ Ta grand-mère.<sup id="a3">[3](#f3)</sup>
 
 3. <large id="f3"> Jésus, Luc et Paul ont également nié l'existence du péché impardonnable.[↩](#a3)
 
-*Auteur** | **Titre du message** | **Date du message**
----|---|---/
-Jésus | [L'Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) 06 Juin 1915
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [L'Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
 Luc  | [Pas de péché impardonnable tel qu’enseigné par le prédicateur.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-1-jep-luke/) | 31 Octobre 1915
 Paul | [Paul nie le péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-31-3-jep-st-paul/) | 31 Octobre 1915
 

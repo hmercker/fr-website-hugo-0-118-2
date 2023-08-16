@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs <sup id="a1">[1](#f1)</sup>
+### Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs<sup id="a1">[1](#f1)</sup>
 
 Martin Luther - reçu par James Padgett le 5 Septembre 1915, Washington, USA.
 
@@ -36,6 +36,6 @@ Votre frère en Christ, Martin Luther.
 ---|---|---
 Martin Luther | [Ce que l’homme devrait savoir afin d’éprouver les esprits.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-19-1-jep-martin-luther/)  | 19 Octobre 1915
 Martin Luther |  [Martin Luther sur les cérémonies religieuses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-29-1-jep-martin-luther/) | 29 Juin 1916
-Martin Luther | [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31.-1-jep-martin-luther) | 31 Janvier 1917
+Martin Luther | [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31-1-jep-martin-luther) | 31 Janvier 1917
 
 

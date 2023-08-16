@@ -46,6 +46,6 @@ Ta propre grand-mère bien-aimée.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les sphères célestes.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--3-10-2-jep-ann-rollins/)) | 10 Mars 1915
+Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les sphères célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-10-2-jep-ann-rollins/) | 10 Mars 1915
 Anne Rollins | [Anne Rollins parle de sa progression de la première sphère Céleste vers la seconde sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) | 27 Avril 1915
 Anne Rollins | [Les expériences d’Anne Rollins dans la Seconde Sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/) | 8 Juillet 1915
