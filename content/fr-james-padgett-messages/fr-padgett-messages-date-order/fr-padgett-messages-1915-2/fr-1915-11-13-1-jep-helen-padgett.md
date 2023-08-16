@@ -11,7 +11,7 @@ weight:
 
 Hélène Padgett - reçu par James Padgett le 13 Novembre 1915, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/spiritualite2-1jpg)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/spiritualite2-1.jpg)
 
 C’est moi, Hélène.
 

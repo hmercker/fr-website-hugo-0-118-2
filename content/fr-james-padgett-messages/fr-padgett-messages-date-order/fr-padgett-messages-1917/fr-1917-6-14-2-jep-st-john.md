@@ -35,17 +35,3 @@ Anne Rollins | [Anne Rollins répond à de nombreuses questions sur l’Esprit S
 Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
 Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/)| 05 Novembre 1916
 Jésus |  [Différence entre l’Esprit de Dieu et l’Esprit Saint.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
-
-
-
-
-
-
-
-
-
-
-
-
-
- Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins le [15 Septembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins.md) et [11 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/), par Jésus le [06 Juin 1915](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915-1\fr-1915-6-6-1-jep-jesus/ et le [10 Mai 1920](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/), par Luc le [05 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/)[↩](#a1)

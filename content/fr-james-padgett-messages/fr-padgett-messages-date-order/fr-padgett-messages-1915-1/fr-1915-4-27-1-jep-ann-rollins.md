@@ -36,7 +36,7 @@ Anne Rollins.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les sphères célestes.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--3-10-2-jep-ann-rollins/)) | 10 Mars 1915
+Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les sphères célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--3-10-2-jep-ann-rollins/) | 10 Mars 1915
 Anne Rollins | [Les expériences d’Anne Rollins dans la Seconde Sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/) | 8 Juillet 1915
 Anne Rollins | [Anne Rollins décrit certaines des différentes sphères.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) | 22 Décembre 1915
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème <sup id="a1">[1](#f1)</sup>
+### Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 6 Mai 1917, Washington, USA.
 
