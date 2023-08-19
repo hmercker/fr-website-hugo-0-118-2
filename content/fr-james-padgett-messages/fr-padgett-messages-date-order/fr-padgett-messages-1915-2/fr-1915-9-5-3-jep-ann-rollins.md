@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Anne Rollins – Le sang de Jésus ne sauve pas du péché <sup id="a1">[1](#f1)</sup>
+### Anne Rollins – Le sang de Jésus ne sauve pas du péché<sup id=”a1”>[1](#f1)</sup>
 
 Anne Rollins - reçu par James Padgett le 5 Septembre 1915, Washington, USA.
 
@@ -21,7 +21,7 @@ Je sais que seul l’Amour Divin du Père sauve du péché et rend les mortels u
 
 Je reviendrai bientôt pour t’en dire plus sur le résultat de ton travail parmi les esprits malheureux qui cherchent ton aide.
 
-Alors, mon cher fils, je te souhaite une bonne nuit – ta grand-mère aimante, Anne Rollins.44
-<small>
+Alors, mon cher fils, je te souhaite une bonne nuit – ta grand-mère aimante, Anne Rollins.
 
-1. <large id="f1"> Une seconde édition de ce message, publiée dans les premières versions anglaises (antérieures à l’édition de 2014) a été supprimée dans ce volume.[↩](#a1)
+
+

@@ -19,7 +19,7 @@ Eh bien Docteur, je suis ici, comme vous serez peut-être surpris de le savoir, 
 
 Je suis l’esprit d’une femme qui vivait autrefois sur terre, dans le pays lointain de l’autre côté de l’océan, et qui était connue par mon peuple comme une petite fille anglaise peu importante, mais maintenant je suis très importante pour un humain qui aime m’avoir à ses côtés. Je lui écris simplement pour lui faire savoir qu’il n’est pas toujours en état de sentir lorsque je suis vraiment avec lui, car je l’ai entendu dire que je n’étais pas avec lui toute la soirée ; j’ai entendu tout ce qu’il a dit, et j’ai aimé l’entendre parler, cependant, jusqu’à présent il n’a pas mentionné mon nom. Si c’était le seul signe qui me permette de savoir qu’il pense à moi, je supposerais qu’il m’a oubliée, mais grâce à mes pouvoirs de lire dans son esprit, il n’est pas nécessaire de prononcer mon nom.
 
-Que pensez-vous de cette phrase ?
+*Que pensez-vous de cette phrase ?*
 
 C’est seulement représentatif de mon amour, car tout comme cette phrase est longue, mon amour l’est aussi. Mais je ne dois pas le lui dire, sinon il pourrait s’alarmer de ce qui l’attend lorsqu’il rejoindra. Ma maison est magnifique et faite de ce que l’on pourrait appeler l’albâtre. Elle comporte de nombreuses pièces adaptées à mes différentes humeurs et conditions, toutes belles et pleines de l’harmonie la plus parfaite, et tout pour me rendre heureuse et satisfaite.
 

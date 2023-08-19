@@ -11,13 +11,14 @@ weight:
 
 Jésus - reçu par James Padgett le 7 Juin 1915, Washington, USA.
 
-![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-jesus-akiane-kramarik.jpg)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-jesus-akiane-kramarik.jpg)
+
 
 C’est moi, Jésus.
 
 Je veux vous écrire ce soir au sujet de ma naissance et de ma vie jusqu’à l’époque de mon ministère public.
 
-Je suis né à Bethléem, comme vous le savez, dans une mangeoire, et, lorsque j’avais quelques jours, mes parents m’ont emmené en Égypte afin d’éviter les soldats d’Hérode qui avaient été envoyés pour me détruire et qui ont tué un grand nombre de nourrissons de moins de deux ans. Le récit biblique de ma naissance, de la fuite de mes parents et le meurtre des innocents est substantiellement correct. Je souhaite seulement ajouter que ce n’est pas en raison de la pauvreté que, lorsque mes parents sont arrivés à Bethléem, ils ont été obligés de chercher la mangeoire d’une écurie afin que je puisse naître, car ils ont reçu des fonds et tout ce dont ils avaient besoin pour rendre la vie confortable à ma mère. De plus, mon père n’était pas pauvre, dans le sens de la possession des biens matériels et comme la pauvreté était considérée à l’époque.
+Je suis né à Bethléem, comme vous le savez, dans une mangeoire, et, lorsque j’avais quelques jours, mes parents m’ont emmené en Égypte afin d’échapper aux soldats d’Hérode qui avaient été envoyés pour me détruire et qui ont tué un grand nombre de nourrissons de moins de deux ans. Le récit biblique de ma naissance, de la fuite de mes parents et le meurtre des innocents est substantiellement correct. Je souhaite seulement ajouter que ce n’est pas en raison de la pauvreté que, lorsque mes parents sont arrivés à Bethléem, ils ont été obligés de chercher la mangeoire d’une écurie afin que je puisse naître, car ils ont reçu des fonds et tout ce dont ils avaient besoin pour rendre la vie confortable à ma mère. De plus, mon père n’était pas pauvre, dans le sens de la possession des biens matériels et comme la pauvreté était considérée à l’époque.
 
 La Bible dit que les sages sont venus et ont apporté des offrandes d’or et d’encens à mes parents, ou plutôt à moi, mais mes parents m’ont dit que cela n’était pas très important, monétairement parlant. Leurs dépenses pour la fuite vers l’Égypte ont été couvertes par les fonds que mon père avait avant de venir à Bethléem.
 
@@ -39,17 +40,17 @@ Mes enseignements étaient ceux que le Père m’avait communiqués dès le déb
 
 Oui, je sais que l’on a dit que ma mère a été informée de l’objet de ma naissance et quelle était une femme bénie, mais ce n’est pas vrai. Ma mère, comme elle me l’a dit, n’avait aucune raison de supposer que j’étais différent des autres enfants nés des hommes. L’histoire de l’Ange de Dieu venant à elle et lui disant qu’elle devait s’attendre à la naissance d’un enfant qui serait engendré par Dieu ou par le Saint-Esprit, et qu’elle, en tant que vierge, devrait porter et donner naissance à cet Enfant, n’est pas vrai. Elle ne m’a jamais, durant toute sa vie, informé qu’elle avait eu un tel visiteur. Et je sais qu’elle serait énormément surprise, tout comme beaucoup d’hommes, d’apprendre que la naissance d’un enfant par une vierge pourrait avoir lieu. Donc, vous voyez que le récit biblique de mon être engendré et de tout le background de ces circonstances n’est pas vrai.
 
-Mon père, Joseph, n’a jamais supposé que je n’étais pas son enfant, et l’histoire de l’ange venant à lui et lui disant qu’il ne doit pas le rejeter parce que l’apparence n’est pas vraie, parce qu’il n’a jamais été évoqué, dans mes conversations avec lui, que j’étais autre chose que son propre enfant.
+Mon père, Joseph, n’a jamais supposé que je n’étais pas son enfant, et l’histoire de l’ange venant à lui et lui disant qu’il ne doit pas le rejeter à cause de son apparence n’est pas vraie, parce qu’il n’a jamais été évoqué, dans mes conversations avec lui, que j’étais autre chose que son propre enfant.
 
 Entre le moment où j’ai eu douze ans et mon ministère public, j’ai vécu à la maison avec mes parents et j’ai aidé mon père dans son entreprise de charpentier. Pendant tout ce temps il n’a jamais douté que j’étais son enfant, ou que j’étais différent des autres enfants, si ce n’est le fait que je n’ai jamais péché.
 
-Quand j’ai commencé à obtenir cet amour divin dans mon âme, je suis devenu très proche du Père, et cette relation m’a permis de réaliser que j’étais envoyé par Dieu avec une mission à accomplir et une grande et importante vérité à déclarer. Finalement une voix dans mon âme m’a dit que j’étais le vrai fils de mon Père, je l’ai cru et j’ai commencé à enseigner et à prêcher les vérités de Son Amour accordé et le salut des hommes.
+Lorsque j’ai commencé à obtenir cet Amour Divin dans mon âme, je suis devenu très proche du Père, et cette relation m’a permis de réaliser que j’étais envoyé par Dieu avec une mission à accomplir et une grande et importante vérité à déclarer. Finalement une voix dans mon âme m’a dit que j’étais le vrai fils de mon Père, je l’ai cru et j’ai commencé à enseigner et à prêcher les vérités de Son Amour accordé et le salut des hommes.
 
 J’ai connu Jean le Baptiste au cours de mon enfance. Il était mon cousin et nous avons souvent joué ensemble et discuté par la suite de la vérité de ma mission et la façon dont il conviendrait de la faire connaître dans le monde.
 
 Jean était un grand voyant, il a vu dans sa vision qui j’étais et ce qu’était ma mission sur terre, et, par conséquent, le moment venu, il a fait l’annonce de ma venue. Il se rendit compte de la différence de nos missions et pensait de ne pas être digne de desserrer mes chaussures. Cependant, il n’a pas complètement compris ma mission et la grande vérité de l’effusion de l’immortalité à l’homme par le Père.
 
-Tout d’abord, je suis devenu le Christ quand je fus oint par mon Père, et cela s’est produit lors de mon baptême par Jean. En tant que Christ je suis différent de moi-même comme Jésus. Christ veut dire ce principe que le Père m’a conféré, qui m’a fait un avec Lui dans la possession de ce grand amour. Christ est cet amour qui se manifeste en moi comme homme. Ce principe du Christ est universel et est partout, tout comme est l’Esprit Saint, mais je suis limité dans mon lieu de résidence comme vous l’êtes.
+Tout d’abord, je suis devenu le Christ lorsque je fus oint par mon Père, et cela s’est produit lors de mon baptême par Jean. En tant que Christ je suis différent de moi-même comme Jésus. Christ veut dire ce principe que le Père m’a conféré, qui m’a fait un avec Lui dans la possession de ce grand amour. Christ est cet amour qui se manifeste en moi comme homme. Ce principe du Christ est universel et est partout, tout comme est l’Esprit Saint, mais je suis limité dans mon lieu de résidence comme vous l’êtes.
 
 Simplement, en tant que Jésus, je n’ai jamais affirmé, comme mentionné dans la Bible, que, là où deux ou trois sont réunis, je serai aussi ; car il serait impossible pour moi d’être partout en même temps. Mais Christ, étant sans forme ni restriction, est omniprésent et, par conséquent, peut remplir ma promesse à cet égard. Christ est autant vivant aujourd’hui que jamais. Il n’a jamais été crucifié et n’est pas mort comme Jésus l’a été.
 
@@ -59,24 +60,20 @@ Eh bien, je pense que vous êtes trop somnolent maintenant pour continuer, et vo
 
 Votre frère et ami, Jésus.
 
-*Note : Un [message contemporain de Judas](**message du 08 Octobre 2011**) prétend que Jésus avait en fait cinq frères et deux sœurs et il cite leurs noms.*
+*Note : [Un message contemporain de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) prétend que Jésus avait en fait cinq frères et deux sœurs et il cite leurs noms.*
 
 *Credits du portrait de Jésus: [Akiane Kramarik](https://akiane.com)*
 
-Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
+*Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*
 
-Le 24 Mai Juin 1915 : [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/).
-
-le 08 Juin 1915 : [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus.md).
-
-le 29 Juin 1915 : [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/).
-
-le 20 Mai 1918 : [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/).
-
-le 25 Mai 1955 : [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/).
-
-le 14 Juin 1955 : [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/).
-
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus  |  [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/) | 24 Mai 1915
+Jésus `| [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) | 08 Juin 1915
+Jésus `| [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/) | 29 Juin 1915
+Jésus `| [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/) | 20 Mai 1918
+Jésus `| [4ème Révélation : Jésus annonce Sa Messianité.](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/) | 25 Mai 1955
+Jésus ` | [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie.](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/) | 14 Juin 1955
 
 
 

@@ -20,7 +20,7 @@ Je veux simplement dire que vous faites un bon travail en aidant les esprits mal
 Eh bien, vous devez continuer ce bon travail, car c’est un bon travail, car vous aidez le Maître plus que vous ne le réalisez ; et votre récompense, lorsque vous viendrez, sera la gratitude de beaucoup de ces esprits obscurs. <sup id="a1">[1](#f1)</sup>
 
 Je ne travaille pas très souvent sur le plan terrestre, car mon travail se fait parmi les esprits des cieux spirituels supérieurs ; mais il m’arrive d’être envoyé sur terre et d’essayer d’aider les mortels aussi bien que les esprits.
-Cependant depuis que je vous ai écrit pour la première fois, je me sens très intéressé par votre travail et par les grandes pouvoirs qui vous soutiennent. Comme vous le savez, le plus grand esprit de tous est Jésus, et il est plus intéressé à ce que vous accomplissiez son travail que vous ne pouvez le concevoir. Nous sommes tous intéressés par sa cause et nous pensons que chaque fois que nous pouvons venir vous voir et vous encourager, ou vous aider de toute autre manière, c’est avec plaisir que nous le faisons.
+Cependant depuis que je vous ai écrit pour la première fois, je me sens très intéressé par votre travail et par les grands pouvoirs qui vous soutiennent. Comme vous le savez, le plus grand esprit de tous est Jésus, et il est plus intéressé à ce que vous accomplissiez son travail que vous ne pouvez le concevoir. Nous sommes tous intéressés par sa cause et nous pensons que chaque fois que nous pouvons venir vous voir et vous encourager, ou vous aider de toute autre manière, c’est avec plaisir que nous le faisons.
 
 Je ne dois pas écrire plus maintenant.
 

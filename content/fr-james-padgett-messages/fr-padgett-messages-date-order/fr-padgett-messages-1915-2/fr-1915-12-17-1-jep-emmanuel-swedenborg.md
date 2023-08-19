@@ -43,7 +43,17 @@ Mais le grand fait est que ces mauvais esprits ont un lieu de vie, où ils doive
 
 Ma principale raison en vous écrivant est de vous faire savoir que les enfers sont aussi bien des lieux que des conditions, et que ces lieux, par ce qu’ils contiennent et par leurs apparences, ajoutent à la souffrance des esprits.
 
-Comme je l’ai écrit longuement, je vais m’arrêter, et dire que je suis un chrétien et un habitant des Sphères Célestes, et l’un des groupes d’esprits qui vous aide dans votre grande œuvre du Maître. Donc, en vous quittant, je signerai moi-même, Votre frère en Christ, Swedenborg le voyant.<sup id=”a1”>[1](#f1)</sup>
+Comme je l’ai écrit longuement, je vais m’arrêter, et dire que je suis un chrétien et un habitant des Sphères Célestes, et l’un des groupes d’esprits qui vous aide dans votre grande œuvre du Maître. Donc, en vous quittant, je signerai moi-même, Votre frère en Christ, [Swedenborg](Messages concernant Swedenborg),<sup id=”a1”>[1](#f1)</sup> le voyant.
 <small>
 
-1.  <large id=”f1”> Trois autres esprits, [Hérode](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-18-1-jep-herodes/), [George H Butler](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/) et [Nathan Plummer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/) ont témoigné de leur expérience des enfers.[↩](#a1)
+1.  <large id=”f1”> Trois autres esprits ont décrit leur expérience de l'enfer : [↩](#a1)
+
+Note : Dans une série de plusieurs messages communiqués [le 16 Septembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-16-2-jep-julius-caesar/), [le 13 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) et [le 1er Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/), Jules Cesar relate son cheminement à travers les enfers.  Ces différents messages nous permettent de comprendre que Jules César avécu dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 2060 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois. 
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Hérode | [Corrobore le message de Swedenborg sur les enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-18-1-jep-herodes/) | 18 Décembre 1915
+Georges Butler | [Un esprit décrit son expérience dans l’un des enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)    | 5 Janvier 1916
+Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/)  | 08 Janvier 1917
+
+

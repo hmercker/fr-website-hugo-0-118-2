@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 8 Juillet 1915, Washington, USA.
 
 C’est moi, ta propre Hélène, vraie et aimante.
 
-Eh bien, mon chéri, tu as eu de merveilleux messages ce soir, et tu devrais avoir l’impression que tu es très favorisé en recevant de si merveilleux écrits.
+Eh bien, mon chéri, tu as eu [de merveilleux messages ce soir](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/), et tu devrais avoir l’impression que tu es très favorisé en recevant de si merveilleux écrits.
 
 Le message de Socrate t’a peut-être surpris et t’a amené à t’étonner de ces vérités et des descriptions qu’il a données de sa conversion.
 

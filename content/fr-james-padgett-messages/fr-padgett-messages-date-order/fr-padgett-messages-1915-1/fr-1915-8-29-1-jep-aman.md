@@ -37,3 +37,16 @@ Votre frère en Christ, Aman.
 <small>
 
 1. <large id="f1"> Une explication détaillée a été donnée [par l’intermédiaire d’un autre médium en 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-3-fab-aman/).[↩](#a1)
+
+*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](Création et Evolution)*
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/)| 30 Août 1915
+Jean | [Affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/)| 30 Août 1915
+Aman | [Aman apporte une correction.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/)| 07 Septembre 1915
+Jésus | [La relation de l’homme à la création du monde et l’origine de la vie.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 janvier 1916
+Luc  | [Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/) | 22 Juillet 1917
+
+
+

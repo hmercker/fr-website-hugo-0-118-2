@@ -15,7 +15,7 @@ C’est moi, Saint-Jean, Apôtre de Jésus.
 
 Je veux vous parler ce soir des choses que les esprits qui n’ont pas reçu l’Amour Divin du Père font, ou ont bénéficié, comme vous pouvez le dire, pour sortir de leurs ténèbres et souffrances et passer à une condition plus heureuse.
 
-Eh bien, quand ces esprits du mal ou de la vie pécheresse arrivent pour la première fois dans le monde des esprits, ils entrent dans ce qu’on appelle le plan terrestre; et quand je dis le plan terrestre, je veux dire les sphères qui sont plus proches de la terre et qui participent très largement à la matière. Ils sont reçus par leurs amis qui ont pu être avec eux au moment de leur passage, et sont, dans une certaine mesure, réconfortés et familiarisés avec leur environnement. Cela peut durer plus ou moins longtemps selon que l’esprit est capable de comprendre son changement de condition de mortel à esprit. Lorsque cet état de conscience est assumé par l’esprit, ces amis le laissent et un certain esprit guide, dont la fonction consiste à effectuer la tâche, lui montre ou le mène à la place ou plan qu’il est qualifié à occuper et qu’il, par le fonctionnement de la loi de péréquation, doit occuper. Dans ce lieu, il est entouré et doit s’associer à des esprits d’un état de développement semblable au sien, jusqu’à ce qu’un changement intervienne lui permettant d’occuper une place plus élevée.
+Eh bien, quand ces esprits du mal ou de la vie pécheresse arrivent pour la première fois dans le monde des esprits, ils entrent dans ce qu’on appelle le plan terrestre; et quand je dis le plan terrestre, je veux dire les sphères qui sont plus proches de la terre et qui participent très largement à la matière. Ils sont reçus par leurs amis qui ont pu être avec eux au moment de leur passage, et sont, dans une certaine mesure, réconfortés et familiarisés avec leur environnement. Cela peut durer plus ou moins longtemps selon que l’esprit est capable de comprendre son changement de condition de mortel à esprit. Lorsque cet état de conscience est assumé par l’esprit, ces amis le laissent et un certain esprit guide, dont la fonction consiste à effectuer la tâche, lui montre ou le mène à la place ou plan qu’il est qualifié à occuper et qu’il, par le fonctionnement de [la loi de péréquation](10-fr-spiritual-subjects\10-1-fr-spiritual-laws\10-1-4-fr-the-law-of-mutual-aid.md)<sup id=”a1”>[1](#f1)</sup>, doit occuper. Dans ce lieu, il est entouré et doit s’associer à des esprits d’un état de développement semblable au sien, jusqu’à ce qu’un changement intervienne lui permettant d’occuper une place plus élevée.
 
 Bien sûr, ce changement peut survenir dans un court laps de temps, ou peut seulement se produire après un temps plus long – en fonction de la réalisation par l’esprit de ce qu’est sa condition, et le fait qu’il existe une possibilité de progresser. De lui-même, il ne peut pas créer ce changement, parce que la loi qui détermine son lieu ou condition s’applique jusqu’à l’entrée en fonction d’une autre loi qui autorise et permet le changement.
 
@@ -39,14 +39,16 @@ Lorsqu’un esprit sombre apprend de ce Grand Amour, s’efforce de l’obtenir 
 
 Mais j’insiste encore que le travail de ces esprits inférieurs, dont j’ai parlé, est une grande œuvre et ne doit pas être sous-estimé. Souvenez-vous donc de ce que j’ai écrit et accordez tout le crédit qu’il convient à ce travail.
 
-Je n’écrirai pas plus maintenant<sup id=”a1”>[1](#f1)</sup> et, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
+Je n’écrirai pas plus maintenant<sup id=”a2”>[2](#f2)</sup> et, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Saint Jean.<sup id=”2”>[2](#f2)</sup>
+Votre frère en Christ, Saint Jean.<sup id=”3”>[3](#f3)</sup>
 <small>
 
-1. <large id=”f1”> Jean s'est exprimé sur la réalité des enfers le [19 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-19-1-jep-st-john/).[↩](#a1)
+1. <large id=”f1”>  La loi de péréquation est une loi spirituelle très importante qui stipule qu'à son arrivée dans le monde spirituel, l'âme doit rejoindre le plan spirituel qui correspond à son niveau spirituel. Cette loi exprime un autre aspect de la loi d'attraction et de nombreux messages y font référence. Dans le monde économique, la péréquation est définie comme une juste répartition des charges ou, selon Wikipédia, un système de redistribution des ressources financières entre plusieurs personnes publiques.[↩](#a1) 
 
-2. <large id=”f1”> Afin d'atténuer son message sur la réalité des enfers, Jean a tenu à préciser, dans un message communiqué le [19 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-19-1-jep-st-john/), que personne ne souffrira en enfer pour l'éternité.[↩](#a1)
+2. <large id=”f2”> Jean s'est exprimé sur la réalité des enfers le [19 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-19-1-jep-st-john/).[↩](#a2)
+
+3. <large id=”f3”> Afin d'atténuer son message sur la réalité des enfers, Jean a tenu à préciser, dans un message communiqué le [19 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-19-1-jep-st-john/), que personne ne souffrira en enfer pour l'éternité.[↩](#a3)
 
 Note : Ce message a été complété par Jésus le [08 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-8-1-jep-jesus/) afin d'expliquer les conditions requises afin que cette aide puisse être effective
 

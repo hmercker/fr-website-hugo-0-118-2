@@ -27,5 +27,17 @@ Je n’écrirai pas plus, je vous souhaite une bonne nuit.
 
 Votre frère en Christ, Platon.
 
-*Note :  Cinq autres personnalités historiques [Salomon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--6-27-3-jep-solomon/), [Socrate](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/), [Samuel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/), [Aaron](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-1-jep-aaron/), [Sarah](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah.md) partagent également leur progression vers les Cieux Célestes.*
+*Note :  Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Salomon | [La position de Salomon dans les Sphères Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-3-jep-solomon/) | 27 Juin 1915
+Socrate | [Socrate écrit sur son expérience de progression.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) | 08 Juillet 1915 
+Samuel  | [Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/) |   5 Août 1915
+Aaron   | [Aaron partage son expérience et ce qu’il sait maintenant de l’immortalité depuis que Jésus est venu et a enseigné comment l’obtenir.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-1-jep-aaron/) |  23 Octobre 1915
+Sarah   |[Sarah est maintenant chrétienne.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah/)  |  23 Octobre 1915
+
+
+
+
 

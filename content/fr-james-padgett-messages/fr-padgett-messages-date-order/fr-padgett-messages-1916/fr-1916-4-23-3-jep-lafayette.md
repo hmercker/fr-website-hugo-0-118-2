@@ -25,4 +25,12 @@ Oui, je suis toujours intéressé par la guerre, mais maintenant je n’ai plus 
 
 Je voudrais que cela soit demain, car alors le massacre, la mort et la misère qui en résulte cesseraient. Il y a tant d’esprits, arrivant de ces champs de bataille, qui sont tous impropres à la vie spirituelle et apparaissent dans une grande confusion, et lorsqu’ils réalisent qu’ils ne sont plus mortels, ils deviennent désorientés et misérables. Mais nous essayons de les aider. Nous n’avons pas d’ennemis et tous sont aidés de la même manière. Je ne vais pas écrire plus ce soir et en terminant je vous donne mon amour et je signe avec un nouveau nom, qui est, votre frère en Christ, Lafayette.
 
-*Note :  Quatre autres esprits [Thomas Paine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/),[George Whitefield](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/),[Hugh Latimer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/),  et [Samuel B. Soulthard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) ont témoigneé de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes..*
+*Note  : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.:*
+*Auteur** | **T
+
+Titre du message** | **Date du message**
+---|---|---
+Thomas Paine | [L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/) | 20 Juin 1915
+George Whitefield | [A changé ses fausses croyances qu’il a enseignées sur la terre et est maintenant dans le Ciel Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/)  | 08 Août 1915
+Hugh Latimer | [Hugh Latimer dans les Cieux Célestes. Ses croyances sur terre. Jésus vint et lui dit qu’il n’était pas Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/) | 13 Août 1915
+Samuel B. Soulthard | [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915

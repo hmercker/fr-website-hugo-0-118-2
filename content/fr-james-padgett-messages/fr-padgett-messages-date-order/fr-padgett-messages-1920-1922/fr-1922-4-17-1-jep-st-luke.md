@@ -44,4 +44,13 @@ Votre frère en Christ, Luc.
 
 1. <large id="f1"> La date de ce message est le 17 avril 1922, qui est seulement connue par référence au document manuscrit original.[↩](#a1)
 
-2. <large id="f2"> Il y a deux messages de Jésus sur l’immortalité. Le [premier est daté du 28 mai 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-28-1-jep-jesus/) et le [second du 2 juin 1920](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/).[↩](#a2)
+2. <large id="f2"> Il y a deux messages de Jésus et un message de Henry Ward Beecher sur l’immortalité.[↩](#a2) 
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Le sens de l'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-28-1-jep-jesus/) | 28 Mai 1915
+Henry Ward Beecher | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) | 05 Juillet 1915
+Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
+
+
+

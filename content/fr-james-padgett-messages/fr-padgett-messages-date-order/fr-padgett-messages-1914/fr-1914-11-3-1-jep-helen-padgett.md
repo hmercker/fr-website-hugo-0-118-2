@@ -27,7 +27,8 @@ Oui, il (le prédicateur) a tout faux et tu n’en tireras aucun bénéfice. Il 
 
 Oui, crois seulement davantage et tu recevras bientôt le don de l’esprit dans toute sa plénitude. Oui, tu le feras et ceux avec qui tu seras en contact le seront aussi. Donne au Seigneur tout ton cœur et toute ton âme et tu réaliseras bientôt la différence dans ta vie. Oui, elle le fait, elle est souvent avec toi et prie Dieu de te bénir.
 
-Elle dit, qu’elle est prête à assister une fois à une telle séance, mais qu’elle n’est pas bénéfique en général, car elle n’aide pas le développement spirituel de la personne, mais convainc seulement l’homme que l’esprit est un être vivant et peut revenir sur terre et se montrer sous une forme qui peut être matérialisée.
+Elle dit qu’elle est prête à assister une fois à une telle séance, mais qu’elle n’est pas bénéfique en général, car elle n’aide pas le développement spirituel de la personne, mais convainc seulement l’homme que l’esprit est un être vivant et peut revenir sur terre et se montrer sous une forme qui peut être matérialisée.
+
 La phase d’écriture est la plus satisfaisante car elle permet de préserver ce qui est dit et de communiquer d’une manière plus étendue et plus édifiante.
 
 Elle (Mme Kates) exprime son point de vue. Aucun esprit ne parle à travers elle. Elle voit les formes et les scènes qu’elle décrit et elle entend les voix des esprits qui lui parlent et elle ne fait que répéter ce qu’elle entend. Elle ne fait que répéter le langage qu’elle entend.

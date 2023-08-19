@@ -13,7 +13,7 @@ St Jérôme - reçu par James Padgett le 17 Août 1915, Washington, USA.
 
 Saint Jérôme.
 
-Je suis venu vous dire que je suis un habitant de ce Royaume que Samuel a si inadéquatement décrit, et c’est le Royaume de Jésus et, bien sûr, du Père.
+Je suis venu vous dire que je suis un habitant de ce Royaume que Samuel [a si inadéquatement décrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-17-1-jep-samuel/), et c’est le Royaume de Jésus et, bien sûr, du Père.
 
 Vous ne savez peut-être rien de moi, mais j’ai été canonisé, il y a plusieurs siècles, par l’église, parce qu’elle pensait que j’avais fait tant de bien à l’église par mes écrits et mes discours sur les sujets religieux. Mais je dois avouer maintenant que lorsque j’ai écrit, j’ai exprimé, comme vérités, beaucoup de points que je vois maintenant sont inexacts, et j’aimerais pouvoir corriger toutes ces erreurs dans mes écrits, mais je ne le peux pas.
 

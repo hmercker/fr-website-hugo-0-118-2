@@ -1,4 +1,4 @@
-[---
+---
 title: "Ce que les hommes peuvent faire pour supprimer la guerre et le mal des âmes des hommes. Jésus n’est jamais venu apporter une épée, mais apporter la paix par ses enseignements"
 menu_title: ""
 description: "Ce que les hommes peuvent faire pour supprimer la guerre et le mal des âmes des hommes. Jésus n’est jamais venu apporter une épée, mais apporter la paix par ses enseignements"

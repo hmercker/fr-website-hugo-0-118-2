@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La grand-mère de M. Padgett écrit sur l’importance de connaître le chemin au Ciel Céleste <sup id="a1">[1](#f1)</sup>
+### La grand-mère de M. Padgett écrit sur l’importance de connaître le chemin au Ciel Céleste 
 
 Anne Rollins - reçu par James Padgett le 12 Mars 1919, Washington, USA.
 
@@ -24,6 +24,3 @@ Ainsi, tu peux voir qu’un homme peut être apparemment dévot et rempli de zè
 Ne laisse pas tes désirs être uniquement intellectuels, mais essaie de mettre en pratique les désirs de l’âme, ne sois pas satisfaits jusqu’à ce qu’une réponse vienne, et elle viendra certainement, et tu sauras que l’Amour est présent, en train d’œuvrer. transformant le pouvoir sur l’âme. C’est tout ce que je désire dire ce soir. Je suis heureux que tu sois maintenant en condition de recevoir nos messages et j’espère que ton excellente condition perdurera. Avec tout mon amour je vais te souhaiter une bonne nuit.
 
 Ta propre grand-mère adorée, Anne Rollins.
-<small>
-
-1. <large id="f1"> Ce message est aussi publié dans le Volume III à la page 113. Pour plus de détails, consultez cette page  (lien non encore traduit).[↩](#a1)

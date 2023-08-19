@@ -9,6 +9,8 @@ weight: 400
 ---
 ## Suicide et suicide assisté
 
+*Source : Henning Mercker "https://wahrheitfuerdiewelt.de/"*
+
 ### 1. Suicide / (Suicide : Selbstmord)
 
 Définition :

@@ -13,11 +13,11 @@ Saleeba - reçu par James Padgett le 26 Octobre 1915, Washington, USA.
 
 C’est moi, Saleeba.
 
-Je suis beaucoup plus heureuse que lorsque je vous ai précédemment écrit, et je veux vous dire que l’Amour de Dieu dans mon âme est la cause de mon bonheur. Votre douce épouse fut souvent avec moi, me parlant de cet Amour et me montrant la voie à suivre pour le chercher, je l’ai crue et j’ai suivi son conseil, et en conséquence, j’ai énormément trouvé cet Amour. C’est un si grand créateur de bonheur – et j’en veux plus.
+Je suis beaucoup plus heureuse que lorsque [je vous ai précédemment écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/), et je veux vous dire que l’Amour de Dieu dans mon âme est la cause de mon bonheur. Votre douce épouse fut souvent avec moi, me parlant de cet Amour et me montrant la voie à suivre pour le chercher, je l’ai crue et j’ai suivi son conseil, et en conséquence, j’ai énormément trouvé cet Amour. C’est un si grand créateur de bonheur – et j’en veux plus.
 
 Je vis dans la troisième sphère parce que je trouve là beaucoup plus de cet Amour de l’âme que dans la sixième, et ce que je veux maintenant c’est cet Amour. Vous voyez donc que je ne peux pas vivre là où cet Amour n’est pas si abondant. Quand j’en obtiendrai davantage, je me rendrai à la sixième et je raconterai aux esprits qui y résident le bonheur que j’ai trouvé, et je tenterai de les persuader de le chercher également et je crois que beaucoup le feront.
 
-Je suis si heureuse d’avoir pu entrer par effraction dans votre écriture lorsque je l’ai fait car, si je ne l’avais pas fait, je n’aurais pas appris le chemin de cet Amour et de ce bonheur. Je vous considérerai toujours comme mon ami et mon frère, et je ferai tout ce qui est en mon pouvoir pour vous aider.
+Je suis si heureuse [d’avoir pu entrer par effraction](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-1-jep-saleeba/) dans votre écriture lorsque je l’ai fait car, si je ne l’avais pas fait, je n’aurais pas appris le chemin de cet Amour et de ce bonheur. Je vous considérerai toujours comme mon ami et mon frère, et je ferai tout ce qui est en mon pouvoir pour vous aider.
 
 Je n’ai encore trouvé aucune personne de ma race dans ces sphères de l’âme, mais il y en a peut-être quelques-unes. Mais si je peux l’accomplir, il y en aura quelques-unes dans ma sphère très bientôt.
 
@@ -37,11 +37,9 @@ Votre amie et sœur, Saleeba.
 
 *Note : Saleeba a commenté son expérience de progression par les messages suivants :*
 
-•	2 Juin 1915 : [Un ancien esprit de la sixième sphère recherche de l’aide](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1\fr-1915-6-2-1-jep-saleeba/).
-
-•	5 Juillet 1915 : [Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère].(/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-1-jep-saleeba/)
-
-•	8 Octobre 1915 : [Saleeba progresse vers les Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-3-jep-saleeba/).
-
-•	16 Octobre 1915 : [Saleeba partage sa progression dans l’obtention de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/).
-
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Saleeba | [Un ancien esprit de la sixième sphère recherche de l’aide.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-1-jep-saleeba/)  | 2 Juin 1915
+Saleeba |  [Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-1-jep-saleeba/) | 5 Juillet 1915
+Saleeba | [Saleeba progresse vers les Sphères Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-3-jep-saleeba/)   | 8 Octobre 1915
+Saleeba | [Saleeba partage sa progression dans l’obtention de l’Amour Divin.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/) | 16 Octobre 1915

@@ -29,13 +29,10 @@ Votre frère et ami, Jésus.
 
 *Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
 
-•	29 Août 1915 : [Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915/fr-1915-8-29-2-jep-jesus/).
-
-•	28 Décembre 1915 : [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/).
-
-•	16 Mai 1916 : [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/).
-
-•	06 Janvier 1918 : [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/).
-
-•	19 Septembre 2020 : [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/). 
-
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [– Conseils donnés par Jésus sur la participation au service religieux.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-2-jep-jesus/) |  29 Août 1915
+Jésus | [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/)  | 28 Décembre 1915
+Jésus | [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/)  | 16 Mai 1916 
+Jésus | [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin.](/fr-james-padgett-messages/fr-padg*ett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/) | 06 Janvier 1918
+Jésus | [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/)   | 19 Septembre 2020

@@ -11,6 +11,9 @@ weight:
 
 Flavius Josèphe - reçu par James Padgett le 8 Août 1915, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/eveil-spirituel2.jpg)
+
+
 Je suis Flavius Josèphe.
 
 Je suis l’historien Juif et maintenant Chrétien. Vous n’êtes pas un homme à laisser seul. Je veux dire que je dois partager ma connaissance des choses de ces temps anciens, car je vois que vous êtes choisis pour faire un grand travail et je veux contribuer à la vérité de la vie de Jésus sur terre. Il a vécu juste avant que j’écrive, mais j’avais entendu parler de lui plusieurs fois, et je sais qu’il a réellement existé. Dans mon histoire des Juifs, je l’ai mentionné, et quand les savants disent que ce récit le concernant est interprété, ils disent ce qui n’est pas vrai ; car il a vécu et enseigné en Palestine comme le rapporte le Nouveau Testament.

@@ -79,5 +79,9 @@ N’oubliez pas que mes promesses seront accomplies, vous devez avoir la foi. Je
 
 Bonne nuit et que Dieu vous bénisse, votre frère et ami, Jésus.
 
-*Note : Le [27 Juin 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-21-jep-jesus/) et Le [15 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-27-1-jep-jesus/), jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux.*
+*Note : jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux dans les messages suivants .*
+
+Jésus | [Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-21-jep-jesus/)  | 27 Juin 1916
+Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/)) | 15 Mai 1917
+
 

@@ -19,8 +19,7 @@ Tu es maintenant mon vrai Ned, et je t’aime tellement que je ne peux te parler
 
 Nous sommes tous très reconnaissants qu’il t’ait choisi pour ce travail, et lorsque tu t’y engageras, nous serons tous avec toi pour t’aider à entreprendre tout ce qui est possible pour toi de faire.
 
-Ta grand-mère est là et dit que tu dois essayer d’apprendre exactement ce que le Maître veut que tu fasses, et le faire de toutes tes forces.
-EIle t’aime tellement et est si heureuse que tu aies été choisie par Jésus pour faire ce travail qu’elle loue Dieu tout le temps et rend grâce pour son amour et sa faveur.
+Ta grand-mère est là et dit que tu dois essayer d’apprendre exactement ce que le Maître veut que tu fasses, et le faire de toutes tes forces. EIle t’aime tellement et est si heureuse que tu aies été choisie par Jésus pour faire ce travail qu’elle loue Dieu tout le temps et rend grâce pour son amour et sa faveur.
 
 Ne penses pas que tu ne peux pas faire ce qu’il te dira de faire, car tu peux le faire si tu veux seulement essayer. Mais tu dois avoir foi en ses enseignements et ne pas laisser les autres esprits ni aucun de tes amis sur terre te faire croire que Jésus ne t’écrit pas et ne te demande pas d’être son vrai disciple. Il est avec toi chaque fois que tu en as besoin et il t’aime d’un amour qui ne connaît aucune limite. Il est si saint et si pur que ce qu’il dit doit te convaincre que c’est lui qui t’écrit ; ne doute donc en aucun cas. Il dit que tu es son élu et que tu seras un grand homme pour enseigner à l’humanité ce qu’est la vérité et ce que l’amour de Dieu signifie pour toute l’humanité. Alors laisse-le t’enseigner et tu croiras.
 

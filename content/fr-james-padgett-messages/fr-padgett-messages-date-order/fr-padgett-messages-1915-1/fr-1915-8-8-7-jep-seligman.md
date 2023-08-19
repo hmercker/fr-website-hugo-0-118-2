@@ -11,7 +11,7 @@ weight:
 
 Selligman - reçu par James Padgett le 8 Août 1915, Washington, USA.
 
-Je suis Seligman. <sup id="a1">[1](#f1)</sup> Je suis un ex-sultan des Mohamétans (Musulmans).
+Je suis Seligman.<sup id="a1">[1](#f1)</sup> Je suis un ex-sultan des Mohamétans (Musulmans).
 
 Je n’ai pas connaissance du temps, mais (j’ai vécu) il y a environ quatre cents ans. Oui, je suis toujours un disciple du Prophète, et je suis dans notre paradis et heureux. Dieu est grand ! Allah est son nom et Mohammed est son prophète !
 

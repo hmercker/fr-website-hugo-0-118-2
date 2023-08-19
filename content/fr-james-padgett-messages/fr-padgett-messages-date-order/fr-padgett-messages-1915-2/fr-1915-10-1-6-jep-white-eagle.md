@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Étonnés par la merveilleuse gloire du Maître – Les Esprits ont été impressionnés par l’éclat et la magnificence de sa présence <sup id="a1">[1](#f1)</sup>
+### Étonnés par la merveilleuse gloire du Maître – Les Esprits ont été impressionnés par l’éclat et la magnificence de sa présence<sup id="a1">[1](#f1)</sup>
 
 Aigle blanc - reçu par James Padgett le 1 Octobre 1915, Washington, USA.
 
@@ -20,6 +20,7 @@ Je n’ai pas écrit depuis longtemps et je sens que je dois vous dire quelque c
 Ils ont été impressionnés par l’éclat et la magnificence de sa présence, et je crois que beaucoup d’entre eux deviendront Chrétiens.
 
 Il est ici et veut qu’on se souvienne de lui. Il est presque tout le temps avec vous afin de vous observer et de vous protéger. Il semble vous aimer tellement, et, depuis la nuit de la grande transformation, il est fier que vous soyez sa charge.
+
 Vous voyez, nous sommes tous les deux heureux de vous avoir pour notre attention particulière.
 
 Je suis presque tout le temps aussi avec vous, et je vous aime beaucoup.

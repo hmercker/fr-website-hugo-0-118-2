@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Barnabé dit que M. Padgett est le favori du Maître sur terre <sup id="a1">[1](#f1)</sup>
+### Barnabé dit que M. Padgett est le favori du Maître sur terre<sup id="a1">[1](#f1)</sup>
 
 St Barnabé - reçu par James Padgett le 30 Septembre 1915, Washington, USA.
 
@@ -20,4 +20,4 @@ Je n’écrirai pas plus.
 Je le suis, votre frère en Christ, Barnabé, l’Apôtre.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III.[↩](#a1)
+1. <large id="f1"> Ce message est également publié  dans le volume II, deuxième édition française, à la page 193 et dans le volume III à la  page 491. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

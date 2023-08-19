@@ -23,7 +23,7 @@ Une spéculation et un fait prouvé sont deux choses totalement différentes, ma
 
 Donc, je dis que, avant la venue de Jésus, l’immortalité n’avait pas été mise en lumière et n’aurait pas pu l’être, parce que pour l’humanité, elle n’existait pas.
 
-Je fus surpris quand j’ai appris le vrai sens du mot, comme les hommes le seront lorsqu’ils liront ou entendront cette communication. L’espoir de Socrate, de Platon ou de Pythagore était seulement un espoir fortifié par les raisonnements de grands esprits et complétés par beaucoup de développement des qualités de l’âme. Mais, lorsque tout est dit, c’était seulement un espoir – la connaissance manquait. Et même s’ils avaient compris que les esprits des hommes décédés revenaient et leur communiquaient qu’il n’y avait aucune telle chose comme la mort de l’esprit ou de l’âme ; ces expériences, cependant, ne leur prouvaient pas autre chose au-delà du fait que la vie continuait pour l’instant.
+Je fus surpris lorsque j’ai appris le vrai sens du mot, comme les hommes le seront lorsqu’ils liront ou entendront cette communication. L’espoir de Socrate, de Platon ou de Pythagore était seulement un espoir fortifié par les raisonnements de grands esprits et complétés par beaucoup de développement des qualités de l’âme. Mais, lorsque tout est dit, c’était seulement un espoir – la connaissance manquait. Et même s’ils avaient compris que les esprits des hommes décédés revenaient et leur communiquaient qu’il n’y avait aucune telle chose comme la mort de l’esprit ou de l’âme ; ces expériences, cependant, ne leur prouvaient pas autre chose au-delà du fait que la vie continuait pour l’instant.
 
 Comme le changement est la loi dans le monde des esprits, ainsi que sur la terre, ils ne pouvaient pas, de façon certaine, dire qu’il ne pourrait pas y avoir quelques changements dans le monde des esprits susceptibles de briser ou d’infirmer la continuité de l’existence.
 
@@ -43,7 +43,7 @@ Alors qu’ai-je appris sur l’immortalité depuis que je suis dans le monde de
 
 Seul le Père est immortel et seuls ceux à qui il donne ses attributs d’immortalité, peuvent, comme Lui, devenir immortels. L’amour est le grand principe de l’Immortalité, et j’entends par là l’Amour Divin du Père et non l’amour naturel de la créature ; et celui qui possède cet Amour Divin devient, en quelque sorte, une partie du Père lui-même et ses activités le rapprochent de celles du Père. En d’autres termes, un esprit qui possède cet Amour Divin devient une partie de la Divinité elle-même, et, par conséquent, Immortel, et il n’y aucune possibilité qu’il soit un jour privé de cet élément de la Divinité.
 
-Aucun esprit n’est immortel quand il y a aucune possibilité d’être privé de cette immortalité. Même Dieu lui-même, s’Il pouvait être privé de cette grande qualité, ne serait pas immortel. Et tout comme il est impossible de retirer du Père ce grand attribut, il est donc impossible pour l’esprit, une fois qu’il a obtenu cet Amour Divin du Père, de perdre son immortalité.
+Aucun esprit n’est immortel lorsqu'il y a aucune possibilité d’être privé de cette immortalité. Même Dieu lui-même, s’Il pouvait être privé de cette grande qualité, ne serait pas immortel. Et tout comme il est impossible de retirer du Père ce grand attribut, il est donc impossible pour l’esprit, une fois qu’il a obtenu cet Amour Divin du Père, de perdre son immortalité.
 
 Donc vous voyez, l’immortalité vient à l’esprit seulement avec la possession de l’Amour Divin, et que l’Amour n’est pas accordé à tout esprit, mais seulement à ceux qui le recherchent de la manière indiquée à l’humanité par Jésus.
 
@@ -57,4 +57,14 @@ Je ne pensais pas, en fait, écrire si longtemps, mais comme je suis enthousiast
 
 Donc merci pour votre patience, je vais arrêter maintenant. J’espère, cependant, avoir le privilège de pouvoir revenir et écrire. Avec mes salutations, je suis
 
-Très cordialement, Henry Ward Beecher.
+Très cordialement, Henry Ward Beecher.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> Il y a trois autres messages communiqués respctivement par jésus et St Luc sur l’immortalité.[↩](#a1) 
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Le sens de l'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-28-1-jep-jesus/) | 28 Mai 1915
+Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
+St Luc | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
+

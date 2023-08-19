@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Dans un autre message commun, Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs <sup id="a1">[1](#f1)</sup>
+### Dans un autre message commun, Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs<sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett & Mary Kennedy - reçu par James Padgett le 15 Décembre 1915, Washington, USA.
 
@@ -22,6 +22,7 @@ Eh bien, Leslie, ne la crois pas, car tu sais que je t’aime, et elle est seule
 *[Maintenant, Hélène :]*
 
 Oui, docteur, je plaisantais, car de toutes les filles malades que j’ai vues, je ne pense pas en avoir jamais vu une aussi malade que votre Mary. Maintenant, elle dit que je ne dois pas dire cela, alors vous voyez que je ne peux pas lui plaire. Allons, Mary, avais-je raison lorsque je lui ai dit que vous le tromperiez, ou lorsque j’ai dit que vous étiez malade d’amour ? Eh bien, je ne le tromperai pas, et je suppose que je n’aurai plus rien à dire.
+
 Vous voyez, docteur, elle reconnaît qu’elle est une petite fille malade d’amour et qu’elle n’est pas heureuse à moins qu’elle ne puisse vous le dire.
 
 Mais n’oubliez pas, docteur, qu’elle vous aime et que vous devriez être très reconnaissant d’avoir une âme sœur aussi belle et aussi aimante. Eh bien, mon chéri, je n’écrirai pas plus.

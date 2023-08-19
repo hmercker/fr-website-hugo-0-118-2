@@ -11,7 +11,7 @@ weight:
 
 St Jean - reçu par James Padgett le 8 Décembre 1916, Washington, USA.
 
-C’est moi, Saint-Jean, Apôtre de Jésus. Je désire terminer mes commentaires sur le sermon du prédicateur (Dr. Ratcliff) sur le ciel. [(Message du 19 Novembre)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-19-1-jep-st-john/).
+C’est moi, Saint-Jean, Apôtre de Jésus. Je désire terminer mes commentaires sur le sermon du prédicateur (Dr. Ratcliff) sur le ciel. [Message du 19 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-19-1-jep-st-john/).
 
 Comme je le disais, ces écrits apocalyptiques (livre de l’Apocalypse) ont été faits aux fins d’encourager les gens de l’époque de croire que Dieu interviendrait en leur faveur et les délivreraient de leurs souffrances et des persécutions. Dans un cas il était question d’établir un Royaume du Messie sur la terre qui permettrait aux Juifs de devenir la nation régnante de l’univers et, dans l’autre, d’établir un Royaume dans les cieux, où les Chrétiens pourraient trouver le repos et le bonheur et devenir des habitants de ce Royaume, les enfants du Père et les participants à la gloire du règne de Christ comme roi et prêtre. Eh bien, comme le sujet du sermon était ce Royaume ou le Ciel et que le prédicateur s’est efforcé de dire à son peuple ce qu’est le ciel, je vais examiner ce sujet.
 

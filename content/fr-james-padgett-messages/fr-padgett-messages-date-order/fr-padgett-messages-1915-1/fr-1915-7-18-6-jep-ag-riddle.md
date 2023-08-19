@@ -13,7 +13,7 @@ Albert Riddle - reçu par James Padgett le 18 Juillet 1915, Washington, USA.
 
 C’est moi, ton ancien partenaire.
 
-Pourquoi, Padgett, un tel témoignage comme celui qui aurait présenté au tribunal tout fait que toi ou moi aurions pu avancer. Réfléchis un instant. Voici des témoins de la plus haute moralité, avec la connaissance et l’opportunité d’une connaissance qui ne peut être contestée, l’un identifiant l’autre, et tous témoignant de la manière la plus positive sur ce fait particulier.
+Padgett, un tel témoignage aurait permis d'établir devant le tribunal tout ce que nous aurions pu affirmer, vous et moi.Réfléchis un instant. Voici des témoins de la plus haute moralité, avec la connaissance et l’opportunité d’une connaissance qui ne peut être contestée, l’un identifiant l’autre, et tous témoignant de la manière la plus positive sur ce fait particulier.
 
 Qui peut dire qu’il y a une possibilité d’erreur ? Jamais dans le monde un fait n’a été prouvé de manière aussi concluante, et si tu doutes que tu as été sélectionné pour cette grande œuvre, je ne peux pas comprendre le fonctionnement de ton esprit.
 

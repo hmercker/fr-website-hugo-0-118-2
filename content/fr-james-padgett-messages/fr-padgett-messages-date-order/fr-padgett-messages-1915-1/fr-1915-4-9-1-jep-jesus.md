@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### Message personnel. l’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père <sup id="a1">[1](#f1)</sup>
+### Message personnel. l’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père<sup id=”a1”>[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 9 Avril 1915, Washington, USA.
 
 C’est moi, Jésus.
 
-Oui, je le suis, et vous serez en mesure de comprendre pleinement ce qu’est l’Esprit Saint, et quel sens devrait lui être donné alors que vous le trouvez mentionné dans diverses parties de la Bible. Je dirai cependant que ce n'est pas Dieu ni aucune partie de Lui. C’est simplement un de Ses instruments qu’il utilise pour accomplir son œuvre de rédemption de l’humanité. Je n’écrirai pas de message ce soir, mais je commencerai la semaine prochaine, si vous êtes en meilleure condition.
+Oui, je le suis, et vous serez en mesure de comprendre pleinement ce qu’est l’Esprit Saint, et quel sens devrait lui être donné alors que vous le trouvez mentionné dans diverses parties de la Bible. Je dirai cependant qu'il n'est pas Dieu ni aucune partie de Lui. C’est simplement un de Ses instruments qu’il utilise pour accomplir son œuvre de rédemption de l’humanité. Je n’écrirai pas de message ce soir, mais je commencerai la semaine prochaine, si vous êtes en meilleure condition.
 
 Eh bien, comme vous me croyez lorsque je dis être un fils de Dieu, et non pas un Dieu, vous pouvez facilement croire que ma venue vers vous n’est pas absolument pas contraire à aucune loi du monde des esprits. Le fait que j’ai ma maison dans le Ciel Céleste le plus élevé ne m’empêche pas de venir sur terre pour faire mon travail, lequel n’a pas été accompli par ceux qui, sur la terre, auraient dû l’accomplir. Je suis un esprit d’amour et de sympathie, ainsi que d’un grand développement spirituel, et je désire que tous les hommes sachent quel est le grand dessein du Père pour leur rédemption et leur bonheur.
 
@@ -28,4 +28,6 @@ Alors, comme nous avons écrit un peu longuement ce soir, je vais m’arrêter m
 Je suis votre frère aimant, Jésus.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III.[↩](#a1)
+1. <large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 59 et dans le volume III à la page 96. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
+
+

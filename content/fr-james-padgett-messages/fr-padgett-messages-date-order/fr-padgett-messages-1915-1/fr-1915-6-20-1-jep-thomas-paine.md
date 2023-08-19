@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances
+### L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances<sup id="a1">[1](#f1)</sup>
 
 Thomas Paine - reçu par James Padgett le 20 Juin 1915, Washington, USA.
 
-C’est moi, Thomas Paine. <sup id="a1">[1](#f1)</sup>
+C’est moi, Thomas Paine. 
 
 Au moment de ma mort, je ne croyais pas en Jésus comme le fils de Dieu ou comme son messager envoyé pour montrer au monde que le Père lui avait réoctroyé son Amour Divin, l’Immortalité et la façon de l’obtenir. Mais, maintenant, je crois au maximum ces vérités et je suis un disciple de Jésus et le possesseur de l’Amour Divin.
 
@@ -23,17 +23,24 @@ J’ai trouvé la vérité de cette grande loi dans ma propre expérience, et j�
 
 Je n’ai pas le temps ce soir d’expliquer plus en détail ces principes, mais j’en aurai l’occasion à l’avenir, et je serai heureux de le faire. Christ a été et est [le Chemin, la Vérité et la Vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/).
 
-Je suis dans la première sphère Céleste et mon nom est Thomas Paine, l’infidèle comme je fus appelé. J’ai cru en Dieu, mais seulement en Dieu. Jésus n’a jamais été Dieu pour moi et ne l’est pas maintenant. Et il ne prétend pas être Dieu maintenant. Donc, vous voyez, même le soi disant infidèle a pu découvrir la Vérité et l’Amour du Père, même après avoir quitté le plan matériel et être devenu un habitant du monde spirituel.
+Je suis dans la première sphère Céleste et mon nom est Thomas Paine,<sup id=”a2”>[2](#f2)</sup> l’infidèle comme je fus appelé. J’ai cru en Dieu, mais seulement en Dieu. Jésus n’a jamais été Dieu pour moi et ne l’est pas maintenant. Et il ne prétend pas être Dieu maintenant. Donc, vous voyez, même le soi disant infidèle a pu découvrir la Vérité et l’Amour du Père, même après avoir quitté le plan matériel et être devenu un habitant du monde spirituel.<sup id=”a3”>[3](#f3)</sup>
 
-Donc, mon cher frère, je vais vous dire bonne nuit et que Dieu soit avec vous, Thomas Paine.
-
-*Note : Dans le Volume I ce message est daté du mois de Juillet, et non du mois de Juin, mais la Tablette indique le mois de Juin, ce qui apparaît la date plus probable.*
-
-*Ce message est aussi publié dans le Volume III à la page 358. Pour plus de détails, consultez cette page (lien non traduit)*
-
-*Un message plus récent de Thomas Paine a été communiqué le [16 Mars 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/).
+Donc, mon cher frère, je vais vous dire bonne nuit et que Dieu soit avec vous, Thomas Paine.<sup id=”a4”>[4](#f4)</sup>
 <small>
 
-1. <large id="f1"> **Thomas Paine** (9 Février 1737 – 8 Juin 1809) était un activiste politique, philosophe, théoricien politique et révolutionnaire anglo-américain. L’un des pères fondateurs des États-Unis d’Amérique, il est l’auteur des plus influentes brochures du début de la Révolution Américaine, et il a inspiré les rebelles, en 1776, de déclarer l’indépendance de la Grande-Bretagne. Ses idées ont reflété la rhétorique de l’ère des lumières des droits de l’homme transnationaux. Il a été appelé « un corsetier par le commerce, un journaliste par profession et un propagandiste par inclination ».[↩](#a1)
+1. <large id="f1">  Ce message est aussi publié dans le Volume I, 2ème édition française, à la page 380 et dans le volume III à la page 455. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
-*Note :  Quatre autres esprits [George Whitefield](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/),[Hugh Latimer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/),[Samuel B. Soulthard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) et [Lafayette](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.*
+2. <large id="f2"> *Un message plus récent de Thomas Paine a été communiqué le [16 Mars 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/).[↩](#a2)
+
+
+3. <large id="f3"> **Thomas Paine** (9 Février 1737 – 8 Juin 1809) était un activiste politique, philosophe, théoricien politique et révolutionnaire anglo-américain. L’un des pères fondateurs des États-Unis d’Amérique, il est l’auteur des plus influentes brochures du début de la Révolution Américaine, et il a inspiré les rebelles, en 1776, de déclarer l’indépendance de la Grande-Bretagne. Ses idées ont reflété la rhétorique de l’ère des lumières des droits de l’homme transnationaux. Il a été appelé « un corsetier par le commerce, un journaliste par profession et un propagandiste par inclination ».
+
+4. <large id="f4"> Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes. :*[↩](#a4)
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+George Whitefield | [A changé ses fausses croyances qu’il a enseignées sur la terre et est maintenant dans le Ciel Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/)  | 08 Août 1915
+Hugh Latimer | [Hugh Latimer dans les Cieux Célestes. Ses croyances sur terre. Jésus vint et lui dit qu’il n’était pas Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/) | 13 Août 1915
+Samuel B. Soulthard | [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
+Lafayette | [Relate son changement d’attitude envers les allemands.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) | 23 Avril 1916
+

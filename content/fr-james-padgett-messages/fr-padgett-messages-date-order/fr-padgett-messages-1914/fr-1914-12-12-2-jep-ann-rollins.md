@@ -25,9 +25,9 @@ Continue à prier, car c’est le seul grand moyen de recevoir l’Amour de Dieu
 
 L’Amour de Dieu ne peut pas être défini, car il dépasse toute compréhension, mais le résultat de cet Amour, lorsqu’il est dans l’âme des hommes, peut être vu, et ressenti, dans l’immense beauté des visages des hommes, et dans leur bonheur merveilleux.
 
-Aucune peur de la mort ou de quoi que ce soit d’effrayant ne peut exister où se trouve cet Amour. Ce n’est pas l’Amour qui permet à tout sentiment de jalousie ou d’envie d’avoir un accès, mais il est si parfait et remplisseur de toute âme qu’il ne peut y avoir de place pour aucune autre chose que son grand soi. Je sais que l’Amour de Dieu est la seule chose qui peut rendre l’homme suprêmement heureux sur terre et après qu’il soit devenu un esprit.
+Aucune peur de la mort ou de quoi que ce soit d’effrayant ne peut exister où se trouve cet Amour. Ce n’est pas l’Amour qui permet à tout sentiment de jalousie ou d’envie d’avoir un accès, mais il est si parfait et il remplit tellement toute âme qu’il ne peut y avoir de place pour aucune autre chose que son grand soi. Je sais que l’Amour de Dieu est la seule chose qui peut rendre l’homme suprêmement heureux sur terre et après qu’il soit devenu un esprit.
 
-Mon amour pour Lui est tel que j’aime chacune de Ses créatures, qu’elles soient saintes ou pécheresses. C’est la différence entre l’amour qu’Il inspire à ses enfants et l’amour qui existe entre les hommes et les esprits lorsque Son Amour n’en est pas le fondement. Sois certain qu’aucun homme ne peut être parfaitement heureux sans cet Amour Divin.
+Mon amour pour Lui est tel que j’aime chacune de Ses créatures, qu’elles soient saintes ou pécheresses. C’est la différence entre l’amour qu’Il inspire à Ses enfants et l’amour qui existe entre les hommes et les esprits lorsque Son Amour n’en est pas le fondement. Sois certain qu’aucun homme ne peut être parfaitement heureux sans cet Amour Divin.
 
 Ta femme progresse très rapidement sur le Chemin vers ce parfait Amour, et je pense qu’en peu de temps elle me rejoindra dans ma sphère, car elle ne laissera rien s’interposer entre elle et ses efforts pour posséder la plus grande quantité de cet Amour qu’il est possible d’obtenir.
 
@@ -39,7 +39,7 @@ Laisse la parler de son amour pour toi, et tu devras croire ce qu’elle te dit,
 
 Mais alors qu’elle t’aime si intensément, son amour pour Dieu n’est absolument pas amoindri ou perturbé car, tout comme elle investit toute son âme dans son amour pour toi, elle le consacre aussi à aimer Dieu. Et lorsque tu viendras tu trouveras, dans son cœur, un tel amour pour toi, comme nous le voyons rarement dans la vie spirituelle pour nos âmes sœurs.
 
-Mais tu ne dois pas penser que nous n’aimons pas intensément car l’amour que tous nous avons pour nos âmes sœurs est très grand et profond comme je dois te le dire, mais elle semble presque épuisée par cet amour pour toi, et tu ne dois jamais faire quoi que ce soit pour la blesser ou lui faire sentir que tu ne la veux pas ou que tu ne la méritez pas.
+Mais tu ne dois pas penser que nous n’aimons pas intensément car l’amour que tous nous avons pour nos âmes sœurs est très grand et profond comme je dois te le dire, mais elle semble presque épuisée par cet amour pour toi, et tu ne dois jamais faire quoi que ce soit pour la blesser ou lui faire sentir que tu ne la veux pas ou que tu ne la mérites pas.
 
 Mon cher garçon, nous devons arrêter d’écrire maintenant car tu n’es pas en condition d’écrire plus. Alors je te vais te dire bonne nuit et que Dieu te bénisse et te garde dans Son Amour et Sa sollicitude.
 

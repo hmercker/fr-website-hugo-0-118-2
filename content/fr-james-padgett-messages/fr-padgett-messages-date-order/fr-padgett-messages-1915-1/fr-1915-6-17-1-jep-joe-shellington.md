@@ -13,7 +13,7 @@ Joe Shellington - reçu par James Padgett le 17 Juin 1915, Washington, USA.
 
 Je suis, Joe Shellington.
 
-Je suis heureux de pouvoir t’écrire, et de te faire savoir que je suis au pays des vivants. J’ai attendu longtemps pour t’écrire mais, comme ton groupe ne voulait pas consentir à ce que je t’ écrive, j’ai dû attendre que cela leur convienne, ainsi qu’à toi.
+Je suis heureux de pouvoir t’écrire, et de te faire savoir que je suis au pays des vivants. J’ai attendu longtemps pour t’écrire mais, comme ton groupe ne voulait pas consentir à ce que je t’écrive, j’ai dû attendre que cela leur convienne, ainsi qu’à toi.
 
 Je suis dans un état de semi-obscurité et je souffre quelque peu des souvenirs de ma vie sur terre cependant, grâce à ta femme, je commence à voir la lumière et à apprendre le chemin qui me permettra de sortir de mes souffrances.
 
@@ -40,8 +40,9 @@ Je n’étais pas heureux et je souffrais beaucoup de mes souvenirs de ma vie te
 Eh bien, j’apprends maintenant à prier Dieu et à croire en Son Amour, et plus je prie et plus ma croyance devient forte, plus je vois de la lumière et moins je souffre. Ta femme est venue me voir à peu près au moment où je t’ai parlé chez le médium, et a essayé de m’aider, elle a été souvent avec moi depuis, et m’a beaucoup aidé. Elle est un bel esprit et semble remplie de l’amour de Dieu, comme elle le dit.
 
 Je cherche donc cet Amour, et je crois que j’en aurai bientôt assez pour sortir de ma condition actuelle. Je te remercie beaucoup pour cette opportunité, et quand cela sera agréable, je reviendrai t’écrire.
+
 Je ne prendrai pas plus de ton temps ce soir.
 
-Je ‘adresse donc mes salutations les plus chaleureuses et mes remerciements les plus sincères.
+Je t‘adresse donc mes salutations les plus chaleureuses et mes remerciements les plus sincères.
 
 Ton vieil ami, Joe Shellington.

@@ -20,19 +20,19 @@ Je vais maintenant te parler de l'amour que le Seigneur (Jésus) a pour toute l'
 
 #### L'homme ne crée pas l'Amour Divin
 
-L'homme ne peut pas créer cet amour à partir de lui-même. Il peut le laisser entrer dans son cœur, le faire grandir et être ainsi encore plus saisi par lui ; mais il ne viendra pas de son propre pouvoir de création. Son cœur n'est pas dans un état tel que cet amour jaillisse spontanément, il ne peut pas non plus provoquer son apparition par le simple effort de le créer. Il ne peut le recevoir que d'une source supérieure, et cette source est le Père divin. Aucun être humain n'est assez bon pour que cet amour naisse de lui, tout comme la vie ne peut pas naître de sa propre volonté ou de ses efforts. En ce qui concerne ce principe d'amour, comme on l'appelle, il ne s'agit pas de l'amour naturel d'un homme pour Dieu ou pour ses semblables, mais de l'Amour de Dieu qui se déverse dans le cœur d'un homme en réponse à une prière adressée au Père.
+L'homme ne peut pas créer cet amour à partir de lui-même. Il peut le laisser entrer dans son cœur, le faire grandir et être ainsi encore plus saisi par lui ; mais il ne viendra pas de son propre pouvoir de création. Son cœur n'est pas dans un état tel que cet amour jaillisse spontanément, il ne peut pas non plus provoquer son apparition par le simple effort de le créer. Il ne peut le recevoir que d'une source supérieure, et cette source est le Père Divin. Aucun être humain n'est assez bon pour que cet amour naisse de lui, tout comme la vie ne peut pas naître de sa propre volonté ou de ses efforts. En ce qui concerne ce principe d'amour, comme on l'appelle, il ne s'agit pas de l'amour naturel d'un homme pour Dieu ou pour ses semblables, mais de l'Amour de Dieu qui se déverse dans le cœur d'un homme en réponse à une prière adressée au Père.
 
 *[Hélène - 9 Janvier 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-9-1-jep-helen-padgett-rose/)*
 
 #### Tu peux devenir libre du péché et de l'erreur
 
-Je ne suis que le fils de mon père, tout comme toi, et bien que j'aie toujours été exempt de péché et de conceptions erronées en ce qui concerne la vision de la véritable relation de mon père avec l'humanité, tu es aussi Son fils. Et si tu pries le père avec sincérité et foi, tu deviendras aussi exempt de péché et d'erreur que je l'étais alors et que je le suis maintenant.
+Je ne suis que le fils de mon père, tout comme vous, et bien que j'aie toujours été exempt de péché et de conceptions erronées en ce qui concerne la vision de la véritable relation de mon père avec l'humanité, vous êtes aussi Son fils. Et si vous priez le père avec sincérité et foi, vous deviendrez aussi exempt de péché et d'erreur que je l'étais alors et que je le suis maintenant.
 
 Aucun homme ne peut se tourner vers l'Amour du Père s'il ne naît pas de nouveau. C'est la grande vérité fondamentale que les hommes doivent reconnaître et croire, car sans cette Nouvelle Naissance, les hommes ne peuvent pas participer à cette essence divine de l'Amour de Dieu qui, lorsqu'elle s'empare d'un homme, le rend uni au Père. Cet Amour vient à l'homme par l'influence de l'Esprit Saint, qui fait en sorte que cet Amour s'infiltre dans le cœur et l'âme et les remplisse, de sorte que tout péché et toute vision erronée qui les rend malheureux doivent être éradiqués.
 
-Ne laisse aucun homme croire qu'il peut atteindre cette unité avec le Père par un quelconque effort personnel, car il ne le peut pas. Aucun fleuve ne peut s'élever plus haut que sa source ; et aucun homme qui ne dispose que de l'amour naturel et qui est plein de conceptions erronées ne peut, par sa propre force, faire en sorte que cet amour naturel participe au divin ou que sa nature soit libérée d'un tel péché et d'une telle erreur.
+Ne laissez aucun homme croire qu'il peut atteindre cette unité avec le Père par un quelconque effort personnel, car il ne le peut pas. Aucun fleuve ne peut s'élever plus haut que sa source ; et aucun homme qui ne dispose que de l'amour naturel et qui est plein de conceptions erronées ne peut, par sa propre force, faire en sorte que cet amour naturel participe au divin ou que sa nature soit libérée d'un tel péché et d'une telle erreur.
 
-L'homme n'est qu'un être vivant et ne peut rien créer de plus élevé que lui-même, car on ne peut donc pas s'élever jusqu'à la nature du divin, à moins que le divin ne vienne d'abord en l'homme et ne fasse de lui une partie de sa propre divinité.
+L'homme n'est qu'un être vivant et ne peut rien créer de plus élevé que lui-même, car il n'est pas possible de  s'élever jusqu'à la nature du divin, à moins que le divin ne vienne d'abord en l'homme et ne fasse de lui une partie de sa propre divinité.
 
 *[Jésus - 24 Janvier 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-24-1-jep-jesus/)*
 
@@ -44,7 +44,7 @@ Que les gens sachent donc que cet Amour ne leur sera donné que s'ils ont un dé
 
 L'amour est la seule chose formidable dans l'économie de l'existence véritable de Dieu. Sans lui, tout serait chaos et malheur ; mais là où il existe, l'harmonie et la félicité existent aussi. Je dis cela parce que je sais par expérience que c'est vrai.
 
-Ne laisse pas les gens penser que Dieu est un dieu qui ne veut être adoré par les hommes qu'avec leurs prédispositions intellectuelles ; ce n'est pas vrai. Son Amour est la seule chose qui puisse les réunir à nouveau avec Lui.
+Ne laissez pas les gens penser que Dieu est un dieu qui ne veut être adoré par les hommes qu'avec leurs prédispositions intellectuelles ; ce n'est pas vrai. Son Amour est la seule chose qui puisse les réunir à nouveau avec Lui.
 
 Cet Amour n'est pas un amour qui fait partie de l'existence naturelle de l'homme ; l'amour que possèdent les hommes qui ne possèdent pas une partie de l'Amour Divin n'est pas suffisant pour les faire devenir un avec le Père ; cet amour n'est pas non plus de nature à leur permettre de visiter les sphères célestes et de devenir comme les anges, qui sont remplis de cet Amour Divin et qui font toujours la volonté du Père.
 
@@ -54,7 +54,7 @@ Cet Amour ne peut être trouvé que dans les âmes de ceux qui l'ont reçu par l
 
 #### Au-delà de la loi du talion
 
-Toi aussi, tu avances. Tu ne le remarques peut-être pas, mais c'est vrai, et si tu devais traverser maintenant, tu serais surpris de te retrouver dans une sphère élevée. Maintenant, je sais ce que tu ressens, mais tu dois croire que je peux voir ta condition spirituelle mieux que tu ne peux le faire.
+Toi aussi, tu avances. Tu ne le remarques peut-être pas, mais c'est vrai, et si tu devais "traverser" maintenant, tu serais surpris de te retrouver dans une sphère élevée. Maintenant, je sais ce que tu ressens, mais tu dois croire que je peux voir ta condition spirituelle mieux que tu ne peux le faire.
 
 Si tu reçois ce Grand Amour en abondance suffisante dans ton cœur, et tu en as déjà beaucoup, alors tes péchés seront effacés. C'est la loi du renouvellement ; sinon, l'homme qui continue sans cet amour et l'homme qui reçoit cet amour seraient dans le même état et la renaissance ne signifierait rien. Ne pense donc pas que ce grand amour ne suffise pas à purifier l'âme des conséquences des péchés terrestres, et le mieux est qu'il te purifie aussi pendant que tu es encore un mortel.
 
@@ -62,7 +62,7 @@ Il existe une loi supérieure qui annule la loi de la réparation. Lorsque l'amo
 
 Cet amour est disponible pour le pécheur le plus abject et aucun être humain ne peut se préparer à recevoir cet Amour Divin par un simple acte de réparation. Il est disponible aussi bien pour le pécheur que pour le saint ; et même si tes péchés étaient écarlates, ils seraient rendus aussi blancs que de la laine. Je veux dire par là que tu n'as pas besoin d'attendre la réparation des mortels pour que ce Grand Amour puisse commencer son travail de purification ; sinon, la question serait de savoir quel avantage ce Grand Amour représente pour l'homme ? S'il devait d'abord se purifier, à quoi servirait l’Esprit Saint ?
 
-Prie seulement pour cet Amour et aie foi en lui, et tu le recevras. Dieu est le juge de ce que l'homme doit faire pour être juste et dédommagé, et s'Il dit que cet Amour divin, avec toute sa puissance purificatrice, doit être mis à la disposition du pécheur qui le demande sur la base de la vraie foi, qui a le droit de dire que ce pécheur doit d'abord faire ce que les hommes peuvent penser être une justice entre lui et son prochain ?
+Prie seulement pour cet Amour et aie foi en lui, et tu le recevras. Dieu est le juge de ce que l'homme doit faire pour être juste et dédommagé, et s'Il dit que cet Amour Divin, avec toute sa puissance purificatrice, doit être mis à la disposition du pécheur qui le demande sur la base de la vraie foi, qui a le droit de dire que ce pécheur doit d'abord faire ce que les hommes peuvent penser être une justice entre lui et son prochain ?
 
 Crois-moi quand je te dis que même si tu es un grand pécheur, l'Amour du Père est suffisant pour enlever tout ce péché de toi dès que tu l'as reçu. Telle est la loi de ce grand Amour.
 
@@ -72,11 +72,11 @@ Crois-moi quand je te dis que même si tu es un grand pécheur, l'Amour du Père
 
 Il existe une autre loi dans le monde spirituel qui est d'une importance essentielle pour ceux qui vivent dans la vie mortelle et qu'ils peuvent apprendre, à savoir qu'aucun être humain ne peut se protéger par lui-même des punitions de la loi de compensation/réparation.  J'ai déjà écrit à ce sujet, mais il est d'une telle importance et concerne dans une certaine mesure tous les êtres humains qu'il me semble justifié d'en dire plus sur le sujet.
 
-La loi de la compensation/réparation est aussi établie que n'importe quelle autre loi de Dieu et on ne peut y échapper en aucune circonstance et dans aucune condition, sauf une : la rédemption de l'âme d'une personne par l'amour du Père, en l'infusant dans l'âme et en la faisant devenir une avec Lui et comme Lui dans toutes les qualités qui sont d'essence divine.
+La loi de la compensation/réparation est aussi établie que n'importe quelle autre loi de Dieu et on ne peut y échapper en aucune circonstance et dans aucune condition, sauf une : la rédemption de l'âme d'une personne par l'Amour du Père, en l'infusant dans l'âme et en la faisant devenir une avec Lui et comme Lui dans toutes les qualités qui sont d'essence divine.
 
 Je sais que beaucoup de gens ne croient pas qu'il puisse y avoir un pardon des péchés, parce qu'ils disent qu'il est impossible de purifier en un instant l'âme d'une personne qui, en tant que mortel, a été entièrement immergée dans tout ce qui est abominable et péché. Eh bien, je crois que c'est vrai et je ne pense pas que l'un de nos plus grands enseignants de ces vérités supérieures tenterait d'enseigner que la purification instantanée d'une âme abominable et pleine de péchés est possible, du moins ce n'est pas l'enseignement du plus grand de tous les enseignants, l'homme de Nazareth, que je rencontre de temps en temps et avec qui je m'entretiens, et je crois qu'il en sait plus que tous les autres enseignants réunis sur les lois qui concernent le salut des hommes.
 
-Ce qu'il enseigne ici, c'est que bien qu'une âme ne puisse pas être purifiée d'un seul coup en recevant une partie de l'amour divin, comme nous te l'avons déjà expliqué de temps en temps, l'infusion de cet amour dans l'âme d'une personne lui permet de commencer à penser de la bonne manière et l'amène à réaliser que son âme est ouverte à l'influence de l'amour divin. Il se trouve donc que les mortels, tout comme les esprits, peuvent recevoir cet éveil à la grâce divine dans une large mesure dès qu'ils réalisent que cet amour est la seule chose qui peut les sauver des sanctions de la loi d'équilibre.
+Ce qu'il enseigne ici, c'est que bien qu'une âme ne puisse pas être purifiée d'un seul coup en recevant une partie de l'Amour Divin, comme nous te l'avons déjà expliqué de temps en temps, l'infusion de cet amour dans l'âme d'une personne lui permet de commencer à penser de la bonne manière et l'amène à réaliser que son âme est ouverte à l'influence de l'Amour Divin. Il se trouve donc que les mortels, tout comme les esprits, peuvent recevoir cet éveil à la grâce divine dans une large mesure dès qu'ils réalisent que cet Amour est la seule chose qui peut les sauver des sanctions de la loi d'équilibre.
 
 *[Professeur Salyards - 3 Mai 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-3-1-jep-joseph-salyards/)*
 
@@ -96,7 +96,7 @@ Simplement, en tant que Jésus, je n’ai jamais affirmé, comme mentionné dans
 
 #### La naissance, la vie et le ministère de Jésus - 2e partie
 
-Lorsque j'ai été convaincu d'avoir été choisi par mon Père pour accomplir son œuvre d'explication au monde du don de son Grand Don d'Amour Divin, qui était dans Sa nature et qui représentait le principe le plus important de cette nature, j'ai commencé mon ministère et j'ai travaillé continuellement pour la rédemption de l'humanité sur terre jusqu'à ma mort sur la croix. Je n'étais pas alors aussi parfait que maintenant, et ma connaissance des vérités du Père n'était pas aussi grande que maintenant.
+Lorsque j'ai été convaincu d'avoir été choisi par mon Père pour accomplir son œuvre d'explication au monde de son Grand Don de l'Amour Divin, qui était dans Sa nature et qui représentait le principe le plus important de cette nature, j'ai commencé mon ministère et j'ai travaillé continuellement pour la rédemption de l'humanité sur terre jusqu'à ma mort sur la croix. Je n'étais pas alors aussi parfait que maintenant, et ma connaissance des vérités du Père n'était pas aussi grande que maintenant.
 
 Néanmoins, les gens doivent savoir que ce que j'ai enseigné est vrai, même si je n'ai pas enseigné toute la vérité, et qu'ils apprendront que je suis le vrai Fils de mon Père et le messager spécial par lequel ces Grandes Vérités doivent être enseignées à l'humanité. Lorsque je vivais sur terre, je n'étais pas aussi rempli de l'Amour du Père que maintenant, et je n'avais pas le pouvoir de faire sentir aux gens que cet amour est la seule chose qui peut les réconcilier avec le Père et les unir avec Lui, comme je le suis maintenant. Les gens doivent donc croire que je leur communique les vérités authentiques qui leur montrent le chemin vers l'Amour du Père et vers leur propre salut.
 
@@ -112,7 +112,7 @@ Aucun être spirituel, par le simple fait qu’il continue simplement à vivre d
 
 C'est pourquoi aucun être spirituel ne peut dire qu'il est immortel s'il ne participe pas à l'Essence Divine. Et avant la venue de Jésus, on ne peut dire d'aucun philosophe ou professeur de religion qu'il a mis en lumière l'immortalité.
 
-Seul le Père est immortel. Et seuls ceux à qui Il donne ses attributs d'immortalité peuvent devenir immortels comme Lui. Son amour est le grand principe de l'immortalité. J'entends par là l'Amour Divin du Père et non l'amour naturel de la créature. Et celui qui possède cet Amour Divin devient, en quelque sorte, une partie du Père lui-même et ses activités le rapprochent de celles du Père. En d’autres termes, un esprit qui possède cet Amour Divin devient une partie de la Divinité elle-même, et, par conséquent, Immortel, et il n’y aucune possibilité qu'il soit un jour privé de cet élément de la Divinité.
+Seul le Père est immortel. Et seuls ceux à qui Il donne Ses attributs d'immortalité peuvent devenir immortels comme Lui. Son amour est le grand principe de l'immortalité. J'entends par là l'Amour Divin du Père et non l'amour naturel de la créature. Et celui qui possède cet Amour Divin devient, en quelque sorte, une partie du Père lui-même et ses activités le rapprochent de celles du Père. En d’autres termes, un esprit qui possède cet Amour Divin devient une partie de la Divinité elle-même, et, par conséquent, Immortel, et il n’y aucune possibilité qu'il soit un jour privé de cet élément de la Divinité.
 
 Vous voyez donc que l'immortalité ne vient à un être spirituel qu'avec la possession de l'Amour Divin ; et cet amour n'est pas accordé à tout être spirituel, mais seulement à ceux qui le recherchent sur le chemin que Jésus a montré à l'humanité.
 

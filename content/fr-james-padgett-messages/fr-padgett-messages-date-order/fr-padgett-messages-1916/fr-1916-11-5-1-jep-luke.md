@@ -54,7 +54,17 @@ Votre frère en Christ, Luc.<sup id="a4">[4](#f4)</sup>
 
 2. <large id="f2"> L’Ego semble ici vouloir dire le « vrai individu ». Là où le mot ego (le moi) est employé ici concernant le Père, Luc clarifie rapidement qu’il ne contient aucun attribut négatif, comme il le serait de nos jours associé au mot ego. L’ego (le moi) aujourd’hui est typiquement considéré comme la construction mentale qu’une personne a d’elle-même, et est la création qu’elle a provoquée en raison de ses  expériences de la vie. Ainsi nous disons souvent que ce n’est pas la « vraie » personne.[↩](#a2)
 
-3. <large id="f3"> Cette définition de l’ego ne semble pas s’aligner avec la pensée moderne, ni avec les messages contemporains. Je suppose que parce que l’âme donne lieu à la création du mental matériel lors de l’incarnation, l’âme pouvait être considérée le créateur et l’hôte de l’ego. Mais je crois comprendre que ce que nous entendons par ego à l’époque moderne réside dans le mental matériel. Ceci projette certainement la personnalité de l’âme dans le monde matériel, mais le mental matériel peut également créer sa propre vision de son monde et même créer des aspects de la personnalité qui n’existent pas dans l’âme, comme la peur, la haine, la bigoterie, la cupidité, etc..[↩](#a3)
+3. <large id="f3"> Cette définition de l’ego ne semble pas s’aligner avec la pensée moderne, ni avec les messages contemporains. Je suppose que parce que l’âme donne lieu à la création du mental matériel lors de l’incarnation, l’âme pouvait être considérée le créateur et l’hôte de l’ego. Mais je crois comprendre que ce que nous entendons par ego à l’époque moderne réside dans le mental matériel. Ceci projette certainement la personnalité de l’âme dans le monde matériel, mais le mental matériel peut également créer sa propre vision de son monde et même créer des aspects de la personnalité qui n’existent pas dans l’âme, comme la peur, la haine, la bigoterie, la cupidité, etc.[↩](#a3)
 
-4. <large id="f4"> Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins le [15 Septembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins.md) et [11 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/), par Jésus le [06 Juin 1915](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915-1\fr-1915-6-6-1-jep-jesus/) et le [10 Mai 1920](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) et par Jean le [14 Juin 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/).[↩](#a4)
- 
+*Note : Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*
+
+*Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Anne Rollins | [le flot de l’Esprit de Dieu dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins/) | 15 Septembre 1914
+Anne Rollins | [Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/) | 11 Novembre 1914
+Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
+Jean | [Qu’est-ce que l’Esprit Saint et comment fonctionne-t-il ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/) | 14 Juin 1917
+Jésus|  | [Différence entre l’Esprit de Dieu et l’Esprit Saint.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
+
+
+

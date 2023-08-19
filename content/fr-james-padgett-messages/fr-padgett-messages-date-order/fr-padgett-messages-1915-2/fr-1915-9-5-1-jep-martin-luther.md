@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs <sup id="a1">[1](#f1)</sup>
+### Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs<sup id="a1">[1](#f1)</sup>
 
 Martin Luther - reçu par James Padgett le 5 Septembre 1915, Washington, USA.
 
@@ -19,7 +19,7 @@ La Bible telle qu’elle est maintenant écrite et telle que je l’ai traduite,
 
 Je sais maintenant qu’il n’y a aucune efficacité dans le sang de Jésus pour accomplir de tels résultats, et il est vraiment regrettable que beaucoup d’hommes le croient et, par conséquent, négligent la seule exigence vitale et importante nécessaire au salut, c’est-à-dire la Nouvelle Naissance. Elle seule sauve les hommes de leurs péchés et leur permet d’entrer dans le Royaume de Dieu, qui est le Royaume de Jésus, car il est le Prince de ce Royaume et son dirigeant.
 
-Jésus n’a jamais dit une telle chose, car il me l’a dit. Cette croyance selon laquelle son sang a été versé pour l’homme, n’est pas exacte. Il ne l’a jamais dit, pas plus qu’il n’a dit « buvez le vin », <sup id="a2">[2](#f2)</sup> étant son sang, en souvenir de lui, car le vin n’est pas son sang, et il ne représente rien qui ait à voir avec lui ou sa mission sur terre, ou son travail actuel dans le monde des esprits. Il est malheureux que cette croyance représente quelque chose qu’il n’a pas dit.
+Jésus n’a jamais dit une telle chose, car il me l’a dit. Cette croyance selon laquelle son sang a été versé pour l’homme, n’est pas exacte. Il ne l’a jamais dit, pas plus qu’il n’a dit [« buvez le vin »](https://saintebible.com/1_corinthians/11-25.htm), étant son sang, en souvenir de lui, car le vin n’est pas son sang, et il ne représente rien qui ait à voir avec lui ou sa mission sur terre, ou son travail actuel dans le monde des esprits. Il est malheureux que cette croyance représente quelque chose qu’il n’a pas dit.
 
 Donc, pour comprendre les vraies vérités de Dieu et la relation de l’homme avec Lui ainsi que Son plan de salut, vous devez croire ce que le Maître vous écrira et ce que ses apôtres pourront écrire, car maintenant ils comprennent ce qu’était sa vraie mission, et ce qu’il a essayé et prévu d’enseigner quand il était sur terre, et ce qu’il enseigne maintenant.
 
@@ -28,15 +28,14 @@ J’écrirai aussi parfois et je vous transmettrai le résultat de mes instructi
 Votre frère en Christ, Martin Luther.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume IV, deuxième édition anglaise de 2014, à la page 326.[↩](#a1)
-
-2. <large id="f2"> Vous pouvez lire cela dans le Nouveau Testament : 1 Corinthiens 11:25. (G.J.C).[↩](#a2)
+1. <large id="f1"> Ce message est également publié dans le volume II à la page 199 et dans le volume IV, à la page 391. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
 
 *Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
 
-•	19 Octobre 1915 : [Ce que l’homme devrait savoir afin d’éprouver les esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1915-2/fr-1915-10-19-1-jep-martin-luther/).
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Martin Luther | [Ce que l’homme devrait savoir afin d’éprouver les esprits.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-19-1-jep-martin-luther/)  | 19 Octobre 1915
+Martin Luther |  [Martin Luther sur les cérémonies religieuses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-29-1-jep-martin-luther/) | 29 Juin 1916
+Martin Luther | [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31-1-jep-martin-luther) | 31 Janvier 1917
 
-•	29 Juin 1916 : [Martin Luther sur les cérémonies religieuses](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-29-1-jep-martin-luther/).
-
-•	31 Janvier 1917 : [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31-1-jep-martin-luther).
 

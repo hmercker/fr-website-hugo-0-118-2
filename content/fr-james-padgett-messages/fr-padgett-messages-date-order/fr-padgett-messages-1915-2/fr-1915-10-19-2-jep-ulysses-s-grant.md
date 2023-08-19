@@ -11,7 +11,7 @@ weight:
 
 Ulysses S Grant - reçu par James Padgett le 19 Octobre 1915, Washington, USA.
 
-Je suis le général Grant. <sup id="a1">[1](#f1)</sup>
+Je suis le général Grant.<sup id="a1">[1](#f1)</sup>
 
 Je fus le président de votre pays ainsi que le général des armées fédérales.
 
@@ -36,4 +36,4 @@ Je vais maintenant vous souhaiter bonne nuit.
 Votre ami, U. S. Grant.
 <small>
 
-1. <large id="f1"> Ulysses S. Grant (né Hiram Ulysses Grant ; 27 avril 1822 – 23 juillet 1885) fut le 18e président des États-Unis (1869-77). En tant que commandant général (1864-1869), Ulysses Grant a travaillé en étroite collaboration avec le président Abraham Lincoln pour mener l’armée de l’Union à la victoire sur la Confédération pendant la guerre civile américaine. Il a mis en œuvre la Reconstruction du Congrès, souvent en désaccord avec le successeur de Lincoln, Andrew Johnson. Deux fois élu président, Ulysses Grant a dirigé les Républicains dans leurs efforts pour éliminer les vestiges du nationalisme Confédéré et de l’esclavage, protéger la citoyenneté afro-américaine et soutenir la prospérité économique dans tout le pays. Sa présidence a souvent été critiquée pour avoir protégé des associés corrompus et pour avoir conduit le pays dans une grave dépression économique au cours de son second mandat.[↩](#a1)
+1. <large id="f1"> **Ulysses S. Grant** (né Hiram Ulysses Grant ; 27 avril 1822 – 23 juillet 1885) fut le 18e président des États-Unis (1869-77). En tant que commandant général (1864-1869), Ulysses Grant a travaillé en étroite collaboration avec le président Abraham Lincoln pour mener l’armée de l’Union à la victoire sur la Confédération pendant la guerre civile américaine. Il a mis en œuvre la Reconstruction du Congrès, souvent en désaccord avec le successeur de Lincoln, Andrew Johnson. Deux fois élu président, Ulysses Grant a dirigé les Républicains dans leurs efforts pour éliminer les vestiges du nationalisme Confédéré et de l’esclavage, protéger la citoyenneté afro-américaine et soutenir la prospérité économique dans tout le pays. Sa présidence a souvent été critiquée pour avoir protégé des associés corrompus et pour avoir conduit le pays dans une grave dépression économique au cours de son second mandat.[↩](#a1)

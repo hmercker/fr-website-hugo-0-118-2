@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### N’était pas présent la nuit dernière quand l’esprit maléfique est venu <sup id="a1">[1](#f1)</sup>
+### N’était pas présent la nuit dernière quand l’esprit maléfique est venu<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 22 Décembre 1915, Washington, USA.
 

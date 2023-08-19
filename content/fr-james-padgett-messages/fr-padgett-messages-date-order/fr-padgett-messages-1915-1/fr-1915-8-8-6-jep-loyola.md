@@ -11,7 +11,7 @@ weight:
 
 Loyola - reçu par James Padgett le 8 Août 1915, Washington, USA.
 
-Je suis Loyola, <sup id="a1">[1](#f1)</sup> le Jésuite.
+Je suis Loyola,<sup id="a1">[1](#f1)</sup> le Jésuite.
 
 Oui, je suis un disciple du Maître mais un très faible. Je fus un persécuteur de ceux qui différaient de moi dans ma vision des choses et du devoir religieux et, par conséquent, j’ai causé la mort de beaucoup de vrais Chrétiens comme je vois la vérité. Et, sur terre, mes disciples ont maintenant, dans de nombreuses parties du monde, les mêmes sentiments amers à l’égard de tous ceux qui ne pensent pas comme eux sur les questions religieuses et, sans les lois des pays dans lesquels ils vivent, ils se comporteraient comme moi.
 
@@ -26,4 +26,4 @@ Je dis donc : cherchez la vérité telle qu’on peut la trouver dans les enseig
 Ainsi, avec tous mes vœux les plus chaleureux, je suis votre frère en Christ, le Jésuite.
 <small>
 
-1. <large id="f1"> Ignace de Loyola (vers le 27 octobre 1491 – 31 juillet 1556) était un chevalier espagnol d’une famille de famille noble basque locale, ermite, prêtre depuis 1537, et théologien, qui a fondé la Compagnie de Jésus (Jésuites) et, le 19 avril 1541, devint son premier Supérieur général. Ignace a émergé en tant que leader religieux pendant la Contre-Réforme. Le dévouement de Loyola à l’Église Catholique se caractérisait par une obéissance absolue au Pape. (Source : Wikipédia) (G.J.C.)[↩](#a1)
+1. <large id="f1"> **Ignace de Loyola** (vers le 27 octobre 1491 – 31 juillet 1556) était un chevalier espagnol d’une famille de famille noble basque locale, ermite, prêtre depuis 1537, et théologien, qui a fondé la Compagnie de Jésus (Jésuites) et, le 19 avril 1541, devint son premier Supérieur général. Ignace a émergé en tant que leader religieux pendant la Contre-Réforme. Le dévouement de Loyola à l’Église Catholique se caractérisait par une obéissance absolue au Pape. (Source : Wikipédia) (G.J.C.)[↩](#a1)

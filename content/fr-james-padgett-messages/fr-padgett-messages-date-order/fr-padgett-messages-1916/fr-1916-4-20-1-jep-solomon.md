@@ -23,4 +23,4 @@ Je pourrais écrire longtemps, mais je ne le dois pas car vous êtes fatigué. D
 
 Votre frère en Christ, Salomon.
 
-*Note : Il a été signalé par Joseph B, que la lecture attentive du message de Salomon indique que son titre ne devrait pas être « la plus grande chose », mais « la plus grande vérité. » Bien que cela puisse sembler insignifiant, je pense que cela est important. L’existence de l’Amour Divin n’est-elle pas « la plus grande Vérité ? »*
+****Note : Il a été signalé par Joseph B, que la lecture attentive du message de Salomon indique que son titre ne devrait pas être « la plus grande chose », mais « la plus grande vérité. » Bien que cela puisse sembler insignifiant, je pense que cela est important. L’existence de l’Amour Divin n’est-elle pas « la plus grande Vérité ? »***

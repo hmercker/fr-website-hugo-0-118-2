@@ -25,7 +25,7 @@ En examinant cette question, vous devez réaliser qu’il n’est pas très faci
 
 Eh bien, pour commencer, Dieu est âme et l’Âme est Dieu. Pas l’âme qui est dans l’homme créé, mais l’Âme Self-existante qui est la Divinité, sans commencement ni fin, et dont l’entité est le grand fait dans l’univers de l’être.
 
-Dieu est sans forme, comme il a été imaginé, par l’homme, dans presque tous les âges et surtout par ceux qui croient en la Bible des Hébreux aussi bien que dans celle des Chrétiens. Mais, néanmoins, Il a une forme, que seules les perceptions de l’âme d’un homme qui est arrivé à un certain degré de développement, qui hérite de la nature Divine du Père et devient ainsi une partie de l’âme de Dieu, peuvent discerner et réaliser en tant qu’entité. Il n’y a rien dans toute la nature dont les hommes sont familiers, ou ont la connaissance, qui peut être utilisé pour établir une comparaison, même dans les perceptions de l’esprit, avec cette Grande Âme; et donc, pour les hommes, concevoir Dieu comme ayant une forme ressemblant quelque peu à celle de l’homme, est complètement erronée ; et ceux qui, dans leurs croyances et leurs enseignements, nient le Dieu anthropomorphique <sup id="a1">[1](#f1)</sup>, sont corrects.
+Dieu est sans forme, comme il a été imaginé, par l’homme, dans presque tous les âges et surtout par ceux qui croient en la Bible des Hébreux aussi bien que dans celle des Chrétiens. Mais, néanmoins, Il a une forme, que seules les perceptions de l’âme d’un homme qui est arrivé à un certain degré de développement, qui hérite de la nature Divine du Père et devient ainsi une partie de l’âme de Dieu, peuvent discerner et réaliser en tant qu’entité. Il n’y a rien dans toute la nature dont les hommes sont familiers, ou ont la connaissance, qui peut être utilisé pour établir une comparaison, même dans les perceptions de l’esprit, avec cette Grande Âme; et donc, pour les hommes, concevoir Dieu comme ayant une forme ressemblant quelque peu à celle de l’homme, est complètement erronée ; et ceux qui, dans leurs croyances et leurs enseignements, nient le Dieu anthropomorphique<sup id="a1">[1](#f1)</sup>, sont corrects.
 
 Néanmoins, Dieu possède une certaine forme qui lui donne une entité, une Substance et une demeure, par opposition à ce Dieu qui, dans les enseignements de certains hommes, est censé être partout dans cette Substance et entité – dans les arbres et roches, le tonnerre et la foudre, chez les hommes et les bêtes et dans toutes les choses créées et chez qui les hommes sont censés vivre et se déplacer et avoir leur existence. Non, ce concept de Dieu n’est pas en accord avec la vérité, et il est essentiel, pour la connaissance et le salut des hommes, qu’une telle conception de Dieu ne soit pas entretenue ou crue.
 
@@ -62,10 +62,12 @@ Votre frère et ami, Jésus.
 
 *Note 2 : Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*
 
-•	Message du professeur Salyards du 21 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-21-1-jep-joseph-salyards/)
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Professeur Salyards | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-21-1-jep-joseph-salyards/)  | 21 Novembre 1915
+Jésus | [La personalité de Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/) | 22 Novembre 1915
+Luc | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/) | 22 Novembre 1915
+Anne Rollins | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/) |  18 Février 1916 
+Anne Rollins | [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/) | 25 Février 1916
 
-•	Message de Luc du 22 Novembre 1915 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/)
 
-•	Message d'Anne Rollins du 18 Février 1916 : [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/)
-
-•	Message d'Anne Rollins du 25 Février 1916 : [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/)

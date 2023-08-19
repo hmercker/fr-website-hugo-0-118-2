@@ -32,4 +32,4 @@ Je n’écrirai pas plus, mais je dirai que je suis à toi maintenant et pour to
 Ta vraie et affectueuse, Hélène.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le volume II et le volume III.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume II, première édition française, à la page 312 et dans le volume III à la page 154. Pour plus de détails, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#[↩](#a1)

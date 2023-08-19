@@ -11,7 +11,7 @@ weight: 70
 
 Mis à part les matérialistes pour lesquelles la vie ne continue pas après la mort, pour la plupart des religions la mort est perçue comme un passage plutôt qu’une fin : la séparation entre le corps et l’âme marquerait le départ de cette dernière pour le monde de l’au-delà. Les religions monothéistes en particulier affirment la survivance de l’âme après la mort.
 
-Cette survivance à la mort est devenue un sujet d’actualité à travers les innombrables témoignages de mort imminente, expériences au cours desquels « l’expérienceur » est déclaré « cliniquement mort » pendant un temps variable pendant lequel « l’expérienceur » déclare, à son réveil, avoir éprouvé un bonheur infini.
+Cette survivance à la mort est devenue un sujet d’actualité à travers les innombrables témoignages de mort imminente, expériences au cours desquels « l’expérienceur » est déclaré « cliniquement mort » pendant un temps variable tout en déclarant, à son réveil, avoir éprouvé un bonheur infini.
 
 Ces divers témoignages accentuent la croyance en une survivance après la mort et la finalité de l’âme dans l’amour.
 

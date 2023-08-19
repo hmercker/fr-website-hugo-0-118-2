@@ -29,7 +29,7 @@ Ainsi, lorsque nous prions le Père d’augmenter notre foi, c’est une prière
 
 Un jour, au fur et à mesure que vous progressez dans ces écrits, vous serez dans la condition de l’âme nécessaire à la compréhension exacte de ce qu’est la foi, mais jusqu’à ce moment, votre foi sera limitée par votre possession de cet Amour.
 
-Eh bien, dans ma guérison des malades, des aveugles et des autres de la terre qui avaient besoin d’un soin, quand j’ai dit : « Qu’il soit fait selon votre foi », je voulais dire qu’ils devaient croire que le Père avait le pouvoir de les guérir ; mais je ne voulais pas dire que si, dans leur esprit (mental), ils avaient simplement la conviction que je pourrais les guérir, alors ils seraient guéris. La croyance n’était pas suffisante, mais la foi était nécessaire.
+Eh bien, dans ma guérison des malades, des aveugles et des autres de la terre qui avaient besoin d’un soin, quand j’ai dit : *« Qu’il soit fait selon votre foi »*, je voulais dire qu’ils devaient croire que le Père avait le pouvoir de les guérir ; mais je ne voulais pas dire que si, dans leur esprit (mental), ils avaient simplement la conviction que je pourrais les guérir, alors ils seraient guéris. La croyance n’était pas suffisante, mais la foi était nécessaire.
 
 La foi n’est pas une chose qui peut être obtenue par un simple exercice de l’esprit (du mental), mais doit être recherchée avec les perceptions de l’âme, et lorsqu’elle est obtenue elle ne sera appréciée que par les perceptions de l’âme.
 

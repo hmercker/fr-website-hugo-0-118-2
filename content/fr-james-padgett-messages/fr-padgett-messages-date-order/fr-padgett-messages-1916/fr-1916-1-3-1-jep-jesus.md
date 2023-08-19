@@ -47,13 +47,3 @@ Eh bien, vous laissez le doute entrer dans votre esprit et, en conséquence, vot
 Donc, mon cher frère, je vais vous dire bonne nuit.
 
 Votre frère et ami, Jésus.
-
-*Remarque de Geoff Cutler, webmaster du site https://new-birth.net :*
-
-*Je pense que je dois apporter ici un commentaire personnel. Je sais qu’il y a ceux qui estiment que toute critique formulée à l’égard de l’œuvre de James Padgett risque de causer des dommages substantiels à la valeur de son travail et ils lèvent les mais au ciel dans l’horreur. Cependant, comme il est mentionné par ailleurs, je dois préciser que la médiumnité est une tâche difficile et que quiconque pense que James Padgett n’a pas commis d’erreurs au cours de ce processus est, à mon avis, éloigné de la vérité.*
-
-*D’après mon expérience, ce message est erroné. Je comprends que non seulement Lucifer était un ange qui a existé, mais qu’il était dans l’Administration Céleste de cette planète et de plusieurs autres. Je comprends aussi qu’il a choisi, à cause de l’orgueil, un chemin d’accès à l’iniquité et je comprends aussi qu’il n’existe plus, et, au temps où ce message a été enregistré, il était enfermé depuis près de 2 000 ans. Je fonde mes renseignements sur un autre esprit céleste que je connais, qui prétend avoir été un de ceux qui n’a pas été entraîné par les contre-vérités de Lucifer. Encore une fois, pour des raisons que je ne comprends pas, James Padgett ne fait pratiquement jamais référence aux « anges » et [laisse penser qu’ils n’ont aucune existence](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-18-7-jep-ann-rollins/). C’est, à mon avis, très loin de la vérité.*
-
-*Je désire toutefois préciser que j’accepte l’idée que les « diables » n’existent pas et n’ont jamais existé. Du moins dans le sens où il désignent une puissance maléfique égal au Créateur. Il semble aussi que les anges qui se rangèrent avec Lucifer se sont rendus coupables de mauvais jugement, plutôt que de pure mauvaise action. Il semble que Lucifer a simplement voulu faire les choses à sa manière, plutôt que de suivre la voie de Dieu. On notera que ce sujet est complètement hors de propos pour évaluer les Messages de Padgett et son explication de l’Amour Divin, qui est une révélation unique de la plus haute importance.*
-
-*Remarque du traducteur : les propos de Geoff Cutler sont liés, en grande partie, aux idées exprimées dans « le livre d’Urantia » cité, à plusieurs reprises, par les esprits célestes auteurs des messages écrits à travers James Padgett. Il convient de noter, qu’à de nombreuses reprises, les divers auteurs de messages se sont attachés à souligner la non existence d’une « divinité » pour les forces du mal. A chacun de se faire sa propre idée.*

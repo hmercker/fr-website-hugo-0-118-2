@@ -31,7 +31,7 @@ Et il y a une autre chose que je veux lui dire, c’est qu’il a aussi une âme
 
 Dites-lui que je reviendrai bientôt lui écrire, et plus en détail, mais ce soir, je suis si pleine d’amour et si reconnaissante de pouvoir le lui exprimer que je ne peux penser à rien d’autre. L’Amour, l’Amour, l’Amour est le fardeau de mon message ce soir et il doit penser et apprendre et savoir que l’amour de sa mère, l’amour de son âme-sœur et l’Amour Divin du Père sont les trois plus grandes choses dans tout l’univers de Dieu, mais dans leur importance inverse.
 
-Je dois m’arrêter, même si c’est difficile à faire. Je tiens à vous remercier pour la gentillesse avec laquelle vous avez reçu mon message, et j’espère que vous continuerez à montrer à mon garçon le chemin de la réalisation de la vérité dans cette grande et très importante Vérité du spiritualisme.
+Je dois m’arrêter, même si c’est difficile à faire. Je tiens à vous remercier pour l'amabilité avec laquelle vous avez reçu mon message, et j’espère que vous continuerez à montrer à mon garçon le chemin de la réalisation de la vérité dans cette grande et très importante Vérité du spiritualisme.
 
 Je lui dirai encore une fois que je l’aime, et je lui souhaiterai une bonne nuit.
 

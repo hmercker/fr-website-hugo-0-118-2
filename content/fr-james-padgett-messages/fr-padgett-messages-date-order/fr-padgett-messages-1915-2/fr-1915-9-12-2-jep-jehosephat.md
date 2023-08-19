@@ -11,7 +11,7 @@ weight:
 
 Jehosephat - reçu par James Padgett le 12 Septembre 1915, Washington, USA.
 
-e suis, Jehosephat.
+Je suis, Jehosephat.
 
 Je fus un personnage de l’Ancien Testament, et je veux dire un mot. Je suis un Chrétien, et j’ai été racheté par l’Amour Divin du Père.
 

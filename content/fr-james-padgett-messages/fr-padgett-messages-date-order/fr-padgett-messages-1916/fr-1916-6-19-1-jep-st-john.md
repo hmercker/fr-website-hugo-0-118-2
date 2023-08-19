@@ -41,7 +41,7 @@ Votre frère en Christ, Jean.
 
 *Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*
 
-•	le 08 Juillet 1915 :  [St Jean – L’Amour Divin ne doit pas être confondu avec l’amour naturel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-2-jep-st-john/.
-
-•	Le 05 Aout 1916 : [L’Amour Divin – ce qu’il est et ce qu’il n’est pas. Comment il peut être obtenu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-8-5-1-jep-st-john/).
-
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Saint Jean |   [St Jean – L’Amour Divin ne doit pas être confondu avec l’amour naturel.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-2-jep-st-john/) | 08 Juillet 1915
+Saint Jean | [L’Amour Divin – ce qu’il est et ce qu’il n’est pas. Comment il peut être obtenu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-5-1-jep-st-john/) |05 Aout 1916
