@@ -19,6 +19,4 @@ Ces personnes sont celles qui ne croient pas en l’existence de Jésus en tant 
 
 Votre frère en Christ, Flavius Josèphe.
 
-**[Le Jésus](Le vrai Jésus de Nazareth).**
-**
-
+**[Le vrai Jésus de Nazareth](/4-fr-jesus-of-nazareth-messages/4-0-fr-the-real-jesus-of-nazareth/).**

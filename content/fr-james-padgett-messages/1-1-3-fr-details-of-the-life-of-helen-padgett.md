@@ -1,13 +1,13 @@
 ---
-title: "Les détails de la vie de Hélène Padgett"
+title: "Les détails de la vie d'Hélène Pagett et son parcours spirituel"
 menu_title: ""
-description: "Les détails de la vie de Hélène Padgett"
+description: "Les détails de la vie d'Hélène Pagett et son parcours spirituel"
 date: 2023-03-01 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### Les détails de la vie de Hélène Padgett
+### Les détails de la vie d'Hélène Pagett et son parcours spirituel
 
 Hélène Padgett - reçu par Al Fike le 18 Juillet 2014, Vancouver, Colombie-Britannique, Canada.
 
@@ -37,3 +37,19 @@ Pour ceux d’entre vous qui ont fait le choix de la vérité, il est de votre r
 Vous êtes plus que jamais nécessaires à cause des conditions en spirale qui imprègnent votre monde aujourd’hui. Nous vous implorons de redoubler vos efforts, de prier pour l’Amour de Dieu et de vivre cette vérité de toutes les manières possibles. Vous êtes les anges de Dieu sur la terre et vous êtes donc profondément nécessaires afin d’accomplir le dessein de Dieu. S’il vous plaît priez afin d’être guidé et afin d’être en mesure d’accomplir votre but dans ce plan. Vous êtes grandement nécessaires.
 
 Soyez avec nous dans nos efforts et nous serons vraiment avec vous, afin que les luttes dont nous avons parlé dans notre vie ne soient pas présentes dans les vôtres. Alors que vous suivez les lois de l’Amour, votre vie reflétera cela dans tous les sens. Que Dieu bénisse tous ceux qui s’aventurent sur Son chemin de l’Amour et que vous puissiez tous être bien enserrés dans ses bras aimants. Je suis votre amie dans l’Amour et dans la vie – Hélène.
+
+### Le parcours spiriuel d'Hélène Padgett
+
+Dans cette série de messages, Hélène Padgett raconte sa progression en tant qu'esprit. Si un esprit peut partir de la base et devenir un esprit "Christique" en moins d'un an, pourquoi voudrait-il se réincarner ? Hélène Padgett est décédée le 12 février 1914 et elle est née de nouveau (correctement, pas comme on le croit actuellement sur Terre) le 3 Mars 1915. Il faut dire qu'il s'agit là d'un progrès spirituel extrêmement rapide, et qu'elle a été aidée en cela par sa grand-mère.
+
+Nous restons fermement convaincus que les seuls esprits qui communiquent sur les vies antérieures sont ceux qui sont limités dans leur compréhension et dans leur propre progression spirituelle. L'une des choses qui donne de la crédibilité à certains esprits, c'est qu'ils se déplacent entre les mondes spirituels au fur et à mesure qu'ils progressent. Mais ils ne renaissent certainement pas. D'autre part, le fait de devenir "un avec Dieu", qui est nécessaire pour quitter les sphères spirituelles et entrer dans le Royaume Céleste, est apparemment très significatif, et ne peut pas être ignoré.
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Hélène Padgett | [Premier message préservé de l’épouse de M. Padgett, Hélène : Qui dit qu’elle regarde Jésus comme un homme de Dieu, mais pas comme Dieu lui-même - L’informe également sur ses parents et ses grands-parents](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-5-31-1-jep-helen-padgett/) | 31 Mai 1914
+élène Padgett | [Dans un ses premiers messages, Hélène a écrit que M. Padgett est trop occupé par ses affaires et ne consacre pas assez de temps à la prière au Père pour recevoir le don de l’esprit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-3-1-jep-helen-padgett/) | 3 Novembre 1914
+Hélène Padgett | [Hélène parle de son développement spirituel initial dans la troisième sphère avec l’aide de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-16-1-jep-helen-padgett/) | 16 Novembre 1914
+Hélène Padgett | [Maison d’Hélène Padgett au niveau de la troisième sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-30-1-jep-helen-padgett/) | 30 Novembre 1914
+Hélène Padgett | [L’expérience de Mme Hélène Padgett en quittant son corps et en allant dans le monde des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-9-1-jep-helen-padgett/) | 9 Décembre 1914
+Hélène Padgett | [Mme Padgett a écrit qu’elle étudie les lois spirituelles et qu’elle a appris qu’un esprit ne peut communiquer avec les mortels que lorsqu’ils sont en relation, que la même loi s’applique aux mortels et que sa maison est dans la troisième sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-29-2-jep-helen-padgett/) | 29 Décembre 1914
+Hélène Padgett | [Hélène écrit au sujet de son progrès de la Troisième à la Cinquième Sphère d’Esprit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-7-1-jep-helen-padgett/) | 7 Janvier 1915

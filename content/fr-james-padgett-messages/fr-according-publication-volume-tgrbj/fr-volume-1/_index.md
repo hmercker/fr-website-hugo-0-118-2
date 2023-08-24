@@ -41,7 +41,7 @@ Christian Blandin
 
 **Page** | **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---|---
-I | Dr Stone | [Le témoignage du Dr. Leslie Ribbon Stone](/fr-james-padgett-messages/1-13-fr-the-testimony-of-dr-leslie-stone/) |
+I | Dr Stone | [Le témoignage du Dr. Leslie Ribbon Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/) |
 XVII | Daniel G Samuels | [La Véritable Mission de Jésus](/fr-james-padgett-messages/fr-the-true-mission-of-jesus/) |
 1 | Jean le Baptiste | [Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-10-1-jep-john-the-baptist/) | 10 Août 1915
 2 | Jésus | [Les motifs donnés par Jésus quant aux raisons pour lesquelles il a choisi M. Padgett pour cette tâche de réception des messages](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
