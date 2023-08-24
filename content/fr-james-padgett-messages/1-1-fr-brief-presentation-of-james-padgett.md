@@ -35,5 +35,5 @@ Ainsi, il a décidé de garder ses écrits privés, ne les révélant qu’à se
 
 1. [Témoignage de James Padgett](/fr-james-padgett-messages/1-1-1-fr-testimony-of-james-padgett/)
 2. [Les détails de la vie de James Padgett](/fr-james-padgett-messages/1-1-2-fr-details-of-james-padgetts-life/)
-3. [Les détails de la vie d'Hélène Pagett et son parcours spirituel](/fr-james-padgett-messages/1-1-3-fr-details-of-the-life-of-helen-padgett/)
+3. [Les détails de la vie d'Hélène Padgett et son parcours spirituel](/fr-james-padgett-messages/1-1-3-fr-details-of-the-life-of-helen-padgett/)
 4. [Les informations publiques à propos de James Padgett](/fr-james-padgett-messages/1-1-4-fr-public-information-about-james-padgett/)

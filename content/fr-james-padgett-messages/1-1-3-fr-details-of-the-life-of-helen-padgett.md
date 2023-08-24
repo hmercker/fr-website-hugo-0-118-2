@@ -1,13 +1,13 @@
 ---
-title: "Les détails de la vie d'Hélène Pagett et son parcours spirituel"
+title: "Les détails de la vie d'Hélène Padgett et son parcours spirituel"
 menu_title: ""
-description: "Les détails de la vie d'Hélène Pagett et son parcours spirituel"
+description: "Les détails de la vie d'Hélène Padgett et son parcours spirituel"
 date: 2023-03-01 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### Les détails de la vie d'Hélène Pagett et son parcours spirituel
+### Les détails de la vie d'Hélène Padgett et son parcours spirituel
 
 Hélène Padgett - reçu par Al Fike le 18 Juillet 2014, Vancouver, Colombie-Britannique, Canada.
 
