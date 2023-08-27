@@ -17,7 +17,7 @@ Ou encore, où va l'âme après la mort ?
 
 Je n'ai pas pu résister à l'envie de choisir un titre sympathique et non ennuyeux. J'espère n'avoir contrarié personne dès le départ ! J'ai décidé d'écrire ce livret afin d'avoir à ma disposition quelque chose de complet, mais relativement simple, lorsque je m'adresse à des personnes désireuses d'entendre parler de l'autre monde - notre destination éternelle. En vieillissant, je rencontre naturellement de plus en plus de personnes qui ont perdu un être cher. C'est souvent le stimulus pour demander :
 
-### "Que se passe-t-il après la mort ?"
+### « Que se passe-t-il après la mort ? »
 
 Mon objectif est d'essayer d'écrire quelque chose qui soit largement dépourvu de moralisation excessive ou de cadre religieux. J'avais initialement décidé de ne pas mentionner les sources de mes découvertes, mais dans cette dernière révision, j'ai décidé d'ajouter une liste des sources les plus importantes. Cela permettra à quelqu'un qui voudrait revoir ce résumé, et obtenir un meilleur aperçu, de le faire. J'ai beaucoup lu sur ce sujet, et ce document résume quelque dix années de recherche. Il existe parfois de grandes différences d'opinion. Cela ne signifie pas que j'ai raison, mais j'ai de bonnes raisons de croire ce que je crois.
 
@@ -216,7 +216,7 @@ En général, les tâches qu'ils entreprennent ont quelque chose à voir avec le
 
 Les esprits qui suivent la voie de l'Amour Divin peuvent passer un long moment dans cette sphère, car ils ressentent l'importance de la tâche d'enseigner cette "nouvelle" Vérité. Comme ils ne trouvent pas non plus la Quatrième Sphère particulièrement agréable, ils y restent généralement jusqu'à ce qu'ils puissent atteindre la Cinquième. Lorsque finalement ce qui a commencé comme un travail d'expiation, et qui devient maintenant un choix de vocation, l'esprit est prêt à passer à autre chose.
 
-### Voici la description d'une maison dans la Troisième Sphère :
+### Voici la description d'une maison dans la Troisième Sphère:
 
 > Oui, ma maison est très belle et j'en suis parfaitement satisfait. Elle est faite de marbre blanc et est entourée de pelouses, de fleurs et d'arbres de toutes sortes. L'herbe est très verte et les fleurs sont si belles et si variées. Les arbres sont toujours en feuillage et ont de si belles branches et feuilles. Je suis très satisfaite de ma maison, je veux dire du bâtiment. Il y a beaucoup de beaux tableaux sur les murs, et les murs sont tous recouverts de fresques et de fines couvertures, et les sols sont incrustés de belles mosaïques. J'ai tous les meubles splendides que je pourrais souhaiter, et ma bibliothèque est remplie de livres de toutes sortes, surtout de ceux qui parlent de Dieu et de son amour pour l'homme. Vous seriez dans votre élément si vous pouviez être avec moi.
 <br>
@@ -262,7 +262,7 @@ Les esprits de l'Amour Divin peuvent entrer dans cette sphère, mais ne restent 
 
 Comme ces esprits de la Sixième Sphère ne progressent pas davantage, on ne sait pas quel sera leur avenir à long terme. Certaines sources suggèrent que tous finiront par s'éveiller au fait qu'il leur manque quelque chose - l'Amour Divin de Dieu - et que le progrès reprendra alors. D'autres sources suggèrent qu'en fait la « seconde mort » signifiera que ces esprits seront isolés, et que les « portes » du Royaume de Dieu seront fermées, les laissant exclus. Une autre révélation<sup id=”a16”>[16](#f16)</sup>  suggère que leur avenir se situera dans l'univers local dans lequel se trouve la terre, plutôt que de pouvoir atteindre d'autres parties de cet univers, ou le Paradis Central où le Père réside, ou même d'autres univers.
 
-
+<a name="seventh-sphere"></a>
 ### La Septième Sphère
 
 Cette sphère n'est peuplée que d'esprits d'Amour Divin. Elle marque le début d'une série de changements qui les rendront finalement très différents des autres esprits. Si différents qu'on dit qu'ils ne peuvent pas être considérés comme faisant partie de la même famille. Le premier changement est que l'âme manifeste un esprit, qui est différent de l'esprit matériel que tous les autres esprits utilisent. Celui-ci commence à dominer. Finalement, avant que l'esprit ne quitte cette sphère, l'esprit matériel du corps de l'esprit aura entièrement dépéri, laissant l'esprit utiliser l'esprit de l'âme. (Il existe une autre perspective à ce sujet, selon laquelle plutôt que de « développer » un esprit d'âme, nous commençons en fait à accéder à l'esprit divin de notre Esprit intérieur).
@@ -281,11 +281,9 @@ Si vous deviez choisir 100 endroits sur cette terre, et prendre la description d
 
 Le graphique ci-dessous résume le parcours « standard » décrit dans ce livre :
  
-![Title]()
+![title](/7-fr-life-after-death/fr-the-heavens-2022-1.jpg)
 
- 
-
- Il convient de conclure avec le voyage personnel à travers ces Sphères d'un Yogi très aimé - Yogananda. l'auteur de « L'autobiographie d'un Yogi ». Ce voyage brise toutes les « règles » utilisées pour créer le chemin standard. Il est fascinant sous au moins deux aspects. L'un d'eux est que l'âme finit par obtenir ce qu'elle veut. Il est également surprenant en ce qu'il montre la ténacité de l'esprit et de ses croyances. Mais si un individu n'a pas développé son âme dans sa vie terrestre, ces croyances mentales se maintiennent souvent et cet individu n'atteint pas le Royaume Céleste. Heureusement, Yogananda a suivi une tradition hindoue de profonde dévotion à Dieu, appelée "bakhti", et c'est exactement ce qui déclenche la croissance de l'âme nécessaire.
+Il convient de conclure avec le voyage personnel à travers ces Sphères d'un Yogi très aimé - Yogananda. l'auteur de « L'autobiographie d'un Yogi ». Ce voyage brise toutes les « règles » utilisées pour créer le chemin standard. Il est fascinant sous au moins deux aspects. L'un d'eux est que l'âme finit par obtenir ce qu'elle veut. Il est également surprenant en ce qu'il montre la ténacité de l'esprit et de ses croyances. Mais si un individu n'a pas développé son âme dans sa vie terrestre, ces croyances mentales se maintiennent souvent et cet individu n'atteint pas le Royaume Céleste. Heureusement, Yogananda a suivi une tradition hindoue de profonde dévotion à Dieu, appelée "bakhti", et c'est exactement ce qui déclenche la croissance de l'âme nécessaire.
 
 Voici la communication très récente de Yogananda : Yogananda décrit son voyage à travers les sphères reçue [le 22 Novembre 2018](/fr-contemporary-messages :fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-2-af-yogananda/) à Bayview, NSW Australie, par l'intermédiaire de Al Fike :
 
@@ -311,7 +309,7 @@ Voici la communication très récente de Yogananda : Yogananda décrit son voyag
 
 Ce qui est fascinant, c'est qu'il a effectué sa transition vers la Quatrième Sphère, et non la Sixième ou la Cinquième. Et nous avons reçu un message similaire de son gourou, Sri Yukteswar, qui a commenté le décès de Sai Baba. Il est également passé à la Quatrième Sphère et j'ai trouvé cela très difficile à comprendre. Il semble que l'on ne puisse pas deviner le niveau de progression d'un humain en se basant sur les traits et les dons uniques qu'il peut présenter.
 
-### Sources :
+### Sources:
 
 Toutes ces sources sont répertoriées, sans ordre particulier, sur ce site ou sur le site https://new-birth.net/ sous la forme de livres électroniques gratuits, ou sont disponibles gratuitement sur Internet sous forme de texte. Le site web www.new-birth.net héberge un grand nombre de ces références, ainsi que d'autres livres spirituels fascinants.
 
@@ -340,35 +338,34 @@ Les autres ouvrages listés ci-dessous ne sont pas encore, à ma connaissance, t
 - More Alive than ever (Plus vivante que jamais) Always, Karen par Jeanne Walker
 <small>
 
+1. <large id="f1"> [Mentionnés dans le Livre d'Urantia]( https://www.urantia.org/fr/le-livre-durantia/lire) les mentionne à la page 340.[↩](#a1)
 
+2. <large id="f2"> Un merveilleux exemple est contenu dans la lettre 38 de « Letters from the Light (Lettres de la Lumière) » publié par Beyond Words Publishing et basé sur la publication épuisée [Letters from a living dead man (Lettres d’un mort vivant)]( https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/)" où elle est répertoriée comme étant la lettre 39.[↩](#a2)
 
-1.	<large id=”f1”> [Mentionnés dans le Livre d'Urantia]( https://www.urantia.org/fr/le-livre-durantia/lire) les mentionne à la page 340.[↩](#a1)
+3. <large id="f3"> Un lecteur m'a encouragé à lire "[More Alive than ever... Always Karen]( https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/)" dans lequel j'ai découvert que ce sont toutes des formes de pensée.[↩](#a3)
 
-2.	<large id=”f2”>  [↩](#a2) Un merveilleux exemple est contenu dans la lettre 38 de "Letters from the Light (Lettres de la Lumière)" publié par Beyond Words Publishing et basé sur la publication épuisée [Letters from a living dead man (Lettres d’un mort vivant)]( https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/)" où elle est répertoriée comme étant la lettre 39.[↩](#a2)
+4. <large id="f4> [2 Corinthiens 12:2](https://saintebible.com/2_corinthians/12-2.htm) : Je connais un homme en Christ qui, il y a quatorze ans, a été enlevé au troisième ciel. Je ne sais pas si c'était dans le corps ou hors du corps - Dieu le sait.[↩](#a4)
 
-3.	<large id=”f3”>  [↩](#a3) Un lecteur m'a encouragé à lire "[More Alive than ever... Always Karen]( https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/)" dans lequel j'ai découvert que ce sont toutes des formes de pensée.[↩](#a3)
+5. <large id="f5"> [Le Livre d'Urantia.]( https://www.urantia.org/fr/le-livre-durantia/lire)[↩](#a5)
 
-4.	<large id=”f4”> [2 Corinthiens 12:2](https://saintebible.com/2_corinthians/12-2.htm) : Je connais un homme en Christ qui, il y a quatorze ans, a été enlevé au troisième ciel. Je ne sais pas si c'était dans le corps ou hors du corps - Dieu le sait.[↩](#a4)
+6. <large id="f6> [« La vie au paradis »](https://www.fnac.com/a5527754/Robert-Hugh-Benson-Ma-vie-au-Paradis-Comment-la-mort-n-est-que-le-debut-d-une-vie-superieure-et-eternelle), par Anthony Borgia.[↩](#a6)
 
-5.	<large id=”f5”> [Le Livre d'Urantia]( https://www.urantia.org/fr/le-livre-durantia/lire) .[↩](#a5)
+7. <large id="f7"> James Padgett a reçu un très grand nombre de communications de personnes se trouvant dans les enfers, mais je n'appellerais pas cela des descriptions particulièrement détaillées, bien que certaines le soient. Beaucoup d'entre elles peuvent être lues ici [Les enfers, le jugement, le pardon et la résurrection](/7-fr-life-after-death/7-4-fr-the-hells-judgement-forgiveness-and-the-resurrection/). Je n'ai trouvé que deux livres traitant de manière approfondie des plans sombres. Il s'agit de « A Wanderer in the Spirit Lands (Mes Aventures dans le Monde des Esprits) » de Franchezzo et de [« Gone West : Three Narratives of After-Death Experiences(3 récits sur les expériences dans le monde de-vie) » de J.S.M Ward.](https://books.google.fr/books/about/Gone_West.html?id=JtN-jfx7bHAC&redir_esc=y)[↩](#a7)
 
-6.	<large id=”f6”> ["La vie au paradis"](https://www.fnac.com/a5527754/Robert-Hugh-Benson-Ma-vie-au-Paradis-Comment-la-mort-n-est-que-le-debut-d-une-vie-superieure-et-eternelle), par Anthony Borgia.[↩](#a6) 
-7. <large id=”f7”> James Padgett a reçu un très grand nombre de communications de personnes se trouvant dans les enfers, mais je n'appellerais pas cela des descriptions particulièrement détaillées, bien que certaines le soient. Beaucoup d'entre elles peuvent être lues ici [Les enfers, le jugement, le pardon et la résurrection]( /7-fr-life-after-death/7-4-fr-the-hells-judgement-forgiveness-and-the-resurrection/). Je n'ai trouvé que deux livres traitant de manière approfondie des plans sombres. Il s'agit de « A Wanderer in the Spirit Lands (Mes Aventures dans le Monde des Esprits » de Franchezzo et de [« Gone West : Three Narratives of After-Death Experiences(3 récits sur les expériences dans le monde de-vie) » de J.S.M Ward.](https://books.google.fr/books/about/Gone_West.html?id=JtN-jfx7bHAC&redir_esc=y)[↩](#a7)
+8. <large id="f8"> [Un esprit décrit son expérience dans l'un des enfers.]( /fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)[↩](#a8)
 
-8. <large id=”f8”> [Un esprit décrit son expérience dans l'un des enfers.]( /fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)[↩](#a8)
+9. <large id="f9"> [César raconte ses expériences après avoir reçu l'aide d'un esprit divin.]( /fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/)[↩](#a9)
 
-9.  <large id=”f9”> [César raconte ses expériences après avoir reçu l'aide d'un esprit divin.]( /fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/)[↩](#a9)
+10. <large id="f10"> [Les remords d'un chef britannique.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-31-1-fab-neville-chamberlain/)[↩](#a10)
 
-10.  <large id=”f10”> [Les remords d'un chef britannique.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-31-1-fab-neville-chamberlain/)[↩](#a10)
+11. <large id="f11"> [L'expérience de Judas dans les enfers.]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-6-1-hr-judas/)[↩](#a11)
 
-11.  <large id=”f11”> [L'expérience de Judas dans les enfers.]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-6-1-hr-judas/)[↩](#a11)
+12.	<large id="f12"> « Ma vie au Paradis » par Anthony Borgia.[↩](#a12)
 
-12.	<large id=”f12”> “Ma vie au Paradis” par Anthony Borgia.[↩](#a12)
+13.	<large id="f13"> Reçu par James Padgett [le 30 Novembre 1914.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-30-1-jep-helen-padgett/)[↩](#a13)
 
-13.	<large id=”f13”> Reçu par James Padgett [le 30 Novembre 1914.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-30-1-jep-helen-padgett/)[↩](#a13)
+14.	<large id="f14"> Les messages de James Padgett publiés ici. [Dr Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/)[↩](#a14)
 
-14.	<large id=”f14”> Les messages de James Padgett publiés ici. [Dr Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/)[↩](#a14)
+15.	<large id="f15"> [Hélène écrit sur sa progression de la troisième sphère de l'esprit à la cinquième sphère de l'esprit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-7-1-jep-helen-padgett/)[↩](#a15)
 
-15.	<large id=”f15”> [Hélène écrit sur sa progression de la troisième sphère de l'esprit à la cinquième sphère de l'esprit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-7-1-jep-helen-padgett/)[↩](#a15)
-
-16. <large id=”f16”> [Le Livre d'Urantia.]( https://www.urantia.org/fr/le-livre-durantia/lire)[↩](#a16)
+16. <large id="f16"> [Le Livre d'Urantia.](https://www.urantia.org/fr/le-livre-durantia/lire)[↩](#a16)
