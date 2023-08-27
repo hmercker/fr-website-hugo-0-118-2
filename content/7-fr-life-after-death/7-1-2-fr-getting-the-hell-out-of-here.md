@@ -309,9 +309,9 @@ Voici la communication très récente de Yogananda : Yogananda décrit son voyag
 
 Ce qui est fascinant, c'est qu'il a effectué sa transition vers la Quatrième Sphère, et non la Sixième ou la Cinquième. Et nous avons reçu un message similaire de son gourou, Sri Yukteswar, qui a commenté le décès de Sai Baba. Il est également passé à la Quatrième Sphère et j'ai trouvé cela très difficile à comprendre. Il semble que l'on ne puisse pas deviner le niveau de progression d'un humain en se basant sur les traits et les dons uniques qu'il peut présenter.
 
-### Sources:
+### Sources
 
-Toutes ces sources sont répertoriées, sans ordre particulier, sur ce site ou sur le site https://new-birth.net/ sous la forme de livres électroniques gratuits, ou sont disponibles gratuitement sur Internet sous forme de texte. Le site web www.new-birth.net héberge un grand nombre de ces références, ainsi que d'autres livres spirituels fascinants.
+Toutes ces sources sont répertoriées, sans ordre particulier, sur ce site ou sur [le site](https://new-birth.net) sous la forme de livres électroniques gratuits, ou sont disponibles gratuitement sur Internet sous forme de texte. Le [site web](https://www.new-birth.net) héberge un grand nombre de ces références, ainsi que d'autres livres spirituels fascinants.
 
 Certaines de ces publications sont disponibles en français. Ce sont :
 
@@ -340,11 +340,11 @@ Les autres ouvrages listés ci-dessous ne sont pas encore, à ma connaissance, t
 
 1. <large id="f1"> [Mentionnés dans le Livre d'Urantia]( https://www.urantia.org/fr/le-livre-durantia/lire) les mentionne à la page 340.[↩](#a1)
 
-2. <large id="f2"> Un merveilleux exemple est contenu dans la lettre 38 de « Letters from the Light (Lettres de la Lumière) » publié par Beyond Words Publishing et basé sur la publication épuisée [Letters from a living dead man (Lettres d’un mort vivant)]( https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/)" où elle est répertoriée comme étant la lettre 39.[↩](#a2)
+2. <large id="f2"> Un merveilleux exemple est contenu dans la lettre 38 de [« Letters from the Light (Lettres de la Lumière) »]( https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/) publié par Beyond Words Publishing et basé sur la publication épuisée [Letters from a living dead man (Lettres d’un mort vivant)](https://new-birth.net/media/cms_page_media/220/Letters_living_dead_man_a5.pdf) où elle est répertoriée comme étant la lettre 39.[↩](#a2)
 
-3. <large id="f3"> Un lecteur m'a encouragé à lire "[More Alive than ever... Always Karen]( https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/)" dans lequel j'ai découvert que ce sont toutes des formes de pensée.[↩](#a3)
+3. <large id="f3"> Un lecteur m'a encouragé à lire [More Alive than ever... Always Karen]( https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/) dans lequel j'ai découvert que ce sont toutes des formes de pensée.[↩](#a3)
 
-4. <large id="f4> [2 Corinthiens 12:2](https://saintebible.com/2_corinthians/12-2.htm) : Je connais un homme en Christ qui, il y a quatorze ans, a été enlevé au troisième ciel. Je ne sais pas si c'était dans le corps ou hors du corps - Dieu le sait.[↩](#a4)
+4. <large id="f4"> [2 Corinthiens 12:2](https://saintebible.com/2_corinthians/12-2.htm) : Je connais un homme en Christ qui, il y a quatorze ans, a été enlevé au troisième ciel. Je ne sais pas si c'était dans le corps ou hors du corps - Dieu le sait.[↩](#a4)
 
 5. <large id="f5"> [Le Livre d'Urantia.]( https://www.urantia.org/fr/le-livre-durantia/lire)[↩](#a5)
 
