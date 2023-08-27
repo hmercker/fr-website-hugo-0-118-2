@@ -160,7 +160,9 @@ La deuxième catégorie de conseils que vous pourriez recevoir introduit un conc
 
 Cette technique fonctionne également sur terre. C'est-à-dire que vous pouvez ressentir l'Amour, et vous remarquerez que vous changez au cours de l'année suivante. Et nous avons eu la confirmation que les humains qui suivent cette méthode sont en général beaucoup plus brillants dans leur corps spirituel que la population mortelle générale. Cette méthode agit à un niveau très fondamental.
 
-### <a name="Anchorname">a named anchor</a> La Première Sphère
+<a name="first-sphere"></a>
+
+### La Première Sphère
 
 L'enfer se trouve bien sûr dans la première sphère, mais la plupart d'entre nous ne considéreraient pas les hautes sphères de la première sphère comme étant dans les ténèbres. C'est parce que nous sommes habitués à la Terre, une planète qui est elle-même largement dans l'obscurité. Au-dessus de « l’enfer » on trouve la « Twilight Zone (la zone crépusculaire) », puis « Summerland (Pays de l’été) ». Ce sont des termes spirites. Certains spirites enseignent que Summerland est la troisième sphère, mais ce n'est apparemment pas le cas, ils numérotent simplement des sous-sphères comme des sphères majeures.
 
