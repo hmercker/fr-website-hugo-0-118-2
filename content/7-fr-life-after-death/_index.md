@@ -27,5 +27,3 @@ Ces divers témoignages accentuent la croyance en une survivance après la mort 
 10. [Les animaux de compagnie dans le monde des esprits](/7-fr-life-after-death/7-10-fr-pets-in-the-spirit-world/)
 11. [La réincarnation : vraie ou fausse théorie ?](/7-fr-life-after-death/7-11-fr-reincarnation-true-or-false-theory/)
 12. [La résurrection](/7-fr-life-after-death/7-12-fr-resurrection/)
-13. [Plan astral](/7-fr-life-after-death/7-13-fr-astral-plan/)
-14. [Pensées et Formes de Pensées](/7-fr-life-after-death/7-14-fr-thoughts-and-thought-forms/)

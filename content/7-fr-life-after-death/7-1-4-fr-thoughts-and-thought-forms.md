@@ -1,11 +1,11 @@
 ---
 title: "Pensées et Formes de Pensées"
-menu_title: "Pensées et Formes de Pensées"
+menu_title: ""
 description: "Pensées et Formes de Pensées"
 date: 2023-05-14 02:18:11+11:00
 draft: False
-hidden: False
-weight: 456
+hidden: True
+weight:
 ---
 ### Pensées et Formes de Pensées
 

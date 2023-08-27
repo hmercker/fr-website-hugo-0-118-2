@@ -1,11 +1,11 @@
 ---
 title: "Plan astral"
-menu_title: "Plan astral"
+menu_title: ""
 description: "Plan astral"
 date: 2023-05-14 02:18:11+11:00
 draft: False
-hidden: False
-weight: 454
+hidden: True
+weight:
 ---
 ### Le plan astral
 

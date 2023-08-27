@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Que fait l’esprit de l’homme lorsqu’il quitte le corps physique pour l’éternité ? 
+### Que fait l’esprit de l’homme lorsqu’il quitte le corps physique pour l’éternité ?
 
 St Jean - reçu par James Padgett le 29 Mai 1916, Washington, USA.
 
@@ -25,7 +25,7 @@ Lorsque la corde d’argent est coupée, aucun pouvoir connu du monde des esprit
 
 Dans ces temps anciens, comme maintenant, il y avait des personnes qui avaient l’air d’être mortes, et, en ce qui concernait la connaissance humaine, elles étaient mortes. Cependant elles étaient vraiment dans un état qu’on peut appeler vie suspendue. En l’absence de signes de vie apparaissant à la conscience des hommes, on pensait que la mort avait eu lieu. Pourtant, en aucun cas, où les morts supposés ont été élevés à la vie, le mortel était vraiment mort.
 
-[Comme Lazare vous l’a déjà dit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-3-jep-lazarus/), quand Jésus lui a ordonné de se lever, il n’était pas mort, et il en était de même pour tous les autres morts supposés appelés à la vie. Quand ce lien a été rompu, il y a certaines lois chimiques affectant le corps physique, et certaines lois spirituelles affectant l’esprit, qui rendent absolument impossible à l’esprit d’entrer à nouveau dans le corps ; et comme vous avez été informés, nous tous, les mortels, les esprits et les anges également, sont régis par des lois qui n’ont aucune exception, et ne varient jamais dans leurs fonctionnements. Aussi je dis que, lorsque l’esprit et le corps se séparent, c’est pour toute l’éternité, et l’esprit devient alors de lui-même, une chose séparée, contrôlée entièrement et exclusivement par des lois régissant le corps d’esprit <sup id="a2>[2](#f2)</sup>.
+[Comme Lazare vous l’a déjà dit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-3-jep-lazarus/), quand Jésus lui a ordonné de se lever, il n’était pas mort, et il en était de même pour tous les autres morts supposés appelés à la vie. Quand ce lien a été rompu, il y a certaines lois chimiques affectant le corps physique, et certaines lois spirituelles affectant l’esprit, qui rendent absolument impossible à l’esprit d’entrer à nouveau dans le corps ; et comme vous avez été informés, nous tous, les mortels, les esprits et les anges également, sont régis par des lois qui n’ont aucune exception, et ne varient jamais dans leurs fonctionnements. Aussi je dis que, lorsque l’esprit et le corps se séparent, c’est pour toute l’éternité, et l’esprit devient alors de lui-même, une chose séparée, contrôlée entièrement et exclusivement par des lois régissant le corps d’esprit <sup id="a2">[2](#f2)</sup>.
 
 Avec l’entrée de l’esprit dans le monde des esprits, vient l’âme, toujours enfermée dans ce corps spirituel et, d’une certaine manière, contrôlée par ce corps, qui est aussi, dans certains cas, contrôlé par l’âme. Le corps spirituel n’a pas, par lui-même, le pouvoir de déterminer son propre emplacement ou destin, parce que la loi d’attraction qui opère dans ce cas particulier, opère sur l’âme, et la condition de l’âme détermine sa localisation, et comme le corps spirituel est la couverture de l’âme, il doit aller là où cette loi d’attraction décrète que l’âme doit demeurer.
 
@@ -50,10 +50,9 @@ J’ai assez écrit pour ce soir, je vais vous laisser et, avec mon amour et mes
 
 Votre frère en Christ, Jean.
 
-*Note : Un résumé complet des sphères que l’homme peut atteindre après la mort [est présenté sur cette page](/7-fr-life-after-deat/7-3-fr-the-spirit-heavens-and-the-christian-kingdom-of-god/).*
+*Note : Un résumé complet des sphères que l’homme peut atteindre après la mort [est présenté sur cette page](content/7-fr-life-after-death/7-1-2-fr-getting-the-hell-out-of-here/) et aussi [ici](/7-fr-life-after-death/7-3-fr-the-spirit-heavens-and-the-christian-kingdom-of-god/).*
 <small>
 
 1. <large id="f1"> De même les expressions monde des esprits ou monde spirituel sont identiques et correspondent à la résidence des esprits après la fin de leur vie terrestre.[↩](#a1)
 
 2. <large id="f2"> les termes corps esprit ou corps spirituel sont synonymes. Ils correspondent à « l’enveloppe » qui entoure l’esprit (l’âme) durant sa vie terrestre ou durant sa vie dans l’au-delà.[↩](#a2)
-
