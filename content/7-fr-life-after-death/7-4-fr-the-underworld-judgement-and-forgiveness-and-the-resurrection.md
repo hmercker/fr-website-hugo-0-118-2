@@ -17,7 +17,7 @@ Un résumé "Getting the Hell out of here (Sortir de l'Enfer) qui reprend des é
 
 Le « Paul et Albert » de George Vale Owen en format pdf est également inclus dans Outlands of Heaven (Les Contrées du Ciel) Volume 5 of Life Beyond the Veil (La vie au-delà du voile) par le révérend George Vale Owen.
 
-#### Les Enfers
+#### <a name="Anchorname">a named anchor</a> Les Enfers
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -54,7 +54,7 @@ Julius Soloman | [Julius Soloman est dans les ténèbres et cherche de l’aide]
 Louisa R Connell | [Louisa R. Connell a eu une carrière théâtrale et est dans l’obscurité avec d’autres personnes de la même profession](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-21-jep-louisa-connell/) | non daté
 SBC | [Ses croyances étaient simplement intellectuelles. Après un certain temps est devenu sceptique](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-2-jep-sbc/) | non daté
 John G Carlisle | [John G. Carlisle écrit sur ses souffrances et ses ténèbres dans lesquelles il se trouve et demande de l’aide](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-20-1-jep-john-carlisle/) | 20 Novembre 1915
-
+<a name="the-hells"></a>
 #### Combien de temps restez-vous dans les Enfers ?
 
 Dans les messages suivants, il est clair que Jules César est en enfer depuis sa mort en mars 44 avant J.-C. - soit environ 2060 ans jusqu'à présent. Mais, une fois qu'il a appris à en sortir, il en est sorti en un rien de temps - environ 19 mois. J'ai inclus ici des messages de confirmation de l'épouse de James Padgett. C'était très courant, et c'était le principal moyen par lequel James Padgett savait qu'il n'était pas abusé. Si vous choisissez de lire tous les messages dans l'ordre chronologique, vous découvrirez que c'est vrai, même si tous les messages reçus n'ont pas été publiés, et cela inclut en particulier les messages de soutien sans importance.

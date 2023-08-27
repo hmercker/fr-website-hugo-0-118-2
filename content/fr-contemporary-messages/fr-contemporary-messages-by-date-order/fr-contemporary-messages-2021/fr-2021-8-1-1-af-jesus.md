@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 1 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2021-attraction-spirituelle.png)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-attraction-spirituelle.png)
 
 Que le contact de l’Amour de notre Père soit ce cadeau pour votre âme alors que nous prions ensemble aujourd’hui. Je suis votre frère et votre ami Jésus. Je viens vous parler aujourd’hui du sujet qui est le plus important pour vous tous, c’est-à-dire parler de ces barrières que vous élevez entre vous et Dieu, vous et votre propre âme. Comme cela m’attriste de voir tant de souffrances dans votre monde, que tant de personnes sont incapables de trouver Dieu d’une manière significative, que tant de personnes sont perdues dans les ténèbres, et que même ceux qui crient vers Dieu ne ressentent souvent rien, car ils ont en eux de nombreuses conditions et barrières qui les tiennent éloignés de Dieu d’une manière consciente. Et pourtant, même ce cri de l’âme angoissée apporte une réponse de notre Père Céleste, Sa Compassion et Son Amour pour Ses enfants sont puissants, formidables et magnifiques.
 

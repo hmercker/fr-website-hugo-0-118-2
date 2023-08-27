@@ -1,5 +1,5 @@
 ---
-title: "Messages de Swedenborge"
+title: "Messages de Swedenborg"
 menu_title: ""
 description: "Messages de Swedenborg"
 date: 2022-07-10 06:25:48+00:80
