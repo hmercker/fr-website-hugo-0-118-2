@@ -185,7 +185,8 @@ Summerland a été décrit comme ayant un climat similaire à celui de la Califo
 Il y a toujours un certain degré de négativité, illustré par les ragots, les différences d'opinion et la colère. Mais la plupart des esprits sont plutôt habitués à cela sur terre et ne le remarquent probablement pas vraiment. Les sports sont pratiqués, mais les sports de balle posent problème. Apparemment, la gravité est très différente, et pour lancer une balle, il faut utiliser la puissance de la pensée. Une fois lancée, elle ne s'arrêtera pas tant qu'elle ne sera pas redirigée par la pensée. Ainsi, en envoyant une balle vers le but, elle l'atteindrait toujours, ce qui semble plutôt rendre inutiles des sports comme le football et le golf. Cela pourrait énerver certaines personnes, j'espère donc qu'il existe quelque chose d'aussi addictif pour la fraternité des golfeurs. J'ai été très heureux de découvrir que l'on peut avoir un bateau, si l'on a le développement, et que celui-ci peut être "motorisé" par la pensée. Il est même possible de faire de la voile, mais comme les vents sont très faibles, je suppose que c'est encore une fois largement motorisé par la pensée.
 
 C'est ici, dans la Première Sphère, que les esprits ont tendance à découvrir ce qu'ils veulent vraiment faire, et quels sont leurs talents. Comme ils n'ont pas à travailler et qu'aucune autorité ne les poursuit, ils sont totalement libres de consacrer le temps qu'ils souhaitent à leurs activités. Les esprits trouvent qu'ils peuvent suivre des poursuites matérielles ici, mais avec le temps, l'attrait de cela s'estompe, et soudain ils commencent à réaliser que la spiritualité est importante, et une plus grande source de bonheur.
-<a name="first-sphere"></a>
+
+<a name="second-sphere"></a>
 
 ### La deuxième sphère
 
@@ -204,6 +205,8 @@ Pour décider de la voie de développement à suivre, les esprits sont influenc�
 Jésus rend effectivement visite à ces esprits, mais ils ne le reconnaissent généralement pas. Il ne peut pas se montrer tel qu'il est réellement, car son éclat spirituel est bien trop puissant pour être révélé dans ces sphères inférieures, et c'est pourquoi ils ne lui accordent généralement pas de statut particulier. On nous a dit que le soleil est comme une bougie comparé à son éclat spirituel. Tous les esprits plus avancés doivent limiter la luminosité qu'ils affichent dans les niveaux inférieurs.
 
 La deuxième sphère est un véritable paradis, car elle dispose d'immenses facilités pour l'étude, facilités dont on ne peut rêver sur terre. Cependant, chaque esprit finit par atteindre le plan le plus élevé de cette sphère. Là, un changement énorme se produit. Ils se souviennent qu'ils sont arrivés jusqu'ici grâce à l'aide de nombreux esprits, et un grand désir les envahit d'accomplir une fonction similaire. C'est une tâche d'expiation.
+
+<a name="third-sphere"></a>
 
 ### La Troisième Sphère
 
