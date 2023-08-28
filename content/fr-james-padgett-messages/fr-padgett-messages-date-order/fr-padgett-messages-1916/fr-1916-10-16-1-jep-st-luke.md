@@ -33,4 +33,4 @@ Avec tout mon amour je vais vous dire bonne nuit.
 
 Votre frère en Christ, Luc.
 
-* Note : L’éditeur des messages originaux de James Padgett a créé un court article sur le thème des [Pensées et des Formes de Pensée](*********************).*
+* Note : L’éditeur des messages originaux de James Padgett a créé un court article sur le thème des [Pensées et des Formes de Pensée](/7-fr-life-after-death/7-14-fr-thoughts-and-thought-forms/).*

@@ -1,13 +1,13 @@
 ---
-title: "La loi d’Entraide"
+title: "La loi de péréquation"
 menu_title: ""
-description: "La loi d’Entraide"
+description: "La loi de péréquation"
 date: 2023-05-19 02:18:11+11:00
 draft: False
 hidden: True
 weight:
 ---
-### La loi d’Entraide
+### La loi de péréquation
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

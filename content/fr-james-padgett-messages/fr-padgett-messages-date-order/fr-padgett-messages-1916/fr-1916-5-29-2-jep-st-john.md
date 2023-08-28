@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Que fait l’esprit de l’homme lorsqu’il quitte le corps physique pour l’éternité ? 
+### Que fait l’esprit de l’homme lorsqu’il quitte le corps physique pour l’éternité ?
 
 St Jean - reçu par James Padgett le 29 Mai 1916, Washington, USA.
 
@@ -58,6 +58,5 @@ Votre frère en Christ, Jean.
 
 
 2. <large id="f2"> De même les termes corps esprit ou corps spirituel sont synonymes. Ils correspondent à « l’enveloppe » qui entoure l’esprit (l’âme) durant sa vie terrestre ou durant sa vie dans l’au-delà.[↩](#a2)
-
 
 
