@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Luc commente le sermon d’un prédicateur et conseille M. Padgett de développer une amitié avec ce prédicateur afin de l’aider à mieux comprendre la vérité <sup id="a1">[1](#f1)</sup>
+### Luc commente le sermon d’un prédicateur et conseille M. Padgett de développer une amitié avec ce prédicateur afin de l’aider à mieux comprendre la vérité
 
 St Luc - reçu par James Padgett le 12 Octobre 1916, Washington, USA.
 
@@ -24,6 +24,4 @@ Transmettez mon amour à vos amis et dites-leur de croire et de prier, et surtou
 Je vous souhaite une bonne nuit et je vous donne ma bénédiction.
 
 Votre frère dans le Christ, Luc.
-<small>
 
-1. <large id="f1"> Dans la première édition anglaise de 1972, ce message a été doublement publié.[↩](#a1)

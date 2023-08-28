@@ -19,13 +19,11 @@ Je réalise maintenant que mon esprit et mon âme n’étaient pas en accord ave
 
 Mon âme possédait un degré considérable de l’Amour Divin, comme cet Amour vous a été expliqué, et lorsque je suis venu au monde des esprits cet Amour fut mon salut, nonobstant les erreurs de beaucoup de mes enseignements sur l’esprit et la matière, et non la réalité du péché et du mal.
 
-Je suis trop faible pour écrire davantage, mais je viendrai bientôt <sup id="a2">[2](#f2)</sup> car je dois déclarer les vérités.
+Je suis trop faible pour écrire davantage, mais [je viendrai bientôt](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-6-13-1-jep-mary-baker-eddy/) car je dois déclarer les vérités.
 
 Bonne nuit.
 
 Mme Eddy.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume IV à la page 201.[↩](#a1)
-
-2. <large id="f2"> Voir, ci-dessous, le message de Mme Eddy page 209.[↩](#a2) 
+1. <large id="f1"> Ce message est publié dans le Volume II, deuxième édition française, à la page 202 et dans le volume IV à la page 236. Pour plus de détails,[vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#.[↩](#a1)

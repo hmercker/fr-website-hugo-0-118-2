@@ -51,3 +51,5 @@ Dans un sens, il est vrai que le péché, l’erreur et la maladie ne sont pas r
 Je suis heureux que vous m’ayez donné l’occasion d’écrire aujourd’hui, et je suis également heureux de vous trouver en bonne condition.
 
 Votre ami et frère Jésus.
+
+)

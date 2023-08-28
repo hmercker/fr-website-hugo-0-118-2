@@ -14,6 +14,7 @@ Jésus - reçu par James Padgett le 11 Juin 1916, Washington, USA.
 C’est moi, Jésus.
 
 Je viens ce soir comme je l’ai promis, et je désire écrire mon message, si vous êtes en état de le recevoir.
+
 Je souhaite écrire sur le sujet de : *« Quelle est la bonne façon de vivre la vie sur terre, afin de se purifier de ses péchés et purifier son amour naturel ? »*
 
 Jusqu’à présent, j’ai abordé, presque exclusivement, dans mes messages, la rédemption de l’âme au moyen de l’Amour Divin, afin que le racheté puisse devenir un habitant des Sphères Célestes. Maintenant, je ne vais traiter que de cette purification qui lui permettra de vivre dans la plus haute et la plus pure des sphères spirituelles, où il pourra avoir le bonheur qu’un pur amour naturel lui apportera.

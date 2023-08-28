@@ -20,4 +20,4 @@ L’auteur de ce livre découvrira, avec surprise et douleur, lorsqu’il viendr
 Ta vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id="f1"> Le pasteur Russel est décédé le 31 octobre 1916 et il a effectivement eu quelques surprises. Sa communication détaillée est publiée dans le Volume IV (2ème édition.) page 238. Cependant, son premier message est publié à la suite de celui-ci. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Le pasteur Russel est décédé le 31 octobre 1916 et il a effectivement eu quelques surprises qu'il a exprimées à travers son message [du 31 Juillet 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-7-31-1-jep-charles-russell/).[↩](#a1)

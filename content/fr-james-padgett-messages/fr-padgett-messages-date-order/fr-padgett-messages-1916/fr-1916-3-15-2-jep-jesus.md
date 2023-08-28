@@ -11,7 +11,8 @@ weight:
 
 Jésus - reçu par James Padgett le 15 Mars 1916, Washington, USA.
 
-C’est moi, Jésus. Je souhaite écrire ce soir sur le sujet de : *« qu’est-ce qui rend un homme divin ? »*
+C’est moi, Jésus. Je souhaite écrire ce soir sur le sujet de : *« qu’est-ce qui rend un homme Divin ? »*
+
 Lorsque l »homme a été créé, on lui a donné les qualités les plus élevées qui pouvaient être accordées à un mortel, et pourtant il n’était qu’un simple homme, mais toutefois parfait, et avec ces qualités, on lui a donné la possibilité de devenir, dans sa nature, Divin comme le Père ; mais il n’a jamais possédé ce don dans sa pleine jouissance avant ma venue sur terre, et l’homme n’a jamais su que cette possibilité existait.
 
 Le premier homme créé n’a jamais complètement possédé ce don, mais a simplement eu la possibilité de le recevoir, à condition qu’il soit obéissant, et fasse l’effort de le recevoir à travers la seule voie que le Père a déclarée. On vous a raconté en détail ce qu’était ce don, et comment les premiers parents en ont perdu la jouissance par leur désobéissance et leur ambition de le posséder d’une manière qui n’était pas en accord avec la voie du Père.
@@ -30,7 +31,7 @@ Votre frère et ami, Jésus.
 
 *Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus |  [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/). | 03 Mars 1915
 Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/). | 4 Juin 1915

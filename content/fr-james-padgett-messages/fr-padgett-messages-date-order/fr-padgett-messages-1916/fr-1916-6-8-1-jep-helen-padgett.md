@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les merveilles, les bénéfices et les bénédictions apportées par l’Amour Divin de Dieu <sup id="a1">[1](#f1)</sup>
+### Les merveilles, les bénéfices et les bénédictions apportées par l’Amour Divin de Dieu
 
 Hélène Padgett - reçu par James Padgett le 8 Juin 1916, Washington, USA.
 
@@ -18,6 +18,7 @@ Eh bien, mon chéri, je suis maintenant dans la (même) Sphère Céleste que ta 
 Je souhaite si souvent que vous ayez des mots dans votre langue qui pourraient être utilisés pour décrire pleinement ce que cette nouvelle maison signifie pour moi, ou même celle que je viens de quitter. Cependant, comme vous ne les avez pas, tu devras te contenter de savoir que si tu prenais toutes les images de la Révélation et que tu y ajoutais la somme totale de toutes les belles descriptions de lieux, de maisons et de paysages que contient toute la gamme de ta littérature anglaise, tu n’aurais qu’une faible idée de ce qui existe vraiment. Et d’ailleurs, la grande progression de l’Amour que je possède et dont je jouis, et les beaux et aimants esprits saints que j’ai pour mes compagnons, font de cette maison qui est la mienne l’une des demeures du Royaume des Cieux dont Jésus a parlé dans la Bible. Seules les demeures dont il a parlé ne sont pas nécessairement comme celle que j’ai, car les demeures des Cieux Célestes varient selon le développement de l’âme de leurs occupants.
 
 Je pense parfois qu’il y a quelques années, j’étais sur terre, sans grand développement de l’âme et avec très peu de connaissance des choses de Dieu ; et maintenant j’ai ce développement et cette connaissance des choses qui me conviennent pour ces glorieuses demeures des Sphères Célestes. Comme tout cela est merveilleux, et comme je remercie le Père pour sa bonté et sa miséricorde, et pour avoir donné à l’humanité un sauveur aussi aimant et glorieux que Jésus.
+
 Et je n’oublie pas que tu as quelque chose à voir avec le fait que j’ai commencé ce grand voyage de progrès, car je me souviens que lorsque je suis venue vers toi, pour la première fois, les choses matérielles m’attiraient beaucoup, et mes appétits terrestres ne m’avaient pas quitté. Lorsque j’ai manifesté certains de ces désirs pour les choses matérielles, tu m’as réprimandé et tu as essayé de me montrer la voie vers les choses supérieures bien que je sache maintenant que tes conseils provenaient de tes conceptions purement mentales de ce que je devrais m’efforcer d’atteindre, car à cette époque tu avais très peu de connaissances des choses de l’âme et à peine un développement de l’âme.
 
 Cependant la formation Chrétienne de ton enfance, et les conceptions qui t’étaient venues de ces instructions, t’ont appris que, dans le monde des esprits, il doit y avoir quelque chose de plus élevé et au-delà des simples conditions terrestres des hommes, où l’on peut trouver et vivre une joie plus pure et une vie plus heureuse. Ton amour pour moi était tel que tu désirais, si possible, que je trouve et possède ces choses. Je n’ai jamais oublié ce que tu m’as alors dit, bien qu’à l’époque je t’ai trouvé peu aimable et moins soucieux de mon bonheur. Mais il y a longtemps que je connaissais le motif qui a motivé ton conseil, et beaucoup de bonheur m’est venu de cette connaissance et de ce souvenir. Même une petite pensée d’amour et un désir sincère de la part du mortel pour l’esprit, lorsqu’il est dirigé dans le sens du progrès de l’âme, donne parfois un résultat plus grand que la conquête d’une ville, car cela signifie le salut d’une âme, qui a plus de valeur que toutes les villes de la terre réunies.
@@ -45,6 +46,3 @@ Je serai avec toi, cette nuit, pendant ton sommeil, et je suis tellement remplie
 Alors, mon chéri, donne-moi mon baiser de bonne nuit.
 
 Ta vraie et bien-aimée Hélène.
-<small>
-
-1. <large id="f1"> Ce message a été, originellement, doublement publié dans la première édition anglaise de 4ème volume. La deuxième instance a donc été supprimée.[↩](#a1)

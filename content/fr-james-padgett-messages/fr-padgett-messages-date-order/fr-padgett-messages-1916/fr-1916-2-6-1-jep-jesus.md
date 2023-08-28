@@ -39,7 +39,7 @@ Il n’est pas surprenant que vos scientifiques croient et prêchent la doctrine
 
 Mais l’histoire ne s’étend pas au temps où l’homme était dans cette plus basse condition de dégénérescence, et par conséquent toutes les conclusions auxquelles ces scientifiques aboutissent sont basées sur des faits suffisants pour eux-mêmes, qui montrent le progrès de l’homme seulement après le tournant de sa dégénérescence. Ils n’ont aucune preuve et, bien entendu, lorsque le mot « preuves » est ici utilisé, il se réfère exclusivement aux choses matérielles de la nature – leur montrant le déclin graduel de l’homme de son état d’homme parfait à celui où sa régression ou dégénérescence a cessé, et son progrès pour le retour à son ancienne condition a commencé.
 
-Donc, si les scientifiques croient et enseignent que l’homme, au lieu d’évoluer à partir d’un atome, d’un autre élément infinitésimal ou d’une espèce animale inférieure à l’homme, a évolué de son état ou de sa condition alors qu’il était au fond de sa dégénérescence, qu’il avait atteint suite à son abandon de sa condition d’homme parfait, alors ils croiront et enseigneront la vérité, et leur théorie de l’évolution aura alors comme fondement ou base, un fait qui, actuellement, n’est seulement qu’une spéculation.
+Donc, si les scientifiques croient et enseignent que l’homme, au lieu d’évoluer à partir d’un atome, d’un autre élément infinitésimal ou d’une espèce animale inférieure à l’homme, a évolué de son état ou de sa condition alors qu’il était au fond de sa dégénérescence, qu’il avait atteint suite à son abandon de sa condition d’homme parfait, alors ils croiront et enseigneront la vérité, et leur théorie de l’évolution<sup id=”a1”>[1](#f1)</sup> aura alors comme fondement ou base, un fait qui, actuellement, n’est seulement qu’une spéculation.
 
 C’est en bref l’histoire et la vérité de la création de l’univers de l’homme – de la chute et de la dégénérescence de l’homme, de l’évolution et du progrès. Et à travers tout cela, la création et l’existence subséquente, dirigent la vie, l’imprègnent et sont toujours avec elle, et l’origine de la Vie est Dieu.
 
@@ -48,5 +48,7 @@ J’ai terminé. J’espère que vous trouverez des enseignements, ainsi que du 
 Vous avez mon amour et mes bénédictions, et je m’intéresse de plus en plus à vous, et à votre travail, au fur et à mesure que le le temps passe. Gardez courage et vos désirs seront comblés.
 
 Votre ami et frère, Jésus.
+<small>
 
-[Consultez ce message très récent relatif aux erreurs contenues dans ce message](*************).
+1. <large id=”f1”> [Consultez ce message "l'évolution du corps physique et les messages de James Padgett".](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-1-fab-jesus/).[↩](#a1)
+

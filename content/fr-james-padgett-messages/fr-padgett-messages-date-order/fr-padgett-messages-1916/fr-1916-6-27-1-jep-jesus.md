@@ -55,7 +55,6 @@ Avec tout mon amour et bénédictions, je suis votre frère et ami, Jésus.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/)) | 05 Mai 1917
-05 Mai 1917
-Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/)) | 15 Mai 1917
+Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/) | 05 Mai 1917
+Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/) | 15 Mai 1917
 

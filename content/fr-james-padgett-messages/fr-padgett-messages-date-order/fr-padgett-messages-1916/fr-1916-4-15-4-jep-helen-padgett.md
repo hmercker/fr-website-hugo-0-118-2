@@ -27,4 +27,4 @@ Bonne nuit et fais de beaux rêves.
 
 Ta vraie et aimante Hélène.
 
-*Note : Il semblerait que l’éditeur Dr Stone n’a pas inclus le message de cette journée du 15 avril dans ce volume, mais a inclus un message de Jean du lendemain 16 avril. Le message correct [de Jean du 15 avril est le suivant](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-2-jep-st-john/).*
+

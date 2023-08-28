@@ -17,7 +17,7 @@ Je suis un étranger pour vous, mais vous ne l’êtes pas pour moi, car je sais
 
 Je comprends que vous êtes fatigué ce soir et je n’écrirai pas plus. Je voudrais seulement dire que lorsque l’occasion se présentera, j’aimerais vous écrire un message afin que je ne sois pas exclu du Livre des Vérités que vous allez publier.
 
-Eh bien, je suis content que vous le pensiez. Je suis votre frère et ami et un disciple du Maître. Je suis dans les Sphères Célestes en un lieu très proche des esprits les plus élevés qui sont mes associés. Je vous écrirai en détail quand je viendrai.
+Eh bien, je suis content que vous le pensiez. Je suis votre frère et ami et un disciple du Maître. Je suis dans les Sphères Célestes en un lieu très proche des esprits les plus élevés qui sont mes associés. [Je vous écrirai en détail quand je viendrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-1-1-jep-elias/).
 
 Avec mon amour et ma bénédiction, je vous souhaite une bonne nuit.
 

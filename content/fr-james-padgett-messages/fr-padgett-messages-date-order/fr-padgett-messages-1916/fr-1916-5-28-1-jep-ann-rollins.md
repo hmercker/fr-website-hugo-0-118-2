@@ -15,11 +15,11 @@ C’est moi, ta grand-mère.
 
 Je vais te dire ce soir une vérité qui pourra t’intéresser, et je sais que c’est important pour tous ceux qui peuvent ardemment désirer un tel bonheur dans la vie future.
 
-Comme tu le sais, je suis maintenant dans les Sphères Célestes, dans un endroit plus élevé que la troisième Sphère Céleste, et où aucune la ligne de démarcation particulière la sépare de ce qu’on peut appeler les plans supérieurs.
+Comme tu le sais, je suis maintenant dans les Sphères Célestes, dans un lieu plus élevé que la troisième Sphère Céleste, et où aucune la ligne de démarcation particulière la sépare de ce qu’on peut appeler les plans supérieurs.
 
 Dans mon plan, les habitants sont ceux qui ont reçu l’Amour Divin dans leurs âmes à un degré qui leur permettent de savoir qu’ils sont d’une nature Divine et en communion avec celle du Père. Bien sûr, ceux qui sont entrés dans la première Sphère Céleste ont la connaissance d’avoir bénéficié de la nature divine, mais ils ne sont pas aussi remplis de cet amour comme nous qui vivons dans la sphère où je suis.
 
-Il n’est pas possible pour moi de vous dire l’ampleur de notre bonheur, car il n’y a aucun mot dans votre langue qui peut éventuellement transmettre une légère conception de ce bonheur, et je ne vais pas essayer de le décrire ; même si vous combinez toutes les émotions de joie et de bonheur que vous avez reçu ou expérimenté dans toutes les années de votre vie, vous ne seriez pas en mesure de réaliser la signification de notre bonheur dans le moindre degré.
+Il n’est pas possible pour moi de te dire l’ampleur de notre bonheur, car il n’y a aucun mot dans ta langue qui peut éventuellement transmettre une légère conception de ce bonheur, et je ne vais pas essayer de le décrire ; même si tu combines toutes les émotions de joie et de bonheur que tu as reçu ou expérimenté dans toutes les années de ta vie, tu ne serais pas en mesure de réaliser la signification de notre bonheur dans le moindre degré.
 
 J’exprime simplement cette vérité pour te montrer, ainsi qu’à toute l’humanité, ce qui est possible pour toi et pour eux d’obtenir, si tu poursuis uniquement le cheminement que le Père a prévu, et que le Maître t’a enseigné dans ses messages.
 

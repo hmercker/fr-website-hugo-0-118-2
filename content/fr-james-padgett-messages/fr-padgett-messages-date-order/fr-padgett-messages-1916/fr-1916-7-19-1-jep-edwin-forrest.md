@@ -13,7 +13,7 @@ Edwin Forrest - reçu par James Padgett le 19 Juillet 1916, Washington, USA.
 
 C’est moi, Edwin Forrest.
 
-Je suis venu ce soir pour te dire que je suis en bien meilleure condition que la dernière fois que je t’ai écrit, et que je suis sorti de la plupart des ténèbres dans lesquelles je vivais.
+Je suis venu ce soir pour te dire que je suis en bien meilleure condition que [la dernière fois que je t’ai écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-27-2-jep-edwin-forrest/), et que je suis sorti de la plupart des ténèbres dans lesquelles je vivais.
 
 Tout cela est si merveilleux pour moi que je réalise à peine ce que cela signifie, et quand je pense à l’ignorance que j’avais sur terre et à la vie sans Dieu que j’ai menée, je ne cesse de remercier Dieu pour les grandes opportunités dont je bénéficie, et pour l’aide des beaux esprits aimants qui sont venus à moi pour me montrer le chemin de la Vérité et de cet Amour du Père.
 

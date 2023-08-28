@@ -51,12 +51,12 @@ Je doit arrêter maintenant, mais [je reviendrai bientôt pour terminer mon mess
 
 Avec tout mon amour, je suis ta grand-mère.
 
-*Note : Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*
+*Note : Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu ?" Ils peuvent être lus par l'intermédiaire du tableau ci-dessous :*
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [La personalité de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/) | 22 Novembre 1915
 Professeur Salyard | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-21-1-jep-joseph-salyards/)  | 21 Novembre 1915
+Jésus | [La personalité de Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/) | 22 Novembre 1915
 Luc | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/) | 22 Novembre 1915
 Anne Rollins | [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/) | 25 Février 1916
 Jésus | [Qui et qu'est-ce que Dieu](fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1917\fr-1917-5-25-1-jep-jesus/) |  25 Mai 1917

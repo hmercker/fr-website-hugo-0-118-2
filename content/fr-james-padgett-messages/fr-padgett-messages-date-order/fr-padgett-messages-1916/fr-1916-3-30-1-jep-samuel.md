@@ -13,7 +13,7 @@ Samuel - reçu par James Padgett le 30 Mars 1916, Washington, USA.
 
 C’est moi, Samuel.
 
-Je désire continuer mon message sur le sujet de la continuité de la vie après la mort du corps, comme le montrent les manifestations de la nature.
+[Je désire continuer mon message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-21-1-jep-samuel/) sur le sujet de la continuité de la vie après la mort du corps, comme le montrent les manifestati]ons de la nature.
 
 Comme je le disais, la mort apparente et la réapparition des éléments du règne végétal, ne fournissent aucun argument qui puisse nous faire croire que l’homme continuera à vivre après la mort de son corps physique. Maintenant, je sais qu’il est difficile à partir des manifestations de la nature de prouver la continuité de la vie, et que les gens pour le bénéfice desquels j’écris ne seront pas disposés à utiliser des preuves de nature spirituelle pour prouver cette continuation de la vie. Je vais donc me limiter aux questions matérielles.
 
@@ -59,4 +59,4 @@ J’ai donc essayé de montrer qu’aucune argumentation ne peut être tirée d�
 
 Je n’ai peut-être pas rendu mon message aussi clair et convaincant que je l’aurais souhaité, mais, dans des discussions de ce genre, il est difficile de transmettre les différentes nuances de la pensée par le biais d’un mortel. Je vous remercie de votre courtoisie et je vais m’arrêter maintenant. Ainsi, avec tout mon amour et les bénédictions du Père, je vous souhaite une bonne nuit.
 
-Ton frère en Christ, Samuel.
+Votre frère en Christ, Samuel.

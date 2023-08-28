@@ -13,7 +13,7 @@ Mary Kennedy - reçu par James Padgett le 2 Novembre 1916, Washington, USA.
 
 C’est moi, Mary.
 
-Eh bien, si sa mère est autorisée à écrire, je pense que je devrais aussi avoir l’occasion de dire quelques mots. J’ai entendu ce que sa mère a écrit et je sais que c’est vrai, car je suis suffisamment avec lui pour voir qu’il a fait de grands progrès dans le développement de son âme, et que l’amour grandit et remplit son âme ; comme elle le dit, le levain a rempli la fournée de pâte.
+Eh bien, [si sa mère est autorisée à écrire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-2-2-jep-priscilla-stone/), je pense que je devrais aussi avoir l’occasion de dire quelques mots. J’ai entendu ce que sa mère a écrit et je sais que c’est vrai, car je suis suffisamment avec lui pour voir qu’il a fait de grands progrès dans le développement de son âme, et que l’amour grandit et remplit son âme ; comme elle le dit, le levain a rempli la fournée de pâte.
 
 Vous voyez que je peux dire quelque chose de sérieux, même lorsque je lui écris, et pourquoi ne le ferais-je pas en ce qui le concerne, car il est plus important pour moi que n’importe quel autre mortel, et j’ai pour lui un amour plus grand que n’importe quel autre esprit. Il le sait, mais j’aime lui dire, et si je ressentais un peu de plaisanterie, je lui dirais que je souhaite lui dire, pour qu’il n’oublie pas.
 

@@ -49,9 +49,9 @@ Je dois arrêter maintenant. Votre frère et ami, Jésus.
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-15-1-jep-jesus) | 15 Août 1915
+Jésus | [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-15-1-jep-jesus/) | 15 Août 1915
 Jésus | [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-13-1-jep-jesus/) | 13 Août 1916
-Jésus | « [En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père ».](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/) | 24 Septembre 1916
+Jésus | ["En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père."](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/)| 24 Septembre 1916
 Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919\fr-1919-10-18-1-jep-jesus/) | 
 18 Octobre 1919 
 

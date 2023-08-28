@@ -30,4 +30,4 @@ Votre femme dit que je ne dois pas écrire plus maintenant, je vais donc vous so
 Votre frère en Christ, Lazare.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume II et dans le volume III (2ème partie).[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume II, deuxième édition française, à la page 352 et dans le volume III à la page 407. . Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
