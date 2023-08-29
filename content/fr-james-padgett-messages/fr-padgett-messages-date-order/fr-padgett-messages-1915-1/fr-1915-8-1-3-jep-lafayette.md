@@ -9,7 +9,7 @@ weight:
 ---
 ### Lafayette, l’amoureux de la liberté, ami de Washington et de notre pays, exprime ses réflexions sur la France et l’Allemagne et sur l’issue de la guerre
 
-Lafayette - reçu par James Padgett le 1 Août 1915, Washington, USA.
+Lafayette - reçu par James Padgett le 1er Août 1915, Washington, USA.
 
 Je suis Lafayette.<sup id="a1">[1](#f1)</sup>
 

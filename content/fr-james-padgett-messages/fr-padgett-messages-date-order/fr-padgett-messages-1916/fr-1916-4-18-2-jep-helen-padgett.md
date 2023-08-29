@@ -28,6 +28,6 @@ Eh bien, je dois m’arrêter, alors avec tout mon amour et un gros baiser, et M
 Ton véritable amour, Hélène.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-<large id=”f1”> La note suivante a été écrite par le Dr Stone lorsqu’il a effectué le travail de guérison en 1915 : *« Cette dame était ma patiente, et je suis heureux d’écrire que c’est grâce à l’aide des esprits élevés qui m’ont aidé avec leurs pouvoirs de guérison et qui m’ont permis d’exercer leurs pouvoirs, que cette dame a finalement retrouvé la santé et que la souffrance et la douleur ont été supprimées, ce qui lui a fait verser de nombreuses larmes de joie et de bonheur. Elle m’a remercié à de nombreuses reprises, mais je lui ai dit de remercier le Père Céleste d’avoir envoyé les esprits élevés pour la guérir. »* (Dr. Leslie R. Stone).[↩](#a1)
+1. <large id=”f1”> La note suivante a été écrite par le Dr Stone lorsqu’il a effectué le travail de guérison en 1915 : *« Cette dame était ma patiente, et je suis heureux d’écrire que c’est grâce à l’aide des esprits élevés qui m’ont aidé avec leurs pouvoirs de guérison et qui m’ont permis d’exercer leurs pouvoirs, que cette dame a finalement retrouvé la santé et que la souffrance et la douleur ont été supprimées, ce qui lui a fait verser de nombreuses larmes de joie et de bonheur. Elle m’a remercié à de nombreuses reprises, mais je lui ai dit de remercier le Père Céleste d’avoir envoyé les esprits élevés pour la guérir. »* (Dr. Leslie R. Stone).[↩](#a1)
 
 

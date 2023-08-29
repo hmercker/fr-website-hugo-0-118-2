@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 15 Avril 1916, Washington, USA.
 
 C’est moi, ton Hélène.
 
-Eh bien, tu as reçu de merveilleux messages ce soir, et tu dois croire qu’ils ont été écrits par les esprits qui ont professé avoir écrit. Je connais les esprits, et je te dis – et tu sais que je ne te tromperais pas – que Jean, Saul et Marie t’ont écrit, et ce qu’ils ont écrit, ils savent que c’est la vérité.
+Eh bien, tu as reçu de merveilleux messages ce soir, et tu dois croire qu’ils ont été écrits par les esprits qui ont professé avoir écrit. Je connais les esprits, et je te dis – et tu sais que je ne te tromperais pas – que [Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-4-15-2-jep-st-john/), [Saul](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-4-15-3-jep-saul/) et [Marie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-1-jep-mary/) t’ont écrit, et ce qu’ils ont écrit, ils savent que c’est la vérité.
 
 Comme je suis heureuse ce soir, car je vois que tu es heureux aussi, et que tu as ressenti l’influence du Grand Amour qui t’a entouré cette nuit.
 

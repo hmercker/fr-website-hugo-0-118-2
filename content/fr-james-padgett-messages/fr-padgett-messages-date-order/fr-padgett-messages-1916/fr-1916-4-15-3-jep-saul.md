@@ -11,7 +11,7 @@ weight:
 
 Saul - reçu par James Padgett le 15 Avril 1916, Washington, USA.
 
-C »est moi, Saul.
+C'est moi, Saul.
 
 Je veux écrire juste une ligne alors que, ce soir, je vois que vous êtes entouré de tant d’esprits élevés. Je n’ai pas l’intention de communiquer longuement, je dois seulement vous dire que je suis dans une condition d’amour qui me rend heureux comme je vois que vous l’êtes.
 
@@ -25,7 +25,7 @@ J’écris ceci pour montrer que certains chrétiens orthodoxes font une grande 
 
 Je n’écrirai pas plus ce soir, et je dirai qu’en unité avec les autres esprits qui sont ici ce soir, je vous aime de l’amour d’un frère qui connaît la réalité de cet Amour Divin.
 
-Votre frère en Christ, Saul.sup id=”a1”>[1](#f1)</sup>
+Votre frère en Christ, Saul.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
 1. <large id=”f1”> [Le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-1-jep-mary/), Marie s'était clairement exprimée comment étant la  mère biologique de Jésus.[↩](#a1)

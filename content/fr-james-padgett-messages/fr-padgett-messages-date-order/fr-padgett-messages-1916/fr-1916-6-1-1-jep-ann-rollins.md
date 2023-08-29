@@ -9,7 +9,7 @@ weight:
 ---
 ### La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »
 
-Anne Rollins - reçu par James Padgett le 1 Juin 1916, Washington, USA.
+Anne Rollins - reçu par James Padgett le 1er Juin 1916, Washington, USA.
 
 C’est moi, ta grand-mère.
 

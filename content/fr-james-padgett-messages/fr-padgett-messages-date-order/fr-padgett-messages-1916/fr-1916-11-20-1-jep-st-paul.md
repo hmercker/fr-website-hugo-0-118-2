@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’enfer et la durée de le peine
+### L’enfer et la durée de le peine (suite)
 
 St Paul - reçu par James Padgett le 20 Novembre 1916, Washington, USA.
 

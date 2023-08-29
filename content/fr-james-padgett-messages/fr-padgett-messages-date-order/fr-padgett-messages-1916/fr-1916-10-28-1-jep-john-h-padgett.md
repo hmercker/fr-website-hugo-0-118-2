@@ -11,7 +11,7 @@ weight:
 
 John Padgett - reçu par James Padgett le 28 Octobre 1916, Washington, USA.
 
-C’est moi, ton père. Je souhaite écrire quelques lignes ce soir, car je n’ai pas écrit depuis un certain temps et je souhaite que tu aies de mes nouvelles et que tu apprennes que j’ai été très présent avec toi, que j’ai essayé de t’aider et de te rendre heureux.
+C’est moi, ton père. Je souhaite écrire quelques lignes ce soir, car je n’ai pas écrit [depuis un certain temps](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-2-jep-john-h-padgett/) et je souhaite que tu aies de mes nouvelles et que tu apprennes que j’ai été très présent avec toi, que j’ai essayé de t’aider et de te rendre heureux.
 
 Je connais les inquiétudes que tu éprouves, et je sais que tout te paraît si sombre et qu’aucun soulagement apparent n’est en vue. Cependant tu ne dois pas avoir des vues aussi effrayantes, car ce que tu t’imagines voir ne se réalisera jamais, et les choses prochainement s’éclairciront. Je t’aime, comme tu le sais, et comme beaucoup d’autres qui sont fréquemment avec toi, et tu dois croire qu’ils essaient de t’aider et qu’ils le font. Si tu pouvais te rendre compte, ne serait-ce qu’un instant, du pouvoir que tu as autour de toi et de la mesure dans laquelle il est exercé pour ton bien, tu ne regarderais pas les choses matérielles sous un jour aussi sombre.
 

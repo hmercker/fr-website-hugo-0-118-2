@@ -27,7 +27,7 @@ Alors, je vous remercie et je vous souhaite une bonne nuit.
 
 Avec tout mon amour pour mon fils, et grâce à vous, je dirai je suis sa mère.
 
-La petite fille dont il est question est mon âme sœur, Mary Kennedy, qui va maintenant écrire :
+*La petite fille dont il est question est mon âme sœur, Mary Kennedy, qui va maintenant écrire :*
 
 Je ne suis pas égoïste comme ma belle-mère le dit. Vous savez à quel point la belle-mère a une terrible réputation d’interférence dans la relation entre la belle-fille et le fils qui pense plus à sa femme qu’à sa mère. Mais ce n’est pas le cas en l’occurrence, car sa mère m’aime autant qu’elle l’aime, et elle est heureuse lorsque je peux venir à lui et lui dire combien je l’aime.
 

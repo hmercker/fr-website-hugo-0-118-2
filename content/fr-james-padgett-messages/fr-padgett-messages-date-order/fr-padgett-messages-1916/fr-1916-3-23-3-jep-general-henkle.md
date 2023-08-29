@@ -23,4 +23,4 @@ Ici, il y a des petits cercles d’amis, comme sur terre, avec cependant une dif
 Oui, je l’ai rencontrée et elle n’est pas très heureuse. Elle a la croyance qui m’a retenu si longtemps, et peu de développement de l’âme. J’ai essayé de l’aider, mais il est difficile de lui faire renoncer au mode de pense qui fut le sien sur terre. Cependant, tôt ou tard, elle découvrira la vérité. Elle n’est pas mon âme-sœur, comme le dit votre femme, et elle semble tout savoir des âmes sœurs. Elle dit qu’elle me dira bientôt qui est la mienne, et j’en serai heureux.
 Je ne dois pas écrire plus, mais je vous remercie beaucoup pour votre gentillesse.
 
-Votre vieil ami, Général S. S. Henkle.
+Votre vieil ami, Général S. Henkle.

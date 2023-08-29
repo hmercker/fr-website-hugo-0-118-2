@@ -31,9 +31,10 @@ Je vais essayer ce soir, comme je l’ai promis, de l’aider, et si nous pouvon
 
 Je viendrai bientôt vous écrire un autre message sur un sujet important, afin que vous puissiez voir la nécessité de notre travail plus rapide. Je n’écrirai pas plus, mais je dirai que je vous aime et que je suis avec vous et que j’essaie de t’aider. Alors, avec ma bénédiction, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
+1. <large id=”f1”> *Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -49,9 +49,9 @@ Comme je vous l’ai déjà écrit, lorsque Dieu a créé l’homme et l’a fai
 
 Eh bien, lorsque l’homme, par le chemin qui lui a été indiqué, devient possédé de la Substance de la nature Divine du Père, même dans un premier degré, son âme commence à se transformer, à perdre son caractère de simple image, et à progresser vers la réalisation de cette condition lorsque cette image disparaît pour laisser la place à la Substance Divine. Alors que le progrès continue il reçoit tellement de la Substance que son âme reçoit la nature Divine du Père. Sa communion avec le Père devient si parfaite qu’il devient un habitant du Royaume du Père. Cela se produit lorsqu’il devient apte à entrer dans la première Sphère Céleste. Et à ce moment se produit une autre chose qui peut surprendre ceux qui enseignent que l’esprit est l’essence de Dieu, c’est que le mental que l’homme, en tant que mortel et esprit, possède jusqu’à ce que, au cours du progrès de l’âme, la transformation en la nature Divine est lieu, disparaît ou plutôt est absorbé dans l’esprit de l’âme, qui est le véritable esprit du Père. Et alors, et même après, seul cet esprit de l’âme est celui qui permet au véritable homme Divin de comprendre les choses de Dieu, de l’aider dans son progrès.
 
-Je continuerai plus tard. Vous êtes fatigué. Mais souvenez-vous que vous aime et que je suis toujours avec vous pour vous aider, vous soutenir et vous réconforter.
+[Je continuerai plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/). Vous êtes fatigué. Mais souvenez-vous que vous aime et que je suis toujours avec vous pour vous aider, vous soutenir et vous réconforter.
 
-Bonne nuit, mon cher frère, votre ami et frère, Jésus.<sup id="a2">21](#f2)</sup
+Bonne nuit, mon cher frère, votre ami et frère, Jésus.<sup id="a2">[2](#f2)</sup
 <small>
 
 1. <large id="f1"> Il faut prendre en considération que ce message a été communiqué au début du 20ème siècle.[↩](#a1)
@@ -61,9 +61,9 @@ Bonne nuit, mon cher frère, votre ami et frère, Jésus.<sup id="a2">21](#f2)</
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) | 03 Mars 1915 
-Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/) |  4 Juin 1915 
-Jésus | [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/) | 28 Février 1916
+Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/) |  4 Juin 1915 
+Jésus | [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/) | 28 Février 1916
 Jésus |  [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père. Mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/) | 15 Mars 1916
-Jésus |  [Comment l’Amour Divin entre dans l’âme de l’homme (Suite).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/) | 08 Mai 1916
-Jésus |  [Comment l’âme d’un mortel reçoit l’Amour Divin et quel est son effet, bien que, par la suite, il puisse se laisser influencer par des croyances qui peuvent avoir tendance à empêcher la croissance de l’âme. Qu’est ce qu’une âme en peine.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-10-1-jep-jesus/) |  10 Novembre 1916 
+Jésus |  [Comment l’Amour Divin entre dans l’âme de l’homme (Suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/) | 08 Mai 1916
+Jésus |  [Comment l’âme d’un mortel reçoit l’Amour Divin et quel est son effet, bien que, par la suite, il puisse se laisser influencer par des croyances qui peuvent avoir tendance à empêcher la croissance de l’âme ? Qu’est ce qu’une âme en peine ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-10-1-jep-jesus/) |  10 Novembre 1916 
 Jésus | [Christ peut être en vous – ce que cela signifie.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-3-3-1-jep-jesus/) |  03 Mars 1918

@@ -28,4 +28,4 @@ Eh bien, mon chéri, ce soir je ne dois pas écrire plus longtemps, car il est t
 Ta vraie et affectueuse, Hélène.
 <small>
 
-1. <large id="f1"> Une entité terrestre est un être astral et non un être spirituel, et pour se déplacer vers les Sphères de l’Esprit, il doit laisser derrière elle son corps astral, ou le perdre, ce qui l’empêche d’entrer dans les Sphères de l’Esprit. S’il est vrai, comme le dit Hélène, que les formes astrales ne sont pas « réelles », on pourrait tout aussi bien dire, et il l’a déjà été dit, de ce monde physique. (Geoff Cutler)[↩](#a1)
+1. <large id="f1"> Une entité terrestre est un être astral et non un être spirituel, et pour se déplacer vers les Sphères de l’Esprit, elle doit laisser derrière elle son corps astral, ou le perdre, car il l’empêche d’entrer dans les Sphères de l’Esprit. S’il est vrai, comme le dit Hélène, que les formes astrales ne sont pas « réelles », on pourrait tout aussi bien dire, et il l’a déjà été dit, de ce monde physique. (Geoff Cutler)[↩](#a1)

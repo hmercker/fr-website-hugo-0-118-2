@@ -19,6 +19,6 @@ Je voudrais vous écrire ce soir un long message sur ce qui s’est passé à l�
 
 Mais nous avions reçu la connaissance spirituelle de ces choses qui rendraient l’homme meilleur dans sa nature morale et le rapprocheraient du Père dans son amour naturel. Nos efforts visaient à faire comprendre aux gens ces choses et la nécessité de se conformer aux lois morales.
 
-Comme je l’ai dit, je voulais vous écrire un long message, [mais il y a quelqu’un d’autre, présent, qui désire écrire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-30-1-jep-st-john/) et je vais m’arrêter. Mais je reviendrai bientôt et livrerai mon message et, pendant ce temps, je prierai pour vous et essaierai de vous aider dans votre développement d’âme et dans votre travail. Avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
+Comme je l’ai dit, je voulais vous écrire un long message, [mais il y a quelqu’un d’autre, présent, qui désire écrire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-1-2-jep-st-john/) et je vais m’arrêter. Mais je reviendrai bientôt et livrerai mon message et, pendant ce temps, je prierai pour vous et essaierai de vous aider dans votre développement d’âme et dans votre travail. Avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
 Votre frère en Christ, Élie.

@@ -9,9 +9,9 @@ weight:
 ---
 ### Très intéressé par le travail et l’importance pour l’humanité de connaître la Vérité 
 
-Cornelius - reçu par James Padgett le 7 Février 1917, Washington, USA.
+Corneille - reçu par James Padgett le 7 Février 1917, Washington, USA.
 
-C’est moi, Cornelius (le Centurion).
+C’est moi, Corneille (Cornelius le Centurion).
 
 Je veux seulement écrire quelques lignes ce soir. Je m’intéresse tellement à vous et à votre travail que je sens que je devrais vous donner quelques encouragements pour vous faire savoir qu’il y a ici, ce soir, beaucoup d’esprits qui sont présents, qui vous aiment beaucoup et qui désirent que vous receviez leurs messages d’amour et de vérité.
 

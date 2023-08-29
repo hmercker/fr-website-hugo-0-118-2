@@ -19,6 +19,9 @@ Et il en est de même de nombreux paroissiens qui sont des chercheurs, sérieux 
 
 Je ne vais pas essayer de reprendre ce que Luc a dit, car je ne pourrais être plus clair. Cependant, je désire dire à mon peuple que ce qu’il dit est vrai et qu’ils doivent le croire. Dans le futur, j’aimerais revenir et vous écrire un long message sur un sujet qui a été l’objet de ma considération pendant une longue période, et qui, pour moi et pour beaucoup, est une question très vitale dans la vie terrestre. Je ne vais pas écrire plus ce soir et je vous remercie pour votre gentillesse pour m’avoir permis d’écrire. Eh bien, je suis dans la septième sphère et suis très heureux dans mon amour et mes environnements, mais je me rends compte que si j’avais su la vérité que je connais maintenant, je serais beaucoup plus avancé. Oh, je vous dis l’entrave des progrès de l’âme due aux conséquences d’une vie de croyances erronées est une chose terrible. Je vous souhaite une bonne nuit et que Dieu vous bénisse.
 
-Votre frère en Christ, L’évêque Newman.
+Votre frère en Christ, L’évêque Newman.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Cet esprit est **John Philip Newman** – (1826 -1899) - évêque de l’église Méthodiste Episcopale*
+<large id=”f1”> *Note : Cet esprit est **John Philip Newman** – (1826 -1899) - évêque de l’église Méthodiste Episcopale*.[↩](#a1)
+
+

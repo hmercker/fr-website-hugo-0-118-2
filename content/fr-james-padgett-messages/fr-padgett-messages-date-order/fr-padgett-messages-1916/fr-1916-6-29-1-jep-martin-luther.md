@@ -27,9 +27,10 @@ Bien sûr, vous vous souvenez que la nature et le sens exact de ce qu’étaient
 
 Je vois que vous êtes fatigué et endormi et je vais donc m’arrêter.
 
-Ainsi, avec mon amour et mes vœux d’augmentation en vous de l’Amour Divin, je suis Votre frère en Christ, Luther.
+Ainsi, avec mon amour et mes vœux d’augmentation en vous de l’Amour Divin, je suis Votre frère en Christ, Luther.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+1. <large id=”f1”> *Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

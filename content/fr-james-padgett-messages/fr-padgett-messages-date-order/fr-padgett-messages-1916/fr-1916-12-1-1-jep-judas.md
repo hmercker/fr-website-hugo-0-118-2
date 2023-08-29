@@ -9,7 +9,7 @@ weight:
 ---
 ### Judas, en tant que frère et ami, exhorte M. Padgett à ne pas permettre à son mental physique de contrôler sa conscience spirituelle, ce qui obscurcit les facultés de l’âme et empêche tout rapport avec les esprits supérieurs
 
-Judas - reçu par James Padgett le 1 Décembre 1916, Washington, USA.
+Judas - reçu par James Padgett le 1er Décembre 1916, Washington, USA.
 
 C’est moi, Judas. Je ne dirai que quelques mots ce soir, car je vois que vous n’êtes pas en mesure d’écrire un long message.
 

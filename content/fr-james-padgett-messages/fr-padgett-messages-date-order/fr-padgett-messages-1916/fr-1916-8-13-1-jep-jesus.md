@@ -31,13 +31,14 @@ La paix viendra, mais pas à la suite d’une bataille d’Armageddon, ou de tou
 
 Je n’écrirai pas plus ce soir, mais, à un moment donné, je pourrais en dire plus à ce sujet, bien que sa seule importance soit d’attirer l’attention des hommes sur la vérité et de créer des croyances qui nuisent. Je viendrai bientôt pour vous écrire un autre message de vérité.
 
-Je suis avec vous, comme je vous l’ai dit, en essayant de vous aider et de vous montrer le chemin vers cette Nouvelle Naissance qui est la vôtre et de tous ceux qui suivront mes instructions. Je vous aime comme un frère cadet et je continuerai à vous bénir avec mon influence et mes prières. Ne doutez donc pas, priez le Père et vous trouverez la vérité dans une plus grande plénitude et recevrez le bonheur correspondant. Je vais m’arrêter maintenant.
+Je suis avec vous, comme je vous l’ai dit, en essayant de vous aider et de vous montrer le chemin vers cette Nouvelle Naissance qui est la vôtre et de tous ceux qui suivront mes instructions. Je vous aime comme un frère cadet et je continuerai à vous bénir avec mon influence et mes prières. Ne doutez donc pas, priez le Père et vous trouverez la vérité dans une plus grande plénitude et recevrez le bonheur correspondant. Je vais m’arrêter maintenant.<sup id=”a1”>[1](#f1)</sup>
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a2”>[2](#f2)</sup>
+<small>
 
-*Note 1: [Dans un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-7-20-1-ks-jesus/), Jésus dit clairement qu’il pourrait « apparaître » à l’humanité, mais il ne serait pas un homme de chair. Il aurait ce qu’on appelle un corps matérialisé, le même que ses disciples ont vu après sa mort sur la croix. En fait, il est probablement apparu à certaines personnes de cette manière.*
+1. <large id=”f1”> *[Dans un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-7-20-1-ks-jesus/), Jésus dit clairement qu’il pourrait « apparaître » à l’humanité, mais il ne serait pas un homme de chair. Il aurait ce qu’on appelle un corps matérialisé, le même que ses disciples ont vu après sa mort sur la croix. En fait, il est probablement apparu à certaines personnes de cette manière.*[↩](#a1)
 
-*Note 2 : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+2. <large id=”2”> Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

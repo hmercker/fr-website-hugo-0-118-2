@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène affirme que Flavius Joseph a écrit et commente les propos sur l’égalité des sexes
+### Hélène affirme que Flavius Josèphr a écrit et commente les propos sur l’égalité des sexes
 
 Hélène Padgett - reçu par James Padgett le 3 Juin 1916, Washington, USA.
 
 C’est moi, ta vraie Hélène.
 
-Eh bien, mon cher, tu as reçu [un message de Flavius Joseph](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-3-1-jep-josephus/), qui peut être considéré comme un argument en faveur des droits des femmes, et je ne doute pas que les femmes seront d’accord avec lui, en particulier en ce qui concerne sa prédiction sur l’avenir des femmes.
+Eh bien, mon cher, tu as reçu [un message de Flavius Josèphe](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-3-1-jep-josephus/), qui peut être considéré comme un argument en faveur des droits des femmes, et je ne doute pas que les femmes seront d’accord avec lui, en particulier en ce qui concerne sa prédiction sur l’avenir des femmes.
 
 Tout cela est peut-être vrai, et les prédictions pourront peut-être se réaliser. Je n’en sais rien. Mais ce que je sais, c’est qu’en ce qui concerne l’Amour divin du Père et les conditions dans les Cieux Célestes, il n’y a pas de distinction entre l’homme et la femme, si ce n’est que le développement individuel différent de l’âme. Et lorsque l’on considère en outre le fait que les deux parties de l’âme unique, représentées par l’homme et la femme, doivent, pour que l’âme soit parfaite, s’unir en parfaite harmonie, il est alors possible de comprendre que l’une ne sera pas supérieure à l’autre, mais que toutes deux doivent être égales, non seulement en amour et dans la nature du Divin, mais en toute autre qualité qui peut exister.
 

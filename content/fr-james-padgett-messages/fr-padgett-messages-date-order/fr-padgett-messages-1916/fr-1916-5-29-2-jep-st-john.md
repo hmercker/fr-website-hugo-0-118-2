@@ -47,16 +47,20 @@ Et, d’ailleurs, tout esprit, aussi déchu qu’il soit, a un travail à faire,
 
 Maintenant ce que j’ai écrit s’applique bien sûr aux esprits méchants, vils et sans aucun développement d’âme dans la voie du bien. Cependant, un principe similaire se manifeste dans les conditions de tous les esprits du plan terrestre, bien que plus ils sont élevés dans ce plan, plus ils ont de possibilités de recevoir de l’aide et de progresser. Au sujet de ces derniers, et de l’opération des pensées et des qualités morales sur la condition et le progrès de l’âme, je vous écrirai plus tard.
 
-J’ai assez écrit pour ce soir, je vais vous laisser et, avec mon amour et mes bénédictions, je vous souhaiterai une bonne nuit.
+J’ai assez écrit pour ce soir, je vais vous laisser et, avec mon amour et mes bénédictions, je vous souhaiterai une bonne nuit.sup id=”a3”>[3](#f4)</sup>
 
 Votre frère en Christ, Jean.
-
-*Note : Ce message est publié dans le Volume 1, deuxième édition française, à la page 293 et dans le volume III à la page 249 Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/). Un résumé complet des sphères que l’homme peut atteindre après la mort [est présenté sur cette page](/7-fr-life-after-death/7-3-fr-the-spirit-heavens-and-the-christian-kingdom-of-god/).*
 <small>
 
 1. <large id="f1"> Les expressions monde des esprits ou monde spirituel sont identiques et correspondent à la résidence des esprits après la fin de leur vie terrestre.[↩](#a1)
 
-
 2. <large id="f2"> De même les termes corps esprit ou corps spirituel sont synonymes. Ils correspondent à « l’enveloppe » qui entoure l’esprit (l’âme) durant sa vie terrestre ou durant sa vie dans l’au-delà.[↩](#a2)
+
+3. <large id="f3"> Le cheminement de l'âme après la mort est traité de façon détaillée [dans ce sujet](/7-fr-life-after-death/7-1-2-fr-getting-the-hell-out-of-here/). Un résumé des sphères que l’homme peut atteindre après la mort [est présenté sur cette page](/7-fr-life-after-death/7-3-fr-the-spirit-heavens-and-the-christian-kingdom-of-god/).↩(#a3)
+
+4. <large id="f4"> Note : Ce message est publié dans le Volume 1, deuxième édition française, à la page 293 et dans le volume III à la page 249 Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).↩(#a43)
+
+
+
 
 

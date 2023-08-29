@@ -24,6 +24,6 @@ Avec mon amour, je vous souhaite une bonne nuit.
 Votre frère en Christ, Luther.
 <small>
 
-1. <large id="f1"> Ce fut les papes Léon X et Pape Clément VII. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Ce fut les papes Léon X et Pape Clément VII. (Geoff Cutler)[↩](#a1)
 
 2. <large id="f2"> La tablette de Padgett (qui donne résumé de chaque message) suggère que la phrase *« Ils ne sont pas dans les Cieux Célestes »* qui se trouve dans la publication, devrait en fait être *« Ils sont maintenant dans les Cieux Célestes »*. Le texte ci-dessus a été modifié en conséquence, de même que le titre. (Geoff Cutler.)[↩](#a2)

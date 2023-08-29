@@ -33,22 +33,15 @@ Ils croient ainsi, et dans leur esprit, ils peuvent être honnêtes. Cependant l
 
 Mais ils prétendent en outre que Jésus, par sa grande puissance, et le fait qu’ils croient qu’il reviendra sur terre et établira son royaume, en un clin d’œil, les rendront aptes à devenir des sujets pour son royaume, qualifiés pour juger l’injuste et aider à les chasser de son royaume. Non, cela ne peut jamais être la manière dont le millénium sera établi, et plus tôt les hommes écarteront cette croyance et chercheront la vérité et la vraie voie vers la pureté et la perfection, plus tôt l’espérance et l’attente de l’humanité seront réalisées.
 
-Votre frère en Christ, Luc.
+Votre frère en Christ, Luc.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+1. <large id=”f1”> *Note : Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Saint Luc | [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/) | 05 Septembre 1915 
-Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-st-luke/) | 17 Septembre 1915
+Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
 Saint Luc | [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/) | 5 Décembre 1915
 Saint Luc |  [Quels sont les faits qui prouvent l’authenticité de la Bible.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-12-1-jep-st-luke/) | 12 Mars 1917 
 
-
-5 Septembre 1915 :  [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/).
-
-17 Septembre 1915 : [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-st-luke/).
-
-5 Décembre 1915 : [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/).
-
-12 Mars 1917 : [Quels sont les faits qui prouvent l’authenticité de la Bible.](//fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-12-1-jep-st-luke/)

@@ -34,4 +34,4 @@ Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 Votre ami et frère, Jésus.
 <small>
 
-<large id=”f1”>  Le 23 Avril 1916 était célébrée, dans la monde Chrétien, la fête de Pâques.[↩](#a1)
+1. <large id=”f1”>  Le 23 Avril 1916 était célébrée, dans la monde Chrétien, la fête de Pâques.[↩](#a1)

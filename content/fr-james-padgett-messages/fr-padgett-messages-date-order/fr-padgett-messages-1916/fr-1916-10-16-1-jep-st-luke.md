@@ -31,6 +31,9 @@ Alors je dis, ne laissez pas les hommes consacrer une grande partie de leur temp
 
 Avec tout mon amour je vais vous dire bonne nuit.
 
-Votre frère en Christ, Luc.
+Votre frère en Christ, Luc.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-* Note : L’éditeur des messages originaux de James Padgett a créé un court article sur le thème des [Pensées et des Formes de Pensée](/7-fr-life-after-death/7-14-fr-thoughts-and-thought-forms/).*
+1. <large id=”f1”> * Note : L’éditeur des messages originaux de James Padgett a créé un court article sur le thème des [Pensées et des Formes de Pensée](7-fr-life-after-death/7-1-4-fr-thoughts-and-thought-forms/).*[↩](#a1)
+
+

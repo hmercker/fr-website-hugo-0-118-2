@@ -29,6 +29,6 @@ Ces péchés dont je parle ont été créés par les pensées et les désirs de 
 
 Les mauvaises pensées naissent des suggestions, tant intérieures qu’extérieures, et aussi des influences des esprits du mal qui établissent un rapport avec les mortels.
 
-Remettons à plus tard la rédaction de notre rapport, car ce n’est pas tout à fait correct. Je viendrai bientôt pour le terminer.
+Remettons à plus tard la suite de ce message, car notre rapport n’est pas tout à fait correct. Je viendrai [bientôt](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-17-1-jep-jesus/) pour le terminer.
 
 Avec tout mon amour, je suis votre frère et votre ami, Jésus.

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Cornelius parle des grandes audiences qui assistent aux écrits reçus par M Padgett et écoutent ce qui est dit<sup id="a1">[1](#f1)</sup>
+### Corneilile parle des grandes audiences qui assistent aux écrits reçus par M Padgett et écoutent ce qui est dit<sup id="a1">[1](#f1)</sup>
 
 Corneille - reçu par James Padgett le 3 Décembre 1916, Washington, USA.
 

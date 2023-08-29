@@ -31,14 +31,12 @@ De même qu’il serait impossible d’habiller un mortel ayant un corps de chai
 
 Alors, avec tout mon amour, je vous souhaite une bonne nuit.
 
-Ton frère en Christ, Paul.
+Ton frère en Christ, Paul.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*
+1. <large id=”f1”> *Note : Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saint Paul |  [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/) | 16 janvier 1916
-Saint Paul |  [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/) |  08 Février 1916
-
-
-   
+Saint Paul |  [La résurrection qui est commune à chacun, qu’il soit saint ou pécheur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-16-2-jep-paul-of-tarsus/) | 16 janvier 1916
+Saint Paul |  [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/) |  08 Février 1916  

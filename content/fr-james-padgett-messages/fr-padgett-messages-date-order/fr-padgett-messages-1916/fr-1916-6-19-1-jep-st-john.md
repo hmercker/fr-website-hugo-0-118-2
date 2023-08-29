@@ -37,9 +37,10 @@ En vous quittant, je vous donne mon amour et mes bénédictions et l’assurance
 
 Alors mon cher frère, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Jean.
+Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*
+1. <large id=”f1”> *Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

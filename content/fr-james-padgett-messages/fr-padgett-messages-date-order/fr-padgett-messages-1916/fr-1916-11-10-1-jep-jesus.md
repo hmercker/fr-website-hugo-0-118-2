@@ -39,20 +39,20 @@ Le Divin vient du dessus et une fois planté dans l’âme d’un homme, il ne p
 
 J’ai suffisamment écrit pour ce soir et je suis satisfait de la façon dont vous avez reçu mon message. Continuez à prier le Père pour recevoir de plus en plus Son Amour Divin, et vos prières seront répondues, et vous réaliserez, avec la certitude de la possession consciente de l’Essence Divine, que votre âme n’est pas perdue et ne le sera jamais. Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> C’est le Ciel Spirituel de l’homme parfait qui possède seulement l’amour naturel à l’état pur, mais ne possède pas l’Amour Divin qui est nécessaire pour entrer dans les Cieux Célestes.[↩](#a1)
 
-*Note 2 : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
+2. <large id="f2"> *Note 2 : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus |  [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/). | 03 Mars 1915
-Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/). | 4 Juin 1915
-Jésus |  [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/). | 28 Février 1916 
-Jésus |  [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père. Mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/). |  15 Mars 1916
-Jésus |  [Comment l’Amour Divin entre dans l’âme de l’homme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/). | 23 Mars 1916
-Jésus | [Comment l’Amour Divin entre dans l’âme de l’homme (Suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/). | 08 Mai 1916
+Jésus |  [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) | 03 Mars 1915
+Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/) | 4 Juin 1915
+Jésus |  [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/) | 28 Février 1916 
+Jésus |  [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père. Mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/) |  15 Mars 1916
+Jésus |  [Comment l’Amour Divin entre dans l’âme de l’homme ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/) | 23 Mars 1916
+Jésus | [Comment l’Amour Divin entre dans l’âme de l’homme (Suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/) | 08 Mai 1916
 Jésus | [Christ peut être en vous – ce que cela signifie ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-3-3-1-jep-jesus) | 3 Mars 1918
 

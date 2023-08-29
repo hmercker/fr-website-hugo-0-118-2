@@ -21,7 +21,7 @@ Eh bien, je comprends ce que tu dis et je vais croire que tu désires m’aider,
 
 Oui, je vois des gens qui sont comme moi et qui ont, comme moi, besoin d’aide.
 
-Oui, maintenan,t je vois de belles et brillantes personnes qui sont si différentes de celles que j’ai jamais vues, et, lorsque je les regarde, elles deviennent plus claires pour moi. Je vois ta femme, elle est si belle et me parle, et dit qu’elle a entendu ce que je t’ai dit et qu’elle est prête à m’aider si je veux bien l’écouter et essayer de croire ce qu’elle dit. Elle est adorable et semble trop belle !
+Oui, maintenant je vois de belles et brillantes personnes qui sont si différentes de celles que j’ai jamais vues, et, lorsque je les regarde, elles deviennent plus claires pour moi. Je vois ta femme, elle est si belle et me parle, et dit qu’elle a entendu ce que je t’ai dit et qu’elle est prête à m’aider si je veux bien l’écouter et essayer de croire ce qu’elle dit. Elle est adorable et semble trop belle !
 
 Eh bien, j’ai entendu ce que tu disais et tu me surprends un peu en me parlant de Taggart et des autres, et je vais essayer de faire ce que tu dis. Mais avant que je parte, dis-moi comment as-tu eu le pouvoir de recevoir mes écrits et donc de communiquer ? Je n’ai jamais su, lorsque j’étais sur terre, que tu avais ce pouvoir, mais, même si tu m’en avais parlé, je suppose que je n’aurais pas cru.
 

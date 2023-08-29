@@ -27,9 +27,10 @@ Cet Amour est la vie des Cieux Célestes et la seule clé qui déverrouille les 
 
 En terminant, permettez-moi de répéter qu’il (l’Amour Divin) est la plus grande chose dans tout l’univers de Dieu et pas seulement le plus grand, mais la somme de toutes choses, car de lui découlent toutes les autres choses qui apportent la paix et le bonheur. Je n’écrirai pas plus ce soir, et avec mon amour pour vous, et la bénédiction du Père, je vous dirai bonne nuit.
 
-Votre frère en Christ, Jean.
+Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*
+<large id=”f1”> *Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

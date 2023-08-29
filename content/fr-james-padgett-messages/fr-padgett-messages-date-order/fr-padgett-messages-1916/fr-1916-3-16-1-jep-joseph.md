@@ -40,11 +40,11 @@ Mon frère, je vais m’arrêter maintenant, et en partant, je vous dis, que vou
 Votre frère en Christ, Joseph.
 <small>
 
-1. <large id="f1"> Beaucoup d’années plus tard, [Joseph a admis être le père de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph), un rôle qu’il se sent quelque peu embarrassé d’avoir, car il n’avait pas cru en son fils jusqu’à sa mort. Cela a également été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000\fr-2000-2-9-1-ar-joseph/).[↩](#a1)
+1. <large id="f1"> Beaucoup d’années plus tard, [Joseph a admis être le père de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph), un rôle qu’il se sent quelque peu embarrassé d’avoir, car il n’avait pas cru en son fils jusqu’à sa mort. Cela a également été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/).[↩](#a1)
 
 *Note 2 : Liens vers d'autres messages relatifs à la crucifixion de jésus :*
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 St Luc | [Explique la dématérialisation du corps terrestre de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-24-1-jep-st-luke/) | 24 Octobre 1915
 Elohiam | [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/) | 22 Janvier 1917

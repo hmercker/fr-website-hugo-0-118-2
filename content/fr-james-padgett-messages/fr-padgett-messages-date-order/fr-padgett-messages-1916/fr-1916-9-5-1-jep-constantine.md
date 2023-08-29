@@ -9,7 +9,7 @@ weight:
 ---
 ### Constantin nie avoir accepté le Christianisme alors qu’il vivait sur la terre. Est maintenant un Esprit Céleste
 
-Constantine - reçu par James Padgett le 5 Septembre 1916, Washington, USA.
+Constantin - reçu par James Padgett le 5 Septembre 1916, Washington, USA.
 
 C’est moi, Constantin.<sup id="a1">[1](#f1)</sup>
 

@@ -49,16 +49,16 @@ La Bible contient de nombreuses vérités, et suffisamment, pour permettre à l�
 
 Je n’écrirai pas plus maintenant car vous êtes fatigué, mais je viendrai bientôt pour écrire un message sur un autre sujet que j’ai présent à l’esprit depuis un certain temps.
 
-Avec tout mon amour et bénédictions, je suis votre frère en Christ, Luc.
+Avec tout mon amour et bénédictions, je suis votre frère en Christ, Luc.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Incassable: impossible d’être violé, contrevenu ou brisé.[↩](#a1)
 
-*Note 2 : Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+2. <large id="f12"> *Note 2 : Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Saint Luc | [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/) | 05 Septembre 1915 
-Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-st-luke/) | 17 Septembre 1915
+Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
 Saint Luc | [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/) | 5 Décembre 1915
 Saint Luc | [Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-30-1-jep-st-luke/) | 30 Novembre 1916

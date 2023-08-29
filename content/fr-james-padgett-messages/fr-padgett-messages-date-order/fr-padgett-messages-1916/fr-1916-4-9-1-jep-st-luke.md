@@ -15,7 +15,7 @@ C’est moi Luc.
 
 Je désire ce soir vous entretenir un court instant sur le texte: [*« Les péchés des parents sont transmis aux enfants jusqu’à la troisième et la quatrième génération.»*](https://saintebible.com/exodus/20-5.htm) »
 
-Je sais que, généralement, l’explication donnée pour ce texte est que les péchés matériels ou plutôt que les péchés qui se traduisent par un préjudice physique important, ou par la malradie, sont transmis aux enfants et, dans une très large mesure, cela est vrai. Mais cette explication n’est pas en accord avec le vai sens de la déclaration.
+Je sais que, généralement, l’explication donnée pour ce texte est que les péchés matériels ou plutôt que les péchés qui se traduisent par un préjudice physique important, ou par la maladie, sont transmis aux enfants et, dans une très large mesure, cela est vrai. Mais cette explication n’est pas en accord avec le vai sens de la déclaration.
 
 L’homme est non seulement un être matériel ou physique, mais est plus largement un être spirituel, ayant une âme et un esprit qui ne cessent d’exister, et qui sont tout autant une partie de lui durant sa vie terrestre, que lorsqu’il devient un esprit, c’est à dire après avoir quitté les habits de chair et de sang.
 
