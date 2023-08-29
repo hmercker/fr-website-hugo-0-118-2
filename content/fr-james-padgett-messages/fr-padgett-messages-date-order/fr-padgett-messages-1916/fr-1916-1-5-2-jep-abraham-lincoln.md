@@ -39,7 +39,7 @@ J’étais aussi dans une certaine mesure un spiritualiste <sup id="a1">[1](#f1)
 
 Que Dieu vous bénisse et vous permette de voir que la réalité de l’Amour Divin est la prière de votre frère en Christ, A. Lincoln.
 
-*Note : Un message contemporain a été [reçu d’Abraham Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/) et [un autre sur la question de son style](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-3-fab-abraham-lincoln/).*
+*Note : Un message contemporain a été [reçu d’Abraham Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/) et [un autre sur la question de son style](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-1-fab-abraham-lincoln/).*
 <small>
 
 1. <large id="f1"> Lecture d’un livre par Mme Nettie Maynard Colburn :  Est-ce qu’Abraham Lincoln était un Spiritualiste ? »[↩](#a1)

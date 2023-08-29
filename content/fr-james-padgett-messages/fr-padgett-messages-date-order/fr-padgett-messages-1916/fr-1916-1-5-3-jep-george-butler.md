@@ -45,14 +45,12 @@ Il dit : « Viens Georges – et je vais essayer de te montrer le chemin de la l
 
 Oh, dites-moi ce que cela veut dire ! Est-ce que je rêve ? Êtes-vous réel et sont-ils réels, ou suis-je dans l’un des délires que j’ai eus sur terre ? Oh, si beaux et Célestes. Mais ils disent non, qu’ils sont de vrais esprits et qu’ils ont vécu sur terre, qu’ils ont été des mortels pécheurs comme moi.
 
-Comment puis-je vous remercier ? Je suis vaincu et je ne peux plus écrire, mais je reviendrai. Alors, mon cher ami, je vous souhaite une bonne nuit, car je m’en vais.
+Comment puis-je vous remercier ? Je suis vaincu et je ne peux plus écrire, mais [je reviendrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-3-15-1-jep-george-butler/). Alors, mon cher ami, je vous souhaite une bonne nuit, car je m’en vais.
 
-Je m’appelle George H Butler. Je suis décédé en 1899.<sup id=”a1”>[1](#f1)</sup> et <sup id=”a2”>[2](#f2)</sup>
+Je m’appelle George H Butler. Je suis décédé en 1899.<sup id=”a1”>[1](#f1)</sup> 
 <small>
 
-1. <large id=”f1”> Cet esprit est revenu plus tard, [le 15 Mars 1919](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-3-15-1-jep-george-butler/), pour décrire sa maison dans la troisième sphère. (G.J.C.)Your text for the reference.[↩](#a1)
-
-2. <large id=”f2”> Quatres autres esprits ont décrit leur expérience de l'enfer. Les différents messages de Jules Cesar ont la particularité de nous permettre de comprendre que Jules César a vécu dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 1960 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois :*[↩](#a2)
+1. <large id=”f1”> Quatres autres esprits ont décrit leur expérience de l'enfer. Les différents messages de Jules Cesar ont la particularité de nous permettre de comprendre que Jules César a vécu dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 1960 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -30,7 +30,7 @@ Je ne dois plus écrire ce soir. Oui, je vais le faire, et maintenant je vais vo
 
 Votre sœur, Amon.
 
-*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](Création et Evolution)**
+*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

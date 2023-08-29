@@ -55,9 +55,10 @@ Je vais arrêter, car j’ai longuement écrit.
 
 Donc, mon cher frère, je vais vous dire bonne nuit.
 
-Votre frère en Christ, Paul.
+Votre frère en Christ, Paul.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :
+<large id=”f1”> *Note :  Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

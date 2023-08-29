@@ -46,4 +46,4 @@ Je vais maintenant conclure, et avec mon amour et mes bénédictions, je vais vo
 Votre frère en Christ, Luc.
 <small>
 
-1. <large id="f1"> L’idée exprimée ici que l’âme, préalablement à son incarnation, est sexuée, a été contredite récemment par un message communiqué par Judas[le 30 Août 2001}(/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas/).[↩](#a1)
+1. <large id="f1"> L’idée exprimée ici que l’âme, préalablement à son incarnation, est sexuée, a été contredite récemment par un message communiqué par Judas [le 30 Août 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas/).[↩](#a1)

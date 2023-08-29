@@ -50,5 +50,5 @@ Vous avez mon amour et mes bénédictions, et je m’intéresse de plus en plus 
 Votre ami et frère, Jésus.
 <small>
 
-1. <large id=”f1”> [Consultez ce message "l'évolution du corps physique et les messages de James Padgett".](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-1-fab-jesus/).[↩](#a1)
+1. <large id=”f1”> [Consultez ce message "l'évolution du corps physique et les messages de James Padgett".](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-4-fab-jesus/)[↩](#a1)
 

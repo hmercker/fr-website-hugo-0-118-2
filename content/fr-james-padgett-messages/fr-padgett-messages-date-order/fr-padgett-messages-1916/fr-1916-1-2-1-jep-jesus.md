@@ -13,7 +13,7 @@ Jésus - reçu par James Padgett le 2 Janvier 1916, Washington, USA.
 
 C’est moi, Jésus.
 
-Je viens vous dire que vous n’êtes pas dans une très bonne condition spirituelle [depuis vous avez lu ce livre hier soir](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-1-1-jep-helen-padgett/).
+Je viens vous dire que vous n’êtes pas dans une très bonne condition spirituelle [depuis que vous avez lu ce livre hier soir](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-1-1-jep-helen-padgett/).
 
 Eh bien, tout d’abord, je tiens à dire qu’il n’existe pas de telles choses comme les anges ou esprits déchus, si ce ne sont ceux qui ont vécu comme mortels et qui vivent maintenant comme esprits. Bien sûr, beaucoup d’entre eux sont ce qu’on peut appeler des mauvais esprits, mais ils ne sont pas des démons au sens où l’auteur les décrit.
 
