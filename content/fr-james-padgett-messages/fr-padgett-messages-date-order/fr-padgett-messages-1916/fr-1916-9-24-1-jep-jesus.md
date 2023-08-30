@@ -51,6 +51,5 @@ Alors mon cher frère, soyez assuré que je suis votre frère et ami, Jésus.<su
 Jésus | [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-15-1-jep-jesus) | 15 Août 1915
 Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
 Jésus | [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-13-1-jep-jesus/) | 13 Août 1916
-Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 
-18 Octobre 1919 
+Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 18 Octobre 1919 
 

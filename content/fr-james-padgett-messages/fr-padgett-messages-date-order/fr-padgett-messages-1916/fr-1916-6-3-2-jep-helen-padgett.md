@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène affirme que Flavius Josèphr a écrit et commente les propos sur l’égalité des sexes
+### Hélène affirme que Flavius Josèphe a écrit et commente les propos sur l’égalité des sexes
 
 Hélène Padgett - reçu par James Padgett le 3 Juin 1916, Washington, USA.
 

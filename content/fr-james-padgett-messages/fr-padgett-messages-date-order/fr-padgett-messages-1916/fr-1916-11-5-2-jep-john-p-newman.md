@@ -22,6 +22,6 @@ Je ne vais pas essayer de reprendre ce que Luc a dit, car je ne pourrais être p
 Votre frère en Christ, L’évêque Newman.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-<large id=”f1”> *Note : Cet esprit est **John Philip Newman** – (1826 -1899) - évêque de l’église Méthodiste Episcopale*.[↩](#a1)
+1. <large id=”f1”> *Note : Cet esprit est **John Philip Newman** – (1826 -1899) - évêque de l’église Méthodiste Episcopale*.[↩](#a1)
 
 

@@ -43,7 +43,7 @@ Mais le grand fait est que ces mauvais esprits ont un lieu de vie, où ils doive
 
 Ma principale raison en vous écrivant est de vous faire savoir que les enfers sont aussi bien des lieux que des conditions, et que ces lieux, par ce qu’ils contiennent et par leurs apparences, ajoutent à la souffrance des esprits.
 
-Comme je l’ai écrit longuement, je vais m’arrêter, et dire que je suis un chrétien et un habitant des Sphères Célestes, et l’un des groupes d’esprits qui vous aide dans votre grande œuvre du Maître. Donc, en vous quittant, je signerai moi-même, Votre frère en Christ, [Swedenborg](Messages concernant Swedenborg),<sup id=”a1”>[1](#f1)</sup> le voyant.
+Comme je l’ai écrit longuement, je vais m’arrêter, et dire que je suis un chrétien et un habitant des Sphères Célestes, et l’un des groupes d’esprits qui vous aide dans votre grande œuvre du Maître. Donc, en vous quittant, je signerai moi-même, Votre frère en Christ, Swedenborg le voyant.
 <small>
 
 1.  <large id=”f1”> Trois autres esprits ont décrit leur expérience de l'enfer : [↩](#a1)

@@ -44,7 +44,7 @@ Votre frère et ami, Jésus.<sup id="a2">[2](#f2)</sup>
 
 1. <large id="f1"> C’est le Ciel Spirituel de l’homme parfait qui possède seulement l’amour naturel à l’état pur, mais ne possède pas l’Amour Divin qui est nécessaire pour entrer dans les Cieux Célestes.[↩](#a1)
 
-2. <large id="f2"> *Note 2 : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a2)
+2. <large id="f2"> Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

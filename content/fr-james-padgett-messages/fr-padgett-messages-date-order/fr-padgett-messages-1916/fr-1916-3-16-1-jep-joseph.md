@@ -37,12 +37,11 @@ Je veux aussi dire qu’il vous a écrit ses messages de vérité, et qu’il é
 
 Mon frère, je vais m’arrêter maintenant, et en partant, je vous dis, que vous avez mon amour et mes bénédictions.
 
-Votre frère en Christ, Joseph.
+Votre frère en Christ, Joseph.<sup id="a2">[2](#f2)</sup>
 <small>
-
 1. <large id="f1"> Beaucoup d’années plus tard, [Joseph a admis être le père de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph), un rôle qu’il se sent quelque peu embarrassé d’avoir, car il n’avait pas cru en son fils jusqu’à sa mort. Cela a également été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/).[↩](#a1)
 
-*Note 2 : Liens vers d'autres messages relatifs à la crucifixion de jésus :*
+2. <large id="f2"> *Note 2 : Liens vers d'autres messages relatifs à la crucifixion de jésus :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

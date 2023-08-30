@@ -16,7 +16,7 @@ Chaque vérité qui a été prononcée, a, en elle, un élément qui prouve que 
 
 L’homme devrait apprendre cette vérité et, dans sa prière, demander que ces choses ou causes qui, dans le respect de la Loi de compensation, produisent des effets nuisibles, soient supprimées ou éliminées de leurs actes et comportements ainsi que de leurs désirs. Je pourrais écrire un long message sur ce sujet, mais je ne le ferai pas, car vous n’êtes juste pas en état de le recevoir. Je reviendrai bientôt pour vous écrire plus longuement. Avec tout mon amour je vais vous dire bonne nuit.
 
-Votre frère en Christ, Élie.sup id="a2">[2](#f2)</sup>
+Votre frère en Christ, Élie.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Il est fait référence ici aux causes du péché. Par exemple, si quelqu’un est alcoolique, Dieu interviendra pour enlever ou diminuer le désir pour la boisson, si tels sont les souhaits du mortel et que ce dernier prie dans ce sens. Toutefois, les résultats de l’alcoolisme, ne sont pas susceptibles d’être enlevés, car ils font partie de la loi de la compensation. Il est ainsi également de la prière pour que les relations, qui ont été endommagées en raison de l’alcoolisme, soient guéries ou de la prière pour la guérison d’un foie endommagé, laquelle peut ne pas être efficace, à moins et jusqu’à ce que la cause primaire soit totalement résolue. Même dans ce cas, il est possible que les effets ne soient pas résolus en raison de la compensation qui est due.[↩](#a1)

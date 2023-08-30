@@ -27,9 +27,10 @@ Je n’écrirai pas plus ce soir, car je pense qu’il vaut mieux ne pas le fair
 
 Eh bien, mon cher frère, croyez que je n’ai que de l’amour pour vous, et que je m’approcherai de vous au fur et à mesure que nous progressons – alors je vous dis, ne vous inquiétez pas. Je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
+1. <large id=”f1”> *Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

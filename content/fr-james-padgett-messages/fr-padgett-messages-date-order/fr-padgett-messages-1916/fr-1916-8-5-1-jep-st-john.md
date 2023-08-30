@@ -30,7 +30,7 @@ En terminant, permettez-moi de répéter qu’il (l’Amour Divin) est la plus g
 Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-<large id=”f1”> *Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*.[↩](#a1)
+1. <large id=”f1”> *Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

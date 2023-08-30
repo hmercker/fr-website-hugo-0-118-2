@@ -35,9 +35,10 @@ Je n’écrirai pas plus ce soir.
 
 Je suis votre ami..
 
-George Whitefield.
+George Whitefield.<sup id=”a1”>[1](#f1)</sup
+<small>
 
-*Note  : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.:*
+<large id=”f1”> *Note  : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.:*.[↩](#a1)
 
 **Auteur** | **Ttre du message** | **Date du message**
 ---|---|---
