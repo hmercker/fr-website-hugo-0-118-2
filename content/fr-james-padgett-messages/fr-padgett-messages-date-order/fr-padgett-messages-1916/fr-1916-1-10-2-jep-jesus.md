@@ -43,7 +43,7 @@ Je ne vais pas écrire plus ce soir, mais [je continuerai plus tard](/fr-james-p
 
 Alors continuez à prier et à faire confiance au Père et vous réaliserez un merveilleux bonheur rempli de gloire, de puissance et de paix.
 
-Je dois arrêter maintenant. Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup
+Je dois arrêter maintenant. Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
 <large id=”f1”> *Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a1)

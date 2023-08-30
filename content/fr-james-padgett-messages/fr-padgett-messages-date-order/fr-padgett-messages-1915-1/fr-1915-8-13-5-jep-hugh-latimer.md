@@ -27,7 +27,7 @@ Bien sûr, la mort du martyr éveillera parfois des qualités d’âme ou des co
 
 Mon cher frère, je dois m’arrêter maintenant, mais je reviendrai un jour pour vous écrire.
 
-Bien à vous, dans l’Amour, Hugh Latimer.<sup id=”a2”>[2](#f2)</sup
+Bien à vous, dans l’Amour, Hugh Latimer.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **Hugh Latimer** (v. 1487 – 16 Octobre 1555) était membre du Clare College de Cambridge et évêque de Worcester avant la Réforme, puis aumônier de l’Église d’Angleterre du roi Édouard VI. En 1555, sous la reine Marie Tudor, il fut brûlé sur le bûcher, devenant ainsi l’un des trois martyrs de l’anglicanisme d’Oxford. (Source : Wikipédia.)[↩](#a1)

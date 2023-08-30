@@ -26,7 +26,7 @@ Oui, je suis toujours intéressé par la guerre, mais maintenant je n’ai plus 
 Je voudrais que cela soit demain, car alors le massacre, la mort et la misère qui en résulte cesseraient. Il y a tant d’esprits, arrivant de ces champs de bataille, qui sont tous impropres à la vie spirituelle et apparaissent dans une grande confusion, et lorsqu’ils réalisent qu’ils ne sont plus mortels, ils deviennent désorientés et misérables. Mais nous essayons de les aider. Nous n’avons pas d’ennemis et tous sont aidés de la même manière. Je ne vais pas écrire plus ce soir et en terminant je vous donne mon amour et je signe avec un nouveau nom, qui est, votre frère en Christ, Lafayette.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note  : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.:*[↩](#a1)
+1. <large id=”f1”> *Note  : Quatre autres esprits témoignent de leur progression vers la 3ème sphère spirituelle ou les Cieux Célestes.:*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
