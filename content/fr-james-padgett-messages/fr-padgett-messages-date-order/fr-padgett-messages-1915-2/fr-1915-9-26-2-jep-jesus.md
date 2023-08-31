@@ -31,9 +31,10 @@ Mais, avec l’acquisition de cette foi, vous allez aussi acquérir plus d’Amo
 
 Priez le Père et faites-moi confiance, car mon amour pour vous est sans limite, et mon attention pour vous ira grandissante jusqu’à ce que tout soit accompli. Je vous ai écrit ce message, emphatique et autoritaire, ce soir, afin que vous sachiez qu’il n’y a aucune doute que moi, Jésus, je vous ai choisis, et vous ne devez pas remettre en cause le fait que votre mission est comme je vous l’ai dit.
 
-Avec tout mon amour et mes bénédictions, je suis, votre frère et ami, Jésus.
+Avec tout mon amour et mes bénédictions, je suis, votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
+1. <large id=”f1”> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

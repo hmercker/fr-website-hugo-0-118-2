@@ -23,15 +23,14 @@ Il y aura une religion future, compréhensive et définitive, et elle sera fond�
 
 Donc, vous voyez comme il est important que nous travaillions plus rapidement et fassions plus d’efforts pour divulguer et diffuser la vérité. Je reviendrai dans quelques nuits pour vous transmettre un autre message formel, et d’autres viendront aussi et vous écriront. Bon nombre des Esprits Célestes sont qualifiés pour enseigner les vérités du Père, et ils sont prêts et impatients de le faire. Je n’écrirai pas plus maintenant et, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Oui, je suis avec vous comme je l’ai promis et je continuerai de l’être.
+Oui, je suis avec vous comme je l’ai promis et je continuerai de l’être.<sup id=”a2”>[2](#f2)</sup>
 
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> M. Padgett a lu – Le Parlement Mondial des Religions à l’Exposition universelle de Chicago de 1893.[↩](#a1)
+1. <large id="f1"> M. Padgett a lu – Le Parlement Mondial des Religions à l’Exposition universelle de Chicago de 1893.*[↩](#a1)
 
-
-*Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
+2. <large id="f2"> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
