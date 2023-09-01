@@ -9,7 +9,7 @@ weight:
 ---
 ### Livres Spirituels Français
 
-0Pour approfondir votre compréhension des messages de James Padgett et de la vie après la vie, n’hésitez pas à consulter la fantastique série d’ouvrages sur l’Amour Divin, traduits en français, et disponibles sous le forme de livre imprimé et sous la forme de livre électronique sur [Amazon](https://www.amazon.fr/) et sur [Lulu](https://www.lulu.com/). Il vous est également possible de télécharger gratuitement chacune de ces publications au format Pdf.
+Pour approfondir votre compréhension des messages de James Padgett et de la vie après la vie, n’hésitez pas à consulter la fantastique série d’ouvrages sur l’Amour Divin, traduits en français, et disponibles sous le forme de livre imprimé et sous la forme de livre électronique sur [Amazon](https://www.amazon.fr/) et sur [Lulu](https://www.lulu.com/). Il vous est également possible de télécharger gratuitement chacune de ces publications au format Pdf.
 
 **Titre et page de couverture** | **Résumé** | **Disponible sur**
 ---|---|---
