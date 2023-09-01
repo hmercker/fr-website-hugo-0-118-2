@@ -36,7 +36,7 @@ Notre communication n’est pas aussi bonne ce soir qu’elle ne l’était les 
 Votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-<large id=”f1”> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
+1. large id=”f1”> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

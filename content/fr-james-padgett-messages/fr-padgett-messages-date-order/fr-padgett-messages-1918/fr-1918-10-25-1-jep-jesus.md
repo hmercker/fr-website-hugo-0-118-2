@@ -51,7 +51,7 @@ Saint Jean | [Jean – Lois du rapport, suite.](/fr-james-padgett-messages/fr-pa
 Saint Jean | [Jean – Lois de rapport et de communication, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/).[↩](#a1)  | 22 Octobre 1918
 
 
-2. <large id="f2"> <large id="f2"> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*[↩](#a2)
+2. <large id="f2"> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

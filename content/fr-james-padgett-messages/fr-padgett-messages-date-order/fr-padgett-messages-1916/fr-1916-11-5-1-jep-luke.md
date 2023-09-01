@@ -56,7 +56,7 @@ Votre frère en Christ, Luc.<sup id="a4">[4](#f4)</sup>
 
 3. <large id="f3"> Cette définition de l’ego ne semble pas s’aligner avec la pensée moderne, ni avec les messages contemporains. Je suppose que parce que l’âme donne lieu à la création du mental matériel lors de l’incarnation, l’âme pouvait être considérée le créateur et l’hôte de l’ego. Mais je crois comprendre que ce que nous entendons par ego à l’époque moderne réside dans le mental matériel. Ceci projette certainement la personnalité de l’âme dans le monde matériel, mais le mental matériel peut également créer sa propre vision de son monde et même créer des aspects de la personnalité qui n’existent pas dans l’âme, comme la peur, la haine, la bigoterie, la cupidité, etc.[↩](#a3)
 
-4. <large id="f4"> * Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a4)
+4. <large id="f4"> *Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a4)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

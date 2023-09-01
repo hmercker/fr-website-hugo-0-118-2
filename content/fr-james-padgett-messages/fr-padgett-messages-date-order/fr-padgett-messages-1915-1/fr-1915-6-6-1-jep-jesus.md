@@ -26,7 +26,7 @@ Oui, j’écrirai un message formel sur ce sujet, et vous verrez que l’Esprit 
 Votre ami et votre frère, Jésus.
 <small>
 
-<large id=”f1”> *Note 1 : Au mois d'Octobre et Novembre 1915, plusieurs suite à un sermon prononcé par un précicateur, Anne Rollins, Luc et Paul ont également nié l'existence du péché impardonnable.*[↩](#a1)
+1. <large id=”f1”> *Note 1 : Au mois d'Octobre et Novembre 1915, plusieurs suite à un sermon prononcé par un précicateur, Anne Rollins, Luc et Paul ont également nié l'existence du péché impardonnable.*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -35,7 +35,7 @@ Paul | [Paul nie le péché impardonnable.](/fr-james-padgett-messages/fr-padget
 Anne Rollins | [La croyance dans le péché impardonnable est diffamatoire.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-1-jep-ann-rollins/) | 1er Novembre 1915
 
 
-<large id=”f2”> *Note 2: Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, Jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a2)
+2. <large id=”f2”> *Note 2: Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, Jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

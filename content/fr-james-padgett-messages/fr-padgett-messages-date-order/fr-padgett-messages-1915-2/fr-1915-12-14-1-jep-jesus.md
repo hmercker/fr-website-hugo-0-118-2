@@ -29,7 +29,7 @@ Votre ami et votre frère, Jésus.<sup id="a3">[3](#f3)</sup>
 
 1. <large id="f1"> M. Padgett m’a dit que lorsqu’il priait juste avant de se retirer la nuit, il voyait parfois Jésus priant à côté de lui.[
 
-2. <large id="f2"> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*↩](#a1)
+2. <large id="f2"> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
