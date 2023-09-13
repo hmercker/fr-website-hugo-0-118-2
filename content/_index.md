@@ -30,3 +30,7 @@ Sur ce site, vous trouverez des réponses à de nombreuses questions d’ordre s
 De nombreux sujets sont abordés, par exemple le sens des [paraboles de Jésus](/3-fr-judas-of-kerioth-messages/3-9-fr-jesus-parables/), les [lois spirituelles](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/), et bien d’autres encore.
 
 Chacun est libre d’intégrer les vérités présentées dans sa vie, indépendamment de son origine culturelle ou de sa situation dans la vie. Que les pages qui suivent vous apportent une grande joie sur le chemin de votre âme, et la réalisation profonde que nous - chacun d’entre nous - sommes tendrement aimés.
+
+<p style="text-align: center;">
+<script type="text/javascript" src="//counter.websiteout.net/js/5/6/0/1"></script>
+</p>
