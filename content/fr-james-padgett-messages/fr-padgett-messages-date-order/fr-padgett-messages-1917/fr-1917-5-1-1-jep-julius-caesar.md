@@ -39,4 +39,4 @@ Je suis un autre César maintenant. Je n’écrirai pas plus ce soir, mais comme
 
 Votre véritable ami, César (Jules).
 
-*Note : Le sens de cette déclaration est que Jules César était encore dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 2060 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en [sortir en priant pour l’Amour Divin](*****************), il en est sorti assez rapidement – environ 19 mois.*
+*Note : Le sens de cette déclaration est que Jules César était encore dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 1960 ans – jusqu’à la date [de sa première communication](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-16-2-jep-julius-caesar/). Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois.*

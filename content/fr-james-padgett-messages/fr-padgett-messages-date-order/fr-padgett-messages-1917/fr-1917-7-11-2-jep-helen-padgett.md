@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène est avec moi lorsqu’Harry vient en visite au bureau <sup id="a1">[1](#f1)</sup>
+### Hélène est avec moi lorsqu’Harry vient en visite au bureau<sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 11 Juillet 1917, Washington, USA.
 
@@ -32,4 +32,4 @@ Eh bien, mon cher, je ne dois pas écrire davantage ce soir, sinon tu n’iras p
 Ta vraie et affectueuse Hélène.
 <small>
 
-1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été diffusé par la F.C.N.B dans sa lettre d’information du printemps 2012.[↩](#a1)
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été diffusé par la F.C.N.B (Federation Church Of New Birth - Fédération des églises de la Nouvellle Naissance) dans sa lettre d’information du printemps 2012.[↩](#a1)

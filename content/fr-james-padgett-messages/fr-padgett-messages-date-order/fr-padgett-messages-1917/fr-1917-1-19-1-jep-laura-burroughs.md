@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La cousine Laura Burroughs raconte sa rencontre avec son âme sœur <sup id="a1">[1](#f1)</sup>
+### La cousine Laura Burroughs raconte sa rencontre avec son âme-sœur<sup id="a1">[1](#f1)</sup>
 
 Laura Burroughs - reçu par James Padgett le 19 Janvier 1917, Washington, USA.
 
@@ -24,4 +24,4 @@ Il rend la salutation et dit qu’il se considère très chanceux d’avoir un t
 Votre cousine qui vous aime, Laura.
 <small>
 
-1. <large id="f1"> Ce message est  publié dans le Volume III (1ère édition française) à la page 364 et le Volume IV (2ème édition anglaise) à la page 117.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III à la page 463 et dans le Volume IV à la page 136. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

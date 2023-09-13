@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Perry se sent mieux et est reconnaissant pour toute l’aide que lui ont apportée M. Padgett et d’autres esprits aimants <sup id="a1">[1](#f1)</sup>
+### Perry se sent mieux et est reconnaissant pour toute l’aide que lui ont apportée M. Padgett et d’autres esprits aimants
 
 Ross Perry - reçu par James Padgett le 4 Mars 1917, Washington, USA.
 
@@ -19,7 +19,7 @@ Quelle chose merveilleuse est ce grand don que vous avez, et aucun esprit de tou
 
 Eh bien, je ne peux pas écrire plus, mais vous et votre ami (Dr Leslie Stone) priez pour moi car vous, qui avez de si beaux esprits qui vous aiment, devez avoir un certain pouvoir dans vos prières pour aider. Bonne nuit et priez pour moi.
 
-Votre ami, Perry.184
+Votre ami, Perry.<sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume III et dans le Volume IV.[↩](#a1)
+1. <large id="f1">  Ce message est publié dans le Volume III page 496 et dans le Volume IV page 443. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

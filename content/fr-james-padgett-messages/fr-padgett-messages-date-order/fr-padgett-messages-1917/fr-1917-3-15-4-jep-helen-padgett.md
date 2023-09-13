@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 15 Mars 1917, Washington, USA.
 
 C’est moi, Hélène.
 
-Mon cher, j’étais avec toi, bien sûr, à la séance, et ce qui t’a été dit est vrai, et je n’ai pas besoin de répéter ce qui a été dit, mais j’ajouterai seulement que toi et le Docteur devez suivre les conseils qui vous ont été donnés. C’est absolument nécessaire.
+Mon cher, j’étais avec toi, bien sûr, [à la séance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-15-1-jep-st-john/), et ce qui t’a été dit est vrai, et je n’ai pas besoin de répéter ce qui a été dit, mais j’ajouterai seulement que toi et le Docteur devez suivre les conseils qui vous ont été donnés. C’est absolument nécessaire.
 
 Votre travail est différent, et vous seul pouvez le faire. Aucun autre médium ne peut le faire, et si vous étiez comme eux, vous ne pourriez pas le faire non plus. Toi et le Docteur devez donc vous rappeler que vous avez été sélectionnés pour un travail plus important que celui d’aider à rassembler les esprits et les mortels dans des communications, comme celles que les médiums de ce soir sont censés apporter aux personnes présentes.
 

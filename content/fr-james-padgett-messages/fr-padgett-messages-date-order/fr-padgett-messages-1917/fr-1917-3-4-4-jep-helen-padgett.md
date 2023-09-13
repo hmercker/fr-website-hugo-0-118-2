@@ -26,4 +26,4 @@ Partage mon amour avec le Dr (Stone) et dis-lui que s’il pouvait connaître l�
 Alors, chéri, crois que je t’aime et donne-moi ton amour et la confiance que je suis, ta vraie et bien-aimée Hélène.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume III et dans le Volume IV.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III page 498 et dans le Volume IV page 449.Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

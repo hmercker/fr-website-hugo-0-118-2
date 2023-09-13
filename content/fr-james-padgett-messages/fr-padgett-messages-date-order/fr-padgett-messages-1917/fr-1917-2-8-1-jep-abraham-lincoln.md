@@ -1,13 +1,13 @@
 ---
-title: "Abraham Lincoln : l‘Amour est plus grand que la haine ; Dieu bénit tous les peuples de la terre"
+title: "L‘Amour est plus grand que la haine ; Dieu bénit tous les peuples de la terre"
 menu_title: ""
-description: "Abraham Lincoln : l‘Amour est plus grand que la haine ; Dieu bénit tous les peuples de la terre"
+description: "L‘Amour est plus grand que la haine ; Dieu bénit tous les peuples de la terre"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True
 weight:
 ---
-### Abraham Lincoln : l‘Amour est plus grand que la haine ; Dieu bénit tous les peuples de la terre
+### L‘Amour est plus grand que la haine ; Dieu bénit tous les peuples de la terre
 
 Abraham Lincoln - reçu par James Padgett le 8 Février 1917, Washington, USA.
 
@@ -15,4 +15,6 @@ C’est moi, Abraham Lincoln.
 
 L’amour est plus grand que la haine, la guerre prendra fin, l’amour viendra et la paix sera à nouveau établie. Les enseignements du Maître atteindront alors le cœur des hommes et la guerre ne sera plus qu’une réalité du passé. L’amour fraternel régira la conduite des hommes et les nations ne connaîtront plus la guerre.
 
-Et il doit en être ainsi ; que Dieu bénisse notre peuple, et tous les peuples de la terre, et en fasse vraiment Ses enfants, est la prière d’A. Lincoln.
+Et il doit en être ainsi ; que Dieu bénisse notre peuple, et tous les peuples de la terre, et en fasse vraiment Ses enfants,
+
+est la prière d’A. Lincoln.

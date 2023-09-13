@@ -11,7 +11,7 @@ weight:
 
 Chauncey Giles - reçu par James Padgett le 28 Février 1917, Washington, USA.
 
-Je souhaite, si possible, témoigner de mon intérêt suite à ce qui vient de vous être écrit. Lors de ma vie sur terre, je fus un Swedenborgien ou un homme de la Nouvelle Église, et j’ai cru aux doctrines de cette Église, et surtout à la pierre angulaire de ses croyances, à savoir que Jésus était Dieu, et le seul Dieu à être adoré en tant que tel et accepté comme Dieu incarné, qui est venu sur terre et a vécu et enseigné parmi les hommes la venue de Dieu dans la chair.
+Je souhaite, si possible, témoigner de mon intérêt suite à [ce qui vient de vous être écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-28-1-jep-martin-luther/). Lors de ma vie sur terre, je fus un Swedenborgien ou un homme de la Nouvelle Église, et j’ai cru aux doctrines de cette Église, et surtout à la pierre angulaire de ses croyances, à savoir que Jésus était Dieu, et le seul Dieu à être adoré en tant que tel et accepté comme Dieu incarné, qui est venu sur terre et a vécu et enseigné parmi les hommes la venue de Dieu dans la chair.
 
 Je fus un leader et un prédicateur pour cette église, et, durant mon ministère, j’ai non seulement enseigné, mais j’ai aussi écrit de nombreux pamphlets et quelques livres sur cette doctrine de Dieu devenu homme sous la forme de Jésus, et sur beaucoup d’autres doctrines que je sais maintenant être fausses.
 

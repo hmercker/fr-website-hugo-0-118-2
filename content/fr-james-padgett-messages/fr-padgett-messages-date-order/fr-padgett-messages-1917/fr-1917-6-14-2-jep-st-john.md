@@ -1,7 +1,7 @@
 ---
-title: "Qu’est-ce que le Saint-Esprit et comment fonctionne-t-il ?"
+title: "Qu’est-ce que l'Esprit Saint et comment fonctionne-t-il ?"
 menu_title: ""
-description: "Qu’est-ce que le Saint-Esprit et comment fonctionne-t-il ?"
+description: "Qu’est-ce que l'Esprit Saint et comment fonctionne-t-il ?"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True
@@ -26,7 +26,7 @@ Je n’écrirai pas plus maintenant. Alors, avec mon amour et mes bénédictions
 Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a1)
+1. <large id=”f1”> *Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

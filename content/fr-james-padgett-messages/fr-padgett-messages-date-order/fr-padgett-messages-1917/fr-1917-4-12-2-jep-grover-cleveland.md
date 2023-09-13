@@ -11,7 +11,7 @@ weight:
 
 Grover Cleveland - reçu par James Padgett le 12 Avril 1917, Washington, USA.
 
-C’est moi, Grover Cleveland. <sup id="a1">[1](#f1)</sup>
+C’est moi, Grover Cleveland.<sup id="a1">[1](#f1)</sup>
 
 Laissez-moi exprimer également quelques propos. Je suis votre ami et je veux partager quelques réflexions sur ce qui vient de vous être écrit, sur la nécessité de garder la foi en ce qui vous a été promis, et sur votre courage.
 
@@ -41,4 +41,4 @@ Je n’écrirai pas plus ce soir, mais au fur et à mesure de ma progression, de
 Avec mon amour et ma gratitude, je signerai, votre frère en Christ, Grover Cleveland.
 <small>
 
-1. <large id="f1"> Stephen Grover Cleveland (18 Mars 1837 – 24 Juin 1908) fut le 22ème et le 24ème président des États-Unis. Il a remporté le vote populaire pour le poste de président à trois reprises – en 1884, 1888 et 1892 – et a été l’un des deux démocrates (avec Woodrow Wilson) à occuper la présidence pendant la période de domination politique républicaine, de 1861 à 1933. Il est le seul président de l’histoire américaine à avoir exercé des mandats non consécutifs. Le seul président à avoir remporté plus de fois le vote populaire a été Franklin Roosevelt. (Source : Wikipédia)[↩](#a1)
+1. <large id="f1"> **Stephen Grover Cleveland** (18 Mars 1837 – 24 Juin 1908) fut le 22ème et le 24ème président des États-Unis. Il a remporté le vote populaire pour le poste de président à trois reprises – en 1884, 1888 et 1892 – et a été l’un des deux démocrates (avec Woodrow Wilson) à occuper la présidence pendant la période de domination politique républicaine, de 1861 à 1933. Il est le seul président, jusqu'à ce jour, de l’histoire américaine à avoir exercé des mandats non consécutifs. Le seul président à avoir remporté plus de fois le vote populaire a été Franklin Roosevelt. (Source : Wikipédia)[↩](#a1)

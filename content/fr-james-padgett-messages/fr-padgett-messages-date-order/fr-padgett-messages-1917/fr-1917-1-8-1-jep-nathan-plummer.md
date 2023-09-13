@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’esprit décrit son expérience dans les enfers « Il est difficile d’apprendre, en enfer, sur les choses célestes.»
+### L’esprit décrit son expérience dans les enfers « Il est difficile d’apprendre, en enfer, sur les choses célestes »
 
 Nathan Plummer - reçu par James Padgett le 8 Janvier 1917, Washington, USA.
 

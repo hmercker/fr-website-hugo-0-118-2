@@ -11,11 +11,11 @@ weight:
 
 Sir Walter Raleigh - reçu par James Padgett le 25 Février 1917, Washington, USA.
 
-Je suis Raleigh. Je suis Lord Walter Raleigh, l’Anglais, qui a aimé et a été décapité.
+Je suis Raleigh. Je suis Lord Walter Raleigh, l’Anglais, qui a aimé et a été décapité.<sup id="a1">[1](#f1)</sup>
 
-Eh bien, j’ai entendu ce que le dernier esprit a écrit et je veux simplement dire que la teneur de son discours est sage et doit être suivie ; mais, comme il le dit, il n’y a pas moyen de le faire connaître aux hommes auxquels il est destiné, et qui seuls peuvent l’appliquer.
+Eh bien, j’ai entendu [ce que le dernier esprit a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-25-1-jep-john-calhoun/) et je veux simplement dire que la teneur de son discours est sage et doit être suivie ; mais, comme il le dit, il n’y a pas moyen de le faire connaître aux hommes auxquels il est destiné, et qui seuls peuvent l’appliquer.
 
-La guerre m’intéresse aussi, comme vous pouvez le supposer, dans une certaine mesure, mais seulement parce que le pays auquel je devais autrefois allégeance et dont je réclamais la protection est maintenant un très grand souffre-douleur en raison des efforts qui sont faits maintenant pour la soumettre. Cependant mon intérêt n’est pas très grand, car je suis arrivé à cette condition de l’amour fraternel et de la véritable conception du bien et du mal et du destin certain des hommes, que tous sont mes frères ; le fait que quelqu’un soit Anglais, Allemand ou Français ne fait aucune différence quant à son destin. L’âme humaine, lorsqu’il s’agit du monde des esprits, est sans nationalité, et le destin de cette âme ne dépend pas du fait qu’elle ait été logée sous la forme d’un Anglais, etc. Non, les pensées de la terre, dans une large mesure, m’ont quitté et je suis résolu à progresser dans le monde des esprits et à atteindre la condition qui me rendra le plus heureux et me permettra de faire le plus de bien à mes semblables, car je travaille à aider ceux qui ne sont pas dans une condition aussi favorable que la mienne.
+La guerre m’intéresse aussi, comme vous pouvez le supposer, dans une certaine mesure, mais seulement parce que le pays auquel je devais autrefois allégeance et dont je réclamais la protection est maintenant un très grand souffre-douleur en raison des efforts qui sont faits maintenant pour le soumettre. Cependant mon intérêt n’est pas très grand, car je suis arrivé à cette condition de l’amour fraternel et de la véritable conception du bien et du mal et du destin certain des hommes, que tous sont mes frères ; le fait que quelqu’un soit Anglais, Allemand ou Français ne fait aucune différence quant à son destin. L’âme humaine, lorsqu’il s’agit du monde des esprits, est sans nationalité, et le destin de cette âme ne dépend pas du fait qu’elle ait été logée sous la forme d’un Anglais, etc. Non, les pensées de la terre, dans une large mesure, m’ont quitté et je suis résolu à progresser dans le monde des esprits et à atteindre la condition qui me rendra le plus heureux et me permettra de faire le plus de bien à mes semblables, car je travaille à aider ceux qui ne sont pas dans une condition aussi favorable que la mienne.
 
 Je vis dans la quatrième sphère et je suis un esprit très heureux, entouré de beaucoup de choses qui me rendent heureux et satisfait, et je suis libéré de toutes ces choses qui m’ont causé des soucis et des souffrances pendant mon séjour sur terre. J’ai perdu tous mes souvenirs des actes et des actions, et même des pensées, de ma vie terrestre qui m’ont causé tant d’obscurité et de malheur lorsque je suis arrivé dans le monde des esprits. Cependant vous ne devez pas penser qu’il me fut facile de se débarrasser de ces souvenirs car, je vous dis, ils s’accrochaient à moi comme des sangsues et semblaient tirer de moi tout le sang de mon cœur, si je peux me permettre de m’exprimer ainsi.
 
@@ -30,3 +30,8 @@ Eh bien, j’ai entendu ce que vous lui avez dit et je vais l’accompagner et �
 Alors, en vous remerciant de votre gentillesse, je vous souhaite une bonne nuit.
 
 Raleigh.
+<small>
+
+1. <large id="f1"> **Walter Raleigh** (né dans le Devon en 1552 1 et décapité, sous l'accusation de trahison, le 29 octobre 1618 à la tour de Londres), est un écrivain, poète, courtisan, officier et explorateur anglais. Il a séduit et épousé secrètement une des filles d'honneur de la reine Elisabeth 1er.[↩](#a1) 
+
+
