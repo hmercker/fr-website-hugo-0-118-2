@@ -23,9 +23,11 @@ Je veux maintenant que vous pensiez plus que jamais à l’importance de votre t
 
 Ce soir, je n’écrirai pas plus, mais j’écrirai bientôt comme je l’ai dit. Ayez la foi et sachez que vous avez été choisi pour faire le travail, et que sur vous repose la responsabilité qui n’incombe à aucun autre homme. Avec mon amour et les bénédictions du Père, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id="a2">[2](#f2)</sup>
 
-*Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
+<small>
+
+1. <large id="f1"> *Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
