@@ -37,4 +37,4 @@ J’ai assez écrit pour ce soir. Je reviendrai bientôt pour vous écrire un me
 
 Votre frère en Christ, Jean.
 
-*Note : Des portraits des différents disciples de Jésus sont disponibles [ici](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/). Nous recommandons [ce portrait de Jésus](http://www.lovewithoutend.com). Une bonne description de Jésus est donnée [dans ce message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) par Anne Rollins et elle est très semblable à la description ci-dessus.*
+*Note : Des portraits des différents disciples de Jésus sont disponibles [ici](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/)(/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/). Nous recommandons [ce portrait de Jésus](http://www.lovewithoutend.com). Une bonne description de Jésus est donnée [dans ce message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) par Anne Rollins et elle est très semblable à la description ci-dessus.*

@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène Padgett écrit que Monsieur Padgett recevra l’amour et le pouvoir d’accomplir la grande mission du Maître tout comme les esprits élevés
 
-Hélène Padgett - reçu par James Padgett le 5 Janvier 1917 <sup id="a1">[1](#f1)</sup>, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 5 Janvier 1917<sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 C’est moi, Hélène.
 

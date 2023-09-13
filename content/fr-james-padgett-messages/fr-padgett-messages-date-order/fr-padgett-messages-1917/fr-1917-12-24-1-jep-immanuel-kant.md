@@ -11,7 +11,7 @@ weight:
 
 Immanuel Kant - reçu par James Padgett le 24 Décembre 1917, Washington, USA.
 
-Je suis ici, Immanuel Kant. <sup id="a1">[1](#f1)</sup>
+Je suis ici, Immanuel Kant.<sup id="a1">[1](#f1)</sup>
 
 J’ai écouté votre conversation de ce soir et j’ai été très intéressé, au point de me demander quelle est la source de vos croyances apparentes, car je vois que vous êtes sincère dans vos déclarations de ce que vous déclarez être les vérités.
 

@@ -39,9 +39,10 @@ Non, l’homme n’a pas évolué des animaux plus bas, mais seulement de lui-m�
 
 Eh bien, j’ai assez écrit pour ce soir, mais ,comme j’étais avec vous aujourd’hui, alors que vous lisiez et découvriez les idées fausses de l’auteur du livre, ainsi que celles des scientifiques qu’il a cités, j’ai pensé qu’il était souhaitable de vous écrire ces quelques vérités incomplètes sur le sujet. Je reviendrai bientôt pour vous écrire. Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Luc.
+Votre frère en Christ, Luc.<sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*
+1. <large id="f1"> Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)* :[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -21,4 +21,4 @@ C’est ce qui donne à l’homme une création et une existence au-dessus de la
 
 Je suis votre ami et votre frère, Jésus.
 
-*Note : D’après le résumé de ce message dans la Tablette, il est évident qu’une quantité considérable de commentaires personnels de Jésus a été supprimée de ce message. L’original contient aussi des phrases incroyablement longues et des preuves d’un mauvais rapport.*
+*Note : D’après le résumé de ce message dans la Tablette (journal quotidien de James Padgett), il est évident qu’une quantité considérable de commentaires personnels de Jésus a été supprimée de ce message. L’original contient aussi des phrases incroyablement longues et des preuves d’un mauvais rapport.*

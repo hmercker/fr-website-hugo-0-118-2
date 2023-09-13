@@ -21,4 +21,4 @@ Je suis très heureuse et je progresse tout le temps car je suis maintenant plus
 
 Elle dit qu’elle viendra bientôt t’écrire un message de vérité. Tous t’envoient de l’amour et bien sûr ta mère te donne et te laisse son amour dans toute son abondance. Et je suis heureuse aussi, mon cher garçon. Garde ta foi et ta confiance et même si tu vis les années qui t’ont été dites, elles seront courtes. Alors tu seras avec nous et ton bonheur sera grand. Bonne nuit et que Dieu te bénisse, ton amour, Mère.
 
-*Note : Il semble que ce message ne se réfère pas au message de Jésus à la même date et qu’une quantité considérable de choses personnelles ait été retirées. C’est ce qui ressort clairement du résumé à la même date sur la tablette (Journal quotidien de James  Padgett).
+*Note : Il semble que ce message ne se réfère pas au message de Jésus à la même date et qu’une quantité considérable de choses personnelles ait été retirées. C’est ce qui ressort clairement du résumé à la même date sur la tablette (Journal quotidien de James  Padgett).*

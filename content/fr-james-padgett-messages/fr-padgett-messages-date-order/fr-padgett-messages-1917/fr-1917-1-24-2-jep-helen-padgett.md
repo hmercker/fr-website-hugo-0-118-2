@@ -22,4 +22,4 @@ J’ai été déçue ce soir que le Maître n’ait pas écrit. Il était prése
 Ta vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id="f1"> Il semblerait que cela se soit produit, bien que je ne sois pas certain qu’il se soit réellement remarié. La femme s’appelait Ella. (Geoff Cutler)[↩](#a1)
+1. <large id="f1"> Il semblerait que cela se soit produit, bien qu'il ne soit pas certain qu’il se soit réellement remarié. La femme s’appelait Ella. (Geoff Cutler)[↩](#a1)

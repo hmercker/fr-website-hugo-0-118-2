@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### A propos de sa sélection par le Père pour l’œuvre <sup id="a1">[1](#f1)</sup>
+### A propos de sa sélection par le Père pour l’œuvre<sup id="a1">[1](#f1)</sup>
 
 Saintt Luc - reçu par James Padgett le 11 Avril 1917, Washington, USA.
 

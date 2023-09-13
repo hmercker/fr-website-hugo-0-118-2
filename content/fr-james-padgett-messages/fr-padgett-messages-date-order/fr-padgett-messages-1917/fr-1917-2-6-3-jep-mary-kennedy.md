@@ -13,7 +13,7 @@ Mary Kennedy - reçu par James Padgett le 6 Février 1917, Washington, USA.
 
 *(M. Padgett a suggéré au Dr Stone de sortir et de prendre un café.)*
 
-Permettez-moi de vous dire que vous pensez plus à votre café <sup id="a1">[1](#f1)</sup> qu’à avoir de nos nouvelles, et nous ne sommes pas du tout flattées.
+Permettez-moi de vous dire que vous pensez plus à votre café<sup id="a1">[1](#f1)</sup> qu’à avoir de nos nouvelles, et nous ne sommes pas du tout flattées.
 
 *(M. Padgett a ensuite dit qu’il voulait dire après le message.)*
 

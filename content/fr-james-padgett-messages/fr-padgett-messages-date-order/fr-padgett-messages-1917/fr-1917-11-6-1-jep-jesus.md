@@ -28,9 +28,9 @@ Oui, je suis avec vous comme je l’ai promis et je continuerai de l’être.<su
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> M. Padgett a lu – Le Parlement Mondial des Religions à l’Exposition universelle de Chicago de 1893.*[↩](#a1)
+1. <large id="f1"> *M. Padgett a lu – "Le Parlement Mondial des Religions" à l’Exposition universelle de Chicago de 1893.*[↩](#a1)
 
-2. <large id="f2"> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*[↩](#a2)
+2. <large id="f2"> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -32,4 +32,4 @@ Mme Horner.
 
 1. <large id="f1"> Le Dr Stone connaissait son mari. (Jean Paul Gibsons)[↩](#a1)
 
-2. <large id="f2"> Mme Horner était une Afro-Américaine. (J.P.G.)[↩](#a2)
+2. <large id="f2"> Mme Horner était une Afro-Américaine. (Jean Paul Gibsons)[↩](#a2)
