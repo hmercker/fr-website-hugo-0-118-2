@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’esprit décrit son expérience dans les enfers « Il est difficile d’apprendre, en enfer, sur les choses célestes.»
+### L’esprit décrit son expérience dans les enfers « Il est difficile d’apprendre, en enfer, sur les choses célestes »
 
 Nathan Plummer - reçu par James Padgett le 8 Janvier 1917, Washington, USA.
 
@@ -27,7 +27,7 @@ Nathan Plummer.
 
 *Note 1 : Il ressort d’un message ultérieur et de l’index (Carnet de bord utilisé par James Padgett pour noter un bref résumé de chaque communication) que cet esprit est en fait [Nathan Plummer](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-71-jep-nathan-plummer/). Le pseudonyme fut, dans un premier temps, appliqué afin de [protéger son identité](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-74-jep-nathan-plummer/) au moment où il était un esprit sombre, mais cela n’est plus paru nécessaire après qu’il eut progressé vers la lumière.* Le même jour, [Luc a confirmé](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-2-jep-st-luke/) les expériences vécues par Nathan Plumer.
 
-Note 2 : Dans une série de plusieurs messages communiqués [le 16 Septembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-16-2-jep-julius-caesar/), [le 13 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) et [le 1er Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/), Jules Cesar relate son cheminement à travers les enfers.  Ces différents messages nous permettent de comprendre que Jules César avécu dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 2060 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois. 
+Note 2 : Dans une série de plusieurs messages communiqués [le 16 Septembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-16-2-jep-julius-caesar/), [le 13 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) et [le 1er Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/), Jules Cesar relate son cheminement à travers les enfers.  Ces différents messages nous permettent de comprendre que Jules César avécu dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 1960 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois. 
 
 *Note 3 : Trois autres esprits ont décrit leur expérience de l'enfer
 

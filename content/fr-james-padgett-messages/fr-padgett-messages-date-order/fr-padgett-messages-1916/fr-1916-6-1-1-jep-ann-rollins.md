@@ -9,7 +9,7 @@ weight:
 ---
 ### La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »
 
-Anne Rollins - reçu par James Padgett le 1 Juin 1916, Washington, USA.
+Anne Rollins - reçu par James Padgett le 1er Juin 1916, Washington, USA.
 
 C’est moi, ta grand-mère.
 
@@ -43,11 +43,12 @@ Eh bien, mon cher garçon, j’ai assez écrit pour ce soir et je vais m’arrê
 
 Tu as mon amour et mon influence pour t’aider de toutes les manières, et aussi mes prières au Père pour ton développement spirituel. Alors, avec ma bénédiction, je te souhaite une bonne nuit.
 
-Ta grand-mère aimante.
+Ta grand-mère aimante.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*
+1. <large id=”f1”> *Note : Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Anne Rollins | [Affirmant qu’Anne Rollins a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-12-2-jep-ann-rollins/)
+Anne Rollins | [Affirmant qu’Anne Rollins a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-12-2-jep-ann-rollins/) | 12 Décembre 1914
 Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) | 13 Mai 1915

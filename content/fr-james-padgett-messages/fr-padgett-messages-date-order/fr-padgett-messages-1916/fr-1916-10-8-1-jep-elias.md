@@ -13,7 +13,7 @@ weight:
 
 C’est moi, Élie le Prophète.
 
-Je veux simplement vous dire que je désire vous écrire un message et que j’aurai plaisir à le faire dès que cela conviendra. J’ai quelque chose à partager qui pourrait vous intéresser et être important pour l’humanité.
+Je veux simplement vous dire que je désire vous écrire un message et que j’aurai plaisir à le faire [dès que cela conviendra](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-11-1-jep-elias/). J’ai quelque chose à partager qui pourrait vous intéresser et être important pour l’humanité.
 
 Eh bien, je vais lui parler. Oui, je la connais et c’est un bel esprit, ayant beaucoup de l’Amour du Père dans son âme, et c’est vraiment la personne qui, sur terre, fut votre femme, et qui est maintenant, plus que jamais, votre femme. Vous êtes béni d’avoir une telle âme sœur et elle vous aime d’un amour merveilleux. Alors croyez en elle et aimez-la et vous serez un mortel heureux ainsi qu’un esprit heureux lorsque vous viendrez.
 

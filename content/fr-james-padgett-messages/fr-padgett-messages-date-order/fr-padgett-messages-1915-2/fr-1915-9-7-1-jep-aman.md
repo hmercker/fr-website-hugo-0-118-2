@@ -25,7 +25,7 @@ Votre frère en Christ et votre père dans la chair.
 
 Aman.
 
-*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](Création et Evolution)**
+*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

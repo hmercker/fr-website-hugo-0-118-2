@@ -41,7 +41,7 @@ Eh bien, j’ai assez écrit pour ce soir, mais ,comme j’étais avec vous aujo
 
 Votre frère en Christ, Luc.
 
-*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](Création et Evolution)**
+*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

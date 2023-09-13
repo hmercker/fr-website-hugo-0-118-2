@@ -13,7 +13,7 @@ Jésus - reçu par James Padgett le 24 Septembre 1916, Washington, USA.
 
 C’est moi, Jésus.
 
-J’ai été une grande partie du temps avec vous aujourd’hui, je sais exactement comme votre esprit a fonctionné, et j’ai essayé d’influencer certaines de vos pensées. J’étais avec vous à l’église ce matin, j’ai entendu le sermon du pasteur et j’ai vu qu’il ne comprenait pas correctement le sens des mots du texte :  *« En vérité, en vérité, je vous le dis celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père  et tout ce que vous demanderez en mon nom, je l’exécuterai. »*
+J’ai été une grande partie du temps avec vous aujourd’hui, je sais exactement comme votre esprit a fonctionné, et j’ai essayé d’influencer certaines de vos pensées. J’étais avec vous à l’église ce matin, j’ai entendu le sermon du pasteur et j’ai vu qu’il ne comprenait pas correctement le sens des mots du texte :  [*« En vérité, en vérité, je vous le dis celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père  et tout ce que vous demanderez en mon nom, je l’exécuterai. »*](https://saintebible.com/john/14-12.htm)
 
 Son explication de ce qu’il entendait par *« plus grandes œuvres que je fais »* n’était pas en accord avec ce que je voulais dire, ni avec le sens que j’avais l’intention de donner ; car, lorsque je faisais référence aux œuvres, je parlais de celles que le monde considérait comme des miracles. J’avais l’intention d’assurer à mes disciples qu’ils auraient le pouvoir de faire des œuvres semblables ou d’accomplir des miracles semblables dans une plus grande mesure que je ne les avais accomplis. « Plus grand » se référait à la quantité et non à la qualité.
 
@@ -21,7 +21,7 @@ Mais ce pouvoir ou l’exercice réussi de celui-ci n’était pas dépendant de
 
 Comme je l’ai dit antérieurement, tous les actes qui sont apparemment des miracles sont contrôlés par la Loi, tout comme les choses que vous appelez les rouages de la nature sont contrôlées par la Loi, et lorsque la foi suffisante est acquise, il vient à son possesseur une connaissance de ces lois. Ce ne sera peut-être pas, comme vous diriez, une connaissance ou conscience perceptible par les sens ordinaires de l’homme, mais perceptible à ce sens interne, qui est celui qui permet aux hommes de comprendre les choses de l’esprit. Et ayant cette connaissance du sens intérieur, les hommes peuvent contrôler ces lois de telle sorte qu’elles produiront ces effets qui semblent contraires au fonctionnement habituel des lois de la nature. Jusqu’à ce que mes disciples eurent acquis cette foi qui apporta à leur sens intérieur cette connaissance, ils n’ont pu accomplir aucun miracle ou aucun fait exceptionnel, tout comme les autres hommes.
 
-L’expression Biblique, que la foi en mon nom est suffisante pour provoquer le fonctionnement des miracles est totalement fausse et je n’ai jamais dit que cette croyance était requise, pas plus que je n’ai dit *« et tout ce qui sera demandé au Père en mon nom sera donné aux hommes. »*
+L’expression Biblique, que la foi en mon nom est suffisante pour provoquer le fonctionnement des miracles est totalement fausse et je n’ai jamais dit que cette croyance était requise, pas plus que je n’ai dit [*« et tout ce qui sera demandé au Père en mon nom sera donné aux hommes. »*](https://saintebible.com/john/14-13.htm)
 
 Je ne faisais pas partie de la Divinité et je n’avais aucun pouvoir par moi-même, et mon nom n’avait aucune influence miraculeuse sur le Père. J’étais un homme comme les autres hommes sont des hommes, c’est seulement le fait que j’étais rempli de l’Amour Divin du Père qui m’a fait un avec Lui et, par conséquent, fait que la connaissance de Son Amour et lois m’a permis de mettre en œuvre ces lois qui ont permis aux effets souhaités d’apparaître comme des réalités.
 
@@ -35,34 +35,21 @@ Il n’ y a rien d’autre qui puisse apporter cette connaissance de ce sens int
 
 De ce mental erroné, la connaissance, ou peut-être plutôt la conviction, est la croyance qu’en mon nom, c’est-à-dire les supplications faites en mon nom, conduira à la réalisation des désirs du suppliant. Aussi que par mon sang, le pouvoir de la croix ou ma prétendue expiation, le salut des hommes peut être obtenu. Si un nom doit être utilisé dans la supplication de l’homme, alors n’utilisez que le nom du Père, car le Sien est un nom élevé au-dessus de tous, et le seul nom dans les cieux ou sur la terre qui peut apporter à l’homme le salut et la consécration avec Son être.
 
-Et ce que j’ai dit s’applique à beaucoup d’autres déclarations contenues dans la Bible, comme *« Celui qui croit au Seigneur Jésus-Christ sera sauvé. » « Il n’ y a pas d’autre nom sous le ciel pour sauver les hommes »* etc. C’est l’énonciation d’une doctrine fausse et trompeuse pour la grande majorité des hommes, car ils acceptent ses déclarations comme littéralement vraies. Bien entendu si elles sont interprétées comme signifiant que quiconque croit aux vérités que j’enseigne, alors l’objection n’est pas si grande. Cependant, même dans ce cas les déclarations ne vont pas assez loin, car les hommes peuvent croire à ces vérités et cette croyance peut être simplement mentale, acquiescé simplement par les facultés de l’esprit, sans aucun exercice du sens de l’âme. Si à toutes ces déclarations est ajoutée la Vérité essentielle, que « à moins qu’un homme naisse de nouveau, il ne peut pas entrer dans le Royaume des Cieux » et si à cette croyance mentale s’ajoute la foi de l’âme, alors les doctrines seront véritablement exprimées et les hommes comprendront ce qui est nécessaire au salut.
+Et ce que j’ai dit s’applique à beaucoup d’autres déclarations contenues dans la Bible, comme [*« Celui qui croit au Seigneur Jésus-Christ sera sauvé. »*](https://saintebible.com/acts/16-31.htm) [*« Il n’ y a pas d’autre nom sous le ciel pour sauver les hommes »*](https://saintebible.com/acts/4-12.htm) etc. C’est l’énonciation d’une doctrine fausse et trompeuse pour la grande majorité des hommes, car ils acceptent ses déclarations comme littéralement vraies. Bien entendu si elles sont interprétées comme signifiant que quiconque croit aux vérités que j’enseigne, alors l’objection n’est pas si grande. Cependant, même dans ce cas les déclarations ne vont pas assez loin, car les hommes peuvent croire à ces vérités et cette croyance peut être simplement mentale, acquiescé simplement par les facultés de l’esprit, sans aucun exercice du sens de l’âme. Si à toutes ces déclarations est ajoutée la Vérité essentielle, que [*« à moins qu’un homme naisse de nouveau, il ne peut pas entrer dans le Royaume des Cieux »*](https://saintebible.com/john/3-3.htm) et si à cette croyance mentale s’ajoute la foi de l’âme, alors les doctrines seront véritablement exprimées et les hommes comprendront ce qui est nécessaire au salut.
 
 Croyance et foi ne sont pas la même chose. L’une est du domaine du mental, l’autre de celui de l’âme – l’un peut et change alors que les phénomènes et faits apparents changent, l’autre, lorsque la vérité est vraiment possédée, ne change jamais, car la foi possédée par une âme permet que tous les désirs et les aspirations de cette âme deviennent des choses d’existence réelle – qui, comme la maison qui est bâtie sur le roc solide, ne peuvent jamais être secoués ou détruits.
 
 Je vous écris donc ce soir pour montrer que le prédicateur dans son sermon n’a pas expliqué le sens véritable du texte et n’a pas compris les vérités que le texte voulait exprimer, bien qu’il n’énonçait pas mes expressions ou dans son interprétation littérale déclarait la vérité. Je n’écrirai pas plus maintenant, sauf pour dire que je vous aime d’un grand amour, et je prie le Père de vous bénir. Croyez dans le Père, ayez confiance en moi et vous ne serez pas déçus et priez pour que cet Amour Divin du Père entre dans votre âme afin que vous sachiez que vous êtes un fils accepté du Père. Gardez votre courage et ayez la foi que tout ce que vous demanderez au Père au nom de Son Amour et de Sa Vérité vous sera donné. Je suis avec vous, dans tout mon amour et toute ma sollicitude et vous ne serez pas abandonnés.
 
-Alors mon cher frère, soyez assuré que je suis votre frère et ami, Jésus.
+Alors mon cher frère, soyez assuré que je suis votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
+1. <large id=”f1”> *Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a1)
 
-*Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
-
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-15-1-jep-jesus) | 15 Août 1915
 Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
 Jésus | [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-13-1-jep-jesus/) | 13 Août 1916
-Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919\fr-1919-10-18-1-jep-jesus/) | 
-18 Octobre 1919 
+Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 18 Octobre 1919 
 
-
-
-
-
-
-•	15 Août 1915 : [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915\fr-1915-8-15-1-jep-jesus/).
-
-•	10 Janvier 1916 : [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-1-10-2-jep-jesus).
-
-•	13 Août 1916 : [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-8-13-1-jep-jesus/).
-
-•	18 Octobre 1919 : [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1919\fr-1919-10-18-1-jep-jesus/).

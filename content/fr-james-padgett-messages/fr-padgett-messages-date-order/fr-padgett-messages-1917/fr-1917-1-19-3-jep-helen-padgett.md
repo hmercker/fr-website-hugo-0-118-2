@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 19 Janvier 1917, Washington, USA.
 
 C’est moi, ta vraie et affectueuse Hélène.
 
-Eh bien, mon cher, je vois que tu es fatigué et que tu ne dois pas écrire davantage ; mais je veux dire que tu dois penser au [message que Jean t’a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-19-4-jep-st-john/) <sup id="a1">[1](#f1)</sup>, car il est très important et signifie beaucoup pour toi comme pour nous et notre travail. Il était tout en douceur et en amour lorsqu’il a écrit, et il veut tellement que tu suives ses conseils, et je sais que tu le feras.
+Eh bien, mon cher, je vois que tu es fatigué et que tu ne dois pas écrire davantage ; mais je veux dire que tu dois penser au [message que Jean t’a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-19-4-jep-st-john/), car il est très important et signifie beaucoup pour toi comme pour nous et notre travail. Il était tout en douceur et en amour lorsqu’il a écrit, et il veut tellement que tu suives ses conseils, et je sais que tu le feras.
 
 [Laura t’a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-19-1-jep-laura-burroughs/) et t’a parlé de sa rencontre avec son âme-sœur. Tous deux sont très heureux et tous les deux cherchent un plus grand apport de l’Amour Divin, ce dont je suis très heureuse. Je ne l’ai pas vu et, par conséquent, de ma propre connaissance, je ne peux pas te le dire, mais elle doit le savoir, et bien sûr, elle ne t’écrirait que la vérité. Je ne vois pas comment elle pourrait se tromper.
 
@@ -26,6 +26,3 @@ Je suppose qu’il aimerait connaître quel était son nom durant son séjour su
 Mais je n’écrirai pas plus sur elle maintenant, et je la laisserai raconter sa propre histoire et construire son propre amour. Mais dis à M. Colburn qu’il a de la chance d’avoir une si belle fille pour épouse spirituelle, et je suis heureuse qu’il en soit ainsi. Je ne dois pas écrire plus maintenant. Mon cher Ned, je t’aime de tout mon cœur et de toute mon âme, et je te souhaite une bonne nuit. Donne-moi mon baiser et va bientôt te coucher.
 
 Ta vraie et tendre Hélène.
-<small>
-
-1. <large id="f1"> Voir le message de Jean du 07 Mars 1916 (mais initialement daté du 19 Janvier 1917) conseillant à James Padgett de s’abstenir de lire certaines publications spirituelles. Ce message a été publié dans le volume III, 1ère édition française, à la page 335.[↩](#a1)

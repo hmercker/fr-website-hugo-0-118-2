@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus n’a jamais été éduqué dans les sagesses de l’Inde ou de Égypte ou de la Perse - il fut enseigné par le Père et les Anges de Dieu <sup id="a1">[1](#f1)</sup>
+### Jésus n’a jamais été éduqué dans les sagesses de l’Inde ou de Égypte ou de la Perse - il fut enseigné par le Père et les Anges de Dieu<sup id="a1">[1](#f1)</sup>
 
 St Jacques - reçu par James Padgett le 3 Avril 1917, Washington, USA.
 
-Je suis Jacques (le Mineur).
+Je suis Jacques (le Mineur).<sup id="a2">[2](#f2)</sup>
 
 Je n’écrirai pas longtemps ce soir, mais je prie le Père de vous bénir et de faire grandir votre foi.
 
@@ -25,3 +25,5 @@ Votre frère dans le Christ, Jacques.
 <small>
 
 1. <large id="f1"> Plus récemment, au cours des années 2001 à 2003, un médium de l’Amour Divin a reçu de la part de Judas une quantité importante de matériel jusqu’alors inconnu concernant la vie de Jésus sur terre. Ils ont été publiés, en version imprimée ainsi qu’en format Kindle, sous le titre « Messages de Judas de Kérioth ». [Ils peuvent être lus ici](/fr-judas-of-kerioth-messages/fr-judas-messages-by-date/).[↩](#a1)
+
+2. <large id="f1"> Jacues (le mineur) est le frère biologique de Jésus.

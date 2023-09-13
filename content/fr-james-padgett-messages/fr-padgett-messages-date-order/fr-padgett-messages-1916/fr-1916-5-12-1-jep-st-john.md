@@ -33,11 +33,10 @@ L’âme aussi a été étouffée dans ces croyances dogmatiques et, par conséq
 
 Eh bien, comme vous êtes fatigué, je vais reporter le reste de mon exposé. Je pense que c’est mieux lorsque vous vous sentez fatigué d’interrompre l’écriture plutôt que d’essayer de vous forcer à la recevoir.
 
-Je n’écrirai donc pas plus. Croyez que je suis votre frère en Christ.
+Je n’écrirai donc pas plus. Croyez que je suis votre frère en Christ. Jean.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-Jean.
-
-*Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+1. <large id=”f1”> *Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

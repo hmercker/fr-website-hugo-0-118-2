@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 8 Janvier 1917, Washington, USA.
 
 C’est moi, Hélène.
 
-Eh bien, mon cher, je vois que toi et le Docteur avez apprécié le dernier message, tout comme nous qui l’avons vu écrire, et je dois dire qu’il est l’un des esprits les plus sûrs d’eux-mêmes que j’ai rencontrés depuis longtemps. Il n’est pas très beau, ou plutôt séduisant, et son apparence est très sombre, mais il est manifestement un étudiant acharné de ce qu’il appelle les réalités intellectuelles. Il n’aime pas les femmes, et je doute qu’elles fassent de très gros efforts pour gagner son affection ; mais de toute façon, il se considère plus sûr de les éviter, comme il le dit.
+Eh bien, mon cher, je vois que toi et le Docteur avez apprécié [le dernier message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-4-jep-samuel-shannon/), tout comme nous qui l’avons vu écrire, et je dois dire qu’il est l’un des esprits les plus sûrs d’eux-mêmes que j’ai rencontrés depuis longtemps. Il n’est pas très beau, ou plutôt séduisant, et son apparence est très sombre, mais il est manifestement un étudiant acharné de ce qu’il appelle les réalités intellectuelles. Il n’aime pas les femmes, et je doute qu’elles fassent de très gros efforts pour gagner son affection ; mais de toute façon, il se considère plus sûr de les éviter, comme il le dit.
 
 Si tu avais pu voir l’expression sur le visage d’Aigle blanc lorsqu’il a fait un si grand éloge de l’esprit, tu aurais été incapable de retenir ton rire, et nous ne pouvions pas, mais nous nous sommes rendus invisibles pour lui afin qu’il ne puisse pas nous voir.
 

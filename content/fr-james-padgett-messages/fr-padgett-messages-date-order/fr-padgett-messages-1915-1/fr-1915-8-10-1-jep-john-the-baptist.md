@@ -11,6 +11,8 @@ weight:
 
 Jean le Baptiste - reçu par James Padgett le 10 Août 1915, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/Herodias.jpg)
+
 C’est moi, Jean le Baptiste.
 
 Je viens vous dire que je suis maintenant l’annonciateur du Maître comme je l’ai été durant ma vie terrestre et c’est le vrai Jésus qui vous a écrit dans toutes les communications que vous avez reçues signées par lui ou en son nom. Je fais cela afin que vous puissiez croire et ne pas mettre en doute les messages que vous recevez. Il vient de vous écrire <sup id="a2">[2](#f2)</sup> et vous devez prendre en considération ce qu’il dit, parce ce qu’il a dit, se produira certainement.

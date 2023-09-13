@@ -33,9 +33,10 @@ Eh bien, je ne dois pas écrire plus car votre condition n’est pas très bonne
 
 Notre communication n’est pas aussi bonne ce soir qu’elle ne l’était les autres soirs, et vous n’êtes pas en état de comprendre ce que je veux dire. Nous réessayerons bientôt. Je veux que vous priiez davantage le Père et que vous ayez plus de foi. Je reviendrai bientôt. Je vous souhaite une bonne nuit.
 
-Votre ami et frère, Jésus.
+Votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
+1. large id=”f1”> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

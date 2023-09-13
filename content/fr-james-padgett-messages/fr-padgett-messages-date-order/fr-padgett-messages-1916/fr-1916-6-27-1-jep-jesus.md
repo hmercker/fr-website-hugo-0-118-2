@@ -43,19 +43,19 @@ Alors, l’homme étant ainsi limité, tout ce qui découle des qualités et att
 
 Lorsque l’homme acquiert la Nature Divine et devient absorbé dans l’Essence du Père, il devient alors comme le Père. Quelle que soit l’image du Père qu’il ait pu avoir alors qu’il était simple homme, il devient maintenant la Substance réelle, et les possibilités deviennent illimitées. L’amour ne voit aucune fin au développement intellectuel, aucune limites, le bonheur sans limites, et il acquière la connaissance de l’Immortalité. L’âme devient une nouvelle créature, ayant l’Essence Divine du Père ; et jusqu’à ce que cette nouvelle création ait lieu, que la transformation devienne une réalité et que l’âme devienne une avec le Père, l’homme ne peut entrer dans le Royaume des Cieux à moins de devenir un ange.
 
-Maintenant, comme je vous l’ai écrit avant, tout ceci peut être seulement effectué par l’opération de la NOUVELLE NAISSANCE, c’est l’influx dans l’âme de l’homme de l’Amour Divin du Père. Cet Amour contient la divinité de l’Essence de Dieu, et quand l’homme l’obtient, il est alors de la même Essence que le Père et pour la première fois devient une partie du Divin et habilité à habiter les Cieux Célestes. D’aucune autre manière l’homme peut participer à cette nature et cela ne nécessite pas beaucoup de raisonnement pour montrer la vérité logique de cette déclaration, car l’homme, dans ses affaires terrestres, et dans ses expériences matérielles dans la production de composés à partir d’éléments, applique le même principe que j’affirme dans mon exposé, *[« la pâte ne peut lever à moins que le levain ne soit placé dans la farine. »](https://saintebible.com/matthew/13-33.htm)*
+Maintenant, comme je vous l’ai écrit avant, tout ceci peut être seulement effectué par l’opération de la NOUVELLE NAISSANCE, c’est l’influx dans l’âme de l’homme de l’Amour Divin du Père. Cet Amour contient la divinité de l’Essence de Dieu, et quand l’homme l’obtient, il est alors de la même Essence que le Père et pour la première fois devient une partie du Divin et habilité à habiter les Cieux Célestes. D’aucune autre manière l’homme peut participer à cette nature et cela ne nécessite pas beaucoup de raisonnement pour montrer la vérité logique de cette déclaration, car l’homme, dans ses affaires terrestres, et dans ses expériences matérielles dans la production de composés à partir d’éléments, applique le même principe que j’affirme dans mon exposé, *[la pâte ne peut lever à moins que le levain ne soit placé dans la farine.](https://saintebible.com/matthew/13-33.htm)*
 
 Donc vous voyez que, sans cet Amour Divin entrant dans l’âme, il sera impossible pour l’homme naturel de devenir l’ange divin. Les croyances, les crédos, les doctrines et les sacrifices ne peuvent pas permettre cette transformation, et même si les croyances peuvent être absolues, les crédos et les doctrines satisfaisants et les sacrifices sans fin, ils resteront vains dans la transformation de l’âme de  l’homme simple en celle de l’Ange Divin, et tout cela est, en partie, la raison pour laquelle l’homme devrait chercher à obtenir l’Amour Divin et devenir un habitant des Sphères Célestes.
 
 J’ai suffisamment écrit pour ce soir et je suis satisfait de la façon dont vous l’avez reçu.
 
-Avec tout mon amour et bénédictions, je suis votre frère et ami, Jésus.
+Avec tout mon amour et bénédictions, je suis votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux dans les messaes suivans :.*
+1. <large id=”f1”> *Note : Jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux dans les messages suivants :.*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/)) | 05 Mai 1917
-05 Mai 1917
-Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/)) | 15 Mai 1917
+Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/) | 05 Mai 1917
+Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/) | 15 Mai 1917
 

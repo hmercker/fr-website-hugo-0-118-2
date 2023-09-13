@@ -12,6 +12,7 @@ weight:
 St Étienne - reçu par James Padgett le 15 Mars 1916, Washington, USA.
 
 Je suis ici, et je désire écrire seulement quelques lignes, car vous n’êtes pas en état d’écrire longtemps ce soir.
+
 Le Maître a été déçu, mais il est tellement aimant et bon qu’il ne s’est pas plaint et souhaite seulement que vous vous sentiez que vous ne devez pas vous inquiéter du fait que vous n’avez pas pu prendre son message – mais, néanmoins, il a été déçu.
 
 Je comprends que vous ne pouviez pas contrôler votre somnolence et vous n’êtes pas à blâmer, mais ce fut malheureux, et il faut, d’une certaine façon, si possible, l’éviter à l’avenir.

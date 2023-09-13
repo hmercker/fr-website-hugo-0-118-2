@@ -39,21 +39,21 @@ Comme je le disais lorsque j’étais sur la terre, « étroit est le chemin et 
 
 Que tous les hommes seront finalement mis en harmonie avec Dieu, que ce soit dans l’amour naturel ou dans le Supérieur, est certain tout comme il est décrété que tout péché et erreur sera finalement éradiqué de l’univers de Dieu. Le temps (de cette réalisation) dépend, dans une large mesure, de la volonté et des désirs des hommes. Par conséquent, alors que ma grande mission, en venant sur terre et en enseignant les hommes, était de montrer le chemin vers le Royaume Céleste, cependant, une plus petite partie de ma mission était de leur apprendre un chemin pour leur rédemption du péché et de l’erreur, lequel se traduirait par la purification de l’amour naturel. A mon grand regret, et au préjudice incalculable pour l’homme, mes enseignements moraux ont été, dans leur ensemble, plus exposés dans les parties de la Bible, comme maintenant acceptée, que ne l’ont été mes enseignements des Vérités plus Élevées.
 
-Je ne vais pas écrire plus ce soir, mais je continuerai plus tard. Eh bien mon cher frère, je vois que vous êtes dans une bien meilleure condition spirituelle que vous ne l’avez été pendant un certain temps, et vous devez remercier le Père pour cela. Votre compréhension de l’expérience de la nuit dernière est exacte et vous avez reçu une quantité de merveilleuse de l’Amour Divin. J’étais avec vous dans l’amour et la bénédiction.
+Je ne vais pas écrire plus ce soir, mais [je continuerai plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-11-1-jep-jesus/). Eh bien mon cher frère, je vois que vous êtes dans une bien meilleure condition spirituelle que vous ne l’avez été pendant un certain temps, et vous devez remercier le Père pour cela. Votre compréhension de l’expérience de la nuit dernière est exacte et vous avez reçu une quantité de merveilleuse de l’Amour Divin. J’étais avec vous dans l’amour et la bénédiction.
 
 Alors continuez à prier et à faire confiance au Père et vous réaliserez un merveilleux bonheur rempli de gloire, de puissance et de paix.
 
-Je dois arrêter maintenant. Votre frère et ami, Jésus.
+Je dois arrêter maintenant. Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+1 <large id=”f1”> *Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-15-1-jep-jesus) | 15 Août 1915
+Jésus | [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-15-1-jep-jesus/) | 15 Août 1915
 Jésus | [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-13-1-jep-jesus/) | 13 Août 1916
-Jésus | « [En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père ».](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/) | 24 Septembre 1916
-Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919\fr-1919-10-18-1-jep-jesus/) | 
-18 Octobre 1919 
+Jésus | ["En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père."](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/)| 24 Septembre 1916
+Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 18 Octobre 1919 
 
 
 

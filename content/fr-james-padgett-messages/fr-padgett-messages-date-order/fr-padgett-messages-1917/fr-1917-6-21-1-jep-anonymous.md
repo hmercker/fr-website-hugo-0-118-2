@@ -11,7 +11,7 @@ weight:
 
 Anonyme - reçu par James Padgett le 21 Juin 1917, Washington, USA.
 
-Je suis l’homme qui a dit à Jésus, alors qu’il portait sa croix vers le Calvaire, « Passe », et à qui il a répondu: « Attends moi jusqu’à ce que je vienne ». Pendant des années et des années, j’ai attendu à ce qu’il vienne jusqu’à moi, pas comme le Jésus réincarné, mais comme mon frère, et mon ami, en possession de l’Amour Divin que j’ai reçu dans mon âme après les longues années d’attente et de souffrance sur terre.
+Je suis l’homme qui a dit à Jésus, alors qu’il portait sa croix vers le Calvaire, *« Passe »*, et à qui il a répondu: *« Attends moi jusqu’à ce que je vienne »*. Pendant des années et des années, j’ai attendu à ce qu’il vienne jusqu’à moi, pas comme le Jésus réincarné, mais comme mon frère, et mon ami, en possession de l’Amour Divin que j’ai reçu dans mon âme après les longues années d’attente et de souffrance sur terre.
 
 Je sais que cela est considéré comme une légende par les mortels, mais pour moi, ce fut un fait vital et douloureux. Je fus vraiment le Juif Errant et je n’ai trouvé de repos nulle part, et même la mort ne venait pas à moi pour me libérer d’une vie qui était une torture et une cause du souvenir de mon inhumanité envers le véritable Jésus.
 

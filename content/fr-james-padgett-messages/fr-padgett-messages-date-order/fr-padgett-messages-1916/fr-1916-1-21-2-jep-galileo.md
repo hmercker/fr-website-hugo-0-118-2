@@ -9,7 +9,7 @@ weight:
 ---
 ### Galilée écrit sur ses études de l’Univers matériel
 
-Galilée <sup id="a1">[1](#f1)</sup> - reçu par James Padgett le 21 Janvier 1916, Washington, USA.
+Galilée<sup id="a1">[1](#f1)</sup> - reçu par James Padgett le 21 Janvier 1916, Washington, USA.
 
 Je suis l’esprit de Galilée et je veux partager avec vous quelques mots sur le monde spirituel de la science.
 
@@ -24,4 +24,4 @@ Je vais m’arrêter maintenant et vous souhaiter une bonne nuit.
 Galilée.
 <small>
 
-1. <large id="f1"> Galileo Galilei : (15 Février 1564 – 8 Janvier 1642), souvent connu sous le nom mononyme de Galilée, était un physicien, mathématicien, astronome et philosophe italien qui a joué un rôle majeur dans la révolution scientifique. Parmi ses réalisations, mentionnons l’amélioration du télescope et les observations astronomiques qui en ont découlé, ainsi que l’appui au copernicanisme. Galilée a été appelé le « père de l’astronomie moderne », le « père de la physique moderne », le « père de la science » et le « père de la science moderne ». (Source : Wikipedia)[↩](#a1)
+1. <large id="f1"> **Galileo Galilei** : (15 Février 1564 – 8 Janvier 1642), souvent connu sous le nom mononyme de Galilée, était un physicien, mathématicien, astronome et philosophe italien qui a joué un rôle majeur dans la révolution scientifique. Parmi ses réalisations, mentionnons l’amélioration du télescope et les observations astronomiques qui en ont découlé, ainsi que l’appui au copernicanisme. Galilée a été appelé le « père de l’astronomie moderne », le « père de la physique moderne », le « père de la science » et le « père de la science moderne ». (Source : Wikipedia)[↩](#a1)

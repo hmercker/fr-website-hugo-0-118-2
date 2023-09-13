@@ -28,4 +28,4 @@ Eh bien, je vais le faire ! Je suis content d’être entré par effraction ce s
 Votre ami, George E. Luckett.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume III, 1ère édition française à la page 365 et dans le Volume IV, 2ème édition anglaise, à la page 134.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III à la page 464 et dans le Volume IV à la page 145.. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

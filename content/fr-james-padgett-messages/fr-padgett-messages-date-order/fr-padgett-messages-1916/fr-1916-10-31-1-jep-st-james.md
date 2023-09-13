@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jacques dit que M. Padgett sera bientôt soulagé de l’inquiétude <sup id="a1">[1](#f1)</sup>
+### Jacques dit que M. Padgett sera bientôt soulagé de l’inquiétude<sup id="a1">[1](#f1)</sup>
 
 St Jacques - reçu par James Padgett le 31 Octobre 1916, Washington, USA.
 
@@ -20,4 +20,4 @@ Nous sommes tous ici ce soir parce que nous nous intéressons à vous et voulons
 Je le sais, et je ne peux que corroborer ce qu’il dit, de sorte que vous ne devez pas continuer à laisser ces troubles temporaires vous maintenir dans un tel état de morosité et de découragement. Je n’écrirai plus ce soir. Votre frère en Christ, Jacques l’Apôtre.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III des messages reçus par James Padgett.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume II, deuxième édition française, à la page 191 et dans le volume III à la page 423. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

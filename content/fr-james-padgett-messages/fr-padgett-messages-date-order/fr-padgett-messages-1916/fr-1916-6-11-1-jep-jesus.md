@@ -14,6 +14,7 @@ Jésus - reçu par James Padgett le 11 Juin 1916, Washington, USA.
 C’est moi, Jésus.
 
 Je viens ce soir comme je l’ai promis, et je désire écrire mon message, si vous êtes en état de le recevoir.
+
 Je souhaite écrire sur le sujet de : *« Quelle est la bonne façon de vivre la vie sur terre, afin de se purifier de ses péchés et purifier son amour naturel ? »*
 
 Jusqu’à présent, j’ai abordé, presque exclusivement, dans mes messages, la rédemption de l’âme au moyen de l’Amour Divin, afin que le racheté puisse devenir un habitant des Sphères Célestes. Maintenant, je ne vais traiter que de cette purification qui lui permettra de vivre dans la plus haute et la plus pure des sphères spirituelles, où il pourra avoir le bonheur qu’un pur amour naturel lui apportera.
@@ -28,6 +29,6 @@ Ces péchés dont je parle ont été créés par les pensées et les désirs de 
 
 Les mauvaises pensées naissent des suggestions, tant intérieures qu’extérieures, et aussi des influences des esprits du mal qui établissent un rapport avec les mortels.
 
-Remettons à plus tard la rédaction de notre rapport, car ce n’est pas tout à fait correct. Je viendrai bientôt pour le terminer.
+Remettons à plus tard la suite de ce message, car notre rapport n’est pas tout à fait correct. Je viendrai [bientôt](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-17-1-jep-jesus/) pour le terminer.
 
 Avec tout mon amour, je suis votre frère et votre ami, Jésus.

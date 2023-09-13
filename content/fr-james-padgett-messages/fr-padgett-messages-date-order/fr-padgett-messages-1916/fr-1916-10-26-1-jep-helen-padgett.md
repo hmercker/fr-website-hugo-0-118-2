@@ -19,8 +19,11 @@ J’étais avec toi aujourd’hui lorsque la dame a appelé, j’ai entendu ta c
 
 En même temps, les esprits de ses proches étaient présents et ils ont, au moins certains d’entre eux, exprimé le désir de lui écrire un message, et plus particulier un qui est un esprit très brillant des Sphères Célestes. Elle semblait très intéressée par cette femme et est très désireuse de lui écrire en référence à la condition de son âme et à la nécessité pour elle de rechercher l’amour et de devenir un véritable enfant du Père. Je lui ai dit que tu accueillerais son message très prochainement, et c’est ce que tu feras. Eh bien, mon cher, je vois que tu es plus heureux que tu ne l’étais, et tout cela est dû au fait que tu as tourné tes pensées vers les réalités spirituelles et que tu as prié pour un plus grand apport d’amour. Je ne vais pas en écrire plus maintenant.
 
-Oui, j’aurais dû te le dire, mais nos communications ont été si écourtées, ou plutôt rendues brèves, par l’état dans lequel tu te trouvais, que je n’ai pas pensé à l’époque à t’écrire en référence à Bébé. J’ai été avec elle et j’ai vu qu’elle était malade, mais qu’il n’y avait rien de très grave dans son cas. Elle ira bientôt beaucoup mieux et elle pourra alors subir l’opération dont elle t’a parlée.
+Oui, j’aurais dû te le dire, mais nos communications ont été si écourtées, ou plutôt rendues brèves, par l’état dans lequel tu te trouvais, que je n’ai pas pensé à l’époque à t’écrire en référence à Bébé<sup id=”a1”>[1](#f1)</sup>. J’ai été avec elle et j’ai vu qu’elle était malade, mais qu’il n’y avait rien de très grave dans son cas. Elle ira bientôt beaucoup mieux et elle pourra alors subir l’opération dont elle t’a parlée.
 
 Eh bien, je lui écrirai très bientôt une longue lettre d’amour maternelle et tu pourras la lui donner, car je vais essayer de lui écrire une lettre très encourageante et qui fera appel à ses instincts amoureux.
 
 Non. Je n’oublierai pas – il est prêt à tout moment et cela ne dépend que de toi que tu puisses être en état de recevoir ses messages. Le docteur l’a examiné, il connaît son problème et il est prêt à lui rédiger une ordonnance. Tu ferais mieux d’aller te coucher plus tôt le soir, car tu as besoin de récupérer, et un bon sommeil t’aidera beaucoup. Alors, aime-moi et crois que je t’aime. Bonne nuit, mon cher Ned – ta véritable et affectueuse Hélène.
+<small>
+
+1. <large id=”f1”> L'expression « bébé » se réfère à Nita Padgett, la fille de James et Hélène Padgett.[↩](#a1)

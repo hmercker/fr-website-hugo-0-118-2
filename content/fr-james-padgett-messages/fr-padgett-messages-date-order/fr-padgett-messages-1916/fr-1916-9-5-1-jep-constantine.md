@@ -9,9 +9,9 @@ weight:
 ---
 ### Constantin nie avoir accepté le Christianisme alors qu’il vivait sur la terre. Est maintenant un Esprit Céleste
 
-Constantine - reçu par James Padgett le 5 Septembre 1916, Washington, USA.
+Constantin - reçu par James Padgett le 5 Septembre 1916, Washington, USA.
 
-C’est moi, Constantin. <sup id="a1">[1](#f1)</sup>
+C’est moi, Constantin.<sup id="a1">[1](#f1)</sup>
 
 Je fus un Empereur Romain et je suis décédé comme le leader de l’Église Chrétienne. Je n’étais pas vraiment Chrétien et je ne comprenais pas les vrais principes de l’enseignement Chrétien, mais j’ai adopté le Christianisme comme une religion d’État pour des raisons politiques car cela me permettait d’assouvir mon désir de détruire les pouvoirs de mes opposants qui étaient des croyants et des adorateurs des dieux du paganisme. Je fus un homme qui ne s’est absolument pas soucié de savoir si la croix ou le symbole des oracles étaient le véritable signe de la religion, ou si les adeptes des croyances religieuses appartenaient à l’église Chrétienne ou du culte des dieux que notre pays avait adopté et suivi pendant tant d’années.
 

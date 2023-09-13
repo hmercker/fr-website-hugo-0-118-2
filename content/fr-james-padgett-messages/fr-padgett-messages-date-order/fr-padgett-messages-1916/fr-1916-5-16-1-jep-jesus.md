@@ -16,6 +16,7 @@ C’est moi, Jésus.
 Je n’écrirai pas de message officiel ce soir, mais je vous dirai simplement que j’étais avec vous, ce soir, chez M. Morgan, et que j’ai écrit ce que vous avez reçu comme prétendant venir de moi, et je voulais dire que si je pouvais établir le rapport avec lui, je le guérirais ; et c’est ce que je ferai. Cela dépend en quelque sorte du fait qu’il ait la concentration nécessaire et qu’il croit en moi.
 
 Il peut sembler étrange que je ne puisse pas le faire si ce rapport n’est pas établi, mais c’est un fait. Il y a certaines lois qui contrôlent l’exercice de ce pouvoir sur les mortels et qui doivent être respectées. Lorsque, sur terre, je pouvais entrer en contact direct avec le mortel du fait de mon existence dans la chair, et que le pouvoir était en moi, ou pouvait être engendré en moi par l’exercice de mes pouvoirs spirituels, je ne rencontrais aucun obstacle dans la manière dont j’exerçais ces pouvoirs sur le mortel. Mais maintenant, il n’y a plus de contact direct entre moi et le mortel, et il n’y a donc plus de moyen de lui communiquer ce pouvoir tant qu’une relation n’est pas établie.
+
 Ce rapport est quelque chose de plus qu’un simple lien « spirituel », et implique une certaine part de matériel, bien que nous ne soyons pas du matériel ; cependant, le rapport doit être de la nature mentionnée, et la partie matérielle de celui-ci doit venir du mortel lui-même.
 
 Vous comprendrez maintenant que ma relation avec le mortel dans de tels cas est très différente de ce que serait votre relation avec lui, si vous aviez ce pouvoir qui réside en vous. Lorsque le moment sera venu pour vous de recevoir ce pouvoir, vous n’aurez pas besoin d’établir un quelconque rapport entre vous et celui que vous pourrez guérir. Je veux dire qu’il ne sera pas nécessaire que ce rapport s’établisse en tirant du mortel une partie quelconque de la matière qui lui appartient : vous l’aurez vous-même, et le pouvoir sera exercé par vous simplement en tant que mortel entrant en contact avec lui.
@@ -30,9 +31,10 @@ Je vais essayer ce soir, comme je l’ai promis, de l’aider, et si nous pouvon
 
 Je viendrai bientôt vous écrire un autre message sur un sujet important, afin que vous puissiez voir la nécessité de notre travail plus rapide. Je n’écrirai pas plus, mais je dirai que je vous aime et que je suis avec vous et que j’essaie de t’aider. Alors, avec ma bénédiction, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
+1. <large id=”f1”> *Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

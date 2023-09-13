@@ -83,8 +83,3 @@ Henry Ward Beecher | [L'immortalité](/fr-james-padgett-messages/fr-padgett-mess
 Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
 St Luc | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
 
-
-
-
-
-Jésus a communiqué le 02 Juin 1920 [un second message sur l'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/).[↩](#a1)

@@ -17,9 +17,10 @@ Alors ayez confiance en ce fait important et votre foi en moi va croître jusqu�
 
 Je n’écrirai pas plus ce soir, mais dirai gardez votre courage et croyez, et le moment viendra bientôt quand vous pourrez recevoir mes messages dans toute leur plénitude, et avec une telle rapidité, que la propagation de ces vérités ne sera pas retardée. Je suis avec vous et serai un ami et un frère fidèles, beaucoup plus proche de vous que n’importe quel frère terrestre.
 
-Avec tout mon amour et bénédictions, je suis votre frère aimant et ami, Jésus.
+Avec tout mon amour et bénédictions, je suis votre frère aimant et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
+1. <large id=”f1”> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

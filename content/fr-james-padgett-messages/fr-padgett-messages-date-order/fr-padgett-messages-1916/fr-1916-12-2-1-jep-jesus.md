@@ -56,10 +56,10 @@ Votre frère et ami,
 Jésus.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
-1. <large id=”f1”> [Il est possible d'écouter la narration de cette prière par l'intermédiaire de ce lien](https://www.youtube.com/watch?v=viwN9wsCMfw). Cette prière est classée 1200 sur la carte de la conscience du Dr David R. Hawkins ! !! (1000 étant un état de pure conscience)[↩](#a1)
+1. <large id=”f1”> [Il est possible d'écouter la narration de cette prière [par l'intermédiaire de ce lien](https://www.youtube.com/watch?v=viwN9wsCMfw). Cette prière est classée 1200 sur la carte de la conscience du Dr David R. Hawkins ! !! (1000 étant un état de pure conscience)[↩](#a1)
 
 2. <large id=”f2”> Dans [une très belle vidéo réalisée](https://www.youtube.com/watch?v=m4WdGwt-X9A) par Care Darby Walsh qui est disponible sur YouTube, il est possible d’écouter la narration de la version originale de cette prière en anglais.
-. Il est également possible, toujours en anglais, de visualiszer une seconde vidéo relative à la prière de l'Amour Divin. J'apprécie particulièrement cette seconde vidéo car ke trouve que l'accompagnement musical est juste maginifique. Vous pouvez visualiser cette seconde par [l'intermédiaire de ce lien](https://www.youtube.com/watch?v=Pg6p3rivAZw&t=127s
-) [↩](#a2)
+Il est également possible, toujours en anglais, de visualiser une seconde vidéo relative à la prière de l'Amour Divin. J'apprécie particulièrement cette seconde vidéo car ke trouve que l'accompagnement musical est juste maginifique. Vous pouvez visualiser cette seconde par [l'intermédiaire de ce lien](https://www.youtube.com/watch?v=Pg6p3rivAZw&t=127s
+)[↩](#a2)
 
 

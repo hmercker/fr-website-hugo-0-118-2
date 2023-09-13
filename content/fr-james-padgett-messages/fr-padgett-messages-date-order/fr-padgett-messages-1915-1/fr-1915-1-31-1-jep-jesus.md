@@ -39,9 +39,10 @@ Je parle ainsi parce que je veux qu’il soit clair que Dieu n’est pas la pers
 
 Je n’écrirai plus ce soir. Avec ma bénédiction et mon amour.
 
-Jésus.
+Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
+1. <large id=”f1”> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 25 Novembre 1916, Washington, USA.
 
 C’est moi, Hélène.
 
-Eh bien, mon cher, tu as eu une lettre quelque peu étonnante ce soir, je veux dire étonnante quand tu penses à la personne qui l’a écrit, mais c’est vrai, c’est vraiment Goliath qui a écrit, et je peux dire cela parce que je l’ai rencontré avant et en outre des supérieurs (Esprits), et même certains mauvais esprits, m’ont dit que c’était lui.
+Eh bien, mon cher, tu as eu une lettre [quelque peu étonnante](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-25-1-jep-goliath/) ce soir, je veux dire étonnante quand tu penses à la personne qui l’a écrit, mais c’est vrai, c’est vraiment Goliath qui a écrit, et je peux dire cela parce que je l’ai rencontré avant et en outre des supérieurs (Esprits), et même certains mauvais esprits, m’ont dit que c’était lui.
 
 Eh bien, il a présenté un argument très fort et j’espère qu’un jour il sera très efficace pour convaincre les hommes de sa vérité. J’aurais pu écrire sur le même sujet en me basant sur les connaissances que j’ai, mais ce que j’aurais dit, et ce que j’aurais dû dire, aurait été tout aussi vrai en quelques mots ; il n’y aura pas de grand maitre comme ces gens s’y attendent et rien de tel que la réincarnation n’existera. Un esprit un jour, un esprit toujours. Mais je ne dois pas consacrer du temps à écrire sur ce sujet.
 

@@ -21,7 +21,7 @@ Oui, c’est l’idée correcte, et je m’efforcerai de rendre le message aussi
 
 *[Question.]*
 
-Eh bien, à ce sujet, je sais que dans un avenir pas très éloigné, vous pourrez me voir comme vous le dites, car je suis désireux que vous le fassiez. Vous avez le pouvoir de la clairvoyance, mais il n’est pas souhaitable qu’il se développe en ce moment, en vous, car nous voulons que tout votre pouvoir soit centré sur la réception des messages. Cependant, un soir, alors que vous prierez et que je serai avec vous, ce pouvoir vous sera donné et vous me verrez alors comme je suis, priant avec vous. Je sens que cela peut renforcer votre foi et vous rapprocher de moi, et je désire que vous me voyiez réellement tel que je suis <sup id="a1">[1](#f1)</sup>. Eh bien, disons bonne nuit et arrêtons-nous.
+Eh bien, à ce sujet, je sais que dans un avenir pas très éloigné, vous pourrez me voir comme vous le dites, car je suis désireux que vous le fassiez. Vous avez le pouvoir de la clairvoyance, mais il n’est pas souhaitable qu’il se développe en ce moment, en vous, car nous voulons que tout votre pouvoir soit centré sur la réception des messages. Cependant, un soir, alors que vous prierez et que je serai avec vous, ce pouvoir vous sera donné et vous me verrez alors comme je suis, priant avec vous. Je sens que cela peut renforcer votre foi et vous rapprocher de moi, et je désire que vous me voyiez réellement tel que je suis<sup id="a1">[1](#f1)</sup>. Eh bien, disons bonne nuit et arrêtons-nous.
 
 *[Question.]*
 
@@ -48,6 +48,6 @@ Eh bien, j’ai écrit plus que je ne l’avais prévu, mais comme vous vouliez 
 Votre frère et ami, Jésus.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> M. Padgett m’a dit plus tard que Jésus s’était révélé et qu’il l’avait vu, en clairvoyance, alors que M. P. priait pour recevoir plus de l’Amour Divin. (Dr Stone.)[↩](#a1)
+1. <large id="f1"> M. Padgett m’a dit plus tard que Jésus s’était révélé et qu’il l’avait vu, en clairvoyance, alors qu'il priait pour recevoir plus de l’Amour Divin. (Dr Stone.)[↩](#a1)
 
 2. <large id=”f1”> Ce message précise et complète le message communiqué par Jean le [23 Novembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-23-1-jep-st-john/).[↩](#a1)

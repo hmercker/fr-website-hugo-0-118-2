@@ -19,7 +19,7 @@ Oui, je suis là et je veux te dire que tu ne dois pas te laisser décourager pa
 
 Oui, c’est vrai, et tu ne dois pas l’adorer ainsi. Non seulement ils se sont trompés sur ce point particulier, mais ils n’ont pas compris que Jésus ne veut pas être adoré de cette façon. Ils peuvent le suivre dans ses enseignements et son exemple, mais ils ne doivent adorer que Dieu. Tu peux les aider à voir la Vérité et tu devrais essayer de le faire.
 
-Oui, je sais, mais tu devrais néanmoins faire l’effort car ils doivent apprendre que Jésus n’est qu’un fils de Dieu et n’est pas Dieu ou une partie de Lui. Il est celui qu’il convient de rechercher et à qui il convient de demander Son aide pour apprendre la vérité. Oui, je sais, mais ils devront tôt ou tard apprendre que l’Esprit Saint est de Dieu et non un intermédiaire de Jésus pour provoquer leur Nouvelle Naissance et leur entrée dans le Royaume de Dieu. Il (Dieu) est celui qui confère les bénédictions de l’Esprit et ils le réaliseront quand ils recevront l’afflux de l’Esprit d’Amour et de Grâce. Oui, beaucoup en ont bénéficié et son influence est bonne et utile, leurs amis spirituels sont avec eux lors de leurs assemblées et les aident à réaliser que Dieu est Amour et Vérité.
+Oui, je sais, mais tu devrais néanmoins faire l’effort car ils doivent apprendre que Jésus n’est qu’un fils de Dieu et n’est pas Dieu ou une partie de Lui. Il est celui qu’il convient de rechercher et à qui il convient de demander Son aide pour apprendre la vérité. Oui, je sais, mais ils devront tôt ou tard apprendre que l’Esprit Saint<sup id="a1">[1](#f1)</sup> est de Dieu et non un intermédiaire de Jésus pour provoquer leur Nouvelle Naissance et leur entrée dans le Royaume de Dieu. Il (Dieu) est celui qui confère les bénédictions de l’Esprit et ils le réaliseront quand ils recevront l’afflux de l’Esprit d’Amour et de Grâce. Oui, beaucoup en ont bénéficié et son influence est bonne et utile, leurs amis spirituels sont avec eux lors de leurs assemblées et les aident à réaliser que Dieu est Amour et Vérité.
 
 Oui, parfois, mais ils n’aiment pas être là et par conséquent ne restent pas très longtemps ou ne participent pas aux services. Il n’est pas présent aux diverses assemblées qui se tiennent dans les différentes églises de tout le pays, mais ses vérités sont là dans le caractère des esprits qui ont pour mission de faire connaître les vérités qu’il a enseignées et qui sont les vérités de Dieu.
 
@@ -39,18 +39,14 @@ Non, pas dans le sens où l’Esprit Saint est dans leurs cœurs, ils laissent s
 
 Non, seulement dans le sens où ces choses (son sang et sa crucifixion) attirent l’attention de l’humanité sur Jésus et sa mission sur terre. Entre Dieu et l’homme, aucun sang de Jésus ni aucune souffrance par intercession ne peut apaiser Dieu ou sauver l’homme. Dieu est un Dieu d’Amour et n’a pas de colère à apaiser. Il n’est que trop heureux de voir Ses enfants venir à lui et être à Ses côtés. Il n’attend pas de les punir ou de les faire souffrir à cause de la colère qu’il est censé avoir contre eux. Ils souffrent uniquement parce qu’ils ont violé Ses lois et ils doivent faire ce qui éliminera les causes de leur violation de ces lois.
 
-Les hommes ne sont pas l’objet de la colère de Dieu, mais sont les chers enfants de Son Amour. Il n’est pas heureux quand ils font le mal ou quand ils n’obéissent pas à ses préceptes. Que l’idée que Dieu se plaît à punir les méchants ne te fasse pas croire que Dieu désire que l’un de Ses enfants souffre. Il n’est que trop prêt à sauver et à faire venir le pécheur à Son Amour et à Son Attention. Il est le seul Amour Parfait qui existe.
+Les hommes ne sont pas l’objet de la colère de Dieu, mais sont les chers enfants de Son Amour. Il n’est pas heureux quand ils font le mal ou quand ils n’obéissent pas à ses préceptes. Que l’idée que Dieu se plaît à punir les méchants ne te fasse pas croire que Dieu désire que l’un de Ses enfants souffre. Il n’est que trop prêt à sauver et à faire venir le pécheur à Son Amour et à Son Attention. Il est le seul Amour Parfait qui existe.<sup id="a2">[2](#f2)</sup>
 
 Tu dois arrêter d’écrire maintenant sinon tu ne pourras pas aller à ton dîner.
 
-Ta grand-mère adorée.<sup id="a2">[2](#f2)</sup>
+Ta grand-mère adorée.<sup id="a3">[3](#f3)</sup>
 <small>
 
-<large id=”f1”> Ce message est publié dans le Volume III à la page 65 et dans le Volume IV à la page 225. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
-
-<large id=”f2”> Ce message gagnerait beaucoup à être recréé à partir de l’original. Il est clair qu’Anne Rollins éprouve quelques difficultés à s’exprimer. Cependant, il est aussi probable que James Padgett n’avait pas, en ce moment, la condition d’âme pour recevoir aussi fidèlement qu’il l’a eu plus tard. (G.J.C.).[↩](#a2)
-
-*Note 3 : Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*
+1. <large id=”f1”> *Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -59,4 +55,9 @@ Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-
 Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/) | 05 Novembre 1916
 Jean | [Qu’est-ce que l’Esprit Saint et comment fonctionne-t-il ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/) | 14 Juin 1917
 Jésus|  [Différence entre l’Esprit de Dieu et l’Esprit Saint.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
+
+2. <large id=”f2”> Ce message gagnerait beaucoup à être recréé à partir de l’original. Il est clair qu’Anne Rollins éprouve quelques difficultés à s’exprimer. Cependant, il est aussi probable que James Padgett n’avait pas, en ce moment, la condition d’âme pour recevoir aussi fidèlement qu’il l’a eu plus tard. (Geoff Cutler)[↩](#a2)
+
+3. <large id=”f3”> Ce message est publié dans le Volume III à la page 65 et dans le Volume IV à la page 225. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a3)
+
 
