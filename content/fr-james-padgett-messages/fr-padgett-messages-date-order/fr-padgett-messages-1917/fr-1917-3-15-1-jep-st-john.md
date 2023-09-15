@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé <
+### Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé 
 
 St Jean - reçu par James Padgett le 15 Mars 1917, Washington, USA.
 
 C’est moi, Jean.
 
-J’étais avec vous ce soir à la séance spirite et j’ai entendu ce que le médium <sup id="a1">[1](#12)</sup> a dit, et j’ai vu que, lorsqu’elle délivrait les divers messages, elle était dictée par des esprits d’un très faible niveau de développement, et qu’ils aimaient beaucoup la tromperie qu’ils pratiquaient sur le médium et sur les auditeurs.
+J’étais avec vous ce soir à la séance spirite et j’ai entendu ce que le médium<sup id="a1">[1](#12)</sup> a dit, et j’ai vu que, lorsqu’elle délivrait les divers messages, elle était dictée par des esprits d’un très faible niveau de développement, et qu’ils aimaient beaucoup la tromperie qu’ils pratiquaient sur le médium et sur les auditeurs.
 
 Ces esprits ne sont pas du genre de ceux avec qui vous devriez être associés. Votre groupe était présent et a empêché qu’aucun de ces esprits ne communique avec vous, vous affecte par son influence. Cependant cela ne vous fait aucun bien de vous mêler avec ces esprits.
 
@@ -51,7 +51,7 @@ Mais un jour notre travail, aussi bien sur la terre que dans les sphères spirit
 
 Et comme le Père veut que tous les hommes deviennent un avec lui dans Sa Divinité d’Amour, nous devons travailler jusqu’à ce qu’arrive le jour de la grande finalisation du Royaume, les esprits qui n’auront pas alors [l’habit de noces](https://saintebible.com/matthew/22-12.htm) devront subir le châtiment de la seconde mort <sup id="a2">[2](#f2)</sup>.
 
-Et lorsque Jésus a dit : [« Il faut que je fasse, tandis qu’il est jour, les œuvres de celui qui m’a envoyé; la nuit vient, où personne ne peut travailler. »](https://saintebible.com/john/9-4.htm), il voulait dire que tant que le Royaume est ouvert à l’entrée des hommes, nous devons travailler, car lorsque ses portes seront fermées le travail des ouvriers angéliques cessera et les hommes et les esprits seront laissés pour l’éternité dans les sphères spirituelles.
+Et lorsque Jésus a dit : [Il faut que je fasse, tandis qu’il est jour, les œuvres de celui qui m’a envoyé; la nuit vient, où personne ne peut travailler.](https://saintebible.com/john/9-4.htm), il voulait dire que tant que le Royaume est ouvert à l’entrée des hommes, nous devons travailler, car lorsque ses portes seront fermées le travail des ouvriers angéliques cessera et les hommes et les esprits seront laissés pour l’éternité dans les sphères spirituelles.
 
 Et donc nous travaillons et vous devez travailler jusqu’au moment de la (grande) séparation , et comme le Maître l’a dit, [le grain et l’ivraie](https://saintebible.com/matthew/13-30.htm) doivent pouvoir grandir ensemble jusqu’à la grande époque de la récolte, et il en est ainsi de l’âme munie seulement de l’amour naturel et de celle possédant l’Amour Divin, qui sont autorisées à se mélanger ensemble jusqu’à ce que la moisson de la récolte ait lieu. Et d’ici là, nous devons nous mélanger, travailler et prier sans cesse.
 
@@ -64,6 +64,6 @@ Votre frère en Christ, Jean.<sup id="a3">[3](#f3)</sup>
 
 1. <large id="f1"> Ce message a été reçu par M. Padgett, après que M. Padgett et le Dr Stone aient assisté à une séance du Dr. Bruen dans cette ville. (Geoff Cutler)[↩](#a1)
 
-2. <large id="f2"> Seconde mort : la perte et la mort du privilège d’obtenir l’Amour Divin que les âmes doivent posséder afin de pouvoir entrer das le Royaume des Cieux avant que ce dernier ne ferme. Voir le message d’Anne Rollins du 1er Juin 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/)»(Geoff Cutler).[↩](#a2)
+2. <large id="f2"> **Seconde mort** : la perte et la mort du privilège d’obtenir l’Amour Divin que les âmes doivent posséder afin de pouvoir entrer das le Royaume des Cieux avant que ce dernier ne ferme. Voir le message d’Anne Rollins du 1er Juin 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/)»(Geoff Cutler).[↩](#a2)
 
 3. <large id="f3"> Ce message a également été publié dans le Volume 2, 1ère édition française, page 218 et dans le Volume IV  page 16. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a3)

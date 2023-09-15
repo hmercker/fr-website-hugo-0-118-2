@@ -1,13 +1,13 @@
 ---
-title: "Un célibataire endurci décide qu’il va essayera de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur"
+title: "Un célibataire endurci décide qu’il va essayer de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur"
 menu_title: ""
-description: "Un célibataire endurci décide qu’il va essayera de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur"
+description: "Un célibataire endurci décide qu’il va essayer de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True
 weight:
 ---
-### Un célibataire endurci décide qu’il va essayera de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur <sup id="a1">[1](#f1)</sup>
+### Un célibataire endurci décide qu’il va essayer de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur<sup id="a1">[1](#f1)</sup>
 
 George E Luckett - reçu par James Padgett le 19 Janvier 1917, Washington, USA.
 
@@ -28,4 +28,4 @@ Eh bien, je vais le faire ! Je suis content d’être entré par effraction ce s
 Votre ami, George E. Luckett.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume III à la page 464 et dans le Volume IV à la page 145.. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III à la page 464 et dans le Volume IV à la page 145.Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

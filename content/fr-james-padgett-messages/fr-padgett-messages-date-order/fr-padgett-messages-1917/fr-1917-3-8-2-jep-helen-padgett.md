@@ -19,4 +19,4 @@ Eh bien, les conditions n’étaient pas bonnes et le rapport n’était pas suf
 
 Je vois que tu as très somnolant et que tu dois aller te coucher. Alors, aies la foi et aime-moi. Je te souhaite une bonne nuit.
 
-Ta propre vraie et bien aimée Hélène.
+Ta bien aimée Hélène.

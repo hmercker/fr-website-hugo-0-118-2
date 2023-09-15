@@ -17,7 +17,7 @@ Je veux seulement dire un seul mot avant que vous arrêtiez d’écrire, car j�
 
 Dites à mon garçon de se rappeler ce que [Jacques l’Apôtre lui a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-13-2-jep-st-james/), de croire et de faire confiance à ce qu’il a dit, à la récompense qui sera la sienne lorsqu’il viendra dans le monde des esprits et se rendra compte des résultats de ses efforts pour aider les mortels et les esprits.
 
-Si mes autres enfants voulaient seulement l’écouter, tourner leurs pensées vers ces choses spirituelles et chercher cet Amour Divin, je serais si heureuse que je m’exclamerais avec David, lorsqu’il a écrit dans le Psaume 23-5 [« ma coupe déborde de joie »](https://saintebible.com/psalms/23-5.htm). Et je prie et j’espère qu’un peu de vérité pourra se loger dans leurs âmes et germer jusqu’à ce qu’enfin ils trouvent la perle du grand prix du Père.
+Si mes autres enfants voulaient seulement l’écouter, tourner leurs pensées vers ces choses spirituelles et chercher cet Amour Divin, je serais si heureuse que je m’exclamerais avec David, lorsqu’il a écrit dans le Psaume 23-5 [ma coupe déborde de joie](https://saintebible.com/psalms/23-5.htm). Et je prie et j’espère qu’un peu de vérité pourra se loger dans leurs âmes et germer jusqu’à ce qu’enfin ils trouvent la perle du grand prix du Père.
 
 Dites à mon garçon de croire que sa mère l’aime beaucoup et qu’elle est très souvent avec lui et qu’elle essaie maintenant de lui témoigner son amour et de transmettre ses remerciements au Père de Tous.
 

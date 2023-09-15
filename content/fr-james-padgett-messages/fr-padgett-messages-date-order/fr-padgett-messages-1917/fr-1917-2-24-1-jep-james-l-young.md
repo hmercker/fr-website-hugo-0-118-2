@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### S’efforce de sortir des ténèbres <sup id="a1">[1](#f1)</sup>
+### S’efforce de sortir des ténèbres<sup id="a1">[1](#f1)</sup>
 
 James L Young - reçu par James Padgett le 24 Février 1917, Washington, USA.
 

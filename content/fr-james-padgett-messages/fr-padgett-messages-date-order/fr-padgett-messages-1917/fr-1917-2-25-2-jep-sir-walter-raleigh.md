@@ -32,6 +32,6 @@ Alors, en vous remerciant de votre gentillesse, je vous souhaite une bonne nuit.
 Raleigh.
 <small>
 
-1. <large id="f1"> **Walter Raleigh** (né dans le Devon en 1552 1 et décapité, sous l'accusation de trahison, le 29 octobre 1618 à la tour de Londres), est un écrivain, poète, courtisan, officier et explorateur anglais. Il a séduit et épousé secrètement une des filles d'honneur de la reine Elisabeth 1er.[↩](#a1) 
+1. <large id="f1"> **Walter Raleigh** (né dans le Devon en 1552 1 et décapité, sous l'accusation de trahison, le 29 Octobre 1618 à la tour de Londres), est un écrivain, poète, courtisan, officier et explorateur anglais. Il a séduit et épousé secrètement une des filles d'honneur de la reine Elisabeth 1er.[↩](#a1) 
 
 

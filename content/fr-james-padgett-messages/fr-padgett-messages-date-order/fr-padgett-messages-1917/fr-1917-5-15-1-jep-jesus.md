@@ -62,6 +62,6 @@ Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-21-jep-jesus/)  | 27 Juin 1916
-Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/)) | 05 Mai 1917
+Jésus | [Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-27-1-jep-jesus/) | 27 Juin 1916
+Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/) | 05 Mai 1917
 
