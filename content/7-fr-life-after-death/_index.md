@@ -18,7 +18,7 @@ Ces divers témoignages accentuent la croyance en une survivance après la mort 
 1. [La mort et la transition vers le monde spirituel](/7-fr-life-after-death/7-1-fr-death-and-passing-over/)
 2. [Qu'arrive-t-il à la plupart des gens après la mort ?](/7-fr-life-after-death/7-2-fr-what-happens-to-most-people-after-death//)
 3. [Les Cieux Spirituels et le Royaume Chrétien de Dieu](/7-fr-life-after-death/7-3-fr-the-spirit-heavens-and-the-christian-kingdom-of-god/)
-4. [Les enfers, le jugement et le pardon, et la résurrection](/7-fr-life-after-death/7-4-fr-the-hells-judgement-forgiveness-and-the-resurrection/)
+4. [Les enfers, le jugement et le pardon, et la résurrection](/7-fr-life-after-death/7-4-fr-the-underworld-judgement-and-forgiveness-and-the-resurrection/)
 5. [Que se passe-t-il durant notre sommeil ?](/7-fr-life-after-death/7-5-fr-what-happens-when-we-sleep/)
 6. [Suicide et suicide assisté](/7-fr-life-after-death/7-6-fr-suicide-and-assisted-suicide/)
 7. [Guerres et violence](/7-fr-life-after-death/7-7-fr-wars-and-violence/)

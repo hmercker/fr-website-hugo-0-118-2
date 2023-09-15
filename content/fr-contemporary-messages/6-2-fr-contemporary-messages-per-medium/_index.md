@@ -12,7 +12,7 @@ weight: 340
 1. [Al Fike](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-1-fr-al-fike/)
 2. [Amada Résa](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-2-fr-amada-reza/)
 3. [David Lampron](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-3-fr-david-lampron/)
-4. [Infant de dieu](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-4-fr-child-of-god/)
+4. [Enfant de dieu](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-4-fr-child-of-god/)
 5. [FAB](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-5-fr-fab/)
 6. [Helge Elisabeth Mercker](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-6-fr-helge-mercker/)
 7. [Jane Gartshore](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-7-fr-jane-gartshore/)

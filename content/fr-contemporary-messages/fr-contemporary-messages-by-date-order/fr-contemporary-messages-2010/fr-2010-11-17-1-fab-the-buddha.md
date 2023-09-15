@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Bouddha <sup id="a1">[1](#f1)</sup>
 
-Le Bouddha - reçu par FAB le 17 Novembre 2010, Berkeley, Californie, USA.
+Bouddha - reçu par FAB le 17 Novembre 2010, Berkeley, Californie, USA.
 
 C'est moi, le Bouddha.
 

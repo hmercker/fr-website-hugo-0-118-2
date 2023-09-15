@@ -10,8 +10,7 @@ weight: 40
 ## Messages de Jésus de Nazareth
 
 1. [Le vrai Jésus de Nazareth](/4-fr-jesus-of-nazareth-messages/4-0-fr-the-real-jesus-of-nazareth/)
-2. [Jésus de sa naissance à sa crucifixion](/4-fr-jesus-of-nazareth-messages/4-1-fr-jesus-from-birth-to-crucifixion/)
-3. [Messages de Jésus à travers James Padgett](/4-fr-jesus-of-nazareth-messages/4-2-a-fr-messages-of-jesus-through-james-padgett/)
-4. [Messages de Jésus à travers Dr Samuels](/4-fr-jesus-of-nazareth-messages/4-2-b-fr-messages-of-jesus-through-samuels/)
-5. [Messages Contemporains de Jésus](/4-fr-jesus-of-nazareth-messages/4-3-fr-contemporary-messages-of-jesus/)
-6. [Messages de Jésus au Monde](/4-fr-jesus-of-nazareth-messages/4-4-fr-messages-of-jesus-to-the-world/)
+2. [Messages de Jésus à travers James Padgett](/4-fr-jesus-of-nazareth-messages/4-2-a-fr-messages-of-jesus-through-james-padgett/)
+3. [Messages de Jésus à travers Dr Samuels](/4-fr-jesus-of-nazareth-messages/4-2-b-fr-messages-of-jesus-through-samuels/)
+4. [Messages Contemporains de Jésus](/4-fr-jesus-of-nazareth-messages/4-3-fr-contemporary-messages-of-jesus/)
+5. [Messages de Jésus au Monde](/4-fr-jesus-of-nazareth-messages/4-4-fr-messages-of-jesus-to-the-world/)
