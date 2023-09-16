@@ -9,7 +9,7 @@ weight:
 ---
 ### Lorsque vous placez Dieu en premier, il y a du temps pour tout
 
-Mylora - reçu par Al Fike le 16 Octobre 2022, Gibsons, Dallas, OR, USA.
+Mylora - reçu par Al Fike le 16 Octobre 2022, Dallas, OR, USA.
 
 Il y a du temps, fille bien-aimée, du temps pour faire tout ce que tu désires faire, pour faire de cet endroit un sanctuaire de Lumière. Veille à équilibrer le matériel et le spirituel. Sois en paix et lorsque tu fais ces choses qui sont requises sur le plan matériel, fais-le avec amour et sois en paix. Permet le flux de la volonté de Dieu à travers toi et tout sera fait facilement, aisément et dans la paix. Il y a du temps. Dieu permettra que toutes les choses nécessaires soient fournies et soient en place à temps pour le moment où le monde aura besoin de toi et de ce refuge.
 

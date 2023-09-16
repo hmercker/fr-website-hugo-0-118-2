@@ -17,11 +17,12 @@ Eileen Caddy | [Sensibilisation à l’égard de Findhorn](/fr-contemporary-mess
 St François d'Assise | [La croyance en l'Amour de Dieu transcende toutes les autres croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-1-3-jw-st-francis-of-assisi/) | 1 Janvier 2020
 Flavius Josèphe | [Quel est le plan de Dieu pour le salut de l'humanité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-2-1-af-josephus/) | 2 Janvier 2020
 Seretta Kem | [Guide pour la retraite de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-5-1-af-seretta-kem/) | 5 Janvier 2020
-Seretta Kem | [Il vous sera donné de dont vous aurez besoin pour servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-1-af-seretta-kem/) | 7 Janvier 2020
 Augustin | [Le monde est enveloppé de brume et de nuances de gris](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-1-af-augustine/) | 7 Janvier 2020
 Yogananda | [Vous pouvez effectivement dissiper l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-2-jw-yogananda/) | 7 Janvier 2020
+Seretta Kem | [Il vous sera donné de dont vous aurez besoin pour servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-3-af-seretta-kem/) | 7 Janvier 2020
 Jésus | [L’amour doit devenir la monnaie de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-1-af-jesus/) | 12 Janvier 2020
 Seretta Kem | [Vous devez vous concentrer sur la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-2-af-seretta-kem/) | 12 Janvier 2020
+Kea Atta Kem | [Soyez attentifs à la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-3-af-kea-atta-kem/) | 12 Janvier 2020
 Augustin | [Être en harmonie est de la plus haute importance pour être un instrument de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-13-1-af-augustine/) | 13 Janvier 2020
 Yogananda | [Différences et similitudes entre la méditation et la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-14-1-jw-yogananda/) | 14 Janvier 2020
 St Matthieu | [Le pouvoir de la prière et du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-16-1-af-st-matthew/) | 16 Janvier 2020
@@ -183,6 +184,7 @@ Seretta Kem | [Le plan de Dieu pour le salut de l'humanité et la Voix Directe](
 Seretta Kem | [Nous vous tricotons ensemble d'âme à âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-14-3-af-seretta-kem/) | 14 Juin 2020
 St Jean | [Dieu est amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-1-jw-st-john/) | 15 Juin 2020
 Anne Rollins | [Réseau de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-2-hm-ann-rollins/) | 15 Juin 2020
+Yogananda | [Toute la paix et le silence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-3-jw-yogananda/) | 15 Juin 2020
 André | [S'ouvrir à la coopération avec les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-1-af-andrew/) | 16 Juin 2020
 Elizabeth | [Unis dans l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-2-jw-elizabeth/) | 16 Juin 2020
 St François d'Assise | [Cette communion peut être la vôtre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-3-jw-st-francis-of-assisi/) | 16 Juin 2020

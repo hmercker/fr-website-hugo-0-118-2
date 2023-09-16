@@ -204,6 +204,7 @@ Goldie | [Tout est entre les mains de Dieu](/fr-contemporary-messages/fr-contemp
 Professeur Salyards | [C'est un engagement de toute une vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-19-2-af-professor-salyards/) | 19 Juin 2021
 Yogananda | [Les 3 niveaux du mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-20-1-af-yogananda/) | 20 Juin 2021
 Care Derby Walsh | [Ne vous faites pas d’idoles et soyez libres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-21-1-jw-care-derby-walsh/) | 21 Juin 2021
+Faith | [Parlez à Dieu avec passion et exprimez-vous avec passion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-22-1-jw-faith/) | 22 Juin 2021
 Augustin | [S'aligner sur l'âme de Dieu (2021 Cercle de prière en ligne de Vancouver)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-23-1-af-augustine/) | 23 Juin 2021
 James Reid | [Entrerai bientôt dans les Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-24-1-af-james-reid/) | 24 Juin 2021
 Jésus | [Leçon 13 : Changements terrestres à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-25-1-af-jesus/) | 25 Juin 2021
@@ -233,6 +234,7 @@ Jésus | [Nous sommes tous des points de lumière](/fr-contemporary-messages/fr-
 Marie | [Nous sommes ensemble dans ce ce grand cercle de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-20-1-af-mary/) | 20 Juillet 2021
 Care Derby Walsh | [Suivez la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-1-jw-care-derby-walsh/) | 22 Juillet 2021
 Judas | [La prière est la réponse à tous les problèmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-2-jw-judas/) | 22 Juillet 2021
+André | [Bénédictons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-23-1-jw-andrew/) | 23 Juillet 2021
 Judas | [La présence de l’Amour dans nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-26-1-jw-judas/) | 26 Juillet 2021
 St Luc | [Cherchez d’abord le Royaume, et tout le reste vous sera donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-1-jw-st-luke/) | 27 Juillet 2021
 St Matthieu | [La prière est le levier pour ouvrir la porte à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-2-af-st-matthew/) | 27 Juillet 2021
@@ -381,6 +383,7 @@ St Jean | [Le temps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-
 Orion | [Nous sommes à vos côtés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-23-1-af-orion/) | 23 Novembre 2021
 Jésus | [Leçon 21 : Les lois qui régissent la progression de l’âme (2021 Projet Jésus 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-25-1-af-jesus/) | 25 Novembre 2021
 Orion | [Plus d'informations sur le cadeau de cristal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-27-1-af-orion/) | 27 Novembre 2021
+Nuage Blanc | [Priez avec nous pour plus d’équilibre et d’harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
 Orion | [Appel à l'action ! Nous sommes tous profondément nécessaires dans le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-4-1-af-orion/) | 4 Décembre 2021
 Samuel | [Les changements à venir et nos familles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-5-1-af-samuel/) | 5 Décembre 2021
 Jésus | [Vient pour nous soutenir en harmonie dans nos efforts individuels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-7-1-af-jesus/) | 7 Décembre 2021
