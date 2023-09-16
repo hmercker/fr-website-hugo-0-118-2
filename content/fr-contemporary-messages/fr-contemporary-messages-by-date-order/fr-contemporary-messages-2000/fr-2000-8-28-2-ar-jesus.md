@@ -9,7 +9,7 @@ weight:
 ---
 ### Alfredo et swift bear
 
-Jésus - reçu par Amada Reza le 28 Août 2000, Aptos, Californie, USA.
+Jésus - reçu par Amada Réza le 28 Août 2000, Aptos, Californie, USA.
 
 *[Alfredo veut savoir si la perception qu’il a eue de son guide, Swift Bear, était correcte et s’il est dans un but plus élevé que les anges utiliseront. Il est préoccupé par le fait qu’il est consumé par son travail en ce moment. Cher Dieu, s’il vous plaît, envoyez-moi Votre Amour en grande abondance afin que je puisse être en mesure d’entrer en contact avec Vos anges. S’il te plaît, aide-moi à canaliser uniquement la vérité comme Tes enfants du Christ peuvent le faire à travers mon cerveau et ma main. Je ne veux que faire Votre Volonté. Je Vous remercie et prie pour que la foi en la Puissance de Votre Amour me protège et fasse de moi un meilleur instrument d’Amour pour Vous et Vos enfants. Amen.]*
 

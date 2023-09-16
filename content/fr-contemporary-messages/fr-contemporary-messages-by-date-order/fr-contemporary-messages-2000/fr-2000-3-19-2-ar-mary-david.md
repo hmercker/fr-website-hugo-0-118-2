@@ -9,7 +9,7 @@ weight:
 ---
 ### Faire face à la vie
 
-Marie et David - reçu par Amada Reza le 19 Mars 2000, Aptos, Californie, USA.
+Marie et David - reçu par Amada Réza le 19 Mars 2000, Aptos, Californie, USA.
 
 *[Cher Père Céleste, je prie pour être un instrument de vérité qui aidera à élever mon âme et les âmes de mes frères et sœurs. Je prie pour qu’un afflux de Ton Amour Divin vienne dans mon âme afin qu’il puisse élever mes pensées et mes désirs à un niveau spirituel, où je pourrai plus facilement entrer en relation avec Tes anges Célestes. S’il te plaît, protège-moi de l’influence des esprits inférieurs, je demande à mes anges gardiens de nous entourer en ce moment pour nous préserver du mal. J’ai foi en la puissance de Ton Amour pour nous guérir et nous sortir des ténèbres. ___ nous a demandé d’obtenir un message pour ____ quant à la cause de sa maladie. Dieu, je veux être un canal clair afin d’ exprimer seulement la vérité. Je T’aime et Te remercie pour ce don de Ton Amour. Amen.]*
 

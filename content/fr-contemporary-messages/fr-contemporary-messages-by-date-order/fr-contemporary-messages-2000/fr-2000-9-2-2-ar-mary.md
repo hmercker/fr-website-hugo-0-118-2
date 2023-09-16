@@ -9,7 +9,7 @@ weight:
 ---
 ### Prière et réponse
 
-Marie - reçu par Amada Reza le 2 Septembre 2000, Aptos, Californie, USA.
+Marie - reçu par Amada Réza le 2 Septembre 2000, Aptos, Californie, USA.
 
 Il existe de nombreuses raisons pour lesquelles l’âme recherche l’aide supérieure que Dieu offre à ses enfants dans son amour pour eux. Chaque prière est personnelle et se déroule entre l’âme et son Créateur. Et parce que chaque âme est unique avec son propre ensemble d’expériences, de pensées, de sentiments et de désirs, la forme que prennent ces désirs sincères est unique. Ce que l’un peut ressentir comme une réponse de Dieu, un autre peut ne pas le ressentir et il ne nous appartient pas de remettre en question ou de juger la sincérité du désir de l’âme d’un autre ou la manière dont ce désir apporte une réponse de Dieu.
 

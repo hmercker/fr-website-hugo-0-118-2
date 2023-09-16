@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité qui est écrite dans votre âme doit être parlée dans toutes les langues
 
-Jésus - reçu par Amada Reza le 4 Juin 2000, Aptos, Californie, USA.
+Jésus - reçu par Amada Réza le 4 Juin 2000, Aptos, Californie, USA.
 
 *[Cher Dieu, remplis-moi de Ton Amour pour élever mes pensées vers Toi et Tes anges. Je veux être un instrument de Ton Amour pour canaliser un message d'encouragement à notre frère, M__, qui demande si c'est Ta Volonté et si Jésus soutiendrait son désir, de traduire les volumes en Néerlandais. Je prie pour être protégé de l'influence des esprits inférieurs, et je demande la foi en la puissance de Ton Amour pour me guérir et faire de moi un meilleur instrument. Je Vous aime. Amen.]*
 

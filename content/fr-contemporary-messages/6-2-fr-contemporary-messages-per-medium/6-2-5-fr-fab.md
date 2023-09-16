@@ -7,7 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Messages reçus par FAB
+### Messages reçus par Révérend Arthur Finman (FAB)
+
+Arthur Finman fait également parti des pionniers du mouvement de l’Amour Divin. Il était musicien et compositeur. Il appréciait particulièrement les films de Disney et sur la façon dont leurs musiques représentaient, par l'intermédiaire d'une foule de compositeurs extraordinaires, les anges et l'Amour de Dieu. Il lisait également beaucoup et les nombreux messages qu’il a reçus étaient en accord avec ses lectures.
 
 | **Année**
 |---

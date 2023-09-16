@@ -9,6 +9,10 @@ weight:
 ---
 ### Messages reçus par Jane Gartshore
 
+Jane Gartshore est un médium Canadien peu connu, mère de 3 merveilleux  enfants, qui a canalisé une vingtaine de messages de la part de Jésus.  Elle a également eu l'occasion de canaliser un message unique de l'esprit : un roman sur l'Amour de Dieu pour l'humanité. C'est Yeshua ben Yosef, connu par beaucoup sous le nom de Jésus-Christ, qui a composé cette grande œuvre et l'a transmise au médium.
+
+Le titre de ce roman est « [For the Love of His Own Creation (Pour l'Amour de sa propre création)](https://www.lulu.com/fr/shop/jane-gartshore/for-the-love-of-his-own-creation-a-novel-by-yeshua-ben-yosef/paperback/product-1nzv7n29.html?q=Jane+Gartshore&page=1&pageSize=4) ». Ce roman, bien que traduit, n'a pas encore été publié. La version originale est disponible par ce lien For the Love of His Own Creation: A Novel by Yeshua ben Yosef (lulu.com. il est également disponible en téléchargement gratuit par l'intermédiaire de ce lien [Publications et Téléchargements](/13-fr-publications-and-downloads/)
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-jg-jesus/) | 30 Avril 2013

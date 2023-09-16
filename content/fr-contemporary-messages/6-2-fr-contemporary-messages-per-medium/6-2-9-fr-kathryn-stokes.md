@@ -9,6 +9,10 @@ weight:
 ---
 ### Messages reçus par Kathryn Stokes
 
+Kathryn Stokes fut une des premières personnes à rejoindre, avec sa fille, Amy Reza, le mouvement de l’Amour Divin alors naissant. Pour plus d’informations, vous pouvez consulter [le lien](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/). Elle est décédée accidentellement le 02 Décembre 2016.
+
+Kathryn Stokes a canalisé une cinquantaine de messages disponibles par le lien ci-dessous indiqué !
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jésus | [Jésus _Sur la prière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-1-ks-jesus/) |   1984

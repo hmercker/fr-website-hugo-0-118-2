@@ -9,6 +9,8 @@ weight:
 ---
 ### Messages reçus par David Lampron
 
+Il fut lui aussi un des premiers membres de la communauté de l’Amour Divin en Californie. Il est l’actuel président de la FCDT (Fondation Church of the Divine Truth - Fondation de l’Eglise de la vérité Divine). Pour plus d’informations, vous pouvez consulter le lien [FCDT](https://fcdt.org/).
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Exposé de Dave Lampron | [Quelle est la substance la plus précieuse qui existe ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-undated/fr-1985-1-dl-presentation-by-dl/) |   1985
@@ -42,8 +44,7 @@ Jésus | [L'Amour Divin ne connaît pas la douleur du regret, du retard ou du ma
 Jésus | [Jésus : La vérité et le voyage vers la perfection.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-8-11-1-dl-jesus/) | 11 Août 1988
 Jésus | [Atlantide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-10-18-1-dl-jesus/) | 18 Octobre 1988
 Jésus | [l'humanité commence à voir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-16-1-dl-jesus/) | 16 Janvier 1989
-"Jésus | [Le porteur de bonnes nouvelles
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-3-24-1-dl-jesus/) | 24 Mars 1989"
+Jésus | [Le porteur de bonnes nouvelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-3-24-1-dl-jesus/) | 24 Mars 1989
 Jésus | [Le flux et reflux de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-10-1-1-dl-jesus/) | 1 Octobre 1989
 Jésus | [La dissémination de la vérité et la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-1-10-1-dl-jesus/) | 10 Janvier 1990
 Jésus | [Gérer le legs d'une église](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-3-15-1-dl-jesus/) | 15 Mars 1990

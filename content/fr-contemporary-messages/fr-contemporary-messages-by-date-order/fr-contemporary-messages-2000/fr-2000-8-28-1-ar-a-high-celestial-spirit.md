@@ -9,7 +9,7 @@ weight:
 ---
 ### Le sens de la Foi
 
-Haut Esprit Céleste - reçu par Amada Reza le 28 Août 2000, Aptos, Californie, USA.
+Haut Esprit Céleste - reçu par Amada Réza le 28 Août 2000, Aptos, Californie, USA.
 
 *[Cher Créateur, Source de tout Amour, je prie pour un grand afflux de Ton Amour Divin en ce moment. Amy m’a dit qu’un des adeptes, attiré par les messages de Tes anges postés sur Internet, a demandé : « Qu’est-ce que la foi ? » Je suis sûr qu’il y a beaucoup d’écrits sur la foi dans les volumes ; et je sais qu’il n’est pas facile d’expliquer les concepts spirituels par la raison, mais si je suis en condition de recevoir clairement les pensées des anges, j’aimerais recevoir à nouveau la réponse à cette question.*
 
