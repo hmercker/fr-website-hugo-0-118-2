@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Dr Samuels le 10 Janvier 1955, Washington, USA.
 
-![](/fr-samuels-messages/fr-revelations/fr-pyramids.jpg)
+![Title](/fr-samuels-messages/fr-revelations/fr-pyramids.jpg)
 
 C’est moi, Jésus.
 
