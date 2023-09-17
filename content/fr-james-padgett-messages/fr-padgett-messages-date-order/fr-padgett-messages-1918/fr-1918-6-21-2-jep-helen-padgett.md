@@ -22,4 +22,4 @@ Aime-moi et prie le Père. Bonne nuit, et que Dieu te bénisse, mon cher Ned.
 Tu es homme vrai et aimant, Hélène.
 <small>
 
-1. <large id="f1"> Helenita a été enterrée dans la tombe familiale au cimetière de Mount Olivet, Frederick, Md le Samedi 22 Juin 1918 à 14 heures (G.J.C.)[↩](#a1)
+1. <large id="f1"> Hélénita a été enterrée dans le caveau familial au cimetière de Mount Olivet, Frederick, Md le Samedi 22 Juin 1918 à 14 heures (G.J.C.)[↩](#a1)

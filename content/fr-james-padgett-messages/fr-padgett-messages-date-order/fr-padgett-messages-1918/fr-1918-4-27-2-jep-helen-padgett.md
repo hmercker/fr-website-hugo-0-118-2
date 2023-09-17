@@ -15,6 +15,6 @@ C’est moi, ta vraie et bien-aimée Hélène.
 
 Eh bien, chéri, je vois tu n’es pas vraiment, ce soir, en état d’écrire très longtemps. Je ne dirai que quelques mots, ta condition est bien meilleure et il n’y a aucune raison que tu ne puisses pas recevoir les messages qui ont été si longtemps différés et j’espère que tu le feras très bientôt.
 
-Je suis heureuse que Perry t’ait écrit comme il l’a fait, il est très enthousiaste sur sa connaissance et son expérience de l’Amour Divin et est maintenant très heureux et progresse. Aime-moi, pense à moi et prie le Père. Bonne nuit.
+Je suis heureuse que [Perry t’ait écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-4-27-1-jep-ross-perry/) comme il l’a fait, il est très enthousiaste sur sa connaissance et son expérience de l’Amour Divin et est maintenant très heureux et progresse. Aime-moi, pense à moi et prie le Père. Bonne nuit.
 
 Ta vraie et bien-aimée, Hélène.

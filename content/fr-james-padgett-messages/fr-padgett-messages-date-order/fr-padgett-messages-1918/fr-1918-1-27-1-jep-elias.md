@@ -13,7 +13,7 @@ weight:
 
 C’est moi, Élie.
 
-Je ne vous ai pas écrit depuis longtemps et, ce soir, je désire partager quelques mots, en référence à votre travail et à l’attitude que vous avez adoptée à son égard.
+Je ne vous ai pas écrit [depuis longtemps](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-4-14-1-jep-elias/) et, ce soir, je désire partager quelques mots, en référence à votre travail et à l’attitude que vous avez adoptée à son égard.
 
 Cela fait longtemps que vous n’avez pas reçu de messages formels de la part des esprits supérieurs, et, cette perte de temps est particulièrement significative au regard de notre objectif de faire connaître au monde les vérités spirituelles qui sont si importantes pour les personnes, et plus que que vous ne le réalisez probablement. Comme il vous l’a été dit plus d’une fois, ce retard fut causé par votre état d’indifférence apparente et votre incapacité à vous mettre dans la condition d’âme nécessaire pour permettre aux esprits d’établir le rapport requis.
 

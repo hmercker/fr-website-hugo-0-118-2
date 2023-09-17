@@ -14,6 +14,7 @@ St Étienne - reçu par James Padgett le 13 Novembre 1918, Washington, USA.
 Je suis St. Étienne.
 
 Permettez-moi d’écrire quelques mots, ce soir, car je suis l’un des esprits dont votre femme a parlé hier soir et qui viendraient écrire ce soir.
+
 Mon sujet est : *« Quelle est la signification de la nature Divine à laquelle participe l’âme de l’homme, lors de la transformation de cette âme par l’afflux et la possession de l’Amour Divin ? »*
 
 Ceci, comme vous pouvez le percevoir, sera quelque peu difficile à expliquer, principalement parce que les hommes n’ont pas de conception très précise de ce signifie le terme « Divin ». Ils associent bien entendu ce mot à Dieu, et, pour eux, Dieu est un être dont la nature et les qualités sont au-dessus de leurs conceptions finies, et comme ils le pensent, qui est au-delà de tout ce qui est appelé ou censé être compris comme naturel. Pour certains, Dieu est un être doté d’une personnalité, et pour d’autres, une sorte d’existence nébuleuse incluse dans et composant toutes les diverses manifestations qui sont transcendantalement supérieures à ce qu’ils considèrent comme purement naturel ou humain.
@@ -33,3 +34,6 @@ En ce qui concerne l’homme, son salut et son bonheur, la plus grande des quali
 Eh bien, nous devons nous arrêter ici. Je terminerai plus tard.
 
 Je suis St. Étienne.
+<small>
+
+<large id=”f1”>  Ce message n'a apparemment pas été publié bien qu'il soit mentionné dans [la tablette](https://new-birth.net/padgetts-messages/messages-from-helen-padgett/).[↩](#a1)

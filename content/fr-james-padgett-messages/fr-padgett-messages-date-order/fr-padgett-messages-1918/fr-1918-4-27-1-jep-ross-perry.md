@@ -13,7 +13,7 @@ Ross Perry - reçu par James Padgett le 27 Avril 1918, Washington, USA.
 
 C’est moi, Ross Perry.
 
-Permettez-moi d’écrire un petit mot, car je suis très désireux de pouvoir communiquer à nouveau et de vous dire que je progresse et que j’ai trouvé l’Amour dont vous m’avez parlé en premier et dont l’information m’a conduit à le chercher.
+Permettez-moi d’écrire un petit mot, car je suis très désireux de pouvoir communiquer [à nouveau](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-4-3-1-jep-ross-perry/) et de vous dire que je progresse et que j’ai trouvé l’Amour dont vous m’avez parlé en premier et dont l’information m’a conduit à le chercher.
 
 Je sais que vous êtes très concerné par les messages supérieurs et que vous voulez consacrer votre temps à les recevoir et qu’il est presque impudent de ma part de m’imposer. Cependant, j’ai demandé à votre femme si j’allais interférer, ce soir, par mes écrits, avec l’un de ces messages et elle m’a informé que ce ne serait pas le cas, car aucun de ces messages ne sera écrit ce soir. Je me sens donc un peu libre d’écrire et j’espère que vous considérerez que je ne vous dérange pas.
 
@@ -21,7 +21,7 @@ Eh bien, depuis la dernière fois que je vous ai écrit, je prie le Père avec t
 
 J’aimerais vous écrire une longue lettre ce soir, mais je ne dois pas vous retenir. Mais je veux que vous vous souveniez que je suis très heureux maintenant, que mes souffrances ont disparu et que je sais que toutes ces bénédictions me sont venues à cause du cheminement de l’Amour Divin en mon âme. C’est merveilleux ce que cet Amour peut accomplir pour sauver une âme pécheresse de son environnement de ténèbres et de souffrance.
 
-La Loi de Compensation (Indemnité), qui est une grande vérité, fait son travail sans hésitation, ni partialité, ni ingérence d’un Dieu ou d’un ange pour lui ordonner de cesser son travail, mais ce grand Amour Divin est plus puissant que la Loi et quand il entre dans l’âme d’un homme ou de son Esprit, en fait il dit à cette Loi : *« Tu n’opéreras plus l’âme du pécheur qu’il était, parce que cela éloignera cette âme des opérations de la Loi. »*
+La Loi de Compensation (Indemnité), qui est une grande vérité, fait son travail sans hésitation, ni partialité, ni ingérence d’un Dieu ou d’un ange pour lui ordonner de cesser son travail, mais ce grand Amour Divin est plus puissant que la Loi et quand il entre dans l’âme d’un homme ou de son Esprit, en fait il dit à cette Loi : *« Tu n’opéreras plus sur l’âme du pécheur qu’il était, parce que cela éloignerait cette âme des opérations de la Loi et la mettrait en retrait »*
 
 Comme il est regrettable que si peu d’hommes comprennent ce fonctionnement de l’Amour (Divin). Il n’écarte pas la Loi, mais il ne fait que soustraire l’âme dans laquelle il a trouvé un lieu pour le champ d’application de la Loi. La Loi continue, et les objectifs de ses opérations sont sauvegardés de la même manière. Aucune loi, que les hommes pensent et soutiennent être nécessaire pour qu’une âme soit épargnée de ses pénalités, n’est mise de côté, et, lorsque sur terre j’ai cru aussi cela, je n’ai pas cru ou accepté la doctrine de l’interposition spéciale de la providence divine pour sauver les hommes des conséquences de leurs péchés et que je ne croyais pas parce que je pensais que la seule manière dont cela pouvait être accompli était que Dieu dise à la Loi : *« Vous cesserez d’opérer. »*
 
@@ -32,4 +32,4 @@ Votre ami,
 Ross Perry.
 <small>
 
-1. <large id="f1"> Ce message est également publié doublement dans le Volume II à Volume III (2ème édition) à la page 401 et de nouveau dans le Volume IV (2ème édition) à la page 268.[↩](#a1)
+1. <large id="f1"> Ce message est également publié dans le Volume II page 398, dans le Volume III page 506 et dans le Volume IV page 322. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

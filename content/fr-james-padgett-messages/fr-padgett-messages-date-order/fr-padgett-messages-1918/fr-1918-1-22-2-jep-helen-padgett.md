@@ -22,4 +22,4 @@ Les deux Allemands qui t’ont écrit étaient sérieux et ont exprimé honnête
 Bonne nuit, ta vraie et bien-aimée Hélène.
 <small>
 
-1. <large id="f1"> Date déduite de la tablette. Cependant cette entrée n’était pas présente dans la tablette.[↩](#a1)
+1. <large id="f1"> Date déduite de la tablette. Cependant cette entrée n’était pas présente dans la tablette (journal quotidien de James Padgett).[↩](#a1)

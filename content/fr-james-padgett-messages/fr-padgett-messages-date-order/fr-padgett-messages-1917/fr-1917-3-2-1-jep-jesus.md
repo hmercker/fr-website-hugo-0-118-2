@@ -61,9 +61,10 @@ Eh bien, j’ai assez écrit pour ce soir, mais je reviendrai et simplifierai ce
 
 Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Jésus a communiqué plusieurs autres messages sur l'incarnation de l'âme. ils ont été respectivement communiqués :*
+1. <large id="f1"> *Jésus a communiqué plusieurs autres messages sur l'incarnation de l'âme. ils ont été respectivement communiqués :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

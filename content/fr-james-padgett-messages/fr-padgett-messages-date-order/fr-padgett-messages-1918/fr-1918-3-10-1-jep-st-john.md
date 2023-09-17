@@ -16,6 +16,7 @@ C’est moi, Jean.
 Je vois que vous êtes en bien meilleure condition ce soir et que vôtre âme est plus en harmonie avec les esprits des sphères supérieures, et nous pourrions écrire maintenant, mais votre main et votre bras sont fatigués, et c’est une question que nous considérons toujours, et essayons de ne pas vous causer de fatigue inutile.
 
 D’autres esprits sont ici ce soir, ils espéraient pouvoir écrire, mais, étant donné les circonstances, ils ne le feront pas. Le Maître est aussi ici, et dit qu’il n’essaiera pas d’écrire ce soir comme il en avait l’intention, mais qu’il viendra bientôt délivrer un message.
+
 Je suis heureux que vous vous sentiez beaucoup mieux spirituellement et physiquement, et je sens que vous continuerez à l’être. Alors priez davantage le Père et tournez vos pensées vers les choses spirituelles, et vous trouverez un bonheur merveilleux qui ne pourra même pas être enlevé les soucis de votre vie quotidienne.
 
 *[Question.]*
@@ -30,9 +31,10 @@ Quelle position pour eux, alors que nous, qui vivons si près du Père, ne pouvo
 
 Je vous écrirai à ce sujet quand l’occasion se présentera. Je n’écrirai pas plus maintenant. Avec tout mon amour et les bénédictions du Père, je vous souhaiterai une bonne nuit.
 
-Votre frère en Christ, Jean.
+Votre frère en Christ, Jean.<sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+1. <large id="f1">  Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -13,7 +13,8 @@ St Jean - reçu par James Padgett le 14 Avril 1918, Washington, USA.
 
 C’est moi, Jean.
 
-Laissez-moi vous dire un mot, j’ai attendu avec un certain intérêt que l’esprit qui vient de vous écrire (Spinoza) termine son écriture.
+Laissez-moi vous dire un mot, j’ai attendu avec un certain intérêt que l’esprit qui vient de vous écrire [Spinoza](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-4-14-1-jep-baruch-spinoza/) termine son écriture.
+
 Je vois que vous sentez beaucoup mieux physiquement et spirituellement, et maintenant je sais que nous pouvons établir le rapport qui nous permettra d’écrire nos messages ; j’espère donc que demain soir vous nous donnerez l’occasion d’écrire.
 
 Ce que l’esprit a écrit, je sais, était assez intéressant, mais n’est pas du tout essentiel, et le temps, pour l’instant, ne doit pas être consommé par des messages de ce genre. Lorsque nous aurons terminé les messages que nous avons l’intention d’écrire pour le livre, ces messages du type qui vient d’être écrit pourront être reçus, car ils ont un certain rôle à jouer dans le plan que nous avons en vue.
