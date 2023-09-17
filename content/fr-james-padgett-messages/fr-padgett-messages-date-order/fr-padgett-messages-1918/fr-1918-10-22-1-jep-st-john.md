@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Lois du rapport et de la communication, suite <sup id="a1">[1](#f1)</sup>
+### Lois du rapport et de la communication, suite<sup id="a1">[1](#f1)</sup>
 
 St Jean - reçu par James Padgett le 22 Octobre 1918, Washington, USA.
 

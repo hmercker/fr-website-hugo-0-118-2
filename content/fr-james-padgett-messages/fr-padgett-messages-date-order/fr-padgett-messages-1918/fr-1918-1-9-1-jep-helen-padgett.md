@@ -32,6 +32,6 @@ Je t’aime mon cher mari, et je suis plus proche de toi dans tes pensées, et j
 Ta vraie et bien-aimée, Hélène.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Cette rubrique, telle qu’elle a été publiée à l’origine, est beaucoup plus longue : La femme de M. Padgett, Hélène fait des commentaires sur le sermon de Billy Sunday, sur le fait que ses enseignements sont dirigés vers le progrès de l’âme et de l’homme parfait. Cependant, cette orientation dans les enseignements religieux ne doivent pas être découragés, car ils conduisent à la pureté, même si ce n’est pas à la divinité de l’âme. Billy Sunday est un prédicateur évangéliste. (Geoff Cutler)[[↩](#a1)
+1. <large id="f1"> Cette rubrique, telle qu’elle a été publiée à l’origine, est beaucoup plus longue : La femme de M. Padgett, Hélène, fait des commentaires sur le sermon de Billy Sunday, sur le fait que ses enseignements sont dirigés vers le progrès de l’âme et de l’homme parfait. Cependant, cette orientation dans les enseignements religieux ne doivent pas être découragés, car ils conduisent à la pureté, même si ce n’est pas à la divinité de l’âme. Billy Sunday est un prédicateur évangéliste. (Geoff Cutler)[[↩](#a1)
 
 2. <large id="f2">. Ce message est publié dans le Volume III page 385 et le dans Volume IV page 425. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a2)
