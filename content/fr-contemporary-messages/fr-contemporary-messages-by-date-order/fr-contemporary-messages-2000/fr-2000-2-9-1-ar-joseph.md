@@ -9,7 +9,7 @@ weight:
 ---
 ### Joseph : Le père de Jésus et Joseph d’Arimathie sont une seule et même personne <sup id="a1">[1](#f1)</sup>
 
-Joseph - reçu par Amada Reza le 9 Février 2000, Aptos, Californie, USA.
+Joseph - reçu par Amada Réza le 9 Février 2000, Aptos, Californie, USA.
 
 C’est moi, Joseph. Je suis le père de Jésus, et il est étrange pour moi de me présenter de cette façon pour la raison que, lorsque j’ai pris conscience de la mission que mon fils a proclamé avoir sur terre comme Messie, j’avais besoin de comprendre que notre seul vrai Père est le Créateur de nos âmes et que Son Don d’Amour Divin était ce qui permettait à mon fils d’avoir, par rapport à moi, un plus haut développement d »âme et la compréhension de sa vraie relation à Dieu et à sa famille terrestre.
 
@@ -30,4 +30,3 @@ Je suis Joseph, le père de Jésus – le père du prophète, Joseph d’Arimath
 1. <large id="f1"> Ce message a de sérieuses conséquences, car nombreux sont ceux qui croient que Joseph est décédé durant l’enfance de Jésus. Deux autres messages y sont reliés, l’un fut communiqué à travers le [Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/), l’autre à travers [Kathryn Stokes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/).[↩](#a1)
 
 2. <large id="f2"> Ce message n’a pas été reçu aussi clairement qu’il aurait pu l’être. je pense qu’il est dit que Joseph le père de Jésus a utilisé la couverture de « Joseph d’Arimathie » afin de pouvoir récupérer et enterrer son fils. Nous avons un autre message de Joseph qui confirme cette déclaration.[↩](#a2)
-

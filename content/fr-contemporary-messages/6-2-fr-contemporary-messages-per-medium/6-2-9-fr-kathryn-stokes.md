@@ -9,6 +9,10 @@ weight:
 ---
 ### Messages reçus par Kathryn Stokes
 
+Kathryn Stokes fut une des premières personnes à rejoindre, avec sa fille, Amy Reza, le mouvement de l’Amour Divin alors naissant. Pour plus d’informations, vous pouvez consulter [le lien](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/). Elle est décédée accidentellement le 02 Décembre 2016.
+
+Kathryn Stokes a canalisé une cinquantaine de messages disponibles par le lien ci-dessous indiqué !
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jésus | [Jésus _Sur la prière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-1-ks-jesus/) |   1984
@@ -28,9 +32,7 @@ Jésus | [Pourquoi Jésus n’apparaît-il pas aux gens aujourd’hui, comme il 
 Jésus | [Le problème avec les Eglises](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-10-20-1-ks-jesus/) | 20 Octobre 1996
 Jésus | [Jésus répond à des questions sur Rembrant et Marc Chagall, donnant un aperçu de la vie dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-1-12-1-ks-jesus/) | 12 Janvier 1997
 Jésus | [Conseils sur la guérison... Commentaires sur les livres censés être écrits par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-2-1-1-ks-jesus/) | 1 Février 1997
-"Jésus | [
-Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse...
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-4-1-1-ks-jesus/) | 1 Avril 1997"
+Jésus | [Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse...](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-4-1-1-ks-jesus/) | 1 Avril 1997
 Jésus | [Avancer dans ce monde et dans l'autre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-5-17-1-ks-jesus/) | 17 Mai 1997
 Jésus | [Jésus : Répond aux questions sur la chute des premiers parents et le clonage humain.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1998-3-8-1-ks-jesus/) | 8 Mars 1998
 Jésus | [Sur l’autodéfense.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-7-6-1-ks-jesus/) | 6 Juillet 1999

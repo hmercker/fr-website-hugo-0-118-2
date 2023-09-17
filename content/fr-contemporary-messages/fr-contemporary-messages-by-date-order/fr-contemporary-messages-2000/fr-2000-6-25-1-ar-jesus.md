@@ -9,7 +9,7 @@ weight:
 ---
 ### Message annuel de transe
 
-Jésus - reçu par Amada Reza le 25 Juin 2000, Aptos, Californie, USA.
+Jésus - reçu par Amada Réza le 25 Juin 2000, Aptos, Californie, USA.
 
 *[Le médium prie à haute voix : Cher Père Céleste, je prie pour que Ton Amour remplisse mon âme en ce moment. Je prie pour que cet amour m’élève pour entrer en relation avec Tes anges Célestes qui nous entourent de leur amour et de leur influence. Je sais qu’ils aimeraient partager avec nous leur amour et leurs pensées et je prie pour être un canal pour ceux-ci comme le permet le développement de mon âme dans Ton Amour. Je prie pour avoir la foi dans le pouvoir de Ton Amour pour m’élever au-dessus des tentations de ce plan terrestre. Je prie pour être un canal clair pour Ton amour et Ta vérité. Je veux Ta protection contre tout esprit qui pourrait vouloir faire du mal ; qu’ils soient entourés d’une influence angélique et qu’on leur montre le chemin vers toi. Car nous savons que nous voulons être dans Ton amour et dans Tes bras. Merci. Je T’aime Amen.]*
 

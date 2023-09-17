@@ -11,3 +11,4 @@ weight: 700
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+St Augustin | [St Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915

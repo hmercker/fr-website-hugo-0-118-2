@@ -9,6 +9,10 @@ weight:
 ---
 ### Messages reçus par Helge Elisabeth Mercker
 
+Helge Mercker est née et a grandi en Namibie. Après avoir travaillé à l’étranger pendant quinze ans en tant que pharmacienne, elle a suivi son désir de servir son pays et est revenue en Namibie où elle a crée une œuvre caritative « Childrens Sanctuary Namibia » (Sanctuaire des enfants en Namibie) : Children's Sanctuary Namibia, atteint soit ici [childrenssanctuarynamibiasociety.com](https://childrenssanctuarynamibiasociety.com), soit ici [childrenssanctuarynamibia.com](https://childrenssanctuarynamibia.com).
+
+Helge Mercker est également l’auteur de plusieurs livres disponibles à la vente sur [lulu](https://www.lulu.com/search?page=1&q=Helge+Mercker&pageSize=10&adult_audience_rating=00) ou, pour certains, disponibles en téléchargement gratuit par l’intermédiaire du lien : [Publications et Téléchargements](/13-fr-publications-and-downloads/).
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Le Père | [Prends une profonde respiration de Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-8-9-1-hm-father/) | 9 Août 2012

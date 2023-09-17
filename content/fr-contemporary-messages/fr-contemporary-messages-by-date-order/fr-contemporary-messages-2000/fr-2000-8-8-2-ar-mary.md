@@ -9,7 +9,7 @@ weight:
 ---
 ### Sur les canalisations à travers Patricia Talbott Borrero
 
-Marie - reçu par Amada Reza le 8 Août 2000, Aptos, Californie, USA.
+Marie - reçu par Amada Réza le 8 Août 2000, Aptos, Californie, USA.
 
 *[Cher Dieu, H___ demande si Marie, la mère de Jésus, a effectivement canalisé des messages à travers Patricia Talbott Borrero <sup id="a1">[1](#f1)</sup>. Je veux faire uniquement Ta volonté en recevant un message de ma sœur et tutrice, Marie. Je prie pour que Ton Amour afflue dans mon âme afin que je puisse être élevé dans mes pensées à un plan au-dessus de cette terre matérielle pour entrer en contact avec elle. Je veux que seule la vérité soit transmise afin d’aider les âmes de Tes enfants à prendre conscience de Ton Amour et de Ton désir de s’unir à Toi. Merci, mon Dieu. Je Vous aime. Amen.]*
 

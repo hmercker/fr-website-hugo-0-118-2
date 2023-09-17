@@ -9,7 +9,7 @@ weight:
 ---
 ### Message d’espoir
 
-Marie - reçu par Amada Reza le 5 Mars 2000, Aptos, Californie, USA.
+Marie - reçu par Amada Réza le 5 Mars 2000, Aptos, Californie, USA.
 
 C’est moi, Marie, la mère de Jésus, et une vraie disciple de mon fils, qui est Maître des Cieux Célestes et je suis une habitante de ces sphères, remplie de la lumière de l’Amour Divin.
 

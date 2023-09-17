@@ -9,6 +9,10 @@ weight:
 ---
 ### Messages reçus par Maureen Cardoso
 
+Depuis de nombreuses années Maureen Cardoso est très active dans la communauté de l’Amour Divin, particulièrement dans l’Ouest Canadien où elle vit présentement. Maureen est particulièrement active en tant que Soignante et adepte du Reiki. Dans ce cadre, Maureen anime, chaque mois, la tenue d’un cercle de guérison sur Internet.
+
+Au 1er Juillet 2023, elle avait canalisé près de 80 messages disponibles par le lien ci-dessous indiqué.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Seretta Kem | [Permettez à l'amour de Dieu de s'exprimer de manière unique à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/) | 13 Juin 2018

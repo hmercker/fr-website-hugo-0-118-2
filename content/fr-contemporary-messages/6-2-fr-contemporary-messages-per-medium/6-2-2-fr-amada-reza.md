@@ -9,6 +9,8 @@ weight:
 ---
 ### Messages reçus par Amada Réza
 
+Elle fut, avec sa mère Kathryn Stokes, une des premières personnes à avoir rejoint la communauté de l’Amour Divin alors que celle-ci n’était que balbutiante. Pour plus d’informations, vous pouvez consulter [la page](/fr-james-padgett-messages/1-12-fr-continuity-of-james-padgetts-messages/).
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jésus | [L’avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/) | 30 Juin 1985

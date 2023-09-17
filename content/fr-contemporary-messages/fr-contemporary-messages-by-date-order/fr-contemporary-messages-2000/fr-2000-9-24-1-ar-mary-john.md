@@ -9,7 +9,7 @@ weight:
 ---
 ### Le parler en langues et les animaux dans le monde spirituel <sup id="a1">[1](#f1)</sup>
 
-Marie & Jean - reçu par Amada Reza le 24 Septembre 2000, Aptos, Californie, USA.
+Marie & Jean - reçu par Amada Réza le 24 Septembre 2000, Aptos, Californie, USA.
 
 *[Chers Marie et Jean, j’ai le sentiment que vous voulez délivrer un message à travers moi et je prie pour être en condition spirituelle pour recevoir la vérité et l’amour que vous souhaitez transmettre. Je prie notre Père Céleste pour un afflux de Son Grand Amour dans mon âme, afin que je puisse être élevé dans mes pensées et mes aspirations à un niveau supérieur. S’il Te plaît, protège-moi des influences spirituelles inférieures et accorde-moi de faire preuve de plus de foi dans la puissance de Ton Amour, cher Dieu, pour me permettre de servir Ta Sainte Volonté que tous Tes enfants deviennent unis à Toi dans l’Amour. Une question qui a été posée était de savoir comment fonctionne le parler en langues et T___ voulait savoir si elle entrait en contact avec un animal, si elle serait capable de se rappeler sa vie par le souvenir qu’elle en a dans le monde spirituel. Merci, chers anges, pour votre amour et je suis heureuse d’être à votre service. Amen.]*
 
@@ -39,4 +39,3 @@ Je suis Marie et je suis une disciple dévouée de mon fils, Jésus, et je suis 
 <small>
 
 1. <large id="f1"> Ce message a une saveur assez différente d’un [autre reçu à peu près en même temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-4-1-ks-andrew/), mais par un autre médium.[↩](#a1)
-

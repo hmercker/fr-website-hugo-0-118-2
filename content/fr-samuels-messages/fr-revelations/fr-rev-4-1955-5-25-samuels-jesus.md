@@ -33,5 +33,3 @@ Jésus `| [Description de la naissance et de la vie de Jésus jusqu’à l’ép
 Jésus `| [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/).   | 29 Juin 1915
 Jésus `| [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/).   | 20 Mai 1918
 Jésus `| [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/).   | 14 Juin 1955
-
-

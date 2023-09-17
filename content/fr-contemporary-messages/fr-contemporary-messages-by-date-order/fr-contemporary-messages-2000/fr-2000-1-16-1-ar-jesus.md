@@ -9,7 +9,7 @@ weight:
 ---
 ### Sur le suicide
 
-Jésus - reçu par Amada Reza le 16 Janvier 2000, Aptos, Californie, USA.
+Jésus - reçu par Amada Résa le 16 Janvier 2000, Aptos, Californie, USA.
 
 Je suis ici avec toi maintenant, ma chère sœur en Christ, et je suis ton frère et ton ami, Jésus de la Bible et celui que beaucoup considèrent comme le Maître, mais je ne suis maître que dans la mesure où j’ai fait de l’Amour du Père une partie de mon âme, et que cet Amour a transformé mon être en une ressemblance avec le Père, et de cette façon seulement je peux prétendre être un exemple de vie que d’autres peuvent suivre.
 
