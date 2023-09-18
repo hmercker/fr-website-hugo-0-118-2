@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La grand-mère de M. Padgett écrit sur l’importance de connaître le chemin au Ciel Céleste 
+### La grand-mère de M. Padgett écrit sur l’importance de connaître le chemin au Ciel Céleste
 
 Anne Rollins - reçu par James Padgett le 12 Mars 1919, Washington, USA.
 

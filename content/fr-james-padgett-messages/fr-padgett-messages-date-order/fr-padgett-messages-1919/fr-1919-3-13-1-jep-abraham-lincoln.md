@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Comment l’homme peut entrer en harmonie avec les lois qui le gouvernent en tant qu’homme créé, sans obtenir l’Amour Divin.
+### Comment l’homme peut entrer en harmonie avec les lois qui le gouvernent en tant qu’homme créé, sans obtenir l’Amour Divin
 
 Abraham Lincoln - reçu par James Padgett le 13 Mars 1919, Washington, USA.
 

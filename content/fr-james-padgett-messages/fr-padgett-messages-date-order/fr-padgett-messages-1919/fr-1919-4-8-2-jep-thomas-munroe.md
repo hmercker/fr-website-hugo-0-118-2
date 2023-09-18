@@ -17,7 +17,7 @@ Eh bien, je ne vais pas discuter des nombreuses erreurs de ses enseignements ou 
 
 Je voulais simplement dire cela. Je suis un habitant du Royaume Céleste, et je dirai bonne nuit.
 
-Thomas B. Monroe. 
+Thomas B. Monroe.
 <small>
 
 1. <large id="f1"> Thomas Bell Monroe (7 octobre 1791 – 24 décembre 1865) fut un juge fédéral américain. (Source : Wikipedia)[↩](#a1)
