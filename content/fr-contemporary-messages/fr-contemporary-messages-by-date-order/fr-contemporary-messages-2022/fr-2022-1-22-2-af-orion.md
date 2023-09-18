@@ -34,4 +34,3 @@ Considérez vos frères et sœurs qui ne sont pas bénis comme vous l’avez ét
 Continuez, mes chers et beaux amis. Nous avons beaucoup de travail à faire et peu de temps pour le faire. Puissions-nous tous trouver notre chemin vers cette belle liberté qui accompagne la libération de toutes les conditions qui ne relèvent pas de l’amour. Vous êtes plus proche que vous ne le pensez, et vous trouverez cette joie extatique, et dans cet émerveillement, vous lèverez les yeux vers Dieu et direz : « Merci, merci bien-aimé Créateur, de m’avoir créé et de m’avoir montré le chemin vers une vie plus grande, vie éternelle, vie glorieuse. »
 
 Merci âmes bien-aimées, nous sommes avec vous dans ce voyage. Nous t’aimons. Je suis Orion. Bénédictions à vous tous et à l’univers de Vérité, d’Amour, de Lumière et de tout ce qui accompagne ces merveilleuses choses que Dieu a créées pour Ses enfants. Que Dieu vous bénisse.
-
