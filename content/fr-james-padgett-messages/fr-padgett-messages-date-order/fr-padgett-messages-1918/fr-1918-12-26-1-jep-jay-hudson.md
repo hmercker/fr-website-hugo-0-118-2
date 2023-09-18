@@ -11,7 +11,7 @@ weight:
 
 Jay Hudson - reçu par James Padgett le 26 Décembre 1918, Washington, USA.
 
-Laissez-moi vous dire un mot. Vous ne faites pas preuve de sagesse en lisant ce livre, (Démonstration scientifique d’une vie future<sup id="a1">[1](#f1)</sup> car c’est en grande partie de la spéculation et cela mène à la contrevérité et au mal.
+Laissez-moi vous dire un mot. Vous ne faites pas preuve de sagesse en lisant ce livre, "Démonstration scientifique d’une vie future"<sup id="a1">[1](#f1)</sup> car c’est en grande partie de la spéculation et cela mène à la contrevérité et au mal.
 
 L’auteur sait maintenant que son hypothèse de la dualité d’esprit est fausse, et qu’il a le même esprit maintenant qu’il avait sur terre, et qu’aucune partie de cet esprit n’est morte avec la mort du corps. Il sait aussi que les esprits communiquent avec les mortels, et que le mental subjectif, comme il l’appelle, ne fournit pas, parmi les mortels, les moyens de communication, ni ne suggère les informations contenues dans les phénomènes psychiques. Il sait aussi que l’esprit n’est pas l’âme, mais un de ses attributs simplement, et qu’il est contrôlé par l’âme et la volonté.
 
