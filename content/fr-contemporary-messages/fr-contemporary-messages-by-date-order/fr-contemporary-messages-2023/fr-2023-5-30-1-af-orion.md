@@ -1,12 +1,12 @@
 ---
-title: "Le temple de l'adoration"
+title: "La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps"
 menu_title: ""
-description: "Le temple de l'adoration"
-date: 2023-09-01 06:00:01+00:149
+description: "La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps"
+date: 2023-09-01 06:00:01+00:32
 draft: False
 hidden: True
 weight:
 ---
-### Le temple de l'adoration
+### La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps
 
-Robert James Lee - reçu par Jimbeau Walsh le 1 Juin 2023, Nashville, TN, USA.
+Orion - reçu par Al Fike le 30 Mai 2023, Sechelt, Colombie-Britannique, Canada.

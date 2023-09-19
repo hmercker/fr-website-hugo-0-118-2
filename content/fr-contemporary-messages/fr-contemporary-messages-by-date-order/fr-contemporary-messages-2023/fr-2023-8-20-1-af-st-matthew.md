@@ -1,12 +1,12 @@
 ---
-title: "Marcher dans la grâce"
+title: "Le pouvoir de l'Amour Divin élève toutes les situations"
 menu_title: ""
-description: "Marcher dans la grâce"
-date: 2023-09-01 06:00:01+00:181
+description: "Le pouvoir de l'Amour Divin élève toutes les situations"
+date: 2023-09-01 06:00:01+00:64
 draft: False
 hidden: True
 weight:
 ---
-### Marcher dans la grâce
+### Le pouvoir de l'Amour Divin élève toutes les situations
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 21 Août 2023, Nashville, TN, USA.
+St Matthieu - reçu par Al Fike le 20 Août 2023, Sechelt, Colombie-Britannique, Canada.

@@ -1,12 +1,12 @@
 ---
-title: "La foi opposée à la peur pendant le nettoyage du monde"
+title: "Commentaires sur notre discussion et nos défis avec les conditions terrestres"
 menu_title: ""
-description: "La foi opposée à la peur pendant le nettoyage du monde"
-date: 2023-09-01 06:00:01+00:179
+description: "Commentaires sur notre discussion et nos défis avec les conditions terrestres"
+date: 2023-09-01 06:00:01+00:62
 draft: False
 hidden: True
 weight:
 ---
-### La foi opposée à la peur pendant le nettoyage du monde
+### Commentaires sur notre discussion et nos défis avec les conditions terrestres
 
-Orion - reçu par Al Fike le 19 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Aaron - reçu par Al Fike le 18 Août 2023, Sechelt, Colombie-Britannique, Canada.

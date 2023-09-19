@@ -1,12 +1,12 @@
 ---
-title: "Nous progressons dans l'amour de Dieu"
+title: "L'âme est intemporelle"
 menu_title: ""
-description: "Nous progressons dans l'amour de Dieu"
-date: 2023-09-01 06:00:01+00:136
+description: "L'âme est intemporelle"
+date: 2023-09-01 06:00:01+00:19
 draft: False
 hidden: True
 weight:
 ---
-### Nous progressons dans l'amour de Dieu
+### L'âme est intemporelle
 
-Orion - reçu par Al Fike le 9 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Judas - reçu par Jimbeau Walsh le 8 Mai 2023, Nashville, TN, USA.

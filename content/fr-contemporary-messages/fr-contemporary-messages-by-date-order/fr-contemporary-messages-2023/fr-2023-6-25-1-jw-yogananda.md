@@ -1,12 +1,12 @@
 ---
-title: "La transformation continue dans l'Amour de Dieu"
+title: "Comment vous sentez-vous ?"
 menu_title: ""
-description: "La transformation continue dans l'Amour de Dieu"
-date: 2023-09-01 06:00:01+00:162
+description: "Comment vous sentez-vous ?"
+date: 2023-09-01 06:00:01+00:45
 draft: False
 hidden: True
 weight:
 ---
-### La transformation continue dans l'Amour de Dieu
+### Comment vous sentez-vous ?
 
-Seretta Kem - reçu par Al Fike le 29 Juin 2023, Sechelt, Colombie-Britannique, Canada.
+Yogananda - reçu par Jimbeau Walsh le 25 Juin 2023, Nashville, TN, USA.

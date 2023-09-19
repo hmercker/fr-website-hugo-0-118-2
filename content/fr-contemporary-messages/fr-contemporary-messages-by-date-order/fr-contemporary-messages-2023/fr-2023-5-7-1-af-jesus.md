@@ -1,12 +1,12 @@
 ---
-title: "L'âme est intemporelle"
+title: "Votre capacité à aimer se renforce"
 menu_title: ""
-description: "L'âme est intemporelle"
-date: 2023-09-01 06:00:01+00:135
+description: "Votre capacité à aimer se renforce"
+date: 2023-09-01 06:00:01+00:18
 draft: False
 hidden: True
 weight:
 ---
-### L'âme est intemporelle
+### Votre capacité à aimer se renforce
 
-Judas - reçu par Jimbeau Walsh le 8 Mai 2023, Nashville, TN, USA.
+Jésus - reçu par Al Fike le 7 Mai 2023, Sechelt, Colombie-Britannique, Canada.

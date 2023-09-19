@@ -1,12 +1,12 @@
 ---
-title: "Accueille et bénit les invités de la retraite Voix Directe"
+title: "Egaux dans l'Amour de Dieu"
 menu_title: ""
-description: "Accueille et bénit les invités de la retraite Voix Directe"
-date: 2023-09-01 06:00:01+00:157
+description: "Egaux dans l'Amour de Dieu"
+date: 2023-09-01 06:00:01+00:40
 draft: False
 hidden: True
 weight:
 ---
-### Accueille et bénit les invités de la retraite Voix Directe
+### Egaux dans l'Amour de Dieu
 
-André - reçu par Al Fike le 23 Juin 2023, Sechelt, Colombie-Britannique, Canada.
+St François d'Assise - reçu par Jimbeau Walsh le 19 Juin 2023, Nashville, TN, USA.

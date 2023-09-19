@@ -1,12 +1,12 @@
 ---
-title: "N'ayez pas peur"
+title: "Les anges vous servent et vous protègent"
 menu_title: ""
-description: "N'ayez pas peur"
-date: 2023-09-01 06:00:01+00:159
+description: "Les anges vous servent et vous protègent"
+date: 2023-09-01 06:00:01+00:42
 draft: False
 hidden: True
 weight:
 ---
-### N'ayez pas peur
+### Les anges vous servent et vous protègent
 
-Barbara Davies - reçu par Al Fike le 23 Juin 2023, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Al Fike le 23 Juin 2023, Sechelt, Colombie-Britannique, Canada.

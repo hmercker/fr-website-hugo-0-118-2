@@ -1,12 +1,12 @@
 ---
-title: "Le destin de nos âmes"
+title: "A de la compassion pour les conditions dans lesquelles nous vivons sur Terre"
 menu_title: ""
-description: "Le destin de nos âmes"
-date: 2023-09-01 06:00:01+00:145
+description: "A de la compassion pour les conditions dans lesquelles nous vivons sur Terre"
+date: 2023-09-01 06:00:01+00:28
 draft: False
 hidden: True
 weight:
 ---
-### Le destin de nos âmes
+### A de la compassion pour les conditions dans lesquelles nous vivons sur Terre
 
-Jésus - reçu par Al Fike le 23 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Al Fike le 23 Mai 2023, Sechelt, Colombie-Britannique, Canada.

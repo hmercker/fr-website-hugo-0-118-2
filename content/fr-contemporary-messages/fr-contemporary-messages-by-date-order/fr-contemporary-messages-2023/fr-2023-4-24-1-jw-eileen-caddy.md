@@ -1,12 +1,12 @@
 ---
-title: "Dans l'Amour et la Gratitude de Dieu"
+title: "Orientation"
 menu_title: ""
-description: "Dans l'Amour et la Gratitude de Dieu"
-date: 2023-09-01 06:00:01+00:124
+description: "Orientation"
+date: 2023-09-01 06:00:01+00:07
 draft: False
 hidden: True
 weight:
 ---
-### Dans l'Amour et la Gratitude de Dieu
+### Orientation
 
-Joseph Babinsky - reçu par Al Fike le 24 Avril 2023, Sechelt, Colombie-Britannique, Canada.
+Eileen Caddy - reçu par Jimbeau Walsh le 24 Avril 2023, Nashville, TN, USA.

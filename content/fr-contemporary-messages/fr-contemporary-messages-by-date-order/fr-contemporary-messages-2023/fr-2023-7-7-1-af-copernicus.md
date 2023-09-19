@@ -1,12 +1,12 @@
 ---
-title: "Le but et le pouvoir du rassemblement de Laurelville"
+title: "L'humanité a été un virus sur la Terre Mère"
 menu_title: ""
-description: "Le but et le pouvoir du rassemblement de Laurelville"
-date: 2023-09-01 06:00:01+00:166
+description: "L'humanité a été un virus sur la Terre Mère"
+date: 2023-09-01 06:00:01+00:49
 draft: False
 hidden: True
 weight:
 ---
-### Le but et le pouvoir du rassemblement de Laurelville
+### L'humanité a été un virus sur la Terre Mère
 
-Jésus - reçu par Al Fike le 11 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Copernic - reçu par Al Fike le 7 Juillet 2023, Sechelt, Colombie-Britannique, Canada.

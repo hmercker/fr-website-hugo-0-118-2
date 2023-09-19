@@ -1,12 +1,12 @@
 ---
-title: "Nous sommes tous des enfants de Dieu"
+title: "L'expiation et la loi de l'Amour Divin"
 menu_title: ""
-description: "Nous sommes tous des enfants de Dieu"
-date: 2023-09-01 06:00:01+00:131
+description: "L'expiation et la loi de l'Amour Divin"
+date: 2023-09-01 06:00:01+00:14
 draft: False
 hidden: True
 weight:
 ---
-### Nous sommes tous des enfants de Dieu
+### L'expiation et la loi de l'Amour Divin
 
-Fred Rogers - reçu par Jimbeau Walsh le 1 Mai 2023, Nashville, TN, USA.
+Anne Rollins - reçu par Jimbeau Walsh le 30 Avril 2023, Nashville, TN, USA.

@@ -1,12 +1,12 @@
 ---
-title: "Prièes de l'ÂmE"
+title: "Opportunité de croissance"
 menu_title: ""
-description: "Prièes de l'ÂmE"
-date: 2023-09-01 06:00:01+00:121
+description: "Opportunité de croissance"
+date: 2023-09-01 06:00:01+00:04
 draft: False
 hidden: True
 weight:
 ---
-### Prièes de l'ÂmE
+### Opportunité de croissance
 
-Jean le Bien Aimé - reçu par Al Fike le 20 Avril 2023, Sechelt, Colombie-Britannique, Canada.
+Professeur Salyards - reçu par Al Fike le 20 Avril 2023, Sechelt, Colombie-Britannique, Canada.

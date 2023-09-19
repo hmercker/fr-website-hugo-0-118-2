@@ -1,12 +1,12 @@
 ---
-title: "L'harmonie prévaudra à la retraite de Laurelville"
+title: "Calme dans la tempête"
 menu_title: ""
-description: "L'harmonie prévaudra à la retraite de Laurelville"
-date: 2023-09-01 06:00:01+00:171
+description: "Calme dans la tempête"
+date: 2023-09-01 06:00:01+00:54
 draft: False
 hidden: True
 weight:
 ---
-### L'harmonie prévaudra à la retraite de Laurelville
+### Calme dans la tempête
 
-Professeur Salyards - reçu par Al Fike le 20 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+St François d'Assise - reçu par Jimbeau Walsh le 17 Juillet 2023, Nashville, TN, USA.

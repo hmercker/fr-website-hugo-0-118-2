@@ -1,12 +1,12 @@
 ---
-title: "Influence spirituelle et loi de lattraction"
+title: "Aide Céleste"
 menu_title: ""
-description: "Influence spirituelle et loi de lattraction"
-date: 2023-09-01 06:00:01+00:177
+description: "Aide Céleste"
+date: 2023-09-01 06:00:01+00:60
 draft: False
 hidden: True
 weight:
 ---
-### Influence spirituelle et loi de lattraction
+### Aide Céleste
 
-Ann Rolins - reçu par Al Fike le 14 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Care Derby Walsh - reçu par Jimbeau Walsh le 10 Août 2023, Nashville, TN, USA.

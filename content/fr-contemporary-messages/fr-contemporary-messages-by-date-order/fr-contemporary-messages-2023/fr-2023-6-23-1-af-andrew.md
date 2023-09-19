@@ -1,12 +1,12 @@
 ---
-title: "Les anges vous servent et vous protègent"
+title: "Accueille et bénit les invités de la retraite Voix Directe"
 menu_title: ""
-description: "Les anges vous servent et vous protègent"
-date: 2023-09-01 06:00:01+00:158
+description: "Accueille et bénit les invités de la retraite Voix Directe"
+date: 2023-09-01 06:00:01+00:41
 draft: False
 hidden: True
 weight:
 ---
-### Les anges vous servent et vous protègent
+### Accueille et bénit les invités de la retraite Voix Directe
 
-Orion - reçu par Al Fike le 23 Juin 2023, Sechelt, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 23 Juin 2023, Sechelt, Colombie-Britannique, Canada.

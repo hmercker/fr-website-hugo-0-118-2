@@ -1,12 +1,12 @@
 ---
-title: "Commentaires sur notre discussion et nos défis avec les conditions terrestres"
+title: "Influence spirituelle et loi de l’attraction"
 menu_title: ""
-description: "Commentaires sur notre discussion et nos défis avec les conditions terrestres"
-date: 2023-09-01 06:00:01+00:178
+description: "Influence spirituelle et loi de l’attraction"
+date: 2023-09-01 06:00:01+00:61
 draft: False
 hidden: True
 weight:
 ---
-### Commentaires sur notre discussion et nos défis avec les conditions terrestres
+### Influence spirituelle et loi de l’attraction
 
-Aaron - reçu par Al Fike le 18 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Ann Rolins - reçu par Al Fike le 14 Août 2023, Sechelt, Colombie-Britannique, Canada.

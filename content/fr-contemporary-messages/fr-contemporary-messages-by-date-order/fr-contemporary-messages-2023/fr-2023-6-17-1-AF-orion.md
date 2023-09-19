@@ -1,12 +1,12 @@
 ---
-title: "Egaux dans l'Amour de Dieu"
+title: "Parle de la protection et du pouvoir"
 menu_title: ""
-description: "Egaux dans l'Amour de Dieu"
-date: 2023-09-01 06:00:01+00:156
+description: "Parle de la protection et du pouvoir"
+date: 2023-09-01 06:00:01+00:39
 draft: False
 hidden: True
 weight:
 ---
-### Egaux dans l'Amour de Dieu
+### Parle de la protection et du pouvoir
 
-St François d'Assise - reçu par Jimbeau Walsh le 19 Juin 2023, Nashville, TN, USA.
+Orion - reçu par Al Fike le 17 Juin 2023, Sechelt, Colombie-Britannique, Canada.

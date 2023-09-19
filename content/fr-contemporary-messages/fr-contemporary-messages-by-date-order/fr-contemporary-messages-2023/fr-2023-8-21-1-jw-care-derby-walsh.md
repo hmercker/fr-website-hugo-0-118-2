@@ -1,12 +1,12 @@
 ---
-title: "Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers"
+title: "Marcher dans la grâce"
 menu_title: ""
-description: "Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers"
-date: 2023-09-01 06:00:01+00:182
+description: "Marcher dans la grâce"
+date: 2023-09-01 06:00:01+00:65
 draft: False
 hidden: True
 weight:
 ---
-### Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers
+### Marcher dans la grâce
 
-St Matthieu - reçu par Al Fike le 25 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Care Derby Walsh - reçu par Jimbeau Walsh le 21 Août 2023, Nashville, TN, USA.

@@ -1,12 +1,12 @@
 ---
-title: "Suivez votre cur"
+title: "La gratitude dans le corps et l'esprit"
 menu_title: ""
-description: "Suivez votre cur"
-date: 2023-09-01 06:00:01+00:152
+description: "La gratitude dans le corps et l'esprit"
+date: 2023-09-01 06:00:01+00:35
 draft: False
 hidden: True
 weight:
 ---
-### Suivez votre cur
+### La gratitude dans le corps et l'esprit
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 8 Juin 2023, Nashville, TN, USA.
+Judas - reçu par Jimbeau Walsh le 5 Juin 2023, Nashville, TN, USA.

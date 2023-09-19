@@ -1,12 +1,12 @@
 ---
-title: "Orientation"
+title: "Connaître son âme"
 menu_title: ""
-description: "Orientation"
-date: 2023-09-01 06:00:01+00:123
+description: "Connaître son âme"
+date: 2023-09-01 06:00:01+00:06
 draft: False
 hidden: True
 weight:
 ---
-### Orientation
+### Connaître son âme
 
-Eileen Caddy - reçu par Jimbeau Walsh le 24 Avril 2023, Nashville, TN, USA.
+Flavius Josèphe - reçu par Al Fike le 21 Avril 2023, Sechelt, Colombie-Britannique, Canada.

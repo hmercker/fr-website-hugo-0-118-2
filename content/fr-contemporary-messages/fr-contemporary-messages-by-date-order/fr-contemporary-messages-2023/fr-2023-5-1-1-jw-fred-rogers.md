@@ -1,12 +1,12 @@
 ---
-title: "Le moment est venu de faire un pas en avant"
+title: "Nous sommes tous des enfants de Dieu"
 menu_title: ""
-description: "Le moment est venu de faire un pas en avant"
-date: 2023-09-01 06:00:01+00:132
+description: "Nous sommes tous des enfants de Dieu"
+date: 2023-09-01 06:00:01+00:15
 draft: False
 hidden: True
 weight:
 ---
-### Le moment est venu de faire un pas en avant
+### Nous sommes tous des enfants de Dieu
 
-Augustin - reçu par Al Fike le 2 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Fred Rogers - reçu par Jimbeau Walsh le 1 Mai 2023, Nashville, TN, USA.

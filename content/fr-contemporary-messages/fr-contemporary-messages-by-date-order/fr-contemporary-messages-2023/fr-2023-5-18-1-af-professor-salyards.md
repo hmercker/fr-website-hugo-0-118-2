@@ -1,12 +1,12 @@
 ---
-title: "Passage de la lumière"
+title: "L'inspiration continue de bouillonner"
 menu_title: ""
-description: "Passage de la lumière"
-date: 2023-09-01 06:00:01+00:142
+description: "L'inspiration continue de bouillonner"
+date: 2023-09-01 06:00:01+00:25
 draft: False
 hidden: True
 weight:
 ---
-### Passage de la lumière
+### L'inspiration continue de bouillonner
 
-Orion - reçu par Al Fike le 20 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Professeur Salyards - reçu par Al Fike le 18 Mai 2023, Sechelt, Colombie-Britannique, Canada.

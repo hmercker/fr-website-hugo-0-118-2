@@ -1,12 +1,12 @@
 ---
-title: "La gratitude dans le corps et l'esprit"
+title: "Souligne (encore une fois) ce qui est nécessaire pour obtenir une voix directe"
 menu_title: ""
-description: "La gratitude dans le corps et l'esprit"
-date: 2023-09-01 06:00:01+00:151
+description: "Souligne (encore une fois) ce qui est nécessaire pour obtenir une voix directe"
+date: 2023-09-01 06:00:01+00:34
 draft: False
 hidden: True
 weight:
 ---
-### La gratitude dans le corps et l'esprit
+### Souligne (encore une fois) ce qui est nécessaire pour obtenir une voix directe
 
-Judas - reçu par Jimbeau Walsh le 5 Juin 2023, Nashville, TN, USA.
+Seretta Kem - reçu par Al Fike le 3 Juin 2023, Sechelt, Colombie-Britannique, Canada.

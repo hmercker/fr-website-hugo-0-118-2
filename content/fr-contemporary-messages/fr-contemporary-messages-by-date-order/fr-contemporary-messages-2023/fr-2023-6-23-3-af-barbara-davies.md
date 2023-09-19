@@ -1,12 +1,12 @@
 ---
-title: "Les multitudes se réjouissent avec nous"
+title: "N'ayez pas peur"
 menu_title: ""
-description: "Les multitudes se réjouissent avec nous"
-date: 2023-09-01 06:00:01+00:160
+description: "N'ayez pas peur"
+date: 2023-09-01 06:00:01+00:43
 draft: False
 hidden: True
 weight:
 ---
-### Les multitudes se réjouissent avec nous
+### N'ayez pas peur
 
-St Matthieu - reçu par Al Fike le 24 Juin 2023, Sechelt, Colombie-Britannique, Canada.
+Barbara Davies - reçu par Al Fike le 23 Juin 2023, Sechelt, Colombie-Britannique, Canada.

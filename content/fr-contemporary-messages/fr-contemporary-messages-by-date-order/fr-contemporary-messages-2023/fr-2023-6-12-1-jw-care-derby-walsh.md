@@ -1,12 +1,12 @@
 ---
-title: "Parle de la protection et du pouvoir"
+title: "Le vrai bonheur"
 menu_title: ""
-description: "Parle de la protection et du pouvoir"
-date: 2023-09-01 06:00:01+00:155
+description: "Le vrai bonheur"
+date: 2023-09-01 06:00:01+00:38
 draft: False
 hidden: True
 weight:
 ---
-### Parle de la protection et du pouvoir
+### Le vrai bonheur
 
-Orion - reçu par Al Fike le 17 Juin 2023, Sechelt, Colombie-Britannique, Canada.
+Care Derby Walsh - reçu par Jimbeau Walsh le 12 Juin 2023, Nashville, TN, USA.
