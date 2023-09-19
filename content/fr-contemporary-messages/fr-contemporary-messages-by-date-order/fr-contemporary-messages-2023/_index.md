@@ -84,7 +84,7 @@ Orion | [Le chemin deviendra plus facile avec l'Amour Divin (2023 groupe des dou
 Orion | [Transmet sa profonde compassion et son engagement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-11-1-af-orion/) | 11 Mars 2023
 St Matthieu | [Il est temps d'avancer et de sortir !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-11-2-af-st-matthew/) | 11 Mars 2023
 Elizabeth Barret Browning | [Dans les bras du Ciel, tu demeureras](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-11-3-jw-elizabeth-barret-browning/) | 11 Mars 2023
-Augustin | [Invitation à l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-12-1-af-augustine/) | 12 Mars 2023
+Augustin | [Invitation à l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-12-1-af-augustine/) | 12 Mars 2023
 Kea Atta Kem | [Heureux d'être à nouveau réunis avec le groupe du Cercle des 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-13-1-af-kea-atta-kem/) | 13 Mars 2023
 Yogananda | [Soyez Calme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-13-2-jw-yogananda/) | 13 Mars 2023
 St François d'Assise | [Des paroles sans actes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-14-1-jw-st-francis-of-assisi/) | 14 Mars 2023
