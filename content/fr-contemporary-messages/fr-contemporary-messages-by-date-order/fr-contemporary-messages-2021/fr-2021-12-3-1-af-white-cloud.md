@@ -1,7 +1,7 @@
 ---
-title: "Priez avec nous pour plus déquilibre et dharmonie"
+title: "Priez avec nous pour plus d équilibre et dharmonie"
 menu_title: ""
-description: "Priez avec nous pour plus déquilibre et dharmonie"
+description: "Priez avec nous pour plus d équilibre et dharmonie"
 date: 2023-09-01 06:00:01+00:07
 draft: False
 hidden: True
