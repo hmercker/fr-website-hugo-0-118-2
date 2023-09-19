@@ -267,7 +267,7 @@ Orion | [Le développement spirituel est la réponse la plus efficace à la tran
 Augustin | [La ferveur de vos prières est ce qui fait bouger vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-25-2-af-augustine/) | 25 Octobre 2022
 Marie | [Bénédiction de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-28-1-af-mary/) | 28 Octobre 2022
 Seretta Kem | [Connaître Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-1-1-af-seretta-kem/) | 1 Novembre 2022
-Augustin | [Assaisonnez votre vie avec l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-1-2-af-augustine/) | 1 Novembre 2022
+Augustin | [Assaisonnez votre vie avec l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-1-2-af-augustine/) | 1 Novembre 2022
 Care Derby Walsh | [Faites connaitre les intentions de votre ame au monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-6-1-jw-care-derby-walsh/) | 6 Novembre 2022
 Charlie Chaplin | [Même Atlas ne pouvait pas faire ce que Dieu peut faire !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-7-1-jw-charlie-chaplin/) | 7 Novembre 2022
 St Matthieu | [Le voyage est court](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-11-1-af-st-matthew/) | 11 Novembre 2022
