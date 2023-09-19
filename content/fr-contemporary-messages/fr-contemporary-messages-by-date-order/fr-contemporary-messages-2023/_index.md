@@ -96,7 +96,7 @@ Jésus | [La vérité s'enflammera dans le monde](/fr-contemporary-messages/fr-c
 Seretta Kem | [Trouver l'équilibre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-21-2-af-seretta-kem/) | 21 Mars 2023
 Orion | [Technologie et soutien interstellaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-26-1-af-orion/) | 26 Mars 2023
 St Luc | [Il y a de nombreux chemins pour la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-27-1-jw-st-luke/) | 27 Mars 2023
-Augustin | [La tolérance dans la diversité vient avec l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-29-1-af-augustine/) | 29 Mars 2023
+Augustin | [La tolérance dans la diversité vient avec l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-29-1-af-augustine/) | 29 Mars 2023
 Jésus | [Prières de reconnaissance envers Catherine Koch](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-29-2-af-jesus/) | 29 Mars 2023
 Faith | [Priera avec des liens d’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-1-af-faith/) | 30 Mars 2023
 Jésus | [Lance des liens d'âme - Nouveau cercle de prière du Royaume-Uni](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-2-af-jesus/) | 30 Mars 2023
