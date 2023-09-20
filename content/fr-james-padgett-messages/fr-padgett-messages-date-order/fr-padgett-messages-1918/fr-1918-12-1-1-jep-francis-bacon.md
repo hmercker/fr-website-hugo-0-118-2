@@ -9,7 +9,7 @@ weight:
 ---
 ### Francis Bacon explique la différence entre les éléments spirituels et les éléments matériels
 
-Francis Bacon - reçu par James Padgett le 1 Décembre 1918, Washington, USA.
+Francis Bacon - reçu par James Padgett le 1er Décembre 1918, Washington, USA.
 
 C’est moi, Francis Bacon.
 

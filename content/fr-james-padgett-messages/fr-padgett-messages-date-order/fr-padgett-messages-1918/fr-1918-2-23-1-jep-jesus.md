@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Il n’y a rien dans l’existence ou dans la connaissance de l’homme qui soit comparable à la Bible – si ce n’est les vérités que Jésus et les esprits Célestes ont écrites à travers M. Padgett <sup id="a1">[1](#f1)</sup>
+### Il n’y a rien dans l’existence ou dans la connaissance de l’homme qui soit comparable à la Bible – si ce n’est les vérités que Jésus et les esprits Célestes ont écrites à travers M. Padgett<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 23 Février 1918, Washington, USA.
 
@@ -36,4 +36,4 @@ Je dois m’arrêter maintenant, cependant, avant de le faire, je veux vous assu
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume II et dans le Volume III.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume II page 403 et dans le Volume III page 403. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages).[↩](#a1)

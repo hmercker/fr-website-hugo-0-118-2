@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 27 Janvier 1918, Washington, USA.
 
 C’est moi, Hélène.
 
-Eh bien, mon cher, je vois que tu n’es pas en état d’écrire beaucoup ce soir, et je le regrette car j’avais un très fort désir d’écrire. J’ai entendu ce [qu’Élie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918\fr-1918-1-27-1-jep-elias/) et [Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-27-2-jep-st-john/) ont dit et je ne peux que me joindre à eux dans le conseil qu’ils t’ont donné. J’espère que tu suivras ce conseil et que tu seras bientôt en mesure de recevoir les communications.
+Eh bien, mon cher, je vois que tu n’es pas en état d’écrire beaucoup ce soir, et je le regrette car j’avais un très fort désir d’écrire. J’ai entendu ce [qu’Élie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-27-1-jep-elias/) et [Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-27-2-jep-st-john/) ont dit et je ne peux que me joindre à eux dans le conseil qu’ils t’ont donné. J’espère que tu suivras ce conseil et que tu seras bientôt en mesure de recevoir les communications.
 
 Je sais que tu ne te sens pas comme d’habitude, et tu n’en comprends pas exactement la raison, mais si tu penses à ce qu’ils t’ont dit, tu vas bientôt réaliser la cause et tu pourras t’en débarrasser.
 

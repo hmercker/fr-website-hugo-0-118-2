@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 20 Juin 1918, Washington, USA.
 
 C’est moi, Hélène.
 
-Eh bien, mon cher Ned, ta petite fille t’a quitté <sup id="a1">[1](#f1)</sup>, comme tu le sens maintenant, mais elle n’est pas partie, car elle sera avec toi plus que jamais, et plus heureuse qu’elle n’aurait pu l’être si elle était restée dans son corps.
+Eh bien, mon cher Ned, ta petite fille t’a quitté<sup id="a1">[1](#f1)</sup>, comme tu le sens maintenant, mais elle n’est pas partie, car elle sera avec toi plus que jamais, et plus heureuse qu’elle n’aurait pu l’être si elle était restée dans son corps.
 
 J’étais avec elle lorsqu’elle est passée et je l’ai reçue dans mes bras et lui ait dit qu’elle était avec sa mère et n’avait rien à craindre. Qu’elle était venue dans le monde des esprits et qu’elle saurait maintenant ce que sont l’amour et le bonheur, et que tous ses maux l’avaient quitté pour toujours. Je lui ai dit qu’elle n’aurait pas à vous quitter, toi et ses frères, sauf en ce qui concerne son corps qui ne faisait plus partie d’elle, et qu’elle réaliserait bientôt qu’il n’était qu’une couverture pour elle-même. Elle n’avait pas peur et était nichée dans mes bras alors je l’embrassais et lui disais que maintenant elle comprendrait combien sa mère l’aimait et combien elle serait heureuse dans cet amour, et qu’en très peu de temps elle serait parfaitement heureuse, et se sentirait si heureuse d’avoir quitté les maux et les soucis de sa vie terrestre.
 
@@ -33,11 +33,11 @@ Si tu pouvais comprendre pleinement l’état de ton bébé, tu ne voudrais pas 
 
 Eh bien, mon chéri, quand tu seras un peu plus fort, je viendrai t’écrire plus en détail sur la mort de bébé et elle écrira aussi. Aime-moi et aime-la, et prie le Père. Je te souhaite une bonne nuit. Que Dieu te bénisse et te réconforte, mon cher mari.
 
-Ta vraie et bien-aimée, Hélène.
-
-*Note : Je me suis longtemps demandé s’il s’écoule du temps entre la mort physique et la reprise de conscience dans les domaines spirituels. D’après ce message, il semble qu’il n’y en ait aucun. Ce qui rend la déclaration dans le Livre d’Urantia très curieuse. Ce livre prétend que cela prend trois jours.* (Geoff Cutler)
+Ta vraie et bien-aimée, Hélène.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> L’avis de décès suivant a été découvert récemment. Cette information a été publiée dans le Baltimore Sun le samedi matin 22 Juin 1918, comme suit :
+1. <large id="f1"> L’avis de décès suivant a été découvert récemment. Cette information a été publiée dans le Baltimore Sun le samedi matin 22 Juin 1918, comme suit : 
 
 > PADGETT – Le jeudi 20 Juin au soir, à Washington, Helenita Padgett, de Washington, fille de James E. et de feu Hélène W. Padgett. Les funérailles auront lieu au cimetière du Mont Olivet, Frederick, Md. à 14 h, le samedi 22 Juin après-midi.[↩](#a1)
+
+2. <large id="f2"> *Je me suis longtemps demandé s’il s’écoule du temps entre la mort physique et la reprise de conscience dans les domaines spirituels. D’après ce message, il semble qu’il n’y en ait aucun. Ce qui rend la déclaration dans le Livre d’Urantia très curieuse. Ce livre prétend que cela prend trois jours.* (Geoff Cutler)[↩](#a2)

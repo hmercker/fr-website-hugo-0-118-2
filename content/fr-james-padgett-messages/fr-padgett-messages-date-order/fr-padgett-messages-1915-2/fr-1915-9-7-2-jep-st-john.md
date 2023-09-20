@@ -37,9 +37,10 @@ Un homme qui croit ce qui n’est pas vrai est tout autant un infidèle, que cet
 
 Alors, je vous souhaite une bonne nuit et que Dieu vous bénisse, vous et votre travail.
 
-Votre frère en Christ, Jean de l’Apocalypse.
+Votre frère en Christ, Jean de l’Apocalypse.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+1. <large id=”f1”> *Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

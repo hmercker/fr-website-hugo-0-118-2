@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 21 Mai 1918, Washington, USA.
 
 C’est moi, Hélène.
 
-Eh bien, mon cher, je vois que tu as beaucoup profité de la lecture des messages ce soir, et je suis si heureuse que tu les aies lus de la manière dont tu l’as fait. Les vérités que tu lis en référence au monde des esprits dans le livre du Dr Peebles, sont très belles et aussi édifiantes et utiles dans la mesure où elles affectent les conditions des âmes des hommes, mais, comme tu le sais, elles n’atteignent pas le point vital, ni ne parlent de la grande vérité qui est nécessaire aux hommes de connaître afin d’obtenir la condition de l’Ange Divin et un foyer dans les Cieux Célestes.
+Eh bien, mon cher, je vois que tu as beaucoup profité de la lecture des messages ce soir<sup id=”a1”>[1](#f1)</sup>, et je suis si heureuse que tu les aies lus de la manière dont tu l’as fait. Les vérités que tu lis en référence au monde des esprits dans le livre du Dr Peebles, sont très belles et aussi édifiantes et utiles dans la mesure où elles affectent les conditions des âmes des hommes, mais, comme tu le sais, elles n’atteignent pas le point vital, ni ne parlent de la grande vérité qui est nécessaire aux hommes de connaître afin d’obtenir la condition de l’Ange Divin et un foyer dans les Cieux Célestes.
 
 Bien sûr, l’écrivain, ou n’importe lequel de ceux qu’il cite, ne pouvait parler de cette vérité supérieure, car ils n’ont pas compris la même chose et ils ne pouvaient comprendre que les grands enseignements moraux de Jésus. Mais ces enseignements sont également d’une grande importance pour l’humanité, car leur compréhension et leur observance, en pensée et en actes, conduiront certainement l’homme à une purification de son âme et à une vie en communion avec le Père, selon la perfection des hommes dans sa création. Comme nous te l’avons écrit, la grande majorité des hommes ne vivront dans la grande éternité que comme des hommes parfaits, jouissant du bonheur que cette condition leur apporte, et il est donc très important qu’on leur enseigne cette vérité mortelle.
 
@@ -28,3 +28,6 @@ Eh bien, je n’ai pas écrit plus tôt dans la soirée car tu n’étais pas en
 Bonne nuit, mon cher mari.
 
 Ta vraie et bien-aimée, Hélène.
+<small>
+
+1. <large id=”f1”> Il est fait référence à des messages indiqués sur la tablette (journal quotidien de  James Padgett) dont la transcription a été perdue.[↩](#a1)

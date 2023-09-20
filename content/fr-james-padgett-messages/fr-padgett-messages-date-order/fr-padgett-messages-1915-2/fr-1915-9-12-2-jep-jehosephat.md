@@ -11,7 +11,7 @@ weight:
 
 Jehosephat - reçu par James Padgett le 12 Septembre 1915, Washington, USA.
 
-Je suis, Jehosephat.
+Je suis, Jehosephat.<sup id="a1">[1](#f1)</sup>
 
 Je fus un personnage de l’Ancien Testament, et je veux dire un mot. Je suis un Chrétien, et j’ai été racheté par l’Amour Divin du Père.
 
@@ -24,3 +24,6 @@ Je voulais simplement dire ceci, afin que vous sachiez que, bien que nous soyons
 Je vous souhaite une bonne nuit.
 
 Jehosephat.
+<small>
+
+1. <large id="f1"> Josaphat est un personnage  biblique [Rois 15:24](https://saintebible.com/1_kings/15-24.htm), [Rois 22:50](https://saintebible.com/1_kings/22-50.htm) et [Mattieu 1:8](https://saintebible.com/matthew/1-8.htm) qui n'est connu que par les extraitsbibliques se rapportant à lui. ils est présenté comme le fils d'Asa et d'Azuba, fille de Shilhi et il succéda à son père à l'âge de 35 ans. La Bible le décrit comme un roi qui, à l'instar de son père, fit *« ce qui est droit aux yeux de l’Éternel »* Selon certains auteurs, il régna avec son père durant la maladie de ce dernier, avant de lui succéder. Il eut sept fils : Joram, l'aîné ; Azaria, Yehiel, Zacharie, Azaryahu, Mikaël et Shephatyahu. Il leur laissa un héritage conséquent8. Joram régna sans doute avec lui durant cinq ans, puis lui succéda.[↩](#a1)

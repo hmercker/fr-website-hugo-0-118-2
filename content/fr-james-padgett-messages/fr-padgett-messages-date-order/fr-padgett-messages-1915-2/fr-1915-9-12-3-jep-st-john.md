@@ -46,10 +46,10 @@ Alors je dis, ne laissez pas ce que la Bible peut dire à propos de Jésus étan
 
 Je n’écrirai plus ce soir, mais je vous dirai bonne nuit.
 
-Votre frère en Christ, Jean.
+Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-
-*Note : Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+1. <large id=”f1”> *Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

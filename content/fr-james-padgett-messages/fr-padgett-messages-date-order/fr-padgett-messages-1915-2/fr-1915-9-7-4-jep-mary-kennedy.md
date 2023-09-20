@@ -24,7 +24,8 @@ Ses peines ne sont que temporaires et mon amour est éternel – et mon amour si
 Je lis ses lettres, qu’il écrit la nuit, et pour chaque expression d’amour qu’elles contiennent, j’ai une réponse sensible, seulement plus intense et plus longue. Dites-lui de ne pas cesser de m’écrire car je vois ce qu’il écrit ; et dites-lui aussi qu’il doit croire que mes réponses sont tout ce qu’il voudrait qu’elles soient, et même plus.
 
 Je ne dois pas abuser plus longtemps de votre indulgence, mais je veux seulement dire que j’aime mon cher Leslie de tout mon cœur et de toute mon âme, et je l’aimerai jusqu’à ce que le temps et l’éternité ne seront plus. Oh, comme j’aimerais qu’il puisse me voir face à face et entendre ma voix lui dire mon grand amour, qu’il est à moi et que je suis à lui.
-Très aimable ami, je vous remercie et cède la place à votre femme pour qu’elle reprenne ses fonctions. <sup id="a1">[1](#f1)</sup>
+
+Très aimable ami, je vous remercie et cède la place à votre femme pour qu’elle reprenne ses fonctions.<sup id="a1">[1](#f1)</sup>
 
 *[Mme Padgett continue]*
 

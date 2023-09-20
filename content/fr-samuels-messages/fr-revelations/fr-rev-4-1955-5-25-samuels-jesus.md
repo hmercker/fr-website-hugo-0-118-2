@@ -21,11 +21,12 @@ Quand j’ai récité le passage sur la délivrance des captifs, je voulais parl
 
 Ainsi vous voyez que je me suis proclamé comme étant le Messie tant attendu par le peuple Hébreu, et que, par conséquent, toute déclaration qui indique que Pierre a deviné mon identité par la grâce céleste n’est pas vraie mais fut simplement insérée afin de renforcer et de donner autorité à l’église pour affirmer que je le l’avais choisi pour être mon successeur. Il est vrai que je fus incapable de n’accomplir aucun miracle à ce moment-là en raison de la situation particulière dans laquelle j’étais où, après avoir vécu pendant une vingtaine d’années à Nazareth, les gens qui me connaissaient depuis si longtemps se voyaient soudainement demander de croire que j’étais le Messie. C’était très difficile pour eux de le faire car il ne s’agissait pas de demander à des étrangers d’accepter mes enseignements et la guérison, mais de demander à des personnes de changer l’opinion qu’ils s’étaient formée sur moi pendant vingt ans. Puisque je n’avais jamais guéri qui que ce soit dans ma ville natale avant mon ministère public, les gens étaient sceptiques que je puisse soudainement réaliser ce que je n’avais pas fait pendant les vingt dernières années, et ce fut ce fort courant d’incrédulité qui m’a empêché d’exercer mes pouvoirs de guérison, la foi du bénéficiaire du don de guérison est également nécessaire.
 
-Jésus de la Bible et Maître des Cieux Célestes.
+Jésus de la Bible et Maître des Cieux Célestes.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*
+<large id=”f1”> *Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*.[↩](#a1)
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus  | [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/). | 24 Mai 1915
 Jésus `| [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/). | 07 Juin 1915
