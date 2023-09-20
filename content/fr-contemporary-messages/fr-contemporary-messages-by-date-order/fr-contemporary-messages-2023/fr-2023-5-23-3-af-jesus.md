@@ -1,12 +1,12 @@
 ---
-title: "Conseils pour rapprocher le mental de l'âme et le mental matériel"
+title: "Le destin de nos âmes"
 menu_title: ""
-description: "Conseils pour rapprocher le mental de l'âme et le mental matériel"
-date: 2023-09-01 06:00:01+00:146
+description: "Le destin de nos âmes"
+date: 2023-09-01 06:00:01+00:29
 draft: False
 hidden: True
 weight:
 ---
-### Conseils pour rapprocher le mental de l'âme et le mental matériel
+### Le destin de nos âmes
 
-Orion - reçu par Al Fike le 27 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 23 Mai 2023, Sechelt, Colombie-Britannique, Canada.

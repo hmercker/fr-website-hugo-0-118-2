@@ -1,12 +1,12 @@
 ---
-title: "Souligne (encore une fois) ce qui est nécessaire pour obtenir une voix directe"
+title: "Le temple de l'adoration"
 menu_title: ""
-description: "Souligne (encore une fois) ce qui est nécessaire pour obtenir une voix directe"
-date: 2023-09-01 06:00:01+00:150
+description: "Le temple de l'adoration"
+date: 2023-09-01 06:00:01+00:33
 draft: False
 hidden: True
 weight:
 ---
-### Souligne (encore une fois) ce qui est nécessaire pour obtenir une voix directe
+### Le temple de l'adoration
 
-Seretta Kem - reçu par Al Fike le 3 Juin 2023, Sechelt, Colombie-Britannique, Canada.
+Robert James Lee - reçu par Jimbeau Walsh le 1 Juin 2023, Nashville, TN, USA.

@@ -1,12 +1,12 @@
 ---
-title: "Invite le groupe des douze à se réunir à nouveau"
+title: "Dans l'Amour et la Gratitude de Dieu"
 menu_title: ""
-description: "Invite le groupe des douze à se réunir à nouveau"
-date: 2023-09-01 06:00:01+00:125
+description: "Dans l'Amour et la Gratitude de Dieu"
+date: 2023-09-01 06:00:01+00:08
 draft: False
 hidden: True
 weight:
 ---
-### Invite le groupe des douze à se réunir à nouveau
+### Dans l'Amour et la Gratitude de Dieu
 
-Alec Gaunt - reçu par Al Fike le 25 Avril 2023, Sechelt, Colombie-Britannique, Canada.
+Joseph Babinsky - reçu par Al Fike le 24 Avril 2023, Sechelt, Colombie-Britannique, Canada.

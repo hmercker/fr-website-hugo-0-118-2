@@ -1,12 +1,12 @@
 ---
-title: "Comment vous sentez-vous ?"
+title: "Les multitudes se réjouissent avec nous"
 menu_title: ""
-description: "Comment vous sentez-vous ?"
-date: 2023-09-01 06:00:01+00:161
+description: "Les multitudes se réjouissent avec nous"
+date: 2023-09-01 06:00:01+00:44
 draft: False
 hidden: True
 weight:
 ---
-### Comment vous sentez-vous ?
+### Les multitudes se réjouissent avec nous
 
-Yogananda - reçu par Jimbeau Walsh le 25 Juin 2023, Nashville, TN, USA.
+St Matthieu - reçu par Al Fike le 24 Juin 2023, Sechelt, Colombie-Britannique, Canada.

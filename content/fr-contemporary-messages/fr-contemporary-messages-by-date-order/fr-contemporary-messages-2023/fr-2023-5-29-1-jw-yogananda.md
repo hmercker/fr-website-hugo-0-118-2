@@ -1,12 +1,12 @@
 ---
-title: "La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps"
+title: "Marcher dans la grace"
 menu_title: ""
-description: "La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps"
-date: 2023-09-01 06:00:01+00:148
+description: "Marcher dans la grace"
+date: 2023-09-01 06:00:01+00:31
 draft: False
 hidden: True
 weight:
 ---
-### La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps
+### Marcher dans la grace
 
-Orion - reçu par Al Fike le 30 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Yogananda - reçu par Jimbeau Walsh le 29 Mai 2023, Nashville, TN, USA.

@@ -1,12 +1,12 @@
 ---
-title: "Invitation à se rassembler dans l'unité"
+title: "Restez éveillé dans l'Amour Divin"
 menu_title: ""
-description: "Invitation à se rassembler dans l'unité"
-date: 2023-09-01 06:00:01+00:173
+description: "Restez éveillé dans l'Amour Divin"
+date: 2023-09-01 06:00:01+00:56
 draft: False
 hidden: True
 weight:
 ---
-### Invitation à se rassembler dans l'unité
+### Restez éveillé dans l'Amour Divin
 
-Jésus - reçu par Al Fike le 30 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+George Gurdjieff - reçu par Al Fike le 24 Juillet 2023, Sechelt, Colombie-Britannique, Canada.

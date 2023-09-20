@@ -1,12 +1,12 @@
 ---
-title: "Amour Magnifique"
+title: "Perfection en Grâce"
 menu_title: ""
-description: "Amour Magnifique"
-date: 2023-09-01 06:00:01+00:138
+description: "Perfection en Grâce"
+date: 2023-09-01 06:00:01+00:21
 draft: False
 hidden: True
 weight:
 ---
-### Amour Magnifique
+### Perfection en Grâce
 
-Orion - reçu par Al Fike le 16 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+St François d'Assise - reçu par Jimbeau Walsh le 15 Mai 2023, Nashville, TN, USA.

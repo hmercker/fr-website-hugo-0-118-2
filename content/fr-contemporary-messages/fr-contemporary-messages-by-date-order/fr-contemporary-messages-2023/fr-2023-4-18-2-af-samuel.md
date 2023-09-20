@@ -1,12 +1,12 @@
 ---
-title: "Opportunité de croissance"
+title: "Deux parcours spirituels distincts"
 menu_title: ""
-description: "Opportunité de croissance"
-date: 2023-09-01 06:00:01+00:120
+description: "Deux parcours spirituels distincts"
+date: 2023-09-01 06:00:01+00:03
 draft: False
 hidden: True
 weight:
 ---
-### Opportunité de croissance
+### Deux parcours spirituels distincts
 
-Professeur Salyards - reçu par Al Fike le 20 Avril 2023, Sechelt, Colombie-Britannique, Canada.
+Samuel - reçu par Al Fike le 18 Avril 2023, Sechelt, Colombie-Britannique, Canada.

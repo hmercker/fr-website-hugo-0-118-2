@@ -1,12 +1,12 @@
 ---
-title: "Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »"
+title: "Préparation de la retraite de Laurelville"
 menu_title: ""
-description: "Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »"
-date: 2023-09-01 06:00:01+00:186
+description: "Préparation de la retraite de Laurelville"
+date: 2023-09-01 06:00:01+00:69
 draft: False
 hidden: True
 weight:
 ---
-### Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »
+### Préparation de la retraite de Laurelville
 
-Augustin - reçu par Al Fike le 12 Septembre 2023, Sechelt, Colombie-Britannique, Canada.
+Michael Collier - reçu par Al Fike le 29 Août 2023, Sechelt, Colombie-Britannique, Canada.

@@ -1,12 +1,12 @@
 ---
-title: "Le pouvoir de l'Amour Divin élève toutes les situations"
+title: "La foi opposée à la peur pendant le nettoyage du monde"
 menu_title: ""
-description: "Le pouvoir de l'Amour Divin élève toutes les situations"
-date: 2023-09-01 06:00:01+00:180
+description: "La foi opposée à la peur pendant le nettoyage du monde"
+date: 2023-09-01 06:00:01+00:63
 draft: False
 hidden: True
 weight:
 ---
-### Le pouvoir de l'Amour Divin élève toutes les situations
+### La foi opposée à la peur pendant le nettoyage du monde
 
-St Matthieu - reçu par Al Fike le 20 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Al Fike le 19 Août 2023, Sechelt, Colombie-Britannique, Canada.

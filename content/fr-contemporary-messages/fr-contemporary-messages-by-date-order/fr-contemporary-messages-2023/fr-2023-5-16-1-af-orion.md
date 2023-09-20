@@ -1,12 +1,12 @@
 ---
-title: "Vous êtes là où se trouve votre âme"
+title: "Amour Magnifique"
 menu_title: ""
-description: "Vous êtes là où se trouve votre âme"
-date: 2023-09-01 06:00:01+00:139
+description: "Amour Magnifique"
+date: 2023-09-01 06:00:01+00:22
 draft: False
 hidden: True
 weight:
 ---
-### Vous êtes là où se trouve votre âme
+### Amour Magnifique
 
-Claire d'Assise - reçu par Jimbeau Walsh le 16 Mai 2023, Nashville, TN, USA.
+Orion - reçu par Al Fike le 16 Mai 2023, Sechelt, Colombie-Britannique, Canada.

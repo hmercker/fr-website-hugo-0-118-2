@@ -1,12 +1,12 @@
 ---
-title: "Connaître son âme"
+title: "Prièes de l'ÂmE"
 menu_title: ""
-description: "Connaître son âme"
-date: 2023-09-01 06:00:01+00:122
+description: "Prièes de l'ÂmE"
+date: 2023-09-01 06:00:01+00:05
 draft: False
 hidden: True
 weight:
 ---
-### Connaître son âme
+### Prièes de l'ÂmE
 
-Flavius Josèphe - reçu par Al Fike le 21 Avril 2023, Sechelt, Colombie-Britannique, Canada.
+Jean le Bien Aimé - reçu par Al Fike le 20 Avril 2023, Sechelt, Colombie-Britannique, Canada.

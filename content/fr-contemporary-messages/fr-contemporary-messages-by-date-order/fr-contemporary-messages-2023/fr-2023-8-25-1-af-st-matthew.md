@@ -1,12 +1,12 @@
 ---
-title: "Nous avons tous de puissants dons de guérison"
+title: "Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers"
 menu_title: ""
-description: "Nous avons tous de puissants dons de guérison"
-date: 2023-09-01 06:00:01+00:183
+description: "Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers"
+date: 2023-09-01 06:00:01+00:66
 draft: False
 hidden: True
 weight:
 ---
-### Nous avons tous de puissants dons de guérison
+### Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers
 
-Mylora - reçu par Al Fike le 26 Août 2023, Sechelt, Colombie-Britannique, Canada.
+St Matthieu - reçu par Al Fike le 25 Août 2023, Sechelt, Colombie-Britannique, Canada.

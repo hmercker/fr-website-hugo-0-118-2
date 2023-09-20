@@ -1,12 +1,12 @@
 ---
-title: "La conception de l'homme naît dans l'esprit"
+title: "Vous êtes là où se trouve votre âme"
 menu_title: ""
-description: "La conception de l'homme naît dans l'esprit"
-date: 2023-09-01 06:00:01+00:140
+description: "Vous êtes là où se trouve votre âme"
+date: 2023-09-01 06:00:01+00:23
 draft: False
 hidden: True
 weight:
 ---
-### La conception de l'homme naît dans l'esprit
+### Vous êtes là où se trouve votre âme
 
-St Matthieu - reçu par Al Fike le 16 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Claire d'Assise - reçu par Jimbeau Walsh le 16 Mai 2023, Nashville, TN, USA.

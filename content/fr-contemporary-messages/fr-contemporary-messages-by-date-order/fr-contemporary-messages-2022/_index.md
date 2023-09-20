@@ -236,7 +236,7 @@ Jesus | [Nous avons un rôle à jouer dans le plan de Dieu](/fr-contemporary-mes
 Baal Shem Tov | [Faites de chaque jour un nouveau jour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-26-1-jw-baal-shem-tov/) | 26 Septembre 2022
 Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
 Care Derby Walsh | [Progression au-delà des flux et reflux de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-1-jw-care-derby-walsh/) | 3 Octobre 2022
-Yogananda | [N’abandonnez jamais votre recherche de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-2-af-yogananda/) | 3 Octobre 2022
+Yogananda | [N'abandonnez jamais votre recherche de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-2-af-yogananda/) | 3 Octobre 2022
 James Padgett | [Le monde connaîtra ces vérités à temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022
 Helen Padgett | [Buvez profondément ces eaux de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-2-af-helen-padgett/) | 4 Octobre 2022
 Orion | [Les ressources de nos âmes aident à ouvrir les portes de l'univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-3-af-orion/) | 4 Octobre 2022
@@ -267,7 +267,7 @@ Orion | [Le développement spirituel est la réponse la plus efficace à la tran
 Augustin | [La ferveur de vos prières est ce qui fait bouger vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-25-2-af-augustine/) | 25 Octobre 2022
 Marie | [Bénédiction de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-28-1-af-mary/) | 28 Octobre 2022
 Seretta Kem | [Connaître Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-1-1-af-seretta-kem/) | 1 Novembre 2022
-Augustin | [Assaisonnez votre vie avec l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-1-2-af-augustine/) | 1 Novembre 2022
+Augustin | [Assaisonnez votre vie avec l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-1-2-af-augustine/) | 1 Novembre 2022
 Care Derby Walsh | [Faites connaitre les intentions de votre ame au monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-6-1-jw-care-derby-walsh/) | 6 Novembre 2022
 Charlie Chaplin | [Même Atlas ne pouvait pas faire ce que Dieu peut faire !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-7-1-jw-charlie-chaplin/) | 7 Novembre 2022
 St Matthieu | [Le voyage est court](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-11-1-af-st-matthew/) | 11 Novembre 2022
@@ -291,6 +291,6 @@ Augustin | [Leçon sur le chagrin](/fr-contemporary-messages/fr-contemporary-mes
 St François d'Assise | [Dons de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-12-1-jw-st-francis-of-assisi/) | 12 Décembre 2022
 Augustin | [Le vrai sens de Noël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-18-1-af-augustine/) | 18 Décembre 2022
 Care Derby Walsh | [La connexion divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
-Augustin | [Reconnaîssez Jésus pour la vérité qu’il a apportée au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-23-1-af-augustine/) | 23 Décembre 2022
+Augustin | [Reconnaîssez Jésus pour la vérité qu'il a apportée au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-23-1-af-augustine/) | 23 Décembre 2022
 Orion | [Nous allons de l'avant à l'aube d'une nouvelle année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-1-af-orion/) | 31 Décembre 2022
 Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/) | 31 Décembre 2022

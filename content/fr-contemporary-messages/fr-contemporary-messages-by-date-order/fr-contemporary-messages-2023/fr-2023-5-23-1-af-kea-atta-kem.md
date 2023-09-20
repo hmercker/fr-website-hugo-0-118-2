@@ -1,12 +1,12 @@
 ---
-title: "A de la compassion pour les conditions dans lesquelles nous vivons sur Terre"
+title: "Vous êtes les rares privilégiés au monde"
 menu_title: ""
-description: "A de la compassion pour les conditions dans lesquelles nous vivons sur Terre"
-date: 2023-09-01 06:00:01+00:144
+description: "Vous êtes les rares privilégiés au monde"
+date: 2023-09-01 06:00:01+00:27
 draft: False
 hidden: True
 weight:
 ---
-### A de la compassion pour les conditions dans lesquelles nous vivons sur Terre
+### Vous êtes les rares privilégiés au monde
 
-Orion - reçu par Al Fike le 23 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Kea Atta Kem - reçu par Al Fike le 23 Mai 2023, Sechelt, Colombie-Britannique, Canada.

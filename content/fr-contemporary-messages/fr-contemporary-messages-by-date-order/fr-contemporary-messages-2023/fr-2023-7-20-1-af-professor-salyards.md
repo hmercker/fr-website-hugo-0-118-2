@@ -1,12 +1,12 @@
 ---
-title: "Restez éveillé dans l'Amour Divin"
+title: "L'harmonie prévaudra à la retraite de Laurelville"
 menu_title: ""
-description: "Restez éveillé dans l'Amour Divin"
-date: 2023-09-01 06:00:01+00:172
+description: "L'harmonie prévaudra à la retraite de Laurelville"
+date: 2023-09-01 06:00:01+00:55
 draft: False
 hidden: True
 weight:
 ---
-### Restez éveillé dans l'Amour Divin
+### L'harmonie prévaudra à la retraite de Laurelville
 
-George Gurdjieff - reçu par Al Fike le 24 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Professeur Salyards - reçu par Al Fike le 20 Juillet 2023, Sechelt, Colombie-Britannique, Canada.

@@ -1,12 +1,12 @@
 ---
-title: "Préparation de la retraite de Laurelville"
+title: "Bénédictions de Flavius Josèphe"
 menu_title: ""
-description: "Préparation de la retraite de Laurelville"
-date: 2023-09-01 06:00:01+00:185
+description: "Bénédictions de Flavius Josèphe"
+date: 2023-09-01 06:00:01+00:68
 draft: False
 hidden: True
 weight:
 ---
-### Préparation de la retraite de Laurelville
+### Bénédictions de Flavius Josèphe
 
-Michael Collier - reçu par Al Fike le 29 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Al Fike le 27 Août 2023, Sechelt, Colombie-Britannique, Canada.

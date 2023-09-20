@@ -383,7 +383,7 @@ St Jean | [Le temps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-
 Orion | [Nous sommes à vos côtés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-23-1-af-orion/) | 23 Novembre 2021
 Jésus | [Leçon 21 : Les lois qui régissent la progression de l’âme (2021 Projet Jésus 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-25-1-af-jesus/) | 25 Novembre 2021
 Orion | [Plus d'informations sur le cadeau de cristal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-27-1-af-orion/) | 27 Novembre 2021
-Nuage Blanc | [Priez avec nous pour plus d’équilibre et d’harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
+Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
 Orion | [Appel à l'action ! Nous sommes tous profondément nécessaires dans le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-4-1-af-orion/) | 4 Décembre 2021
 Samuel | [Les changements à venir et nos familles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-5-1-af-samuel/) | 5 Décembre 2021
 Jésus | [Vient pour nous soutenir en harmonie dans nos efforts individuels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-7-1-af-jesus/) | 7 Décembre 2021

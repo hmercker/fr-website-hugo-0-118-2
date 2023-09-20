@@ -1,12 +1,12 @@
 ---
-title: "Perfection en Grâce"
+title: "Nous progressons dans l'amour de Dieu"
 menu_title: ""
-description: "Perfection en Grâce"
-date: 2023-09-01 06:00:01+00:137
+description: "Nous progressons dans l'amour de Dieu"
+date: 2023-09-01 06:00:01+00:20
 draft: False
 hidden: True
 weight:
 ---
-### Perfection en Grâce
+### Nous progressons dans l'amour de Dieu
 
-St François d'Assise - reçu par Jimbeau Walsh le 15 Mai 2023, Nashville, TN, USA.
+Orion - reçu par Al Fike le 9 Mai 2023, Sechelt, Colombie-Britannique, Canada.

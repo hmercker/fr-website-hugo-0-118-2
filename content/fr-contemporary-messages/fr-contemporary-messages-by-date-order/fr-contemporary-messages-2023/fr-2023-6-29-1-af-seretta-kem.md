@@ -1,12 +1,12 @@
 ---
-title: "L'importance de la cohérence, du dévouement et de la foi"
+title: "La transformation continue dans l'Amour de Dieu"
 menu_title: ""
-description: "L'importance de la cohérence, du dévouement et de la foi"
-date: 2023-09-01 06:00:01+00:163
+description: "La transformation continue dans l'Amour de Dieu"
+date: 2023-09-01 06:00:01+00:46
 draft: False
 hidden: True
 weight:
 ---
-### L'importance de la cohérence, du dévouement et de la foi
+### La transformation continue dans l'Amour de Dieu
 
-Michael Collier - reçu par Al Fike le 4 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 29 Juin 2023, Sechelt, Colombie-Britannique, Canada.
