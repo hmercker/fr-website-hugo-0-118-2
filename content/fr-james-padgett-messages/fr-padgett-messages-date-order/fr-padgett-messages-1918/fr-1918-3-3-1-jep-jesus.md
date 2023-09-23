@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Christ peut être en vous – ce que cela signifie <sup id="a1">[1](#f1)</sup>
+### Christ peut être en vous – ce que cela signifie<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 3 Mars 1918, Washington, USA.
 
@@ -32,7 +32,7 @@ Votre ami et frère, Jésus.
 
 1. <large id="f1"> Un message d’Hélène à cette date indique que le rapport fut perdu, le message est donc incomplet.[↩](#a1)
 
-*Note 2 : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
+2. <large id="f2"> Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

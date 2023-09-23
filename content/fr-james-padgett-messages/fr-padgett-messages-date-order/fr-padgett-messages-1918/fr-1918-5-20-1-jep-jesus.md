@@ -21,9 +21,10 @@ Chaque être humain connaîtra la fin de la vie terrestre, et pour lui ce sera, 
 
 Il y a encore beaucoup de choses à divulguer, et cette divulgation attend seulement que vous soyez dans la bonne condition pour les recevoir. Vous pouvez voir l’importance de cela, car la fin du monde arrive chaque jour pour de nombreux mortels, et c’est ce qui est si important pour eux de savoir. Pensez davantage aux choses spirituelles et à votre travail. Croyez que je suis avec vous très souvent, et surtout quand vous priez la nuit, selon ma promesse. Bonne nuit.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*
+1. <large id=”f1”> *Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

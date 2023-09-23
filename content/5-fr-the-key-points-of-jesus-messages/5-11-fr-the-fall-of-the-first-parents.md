@@ -16,6 +16,7 @@ Les seuls esprits dans le monde des esprits sont ceux qui ont été mortels à u
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Aman | [Aman, le premier parent révèle sa tentation et sa chute](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/) | 29 Août 1915
+Amon | [Amon, la mère de tous les humains, partage son expérience, sa tentation et désobéissance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/) | 30 Août 1915
 St Luc | [Les péchés des parents sont transmis aux enfants jusqu’à la troisième et la quatrième génération](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-9-1-jep-st-luke/) | 9 Avril 1916
 Jésus | [Il n’y a aucun diable et aucun Satan en tant que personnes réelles et aucun ange déchu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-3-1-jep-jesus/) | 3 Janvier 1916
 St Jacques | [Jacques – Comment l’homme peut-il redevenir l’homme parfait, comme les premiers parents avant leur chute](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-8-1-jep-st-james/) | 8 Mars 1917

@@ -16,6 +16,8 @@ Les enseignements de Jésus n’ont jamais été consignés au moment de ses ens
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 St Augustin | [St Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915
+St Jean | [Jean affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/) | 30 Août 1915
+St Paul | [Saint Paul veut écrire ce qu’il sait maintenant être la vérité. Et aussi corriger les erreurs dans ses épîtres telles qu’elles sont contenues dans la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-1-jep-st-paul/) | 30 Août 1915
 St Luc | [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/) | 5 Septembre 1915
 St Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
 St Luc | [St Luc corrobore ce que Luther a écrit au sujet des erreurs contenues dans la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-7-25-1-jep-luke/) | 25 Juillet 1916

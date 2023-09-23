@@ -1,13 +1,13 @@
 ---
-title: "Helen explique l'amour divin, l'amour naturel, l'amour de l'âme soeur et les autres amours"
+title: "Hélène explique l'amour divin, l'amour naturel, l'amour de l'âme soeur et les autres amours"
 menu_title: ""
-description: "Helen explique l'amour divin, l'amour naturel, l'amour de l'âme soeur et les autres amours"
+description: "Hélène explique l'amour divin, l'amour naturel, l'amour de l'âme soeur et les autres amours"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True
 weight:
 ---
-### Helen explique l'amour divin, l'amour naturel, l'amour de l'âme soeur et les autres amours
+### Hélène explique l'amour divin, l'amour naturel, l'amour de l'âme soeur et les autres amours
 
 Hélène Padgett - reçu par James Padgett le 26 Novembre 1918, Washington, USA.
 
@@ -47,4 +47,4 @@ Tu as beaucoup écrit et je vais arrêter. Je suis si contente d’avoir pu écr
 
 Bonne nuit, mon cher Ned.
 
-Ta propre vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.

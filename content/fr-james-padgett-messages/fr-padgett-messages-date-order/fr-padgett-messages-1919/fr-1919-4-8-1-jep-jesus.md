@@ -13,7 +13,7 @@ Jésus - reçu par James Padgett le 08 Avril 1919, Washington, USA.
 
 Permettez-moi de partagez quelques réflexions ce soir.
 
-J’étais de nouveau avec vous au service et j’ai écouté le prédicateur <sup id="a1">[1](#f1)</sup> (Dr Swain) alors qu’il exposait la vérité de Dieu et la vérité de l’homme telle qu’il conçoit ces vérités, et je suis contraint de dire que si son futur état de bonheur dépendait de ces prétendues vérités, il serait un esprit très malheureux dans l’un des millions de cieux dont il a parlé.
+J’étais de nouveau avec vous au service et j’ai écouté le prédicateur<sup id="a1">[1](#f1)</sup> (Dr Swain) alors qu’il exposait la vérité de Dieu et la vérité de l’homme telle qu’il conçoit ces vérités, et je suis contraint de dire que si son futur état de bonheur dépendait de ces prétendues vérités, il serait un esprit très malheureux dans l’un des millions de cieux dont il a parlé.
 
 Je regrette que les hommes puissent concevoir de telles notions de Dieu et de l’homme, et les enseigner à d’autres mortels. Mais il en sera ainsi pendant de nombreuses années, et, jusqu’à ce que mes enseignements, à travers vous, soient acceptés et crus par les hommes, de grandes ténèbres et erreurs prévaudront sur la terre. Il ne m’est guère nécessaire d’essayer d’analyser bon nombre de ses déclarations erronées, car elles sont si nombreuses et si erronées qu’il faudrait trop de temps pour les examiner toutes.
 

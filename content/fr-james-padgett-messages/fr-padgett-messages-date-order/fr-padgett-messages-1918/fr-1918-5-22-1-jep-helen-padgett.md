@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène est avec moi chez Harry et chez les Colburns <sup id="a1">[1](#f1)</sup>
+### Hélène est avec moi chez Harry et chez les Colburns<sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 22 Mai 1918, Washington, USA.
 
@@ -32,4 +32,4 @@ Bonne nuit et que le Père te bénisse en tout point.
 Ton véritable amour, Hélène.
 <small>
 
-1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été diffusé par la F.C.N.B. dans son bulletin d’information du printemps 2012.[↩](#a1)
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été diffusé par la F.C.N.B. (Fédération des églises de la Nouvelle Naissance) dans son bulletin d’information du printemps 2012. Consulter [ce lien](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/) pour plus d'informations sue les églises impliquées dans la diffusion des messages de James Padgett.[↩](#a1)
