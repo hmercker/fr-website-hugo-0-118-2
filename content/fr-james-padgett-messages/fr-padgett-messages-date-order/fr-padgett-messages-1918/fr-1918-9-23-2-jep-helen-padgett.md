@@ -26,4 +26,4 @@ Oui, il est venu ici à plusieurs reprises, mais il n’a pas eu l’occasion d�
 Ta vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id="f1"> Bébé est Hélénita Padgett qui elle est décédée très soudainement à l’âge de 26 ans, le 20 Juin 1918. (Geoff Cutler)[↩](#a1)
+1. <large id="f1"> Bébé est Hélénita Padgett qui est décédée très soudainement à l’âge de 26 ans, le 20 Juin 1918. (Geoff Cutler)[↩](#a1)

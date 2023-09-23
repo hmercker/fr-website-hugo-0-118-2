@@ -14,6 +14,7 @@ Spencer - reçu par James Padgett le 18 Juin 1919, Washington, USA.
 Je suis Spencer.
 
 Je veux dire un mot à votre ami qui est tellement intéressé par la découverte des vérités du monde des esprits et des faits qui existent dans ce monde.
+
 Eh bien, j’étais avec vous lorsque vous avez discuté de ces perspectives, et aussi des écrits des hommes qui se sont convertis au spiritualisme, et j’ai vu que vous n’êtes pas satisfait du contenu des écrits, et j’ai souhaité que ces hommes puissent connaître la vérité qu’ils pourraient déclarer au monde.
 
 Eh bien, vous devez attendre que vos messages soient terminés et en forme pour les publier avant que ces vérités puissent être déclarées au monde. Ces hommes qui vivent les expériences dont ils parlent font un bon travail en publiant des récits à ce sujet : ils préparent leurs lecteurs à accepter la vérité du spiritualisme chaque fois qu’elle sera publiée. Ils défrichent la terre en friche et la préparent à recevoir les graines de la vérité qui seront dispersées sur le sol si récemment stérile et impropre à recevoir et à nourrir ces graines. L’œuvre qui en résultera fera beaucoup de bien et conduira progressivement l’homme à accepter comme vrai et venant du monde des esprits, ce qu’il ne recevrait pas autrement.
@@ -24,4 +25,4 @@ Je ne vais pas en écrire plus maintenant. Bonne nuit.
 
 Votre ami, Spencer.
 
-J’étais un scientifique quand j’étais sur terre et supposé agnostique, mais j’ai changé d’idée.
+J’étais un scientifique lors de ma  vie sur terre et supposé agnostique, mais j’ai changé d’idée.
