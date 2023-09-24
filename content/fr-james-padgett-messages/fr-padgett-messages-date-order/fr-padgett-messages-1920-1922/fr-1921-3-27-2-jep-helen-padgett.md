@@ -11,7 +11,7 @@ weight:
 
 Hélène Padgett - reçu par James Padgett le 27 Mars 1921, Washington, USA.
 
-C’est moi, ton Hélène, vraie et aimante.
+C’est moi, ton Hélène, vraie et bien-aimée.
 
 Et bien mon cher, je vois que tu es fatigué et je n’écrirai pas beaucoup.
 
@@ -21,7 +21,7 @@ Je ne vais pas écrire plus maintenant. Crois que je t’aime de tout mon cœur 
 
 Bonne nuit.
 
-Ta vraie et aimante Hélène.
+Ta vraie et bien aimée Hélène.
 
 *Note : Liens vers d'autres messages relatifs à la crucifixion de Jésus :*
 

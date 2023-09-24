@@ -7,8 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La Vérité Divine doit être déclarée à toute l’humanité<sup id="a1">[1](#f1)</sup>
-
+### La Vérité Divine doit être déclarée à toute l’humanité
 Jésus - reçu par James Padgett le 02 Mai 1920, Washington, USA.
 
 C’est moi, Jésus.
@@ -23,21 +22,18 @@ Je suis très heureux que vous soyez en bien meilleure condition d’âme, et je
 
 J’étais aussi avec vous ce soir et j’ai vu l’impression que le prédicateur a exercé sur vous lorsqu’il a présenté Samuel tel qu’il était alors, comme un exemple à suivre par les vrais chercheurs après les choses importantes qui mènent à la régénération spirituelle et à la virilité parfaite. Et je fus heureux que vous ayez pu apprécier à quel point le caractère de Samuel était inférieur à ce qui est nécessaire pour faire d’un homme un Ange Divin, ou même un homme parfait. Le prédicateur ne fait pas l’expérience de la vérité de l’Amour Divin dans son âme, et n’a même pas une connaissance intellectuelle de son existence et de son fonctionnement. Il croit que je suis Dieu, et que mon sang lave les péchés de tous les hommes qui croient en moi ; et ainsi, pensant, il est satisfait de se reposer sur la promesse des Évangiles, qu’il accepte comme mes vrais enseignements.
 
-Samuel est maintenant ici, et il était avec vous à l’église. Il s’est rendu compte à quel point il était dépourvu, à l’époque dont parlait le prédicateur, de ce qui était nécessaire à son salut. Et que son exigence sur le peuple de l’observer, pour ensuite exprimer toute accusation d’injustice qu’ils pourraient contre lui et sa conduite en tant que serviteur et prophète de l’Éternel (sic). C’est une très jolie histoire et, dans une certaine mesure, elle contient un enseignement des lois morales qui fonctionne pour le bien, mais elle n’est pas plus importante que beaucoup d’autres choses contenues dans l’Ancien Testament. Samuel viendra un jour prochain <sup id="a2">[2](#f2)</sup> et il vous écrira sur sa vie sur terre et sur son ministère en tant que serviteur de Jéhovah.
+Samuel est maintenant ici, et il était avec vous à l’église. Il s’est rendu compte à quel point il était dépourvu, à l’époque dont parlait le prédicateur, de ce qui était nécessaire à son salut. Et que son exigence sur le peuple de l’observer, pour ensuite exprimer toute accusation d’injustice qu’ils pourraient contre lui et sa conduite en tant que serviteur et prophète de l’Éternel (sic). C’est une très jolie histoire et, dans une certaine mesure, elle contient un enseignement des lois morales qui fonctionne pour le bien, mais elle n’est pas plus importante que beaucoup d’autres choses contenues dans l’Ancien Testament. Samuel viendra [un jour prochain](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) et il vous écrira sur sa vie sur terre et sur son ministère en tant que serviteur de Jéhovah.
 
 Eh bien, mon cher frère, je n’écrirai pas plus ce soir, mais je viendrai bientôt pour écrire un message important, dont je sais qu’il vous sera non seulement bénéfique, mais qu’il vous intéressera. Eh bien, je vais écrire sur le sujet que vous suggérez, car c’est une chose importante que les hommes doivent savoir, car beaucoup pensent qu’ils font la volonté de Dieu dans leurs divers cours de vie et dans leurs diverses formes d’adoration. Sa volonté est une volonté qui correspond à toutes les lois qui affectent l’homme de toutes les manières, et les hommes doivent savoir ce qu’est cette volonté.
 
-Je viendrai bientôt et j’écrirai sur ce sujet et j’espère que vous parviendrez à recevoir mon message comme j’ai l’intention de le livrer. Avec mon amour et ma bénédiction, et l’assurance d’être avec vous en tout temps de besoin, et d’essayer de vous diriger dans vos pensées, je vous souhaite une bonne nuit.
+Je viendrai bientôt et j’écrirai sur ce sujet et j’espère que vous parviendrez à recevoir mon message comme j’ai l’intention de le livrer. Avec mon amour et ma bénédiction, et l’assurance d’être avec vous en tout temps de besoin, et d’essayer de vous diriger dans vos pensées, je vous souhaite une bonne nuit.<sup id="a1">[1](#f1)</sup>
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id="a2">[2](#f2)</sup> 
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume IV à la page 160.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le volume II page 276 et dans le volume IV à la page 190. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
-2. <large id="f2"> La référence en bas de page publiée dans le volume II fait référence à un message de Samuel publié dans le volume I à la page 251 ("1ère édition française deNouvelles Révélations sur le Nouveau Testament par Jésus de Nazareth"), mais il s’agit en fait d’un message beaucoup plus ancien que celui de Jésus, donc cela ne peut pas être une référence correcte. Le message reçu de Samuel postérieurement à cette date de l’année 1920 se réfère à un message du 27 Mars 1921 et est publié dans le volume I (1ère édition française de Nouvelles Révélations sur le Nouveau Testament par
-Jésus de Nazareth à la page 167). Ce messages a pour titre [Que s’est -il passé en réalité lors de la crucifixion Jésus ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) (G.J.C.)[↩](#a2)
-
-*Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+2. <large id="f2"> *Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

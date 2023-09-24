@@ -24,4 +24,4 @@ Ta propre vraie et bien aimée Hélène.
 
 1. <large id="f1"> Cette date a été notée, dans l’Index, comme étant le 9 Avril. Si l’on suppose que James Padgett a assisté à une série de conférences données par le Dr Swain, c’est réaliste.[↩](#a1)
 
-2. <large id="f2"> Ces sermons ont également été commentés par [Jésus](fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1919\fr-1919-4-8-1-jep-jesus/) et [Thomas Munroe](fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1919\fr-1919-4-8-2-jep-thomas-munroe/).
+2. <large id="f2"> Ces sermons ont également été commentés par [Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-8-1-jep-jesus/) et [Thomas Munroe](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-8-2-jep-thomas-munroe/).

@@ -23,7 +23,7 @@ Mais maintenant, tout cela fait partie du passé et tu dois oublier ces jours-l�
 
 Ce soir, je t’aime plus que jamais je n’ai pu le faire au cours de ma vie sur terre et je te désire tellement plus. J’ai besoin de tes mots d’amour, de tes baisers et de tes tendres caresses et je veux que tu réalises que mon amour est tout à toi et qu’il est tellement plus profond, plus pur et plus satisfaisant qu’il ne l’a jamais été.
 
-Je sais que tu me désires et que tu réalises parfois à quel point tu m’aimes et que tu n’aimes que moi. Tu as peut-être d’autres amours terrestres qui peuvent t’aider dans ton voyage à travers la vie, mais tu découvriras que dès que l’appel te sera lancé pour venir me rejoindre, ces amours te quitteront et ton amour pour moi sera celui qui absorbera tout l’amour. Et il doit en être ainsi, car nous sommes des âmes sœurs et il n’y a pas d’autre amour qui puisse prendre la place de l’amour de deux personnes si étroitement liées.
+Je sais que tu me désires et que tu réalises parfois à quel point tu m’aimes et que tu n’aimes que moi. Tu as peut-être d’autres amours terrestres qui peuvent t’aider dans ton voyage à travers la vie, mais tu découvriras que dès que l’appel te sera lancé pour venir me rejoindre, ces amours te quitteront et ton amour pour moi sera celui qui absorbera tout l’amour. Et il doit en être ainsi, car nous sommes des âmes-sœurs et il n’y a pas d’autre amour qui puisse prendre la place de l’amour de deux personnes si étroitement liées.
 
 J’aimerais pouvoir t’écrire une longue lettre ce soir, mais tu n’es tout simplement pas en bonne condition et j’ai dû faire un effort pour établir le rapport. Mais j’ai vu que tu voulais tellement avoir de mes nouvelles et j’ai donc fait l’effort.
 
@@ -36,4 +36,4 @@ Bonne nuit, mon cher mari.
 Ta sincère et bien-aimée, Hélène.
 <small>
 
-1. <large id="f1"> Ce message n’est pas dans les volumes publiés. Mais c’est le premier de ces messages qui confirme ce qui a été découvert en 2012, à savoir que James et Helen se sont séparés en septembre 1910.[↩](#a1)
+1. <large id="f1"> Ce message n’est pas dans les volumes publiés. Mais c’est le premier de ces messages qui confirme ce qui a été découvert en 2012, à savoir que James et Hélène se sont séparés en Septembre 1910.[↩](#a1)

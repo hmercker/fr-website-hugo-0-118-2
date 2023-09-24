@@ -19,7 +19,7 @@ Ce sujet fut l’objet de nombreux sermons et théories prêchés par les prédi
 
 Non, les hommes ne savent pas vraiment ce que l’immortalité est et, tous les arguments, qu’ils peuvent mettre en avant pour établir la véritable immortalité, ne suffisent pas à convaincre l’esprit clair, calme et sans préjugés quant à sa réelle existence.
 
-Comme il est dit dans le message que vous avez reçu de Jésus <sup id="a2">[2](#f2)</sup>, l’immortalité peut provenir uniquement de ce qui est immortel, et tous les arguments qui tendent simplement à montrer qu’une chose doit être immortelle à cause des désirs ou des intentions de Dieu, ne suffisent pas.
+Comme il est dit dans le message que vous avez reçu de Jésus<sup id="a2">[2](#f2)</sup>, l’immortalité peut provenir uniquement de ce qui est immortel, et tous les arguments qui tendent simplement à montrer qu’une chose doit être immortelle à cause des désirs ou des intentions de Dieu, ne suffisent pas.
 
 Tous les faits qui peuvent être établis comme prémisses, ne suffisent pas à prouver logiquement la conclusion souhaitée à établir et les hommes ne peuvent dépendre de cette méthode de raisonnement.
 
@@ -42,9 +42,9 @@ Je suis heureux d’avoir pu vous écrire à nouveau, et que votre état de sant
 Votre frère en Christ, Luc.
 <small>
 
-1. <large id="f1"> La date de ce message est le 17 avril 1922, qui est seulement connue par référence au document manuscrit original.[↩](#a1)
+1. <large id="f1"> La date de ce message est seulement connue par référence au document manuscrit original. Il est le dernier message connu à ce jour de James Padgett.[↩](#a1)
 
-2. <large id="f2"> Il y a deux messages de Jésus et un message de Henry Ward Beecher sur l’immortalité.[↩](#a2) 
+2. <large id="f2"> Il y a deux autres messages de Jésus et un message de Henry Ward Beecher sur l’immortalité.[↩](#a2) 
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -25,6 +25,6 @@ Je suis heureuse de te dire que tu es en meilleure condition ce soir pour recevo
 
 Nous t’aimons tous beaucoup et nous essayons de t’aider de toutes les manières possibles. L’esprit qui te conseille dans tes affaires matérielles était ici ce soir, désireux de t’écrire, mais il est maintenant parti. Il a cependant dit qu’il est du même avis mais tu dois être un peu prudent dans ton estimation du marché, car il se peut qu’il n’atteigne pas le sommet dont il t’a parlé la première fois, qu’il y a eu un grand volume d’actions vendues ou achetées récemment et que le point culminant pourrait arriver un peu plus tôt qu’il ne le pensait au début. Il viendra demain soir et parlera pour lui-même.
 
-Bébé veut écrire, et je lui ai dit que bientôt elle le fera. Je n’écrirai plus maintenant. Alors, mon chéri, je te souhaite une bonne nuit. Va te coucher.
+Bébé veut écrire, et je lui ai dit que [bientôt elle le fera](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-25-1-jep-nita-padgett/). Je n’écrirai plus maintenant. Alors, mon chéri, je te souhaite une bonne nuit. Va te coucher.
 
 Ta vraie et affectueuse, Hélène.

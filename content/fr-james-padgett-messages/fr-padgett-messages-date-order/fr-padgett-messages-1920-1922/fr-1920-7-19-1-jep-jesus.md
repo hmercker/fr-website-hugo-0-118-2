@@ -22,3 +22,4 @@ Je vous parlerai d’un fait qui peut vous être utile à tous les deux, à savo
 Très bientôt, je reviendrai et j’écrirai de nouveau sur les grandes vérités vitales du Père que l’homme doit nécessairement saisir et comprendre. Gardez votre foi et priez le Père, et demandez une effusion toujours plus grande de cet amour, et vous serez comme l’homme qui, à la dérive en mer, se rend compte qu’autour de lui sont ces choses qui le sauveront et le ramèneront en sécurité sur la rive. Je n’écrirai pas plus maintenant. Bonne nuit, et que Dieu vous bénisse tous les deux.
 
 Votre frère et ami, Jésus.
+

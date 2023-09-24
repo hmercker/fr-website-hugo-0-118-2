@@ -29,18 +29,18 @@ Cependant l’Esprit Saint, en tant que partie de l’Esprit de Dieu, en est tou
 
 Le sujet de son fonctionnement est l’Amour Divin de l’Âme du Père et l’objet de son fonctionnement est l’âme de l’homme, et l’objectif essentiel à atteindre par ses opérations est la transformation de l’âme de l’homme dans la Substance de l’Amour du Père, avec l’Immortalité comme nécessaire accompagnement. C’est le grand miracle de l’univers; et sa transformation est si élevée, sacrée et miséricordieuse, que nous appelons la partie de l’Esprit de Dieu qui fonctionne ainsi, l’Esprit Saint.
 
-Ne laissez donc pas les enseignants ou les prédicateurs enseigner, ou leurs auditeurs croire, que chaque partie de l’Esprit de Dieu qui agit sur le cœur, les pensées et les sentiments de l’homme est l’Esprit Saint, car ce n’est pas vrai. Sa mission est le salut des hommes dans une  telle harmonie avec Dieu, que les âmes mêmes des hommes deviendront une partie de la substance et non simplement l’image de l’âme de Dieu et sans ce travail de l’Esprit Saint les hommes ne peuvent pas atteindre une telle union.
+Ne laissez donc pas les enseignants ou les prédicateurs enseigner, ou leurs auditeurs croire, que chaque partie de l’Esprit de Dieu qui agit sur le cœur, les pensées et les sentiments de l’homme est l’Esprit Saint, car ce n’est pas vrai. Sa mission est le salut des hommes dans une telle harmonie avec Dieu, que les âmes mêmes des hommes deviendront une partie de la substance et non simplement l’image de l’âme de Dieu et sans ce travail de l’Esprit Saint les hommes ne peuvent pas atteindre une telle union.
 
-Je vous ai écrit auparavant sur le fonctionnement de l’Esprit Saint, sur la manière dont il peut apporter aux hommes l’Amour Divin du Père, et sur ce que les hommes doivent faire pour sa venue. Le chemin décrit décrit est le seul chemin possible. Les hommes ne doivent pas croire et se reposer dans la sécurité de la croyance que tout travail de l’Esprit de Dieu est le fonctionnement de l’Esprit Saint.
+Je vous ai écrit auparavant sur le fonctionnement de l’Esprit Saint, sur la manière dont il peut apporter aux hommes l’Amour Divin du Père, et sur ce que les hommes doivent faire pour sa venue. Le chemin décrit est le seul chemin possible. Les hommes ne doivent pas croire et se reposer dans la sécurité de la croyance que tout travail de l’Esprit de Dieu est le fonctionnement de l’Esprit Saint.
 
 > A moins qu’un homme naisse de nouveau, il ne peut entrer dans le Royaume de Dieu, 
 
-et cette réalisation n’est possible que par l’action de l’Esprit Saint.
+et cette réalisation n’est possible que par l’action de l’Esprit Saint.[Jean 3:3](https://saintebible.com/john/3-3.htm)
 
 Oh, prédicateur, sur lequel repose une grande responsabilité, apprenez la vérité et conduisez les hommes dans la voie du salut. Je ne vais pas écrire plus maintenant, mais je reviendrai et je délivrerai un autre message. Croyez que je vous aime et que je suis votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
 <small>
 
-1. <large id=”f1”> Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Jean ou Luc. Is sont listés c-dessous.[↩](#a1)
+1. <large id=”f1”> Plusieurs autre messages relatifs au sujet de l’Esprit Saint ont été communiqués par Anne Rollins, jésus, Jean ou Luc. Is sont listés c-dessous.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

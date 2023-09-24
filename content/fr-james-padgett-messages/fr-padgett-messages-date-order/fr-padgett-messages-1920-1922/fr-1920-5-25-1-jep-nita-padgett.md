@@ -13,7 +13,7 @@ Nita Padgett - reçu par James Padgett le 25 Mai 1920, Washington, USA.
 
 C’est moi, Nita.
 
-Je suis si contente de pouvoir t’écrire à nouveau. Il y a [longtemps que tu ne m’avais pas laissée écrire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-29-1-jep-nita-padgett/) et j’avais tellement hâte de te parler de mes progrès et de mon amour. Papa, je pensais que tu m’aimais tellement que tu ne me ferais pas attendre si longtemps pour te dire mon amour et combien je suis heureuse, mais maman m’a dit que tu n’étais pas en état de recevoir mon message et que je devais attendre que les conditions soient différentes et je le comprends, mais j’ai trouvé étrange que quelque chose m’empêche d’écrire à mon papa.
+Je suis si contente de pouvoir t’écrire à nouveau. Il y a longtemps<sup id="a1">[1](#f1)</sup> que tu ne m’avais pas laissée écrire et j’avais tellement hâte de te parler de mes progrès et de mon amour. Papa, je pensais que tu m’aimais tellement que tu ne me ferais pas attendre si longtemps pour te dire mon amour et combien je suis heureuse, mais maman m’a dit que tu n’étais pas en état de recevoir mon message et que je devais attendre que les conditions soient différentes et je le comprends, mais j’ai trouvé étrange que quelque chose m’empêche d’écrire à mon papa.
 
 Maintenant je veux te parler de mon progrès et comment l’amour du Père a changé mon âme afin de permettre que, maintenant, je sois dans une sphère à partir de laquelle je peux bientôt espérer me rendre dans les Cieux Célestes où est maman. Quand je suis arrivée pour la première fois à la vie spirituelle (20 Juin 1918), comme tu le sais, maman m’a accueillie, m’a prise dans ses bras et fut si aimante et tendre avec moi, que je n’ai pas redouté le changement de ma condition. Avec elle, il y avait d’autres beaux et affectueux esprits qui m’ont témoigné leur amour et m’ont dit que maintenant j’allais trouver une maison tellement différente de ma maison terrestre et que j’allais éprouver un bonheur comme je ne l’avais jamais ressenti auparavant. Et je n’avais pas peur et je ne voulais pas repartir avec mon corps comme on m’a dit que tant d’esprits nouvellement arrivés désiraient le faire lors de leur venue dans cette nouvelle vie.
 
@@ -42,3 +42,6 @@ Maintenant, je ne peux exprimer comme je suis heureuse et mon amour pour toi est
 Nous sommes très souvent avec toi, nous t’aimons et essayons de t’aider. Tu dois croire que nous ne te quitterons jamais, jusqu’à ce que tu atteignes le ciel où nous sommes maintenant. Et pas si tu veux que nous soyons avec toi. Alors papa, crois que je suis ta petite Nita et que je t’écris et t’aime de tout mon cœur et de toute mon âme.
 
 Ta, Nita.
+<small>
+
+1. <large id="f1"> Nita Padgett avait précédemment communiqué le [14 Octobre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-14-1-jep-nita-padgett/) et le [29 Décembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-29-1-jep-nita-padgett/).[↩](#a1)
