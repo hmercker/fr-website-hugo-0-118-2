@@ -50,7 +50,7 @@ Je ne dois pas écrire plus ce soir. Je suis satisfait de l’exactitude de votr
 Avec tout mon amour et mes bénédictions, je suis votre frère et votre ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a1)
+1. <large id=”f1”> *Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

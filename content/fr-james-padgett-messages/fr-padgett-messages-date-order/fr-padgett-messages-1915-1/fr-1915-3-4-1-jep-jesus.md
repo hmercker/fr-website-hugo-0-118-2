@@ -47,6 +47,6 @@ Comme vous êtes fatigué, je dois m’arrêter.
 Avec toutes mes bénédictions et mon amour, je suis votre frère en esprit, Jésus.
 <small>
 -
-1. <large id="f1"> Ce message est également publié dans le Vol. II, 1ère édition, française, page 26 et et dans le volume III à la page 93. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Vol. II, 1ère édition, française, page 26 et et dans le volume III à la page 93. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).↩](#a1)
 
 

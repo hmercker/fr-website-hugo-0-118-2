@@ -11,7 +11,7 @@ weight:
 
 Caligula - reçu par James Padgett le 11 Octobre 1915, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/Caligula.jpg)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-caligula.jpg)
 
 Je suis Caligula.
 

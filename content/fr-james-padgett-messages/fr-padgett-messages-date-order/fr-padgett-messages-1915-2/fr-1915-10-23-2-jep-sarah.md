@@ -27,9 +27,10 @@ Oui, je vois un grand nombre de beaux esprits autour de vous, et certains des ap
 
 Je dois arrêter maintenant, mais croyez que je suis Sarah comme je vous l’ai dit. Je vais vous quitter et vous souhaiter bonne nuit.
 
-Votre sœur en Christ, Sarah, la femme d’Abraham.
+Votre sœur en Christ, Sarah, la femme d’Abraham.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note :  Diverses personnalités historiques partagent également leur progression vers les Cieux Célestes :*
+1. <large id=”f1”> *Diverses personnalités historiques partagent également leur progression vers les Cieux Célestes :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

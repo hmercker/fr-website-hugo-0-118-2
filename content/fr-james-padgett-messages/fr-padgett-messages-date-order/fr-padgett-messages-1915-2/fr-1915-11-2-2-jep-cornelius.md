@@ -9,9 +9,9 @@ weight:
 ---
 ### Corneille : Discours sur l’âme
 
-Cornelius - reçu par James Padgett le 2 Novembre 1915, Washington, USA.
+Corneille - reçu par James Padgett le 2 Novembre 1915, Washington, USA.
 
-Saint Cornelius – Le premier Chrétien païen.
+Saint Corneille – Le premier Chrétien païen.
 
 Je ne dirai qu’un mot quant à l’âme. J’ai entendu [ce que Matthieu a dit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-2-1-jep-st-matthew/), et il me semble qu’il n’a pas décrit ce que l’âme est aussi clairement qu’il est souhaitable.
 
@@ -21,4 +21,4 @@ L’âme n’a besoin d’aucune instruction des simples sens physiques parce qu
 
 Je ne vais pas écrire plus ce soir, mais je reviendrai.
 
-Votre frère en Christ, Saint Cornelius.
+Votre frère en Christ, Saint Corneille.

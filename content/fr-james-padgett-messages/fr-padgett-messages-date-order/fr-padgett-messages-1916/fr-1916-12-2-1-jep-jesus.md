@@ -27,16 +27,13 @@ Que votre prière soit comme suit :
 > Je sais que je suis la plus grande de Tes créations, la plus merveilleuse de toutes Tes œuvres et l’objet de Ton Amour et de Tes tendres soins.
 <br>
 <br>
-> Ta volonté est que je m’unisse à Toi et que je reçoive Ton grand Amour que tu m’as offert par Ta Miséricorde et Ton Désir que je devienne, en vérité, Ton enfant à travers Ton Amour et non pas à travers le sacrifice et la mort d’aucune de Tes créatures, même ci certains croient qu’un homme puisse être ton égal en puissance et en gloire.
+> Je sais  que Ta volonté est que je m’unisse à Toi et que je reçoive Ton grand Amour que tu m’as offert par Ta Miséricorde et Ton Désir que je devienne, en vérité, Ton enfant à travers Ton Amour et non pas à travers le sacrifice et la mort d’aucune de Tes créatures, même ci certains croient qu’un homme puisse être ton égal en puissance et en gloire.
 <br>
 <br>
-> Je prie que Tu ouvres mon âme pour que Ton Amour y afflue et qu’alors vienne Ton Esprit Saint pour apporter, dans mon âme, Ton Amour Divin en grande abondance jusqu’à ce que mon âme se transforme en Ton Essence véritable et qu’ainsi me vienne la foi – une foi telle qu’elle me fasse réaliser que je suis véritablement Ton enfant dont l’âme humaine a été consacrée par Ta Substance même en une âme divine.
+> Je prie que Tu ouvres mon âme à l'afflux de Ton Amour et qu’alors vienne Ton Esprit Saint pour apporter, dans mon âme, Ton Amour Divin en grande abondance jusqu’à ce que mon âme se transforme en Ton Essence véritable et qu’ainsi me vienne la foi – une foi telle qu’elle me fasse réaliser que je suis véritablement Ton enfant dont l’âme humaine a été consacrée par Ta Substance même en une âme divine.
 <br>
 <br>
-> Donne-moi la foi qui me fasse prendre conscience que Tu es mon Père et la Source de tout don parfait et que ce n’est que moi-même qui puisse empêcher ma transformation de mortel à immortel ;
-<br>
-<br>
-> et que je réalise toujours que Ton Amour m’attend et lorsque je viens à Toi avec foi et sincérité, Tu ne me refuses jamais Ton Amour.
+> Donne-moi la foi qui me fasse prendre conscience que Tu es mon Père et la Source de tout don parfait et que ce n’est que moi-même qui puisse empêcher ma transformation de mortel à immortel et aide-moi à toujours réaliser que Ton Amour m’attend et lorsque je viens à Toi avec foi et sincérité, Tu ne me refuses jamais Ton Amour.
 <br>
 <br>
 > Garde-moi dans l’ombre de Ton Amour à chaque heure et à chaque moment de ma vie et aide-moi à surmonter toutes les tentations de la chair et l’influence des esprits malfaisants qui m’entourent constamment et qui essaient de détourner mes pensées de Toi vers les plaisirs et les tentations de ce monde.
@@ -56,7 +53,7 @@ Votre frère et ami,
 Jésus.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
-1. <large id=”f1”> [Il est possible d'écouter la narration de cette prière [par l'intermédiaire de ce lien](https://www.youtube.com/watch?v=viwN9wsCMfw). Cette prière est classée 1200 sur la carte de la conscience du Dr David R. Hawkins ! !! (1000 étant un état de pure conscience)[↩](#a1)
+1. <large id=”f1”> Il est possible d'écouter la narration de cette prière [par l'intermédiaire de ce lien](https://www.youtube.com/watch?v=viwN9wsCMfw). Cette prière est classée 1200 sur la carte de la conscience du Dr David R. Hawkins ! !! (1000 étant un état de pure conscience)[↩](#a1)
 
 2. <large id=”f2”> Dans [une très belle vidéo réalisée](https://www.youtube.com/watch?v=m4WdGwt-X9A) par Care Darby Walsh qui est disponible sur YouTube, il est possible d’écouter la narration de la version originale de cette prière en anglais.
 Il est également possible, toujours en anglais, de visualiser une seconde vidéo relative à la prière de l'Amour Divin. J'apprécie particulièrement cette seconde vidéo car ke trouve que l'accompagnement musical est juste maginifique. Vous pouvez visualiser cette seconde par [l'intermédiaire de ce lien](https://www.youtube.com/watch?v=Pg6p3rivAZw&t=127s

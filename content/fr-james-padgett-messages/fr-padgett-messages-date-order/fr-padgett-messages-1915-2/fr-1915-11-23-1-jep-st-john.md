@@ -37,13 +37,11 @@ Bien sûr, la phase susmentionnée d’assistance aux Esprits est de la forme la
 
 Lorsqu’un esprit sombre apprend de ce Grand Amour, s’efforce de l’obtenir et prie avec ferveur pour l’aide de l’Esprit Saint, qui est le Messager de Dieu de l’Amour, il va progresser beaucoup plus rapidement, et abandonnera bientôt ses souffrances et l’obscurité et il connaîtra un grand bonheur.
 
-Mais j’insiste encore que le travail de ces esprits inférieurs, dont j’ai parlé, est une grande œuvre et ne doit pas être sous-estimé. Souvenez-vous donc de ce que j’ai écrit et accordez tout le crédit qu’il convient à ce travail.
+Mais j’insiste encore que le travail de ces esprits inférieurs, dont j’ai parlé, est une grande œuvre et ne doit pas être sous-estimé. Souvenez-vous donc de ce que j’ai écrit et accordez tout le crédit qu’il convient à ce travail.<sup id=”2”>[2](#f2)</sup>
 
-Je n’écrirai pas plus maintenant<sup id=”a2”>[2](#f2)</sup> et, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
+Je n’écrirai pas plus maintenant<sup id=”a3”>[3](#f3)</sup> et, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Saint Jean.<sup id=”3”>[3](#f3)</sup>
-
-*Note : Ce message a été complété par Jésus le [08 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-8-1-jep-jesus/) afin d'expliquer les conditions requises afin que cette aide puisse être effective*
+Votre frère en Christ, Saint Jean.<sup id=”4”>[4](#f4)</sup>
 <small>
 
 1. <large id=”f1”>  La loi de péréquation est une loi spirituelle très importante qui stipule qu'à son arrivée dans le monde spirituel, l'âme doit rejoindre le plan spirituel qui correspond à son niveau spirituel. Cette loi exprime un autre aspect de la loi d'attraction et de nombreux messages y font référence. Dans le monde économique, la péréquation est définie comme une juste répartition des charges ou, selon Wikipédia, un système de redistribution des ressources financières entre plusieurs personnes publiques.[↩](#a1)
@@ -51,3 +49,5 @@ Votre frère en Christ, Saint Jean.<sup id=”3”>[3](#f3)</sup>
 2. <large id=”f2”> Jean s'est exprimé sur la réalité des enfers le [19 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-19-1-jep-st-john/).[↩](#a2)
 
 3. <large id=”f3”> Afin d'atténuer son message sur la réalité des enfers, Jean a tenu à préciser, dans un message communiqué le [19 Novembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-19-1-jep-st-john/), que personne ne souffrira en enfer pour l'éternité.[↩](#a3)
+
+4. <large id=”f4”> *Ce message a été complété par Jésus le [08 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-8-1-jep-jesus/) afin d'expliquer les conditions requises afin que cette aide puisse être effective*.[↩](#a4)

@@ -21,7 +21,7 @@ Je sais que les doctrines Chrétiennes contenues dans la Bible, et enseignées p
 
 Je vous écris simplement pour vous montrer qu’il est de la plus haute importance que les vérités de la voie du salut soient révélées à toute l’humanité. Je ne pense pas avoir quelque chose de plus à dire ce soir, et donc je vais vous quitter. Avec tout mon amour, je suis
 
-Votre frère en Christ, Cornelius.<sup id="a1">[1](#f1)</sup>
+Votre frère en Christ, Corneille.<sup id="a1">[1](#f1)</sup>
 <small>
 
 1. <large id="f1"> Ce message est publié dans le Volume 1, première édition française, à la page 274 et dans le volume II à la page 459. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

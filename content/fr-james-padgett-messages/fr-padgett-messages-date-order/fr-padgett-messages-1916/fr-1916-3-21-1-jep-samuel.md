@@ -41,4 +41,4 @@ On peut dire que la vie imprègne toute la nature et est le fondement de toute e
 
 Ainsi, pour montrer à l’homme qu’il y a une existence continue après la mort du corps – et je veux dire une existence individuelle, identique – il faut quelque chose de plus que l’argument de l’analogie avec la nature, ou aux choses matérielles de la nature, dans laquelle la vie apparaît, disparaît apparemment ensuite avant de réapparaître. Étant donné que la discussion de cette phase du sujet exige plus de temps que vous n’en avez ce soir pour la recevoir, [je vais reporter son traitement à plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-30-1-jep-samuel/). Avec tout mon amour, je vous souhaite une bonne nuit.
 
-Votre en Christ, Samuel.
+Votre frère en Christ, Samuel.

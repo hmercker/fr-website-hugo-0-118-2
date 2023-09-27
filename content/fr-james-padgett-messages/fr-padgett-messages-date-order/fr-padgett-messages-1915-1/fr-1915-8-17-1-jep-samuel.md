@@ -1,4 +1,4 @@
-[---
+---
 title: "Samuel – Décrit les Cieux Célestes"
 menu_title: ""
 description: "Samuel – Décrit les Cieux Célestes"
@@ -38,4 +38,3 @@ Non, il n’y a pas de rues pavées d’or ou de murs de jaspe, ni aucune de ces
 Je n’écrirai pas plus ce soir, mais je reviendrai un jour vous parler de choses qui sont plus importantes qu’une description de nos maisons.
 
 Avec tout mon amour, je suis votre frère en Christ, Samuel.
-]

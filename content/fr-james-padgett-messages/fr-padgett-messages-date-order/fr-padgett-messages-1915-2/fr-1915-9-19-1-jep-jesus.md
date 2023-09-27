@@ -23,12 +23,12 @@ Oui, je sais que c’est ce que tous les orthodoxes croient, mais cela n’en fa
 
 Ainsi, avec l’assurance que je suis avec vous très souvent, et que je vous guiderai dans les voies de la vérité, je vais m’arrêter.
 
-Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+Votre frère et ami, Jésus.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Ce message est publié dans le Volume II, première édition française, à la page 226 et dans le volume III à la page 240. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
-*Note 2:  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+2. <large id="f2"> *Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

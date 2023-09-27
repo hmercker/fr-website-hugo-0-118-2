@@ -21,4 +21,4 @@ Tes prières ne sont pas futiles, même en ce qui concerne ces choses matériell
 
 Nous pouvons voir certaines choses avant qu’elles n’aient une existence dans le monde physique, et nous pouvons t’en parler. Et lorsque nous croyons que certaines choses se produiront, nous te le disons, cependant lorsqu’elles ne se produisent pas, nous sommes tout autant déçus que toi.
 
-Ta propre vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.

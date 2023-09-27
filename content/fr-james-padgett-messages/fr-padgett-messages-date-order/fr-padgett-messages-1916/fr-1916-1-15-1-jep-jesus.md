@@ -42,9 +42,10 @@ L’homme, dans sa création, n’a pas connu la lenteur de la croissance comme 
 
 Je m’arrêterai pour le présent.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*
+1. <large id="f1"> *Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène raconte comment elle a aimé les lettres d’amour de Ned <sup id="a1">[1](#f1)</sup>
+### Hélène raconte comment elle a aimé les lettres d’amour de Ned<sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 2 Novembre 1921, Washington, USA.
 

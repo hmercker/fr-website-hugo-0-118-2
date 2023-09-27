@@ -11,8 +11,6 @@ weight:
 
 John Layton - reçu par James Padgett le 1 Octobre 1915, Washington, USA.
 
-Layton.
-
 Je vous ai déjà écrit une fois à votre bureau et j’ai été interrompu avant de pouvoir terminer.
 
 Je veux simplement dire ce soir que tout ce que les esprits vous ont écrit, sur le magnifique pouvoir et la gloire du Maître, est vrai, et cependant ne représentent pas la moitié de ce qui doit vous être révélé.

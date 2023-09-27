@@ -42,12 +42,12 @@ Je n’expliquerai pas ici la manière dont les hommes doivent se préparer à e
 
 Comme il est tard, je dois arrêter d’écrire, et avec tout mon amour et mes bénédictions et les bénédictions du Père, je vous souhaiterai bonne nuit.
 
-Votre ami et votre frère, Jésus.
+Votre ami et votre frère, Jésus.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> La date qui était originellement le 5 Juin a été changée au 4 Juin, en raison de la mention « hier soir » sur un autre message.[↩](#a1)
 
-*Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
+2. <large id="f2"> *Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

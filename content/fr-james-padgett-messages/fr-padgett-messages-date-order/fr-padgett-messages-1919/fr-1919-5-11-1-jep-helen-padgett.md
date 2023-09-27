@@ -25,4 +25,4 @@ Il y avait un certain nombre d’esprits présents avec toi, désireux d’enten
 
 Je suis si heureuse de pouvoir t’écrire de nouveau, de te parler de mon amour et de t’assurer des vérités qui t’ont déjà été révélées. Je n’écrirai pas plus ce soir. Nous t’aimons tous, et avec mon amour, je te souhaite une bonne nuit.
 
-Ta propre vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.

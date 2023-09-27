@@ -31,9 +31,10 @@ Le récit de leur chute fut, bien sûr, connu de leurs descendants immédiats et
 
 Je ne dois pas écrire plus ce soir. Alors, en me souvenant de ce que vous dites, je suis votre frère en Christ.
 
-Jean – Apôtre de Jésus.
+Jean – Apôtre de Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*
+1. <large id=”f1”> *Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -21,4 +21,4 @@ Le Maître était avec toi aujourd’hui et s’est réjouit de ta façon de pen
 
 Comme tu as été sollicité sur beaucoup de choses ce soir, je n’écrirai pas plus maintenant, et je dirai seulement que nous t’aimons tous et que nous serons avec toi pour t’aider dans tes pensées. Alors, aime-nous et souhaite-nous bonne nuit.
 
-Ta propre vraie et aimante Hélène.
+Ta vraie et bien aimée Hélène.

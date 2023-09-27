@@ -46,6 +46,6 @@ Je n’écrirai pas plus maintenant.
 Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-<large id=”f1”> Dans [ce message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-23-3-jep-judas/), Judas explique pourquoi il a trahi Jésus.[↩](#a1)
+1. <large id=”f1”> Dans [ce message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-23-3-jep-judas/), Judas explique pourquoi il a trahi Jésus.[↩](#a1)
 
 

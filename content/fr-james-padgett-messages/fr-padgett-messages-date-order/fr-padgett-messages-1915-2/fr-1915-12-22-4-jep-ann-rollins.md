@@ -37,12 +37,12 @@ J’aimerais écrire plus ce soir, mais il est tard, et tu es fatigué.
 
 Je te souhaite, avec tout mon amour, une bonne nuit.
 
-Ta propre grand-mère bien-aimée.
+Ta propre grand-mère bien-aimée.<sup id=”a2”>[2](#f2)</sup
 <small>
 
 1. <large id="f1"> Ceci fait référence au livre du Dr Peebles « Immortalité » – et Anne Rollins doute que les expériences du Dr Pierce qui y sont décrites soient exactes.[↩](#a1)
 
-*Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :* 
+2. <large id="f2"> *Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

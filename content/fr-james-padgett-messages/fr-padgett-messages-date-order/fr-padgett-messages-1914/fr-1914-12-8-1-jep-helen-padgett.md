@@ -43,4 +43,4 @@ Nous dépendons tous du degré d’amour dans nos âmes pour l’apparence de no
 
 Efforce toi d’obtenir, autant que tu peux, tout cet Amour, et si tu réussis à en obtenir autant que moi, tu seras un avec moi et nous serons ensemble dans notre maison. Si tu ne le fais pas, je devrai attendre que tu le fasses avant que nous puissions vivre ensemble. Essaies donc d’obtenir tout l’Amour de Dieu que tu peux. Si tu ne consacres tes pensées qu’aux choses spirituelles, et si tu laisses ton âme s’ouvrir à l’afflux de cet Amour en priant avec sincérité, tu pourras progresser aussi rapidement que moi. Alors, aime-moi suffisamment et exprime ta volonté d’être avec moi en essayant de tout cœur d’obtenir cet Amour.
 
-Ta propre vraie femme, Hélène.
+Ta vraie et bien aimée épouse, Hélène.

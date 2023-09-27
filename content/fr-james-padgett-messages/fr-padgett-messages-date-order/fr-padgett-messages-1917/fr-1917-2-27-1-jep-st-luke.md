@@ -44,5 +44,5 @@ Je ne pense pas qu’il soit approprié d’écrire davantage maintenant, mais j
 Votre frère en Christ, Luc.<sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id="f1"> Jésus s'est également exprimé sur le sujet de la guerre le [24 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-24-1-jep-jesus/).[↩](#a1)
+1. <large id="f1"> Jésus s'est également exprimé sur le sujet de la guerre le [24 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-24-1-jep-jesus/). L'ensemble des messages relatifs à la première guerre mondialz sont disponibles par l'intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)
 

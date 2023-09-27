@@ -27,12 +27,12 @@ Oui, j’ai rencontré des esprits que je connaissais sur terre, mais pas beauco
 
 Eh bien, je ne dois pas écrire plus ce soir car tu n’es pas en état d’écrire plus longtemps. Ainsi donc, avec tout mon amour, qui est tellement plus grand que lorsque je t’ai écrit la dernière fois, je suis ta propre grand-mère vraie et aimante.
 
-Anne Rollins.
+Anne Rollins.<sup id="a2">[2](#f3)</sup>
 <small>
 
-1. <large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 71 et dans le volume III à la page 138. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1) <large id="f1"
+1. <large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 71 et dans le volume III à la page 138. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
-*Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :* 
+2. <large id="f2"> *Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :*[↩](#a2) 
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

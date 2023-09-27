@@ -27,9 +27,11 @@ Alors, avec tout le grand amour qui est le mien, je vous souhaiterai une bonne n
 Votre ami et votre frère, Jésus.<sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id="f1"> M. Padgett m’a dit que lorsqu’il priait juste avant de se retirer la nuit, il voyait parfois Jésus priant à côté de lui.[
+1. <large id="f1"> M. Padgett m’a dit que lorsqu’il priait juste avant de se retirer la nuit, il voyait parfois Jésus priant à côté de lui.[↩](#a1)
 
-2. <large id="f2"> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*↩](#a2)
+2. <large id="f2"> Ce message est publié dans le Volume II, première édition française, à la page 243 et dans le volume III à la page 134. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a2)
+
+3. <large id="f3"> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*[↩](#a3)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -44,7 +46,7 @@ Jésus | [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-mess
 Jésus | [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/) | 06 Novembre 1917
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
 
-3. <large id="f3"> Ce message est publié dans le Volume II, première édition française, à la page 243 et dans le volume III à la page 134. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a3)
+
 
 
 

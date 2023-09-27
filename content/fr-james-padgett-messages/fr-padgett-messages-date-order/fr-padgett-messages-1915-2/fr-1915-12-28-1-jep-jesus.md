@@ -33,9 +33,10 @@ J’ajouterai seulement que je suis avec vous, essayant de vous influencer afin 
 
 Je n’écrirai pas plus, mais je dirai avec tout mon amour que je suis, votre frère et ami.
 
-Jésus.
+Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note 2 : Jésus s’est également exprimé sur le sujet de la prière dans les messages suivants :*
+1. <large id=”f1”> *Jésus s’est également exprimé sur le sujet de la prière dans les messages suivants :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

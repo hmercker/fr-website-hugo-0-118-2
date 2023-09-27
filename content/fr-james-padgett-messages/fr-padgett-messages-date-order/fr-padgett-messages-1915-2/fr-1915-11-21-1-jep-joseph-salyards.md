@@ -31,9 +31,10 @@ Je pense avoir assez écrit pour ce soir, et si vous lisez attentivement ce que 
 
 Alors, en vous exprimant ma satisfaction et mon plaisir d’avoir pu revenir vers vous et que vous ayez reçu mes idées sur qui est notre Père, et pour avoir aussi eu la possibilité de déclarer que Dieu est un être, ayant une existence propre, compréhensible par les perceptions de l’âme des rachetés de ses créatures, je vous dirai, bonne nuit.
 
-Votre ancien professeur et frère en Christ, Joseph H. Salyards.
+Votre ancien professeur et frère en Christ, Joseph H. Salyards.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*
+1. <large id=”f1”> *Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

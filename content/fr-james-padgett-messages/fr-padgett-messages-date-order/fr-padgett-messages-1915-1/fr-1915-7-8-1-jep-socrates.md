@@ -61,13 +61,14 @@ Pouvez-vous vous étonner que je sois devenu un Chrétien et un de ses disciples
 
 Je suis maintenant dans une sphère qui n’est pas numérotée; mais est très élevée dans les Cieux Célestes, et non loin de quelques-unes des sphères où vivent les disciples du Maître. Je progresse toujours, et c’est la beauté et la gloire du développement de l’âme – où il n’y a pas de limite – alors que mon développement intellectuel était limité.
 
-Je dois arrêter maintenant car j’ai écrit plus que je n’aurais dû le faire. Mais je reviendrai vers vous prochainement pour vous parler de certaines des vérités que j’ai apprises.
+Je dois arrêter maintenant car j’ai écrit plus que je n’aurais dû le faire. Mais je reviendrai vers vous prochainement pour vous parler de certaines des vérités que j’ai apprises.<sup id=”a1”>[1](#f1)</sup>
 
-Votre ami et frère, Socrate : le philosophe grec d’autrefois, mais maintenant un Chrétien.
+Votre ami et frère, Socrate : le philosophe grec d’autrefois, mais maintenant un Chrétien.<sup id=”a2”>[2](#f2)</sup>
+<small>
 
-[Un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) a été reçu de Socrate.
+1. <large id=”f1”> [Un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) a été reçu de Socrate.[↩](#a1)
 
-*Note :  Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*
+2. <large id=”f2”> *Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

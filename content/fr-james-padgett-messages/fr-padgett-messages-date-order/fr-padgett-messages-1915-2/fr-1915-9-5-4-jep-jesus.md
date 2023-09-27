@@ -23,14 +23,13 @@ Je vois que vous obteniez plus de l’Amour Divin dans votre âme et que vos yeu
 
 Je vous aime comme mon cher frère et disciple, et je ne vous abandonnerai pas et ne vous permettrai pas de le désirer. Toutes les choses vous seront fournies ainsi que la maison que vous avez en tête. Je connais vos pensées lorsque vous marchiez dans le parc en faisant référence à une maison et à mon travail, et vous réaliserez vos désirs à cet égard.
 
-Donc, avec tout mon amour, je suis votre frère et votre ami, Jésus.
+Donc, avec tout mon amour, je suis votre frère et votre ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
 
 <small>
 
 1. <large id="f1"> Ce message est publié dans le Volume II, première édition française, à la page 175 et dans le volume IV à la page 453. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
-
-*Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+2. <large id="f2">*Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -45,7 +45,7 @@ La vie sur terre est une partie importante de la grande éternité de la vie, et
 
 Ainsi beaucoup d'esprits se contentent de demeurer dans le bonheur de leur amour naturel, et refusent d'être convaincus qu'il existe un plus grand Amour et bonheur qui les attend dans le Royaume du Père et qui peut être à eux, s'ils peuvent seulement croire et chercher. Cela je le dis de par ma connaissance de la vraie condition des esprits dans le monde des esprits, et de la difficulté rencontrée par les esprits rachetés dans leurs efforts de convaincre ces esprits qui apprécient le bonheur de leur amour naturel qu'il existe une sphère plus heureuse et meilleure dans laquelle ils peuvent vivre, s'ils cherchent l'Amour Divin du Père.
 
-Durant ma vie sur terre, j'ai dit **« Étroite est la porte et resserré est le chemin qui mène à la vie éternelle, et peu les trouvent. »** Et cette énonciation s'applique aussi bien au monde des esprits qu'au monde matériel.
+Durant ma vie sur terre, j'ai dit [**Étroite est la porte et resserré est le chemin qui mène à la vie éternelle, et peu les trouvent.**](https://saintebible.com/matthew/7-14.htm) Et cette énonciation s'applique aussi bien au monde des esprits qu'au monde matériel.
 
 Alors, permettez-moi d'exhorter tous les hommes à chercher le chemin droit et étroit, car c'est seulement par lui que les hommes peuvent venir à la pleine jouissance de ce que le Père a octroyé pour eux.
 

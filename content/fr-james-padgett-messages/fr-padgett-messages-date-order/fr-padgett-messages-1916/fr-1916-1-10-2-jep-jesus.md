@@ -46,7 +46,7 @@ Alors continuez à prier et à faire confiance au Père et vous réaliserez un m
 Je dois arrêter maintenant. Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1 <large id=”f1”> *Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a1)
+1. <large id=”f1”> *Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

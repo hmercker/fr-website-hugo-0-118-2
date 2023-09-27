@@ -35,9 +35,10 @@ Mais un jour, et dans un proche avenir, ce défaut sera réparé et alors vous v
 
 Pourquoi la grande révélation de cette vérité a-t-elle été si longtemps retardée aux spiritualistes, je ne sais pas, sauf peut-être que l’humanité n’était pas prête à la recevoir auparavant. Cependant, maintenant, le temps est venu ; les fausses croyances des églises orthodoxes ainsi que le manque de croyance des Spiritualistes disparaîtront et les hommes deviendront libres et les possesseurs des vérités combinées du Spiritualisme et de l’existence de l’Amour Divin, qui leur apporte non seulement le bonheur et la paix, mais l’immortalité.
 
-Je ne dois pas écrire plus ce soir car vous êtes fatigué; alors je vais vous dire bonne nuit, votre frère en Christ, Luc.
+Je ne dois pas écrire plus ce soir car vous êtes fatigué; alors je vais vous dire bonne nuit, votre frère en Christ, Luc.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+1. <large id=”f1”> *Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

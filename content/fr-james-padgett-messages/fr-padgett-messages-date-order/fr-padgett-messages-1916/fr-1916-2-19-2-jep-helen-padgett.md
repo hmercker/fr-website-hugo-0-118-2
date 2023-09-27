@@ -19,4 +19,4 @@ Je ne l’avais jamais vu auparavant, [mais il venait des Sphères Célestes](/f
 
 Bonne nuit.
 
-Ta propre vraie et bien-aimée Hélène.
+Ta vraie et bien-aimée Hélène.

@@ -53,12 +53,9 @@ Votre frère en Christ, Jean.<sup id=”a4”>[4](#f4)</sup>
 <small>
 
 1. <large id="f1"> Les expressions monde des esprits ou monde spirituel sont identiques et correspondent à la résidence des esprits après la fin de leur vie terrestre.[↩](#a1)
-
 2. <large id="f2"> De même les termes corps esprit ou corps spirituel sont synonymes. Ils correspondent à « l’enveloppe » qui entoure l’esprit (l’âme) durant sa vie terrestre ou durant sa vie dans l’au-delà.[↩](#a2)
-
 3. <large id="f3"> Le cheminement de l'âme après la mort est traité de façon détaillée [dans ce sujet](/7-fr-life-after-death/7-1-2-fr-getting-the-hell-out-of-here/). Un résumé des sphères que l’homme peut atteindre après la mort [est présenté sur cette page](/7-fr-life-after-death/7-3-fr-the-spirit-heavens-and-the-christian-kingdom-of-god/).↩(#a3)
-
-4. <large id="f4"> Note : Ce message est publié dans le Volume 1, deuxième édition française, à la page 293 et dans le volume III à la page 249 Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).↩(#a43)
+4. <large id="f4"> Ce message est publié dans le Volume 1, deuxième édition française, à la page 293 et dans le volume III à la page 249 Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).↩(#a43)
 
 
 

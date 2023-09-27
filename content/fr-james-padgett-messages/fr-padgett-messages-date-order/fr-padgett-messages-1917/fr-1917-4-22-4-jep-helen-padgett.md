@@ -19,4 +19,4 @@ Chacun de ceux dont les noms sont mentionnés [ont réellement écrit](/fr-james
 
 Je ne vais pas écrire plus ce soir, même si j’avais l’intention d’écrire une lettre personnelle, cependant tu es trop fatigué pour la recevoir. Mais tu sais combien je t’aime et comme je suis anxieuse de te voir heureux et rempli de l’amour du Père. Je t’aime et veux que tu m’aimes.
 
-Bonne nuit. Ta vraie et aimante, Hélène.
+Bonne nuit. Ta vraie et bien aimaée, Hélène.

@@ -20,6 +20,6 @@ Je voulais simplement dire cela. Je suis un habitant du Royaume Céleste, et je 
 Thomas B. Monroe.
 <small>
 
-1. <large id="f1"> Thomas Bell Monroe (7 Octobre 1791 – 24 Décembre 1865) fut un juge fédéral américain. (Source : Wikipedia)[↩](#a1)
+1. <large id="f1"> **Thomas Bell Monroe** (7 Octobre 1791 – 24 Décembre 1865) fut un juge fédéral américain. (Source : Wikipedia)[↩](#a1)
 
-2. <large id="f2"> Jésus avait déjà commenté [la veille](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-7-1-jep-jesus/) et [l'avant veille](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-8-1-jep-jesus/) les sermons du Dr Wain.
+2. <large id="f2"> Jésus avait déjà commenté  [le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-8-1-jep-jesus/) et [la veille](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-7-1-jep-jesus/) les sermons du Dr Wain.

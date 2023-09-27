@@ -11,7 +11,7 @@ weight:
 
 John Wesley - reçu par James Padgett le 30 Septembre 1915, Washington, USA.
 
-Lorsque le Maître a dit : « Nourrir mes brebis », il ne voulait pas seulement dire que Pierre, et ceux à qui il parlait, devaient uniquement s’occuper de nourrir la nature spirituelle de ceux qui devaient croire en lui et essayer d’appartenir à son troupeau, mais il voulait aussi que leurs désirs matériels soient pris en charge. Et ce soir il dit la même chose. Et comme vous êtes sa brebis et êtes l’objet de ses attentions bienveillantes et aimantes, il veut que toutes les choses nécessaires à votre bien-être vous soient données. Ne doutez donc absolument pas, mais croyez que l’on s’occupera de vous au moment où vous en aurez besoin.
+Lorsque le Maître a dit : *« Nourrir mes brebis »*, il ne voulait pas seulement dire que Pierre, et ceux à qui il parlait, devaient uniquement s’occuper de nourrir la nature spirituelle de ceux qui devaient croire en lui et essayer d’appartenir à son troupeau, mais il voulait aussi que leurs désirs matériels soient pris en charge. Et ce soir il dit la même chose. Et comme vous êtes sa brebis et êtes l’objet de ses attentions bienveillantes et aimantes, il veut que toutes les choses nécessaires à votre bien-être vous soient données. Ne doutez donc absolument pas, mais croyez que l’on s’occupera de vous au moment où vous en aurez besoin.
 
 Il vous aimait tellement ce soir que nous avons tous été quelque peu étonnés du grand amour qu’il vous a témoigné. Nous avons alors compris que vous devez lui être très cher. Je ne l’ai jamais vu auparavant s’intéresser à une personne en particulier, et quand vous réaliserez ce que sont son amour et son pouvoir, vous serez plus étonné que nous ne l’étions.
 

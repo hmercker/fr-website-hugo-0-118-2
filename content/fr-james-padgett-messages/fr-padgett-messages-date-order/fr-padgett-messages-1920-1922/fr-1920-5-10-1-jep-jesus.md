@@ -35,12 +35,12 @@ Je vous ai écrit auparavant sur le fonctionnement de l’Esprit Saint, sur la m
 
 > A moins qu’un homme naisse de nouveau, il ne peut entrer dans le Royaume de Dieu, 
 
-et cette réalisation n’est possible que par l’action de l’Esprit Saint.[Jean 3:3](https://saintebible.com/john/3-3.htm)
+et cette réalisation n’est possible que par l’action de l’Esprit Saint. [(Jean 3:3)](https://saintebible.com/john/3-3.htm)
 
 Oh, prédicateur, sur lequel repose une grande responsabilité, apprenez la vérité et conduisez les hommes dans la voie du salut. Je ne vais pas écrire plus maintenant, mais je reviendrai et je délivrerai un autre message. Croyez que je vous aime et que je suis votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
 <small>
 
-1. <large id=”f1”> Plusieurs autre messages relatifs au sujet de l’Esprit Saint ont été communiqués par Anne Rollins, jésus, Jean ou Luc. Is sont listés c-dessous.[↩](#a1)
+1. <large id=”f1”> Plusieurs autre messages relatifs au sujet de l’Esprit Saint ont été communiqués par Anne Rollins, Jésus, Jean ou Luc. Is sont listés c-dessous.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -31,9 +31,10 @@ Ce pouvoir existe toujours, et si l’occasion se présente à nouveau, il sera 
 
 Je ne peux pas vous expliquer maintenant de quelle manière ces commandements ont été donnés par Dieu, car vous ne me comprendriez pas si j’essayais. Mais il suffit de dire que les anges supérieurs ont une telle perception de l’âme qu’ils peuvent recevoir et comprendre ces instructions du Père. Tout ceci est, je le sais, étrange pour vous, mais c’est la vérité, et même si vous ne le comprenez pas, vous ne devez pas douter qu’il y a une relation si étroite entre Dieu et Ses esprits Célestes qu’ils savent quelle est la volonté du Père. Je suis dans une Sphère Céleste et je suis très élevé, mais pas autant que les apôtres. Mais je suis assez élevé pour avoir la conviction de ce que je vous écris de ma propre connaissance. Je n’écrirai pas plus ce soir, mais je reviendrai un jour ou l’autre pour vous instruire sur les lois qui s’appliquent dans nos Sphères Célestes.
 
-Donc, avec tout mon amour, je dirai que je le suis, votre frère en Christ, Aaron le Prophète des temps anciens.
+Donc, avec tout mon amour, je dirai que je le suis, votre frère en Christ, Aaron le Prophète des temps anciens.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note :  Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*
+1. <large id=”f1”> *Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

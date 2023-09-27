@@ -50,13 +50,13 @@ Je ne pense pas que ces mortels qui prétendent avoir quitté leur corps et êtr
 
 Alors, avec tout mon amour, je suis ta propre grand-mère aimante.
 
-Anne Rollins.
+Anne Rollins.<sup id="a2">[2](#21)</sup>
 <small>
 
-1. <large id="f1">Cette remarque d'Anne Rollins n'est pas exacte. En effet Mère Teresa et François d'Assise ont tous deux atteint la cinquième sphère. Bien sûr, Mère Teresa n'était pas encore décédée en 1915, mais Saint François d'Assise était décédé en 1226. Et d'après les récentes communications de Yogananda, Sri Yukteswar, Osho et d'autres, il semble que de nombreux gourous du sous-continent (continent asiatique) aient atteint la quatrième sphère.[↩](#a1)
+1. <large id="f1"> Cette remarque d'Anne Rollins n'est pas exacte. En effet Mère Teresa et François d'Assise ont tous deux atteint la cinquième sphère. Bien sûr, Mère Teresa n'était pas encore décédée en 1915, mais Saint François d'Assise était décédé en 1226. Et d'après les récentes communications de Yogananda, Sri Yukteswar, Osho et d'autres, il semble que de nombreux gourous du sous-continent (continent asiatique) aient atteint la quatrième sphère.[↩](#a1)
 
-*Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :* 
-
+2. <large id="f2"> *Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :*[↩](#a2)
+ 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Anne Rollins | [Anne Rollins parle de sa progression de la première sphère Céleste vers la seconde sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) | 27 Avril 1915

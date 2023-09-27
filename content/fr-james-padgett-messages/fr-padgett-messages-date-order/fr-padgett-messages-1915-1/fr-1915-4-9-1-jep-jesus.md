@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Message personnel. l’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père<sup id=”a1”>[1](#f1)</sup>
+### Message personnel. L’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père<sup id=”a1”>[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 9 Avril 1915, Washington, USA.
 

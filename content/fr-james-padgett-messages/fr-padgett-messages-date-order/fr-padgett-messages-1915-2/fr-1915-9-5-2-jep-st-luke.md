@@ -25,9 +25,10 @@ Je sais qu’un grand nombre de membres des diverses Églises croient à cette d
 
 Parfois, au cours de mes messages futurs, je signalerai les erreurs de mon Évangile au point de vous montrer les nombreux ajouts et les mauvaises interprétations qui y ont été faites. Je vais arrêter maintenant.
 
-Votre frère en Christ, St. Luc.
+Votre frère en Christ, St. Luc.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Luc s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+1. <large id=”f1”> *Luc s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

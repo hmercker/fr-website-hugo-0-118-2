@@ -21,10 +21,10 @@ Oui, c’est ce que je veux, et vous semblez comprendre exactement ce qui est n�
 
 Je n’écrirai pas plus, mais je vous souhaiterai une bonne nuit.
 
-Votre sœur en Christ, Saleeba.
+Votre sœur en Christ, Saleeba.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Saleeba a commenté son expérience de progression par les messages suivants :*
-
+1. <large id=”f1”> *Saleeba a commenté son expérience de progression par les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

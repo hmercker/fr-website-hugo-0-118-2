@@ -21,9 +21,10 @@ Je ne vais pas écrire plus maintenant. Crois que je t’aime de tout mon cœur 
 
 Bonne nuit.
 
-Ta vraie et bien aimée Hélène.
+Ta vraie et bien aimée Hélène.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Liens vers d'autres messages relatifs à la crucifixion de Jésus :*
+<large id=”f1”> *Liens vers d'autres messages relatifs à la crucifixion de Jésus :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

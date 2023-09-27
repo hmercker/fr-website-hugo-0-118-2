@@ -17,7 +17,7 @@ Eh bien, je suis heureuse d’être de nouveau avec toi car je veux partager cer
 
 Tu as eu plus ou moins douté que nous sommes vraiment les personnes que nous prétendons être, et tu t’es demandé si ce n’était pas ton propre esprit qui était la source des pensées et de l’écriture, ou si un esprit mauvais ou un imposteur en était l’origine.
 
-Je veux te dire maintenant, avec tout l’amour que j’ai pour toi, que chacun de nous qui t’écrit est vraiment la personne qu’il prétend être et qu’aucun esprit qui voudrait s’imposer ne serait autorisé à écrire ou à communiquer de quelque façon que ce soit avec toi. Notre groupe est suffisamment puissant pour empêcher un tel esprit de s’immiscer. Bien entendu, nous avons permis aux malheureux esprits <sup id="a2">[2](#f2)</sup> qui t’écrivent de le faire, mais ils ne sont pas des imposteurs, mais ils te disent franchement qui ils sont.
+Je veux te dire maintenant, avec tout l’amour que j’ai pour toi, que chacun de nous qui t’écrit est vraiment la personne qu’il prétend être et qu’aucun esprit qui voudrait s’imposer ne serait autorisé à écrire ou à communiquer de quelque façon que ce soit avec toi. Notre groupe est suffisamment puissant pour empêcher un tel esprit de s’immiscer. Bien entendu, nous avons permis aux malheureux esprits<sup id="a2">[2](#f2)</sup> qui t’écrivent de le faire, mais ils ne sont pas des imposteurs, mais ils te disent franchement qui ils sont.
 
 Je sais combien il est naturel pour toi de douter de cette grande merveille de communion spirituelle et de la véracité de nos représentations, mais je t’assure que tout cela est vrai.
 
@@ -35,10 +35,10 @@ Je sais que tu nous aimes tous, et je crois que tu L’aimes aussi, et quand je 
 
 J’aimerais écrire plus ce soir, mais il y en a d’autres ici qui sont très impatients de t’écrire et je vais m’arrêter.
 
-Ta propre grand-mère aimante et fidèle Anne Rollins.2
+Ta rand-mère aimante et fidèle, Anne Rollins.
 <small>
 
-1. <large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 54 et dans le volume III à la page 339. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
+1. <large id=”f1”> Ce message est publié dans le Volume II, 2ème édition française, à la page 54 et dans le volume III à la page 339. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
 2. <large id="f2"> M. Padgett a permis aux esprits malheureux de visualiser les esprits plus brillants afin qu’ils puissent recevoir de l’aide. M. Padgett consacrait une soirée par semaine à cette fin. (Dr. Stone.) [↩](#a2)
 

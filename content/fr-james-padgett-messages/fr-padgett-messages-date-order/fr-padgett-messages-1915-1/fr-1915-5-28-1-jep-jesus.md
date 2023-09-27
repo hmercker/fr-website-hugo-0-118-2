@@ -75,7 +75,7 @@ Je dois arrêter maintenant,- et vous donner ma bénédiction et la bénédictio
 Votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
 <small>
 
-<large id=”f1”> Il y trois autres messages sur le thème de l'immortalité.[↩](#a1)
+1. <large id=”f1”> Il y trois autres messages sur le thème de l'immortalité.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

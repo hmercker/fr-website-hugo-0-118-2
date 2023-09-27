@@ -25,12 +25,12 @@ Donc, pour comprendre les vraies vérités de Dieu et la relation de l’homme a
 
 J’écrirai aussi parfois et je vous transmettrai le résultat de mes instructions et de mes connaissances telles que je les ai reçues depuis que je suis ici. Je n’écrirai plus ce soir.
 
-Votre frère en Christ, Martin Luther.
+Votre frère en Christ, Martin Luther.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Ce message est également publié dans le volume II à la page 199 et dans le volume IV, à la page 391. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
 
-*Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+2. <large id="f2"> *Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

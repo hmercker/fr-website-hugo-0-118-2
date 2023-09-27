@@ -15,4 +15,4 @@ C’est moi, ta vraie et bien-aimée Hélène. Tu as eu, ce soir, [un message du
 
 Je n’écrirai pas plus maintenant.
 
-Ta propre vraie et bien-aimée Hélène.
+Ta vraie et bien-aimée Hélène.

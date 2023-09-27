@@ -28,9 +28,10 @@ Mais tout cela est passé, et des milliers d’années se sont écoulées depuis
 
 Je ne dois plus écrire ce soir. Oui, je vais le faire, et maintenant je vais vous dire bonne nuit.
 
-Votre sœur, Amon.
+Votre sœur, Amon.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*
+1. <large id=”f1”> *Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

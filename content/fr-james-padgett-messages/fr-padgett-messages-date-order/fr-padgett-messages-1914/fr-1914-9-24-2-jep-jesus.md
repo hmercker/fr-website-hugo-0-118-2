@@ -36,9 +36,9 @@ Vous serez bientôt en mesure de comprendre ce que je comprends.<sup id=”a1”
 Bonne nuit. Jésus Christ.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
-1. <large id=”f1”> *Note 1 : [Dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.*.[↩](#a1)
+1. <large id=”f1”> *[Dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.*.[↩](#a1)
 
-2. <large id=”f1”> *Note 2 : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a2)
+2. <large id=”f1”> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

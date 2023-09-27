@@ -44,8 +44,8 @@ Dieu n’interviendra pas de sa propre initiative pour permettre qu’un côté 
 Votre frère et ami, Jésus.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Ce sermon du Dr. Mitchell était intitulé : « Le grand paradoxe – Jésus Prince de la paix et fauteur de troubles »[↩](#a1)
+1. <large id="f1"> Ce sermon du Dr. Mitchell était intitulé : *« Le grand paradoxe – Jésus Prince de la paix et fauteur de troubles »*[↩](#a1)
 
-2. <large id=”f2”> Luc s’est également exprimé sur le sujet de la guerre le [27 Février 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-27-1-jep-st-luke/).[↩](#a2)
+2. <large id=”f2”> Luc s’est également exprimé sur le sujet de la guerre le [27 Février 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-27-1-jep-st-luke/). Les différents messages relatifs à la première guerre mondiale peuvent être lus par l'intermédiaire de [ce lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)
 
 

@@ -11,6 +11,8 @@ weight:
 
 Caligula - reçu par James Padgett le 25 Octobre 1915, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-caligula.jpg)
+
 C’est moi, Caligula.
 
 Je suis simplement venu pour dire que je suis intéressé par votre conversation et les conclusions que vous tirez quant à certaines opérations du développement de l’âme sur le mental physique après la mort.

@@ -23,9 +23,10 @@ L’éveil doit provenir d’autres causes qui influencent l’esprit comme l’
 
 Mais pour m’approcher du sujet de mon message. L’âme qui vit dans le péché et l’erreur devra, tôt ou tard, payer les pénalités pour ces péchés et erreurs, et il n’y a pas d’échappatoire possible quant au paiement de ces pénalités, à l’exception de la rédemption que le Père a prévu par la Nouvelle Naissance. Ces sanctions sont seulement les résultats naturels de l’opération des lois de Dieu et elles doivent être endurées jusqu’à ce que toute la pénalité soit payée. Même si un homme peut progresser vers une condition plus élevée d’excellence d’âme et connaître beaucoup de bonheur, cependant elle doit payer jusqu’au  dernier centime et se libérer ainsi de ces pénalités.
 
-Avec beaucoup d’amour, votre ami et frère, Jésus.
+Avec beaucoup d’amour, votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Concernant l'incarnation de l'âme Jésus a communiqué les autres messages suivants :*
+1. <large id=”f1”> * Concernant l'incarnation de l'âme Jésus a communiqué les autres messages suivants :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

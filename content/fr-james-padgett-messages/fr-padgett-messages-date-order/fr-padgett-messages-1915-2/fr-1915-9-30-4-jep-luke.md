@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### St. Luc assure que M. Padgett sera bientôt soulagé <sup id="a1">[1](#f1)</sup>
+### St. Luc assure que M. Padgett sera bientôt soulagé<sup id="a1">[1](#f1)</sup>
 
 St Luc - reçu par James Padgett le 30 Septembre 1915, Washington, USA.
 

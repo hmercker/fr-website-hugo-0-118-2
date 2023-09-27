@@ -29,13 +29,9 @@ Donc, mon cher frère, je vais vous dire bonne nuit et que Dieu soit avec vous, 
 <small>
 
 1. <large id="f1">  Ce message est aussi publié dans le Volume I, 2ème édition française, à la page 380 et dans le volume III à la page 455. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
-
-2. <large id="f2"> *Un message plus récent de Thomas Paine a été communiqué le [16 Mars 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/).[↩](#a2)
-
-
+2. <large id="f2"> *Un message plus récent de Thomas Paine a été communiqué le [16 Mars 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/)*.[↩](#a2)
 3. <large id="f3"> **Thomas Paine** (9 Février 1737 – 8 Juin 1809) était un activiste politique, philosophe, théoricien politique et révolutionnaire anglo-américain. L’un des pères fondateurs des États-Unis d’Amérique, il est l’auteur des plus influentes brochures du début de la Révolution Américaine, et il a inspiré les rebelles, en 1776, de déclarer l’indépendance de la Grande-Bretagne. Ses idées ont reflété la rhétorique de l’ère des lumières des droits de l’homme transnationaux. Il a été appelé « un corsetier par le commerce, un journaliste par profession et un propagandiste par inclination ».
-
-4. <large id="f4"> Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes. :*[↩](#a4)
+4. <large id="f4"> *Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes. :*[↩](#a4)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

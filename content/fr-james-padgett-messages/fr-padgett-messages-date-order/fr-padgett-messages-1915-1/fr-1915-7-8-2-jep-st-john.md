@@ -40,9 +40,10 @@ Vous avez mes bénédictions et mon amour, et j’espère que l’Esprit Saint p
 
 Je vous souhaite une bonne nuit.
 
-St. Jean.
+St. Jean.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*
+1. <large id=”f1”> *St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

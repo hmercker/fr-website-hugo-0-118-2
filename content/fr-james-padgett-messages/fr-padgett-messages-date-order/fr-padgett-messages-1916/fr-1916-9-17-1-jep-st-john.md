@@ -13,7 +13,7 @@ St Jean - reçu par James Padgett le 17 Septembre 1916, Washington, USA.
 
 C’est moi, Saint-Jean, Apôtre de Jésus.
 
-Je veux seulement dire quelques mots, en référence à ce que l’homme vous a dit au sujet de mon Évangile ou plutôt au sujet de l’Évangile qui m’est attribué. Sa référence aux premiers mots de l’Évangile [*« au commencement était la Parole et la Parole était avec Dieu, etc. »*](https://saintebible.com/john/1-1.htm) ne peut pas prouver que Jésus est Dieu, ou fait partie de la divinité, car je ne les ai jamais écrit ou dictés et ils n’énoncent pas une vérité.
+Je veux seulement dire quelques mots, en référence à ce que l’homme vous a dit au sujet de mon Évangile ou plutôt au sujet de l’Évangile qui m’est attribué. Sa référence aux premiers mots de l’Évangile [*au commencement était la Parole et la Parole était avec Dieu, etc.*](https://saintebible.com/john/1-1.htm) ne peut pas prouver que Jésus est Dieu, ou fait partie de la divinité, car je ne les ai jamais écrit ou dictés et ils n’énoncent pas une vérité.
 
 La Parole dans le sens mentionné dans cet Évangile peut seulement signifier Dieu, car Lui et Lui seul, était au début et a fait tout ce qui a été créé. [Comme nous vous l’avons souvent dit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-1-jep-mary/), Jésus était le fils d’un père et d’une mère tout comme vous êtes le fils de votre père et votre mère ; il ne fut pas engendré par l’Esprit Saint comme le récit de cet Évangile le prétend.
 

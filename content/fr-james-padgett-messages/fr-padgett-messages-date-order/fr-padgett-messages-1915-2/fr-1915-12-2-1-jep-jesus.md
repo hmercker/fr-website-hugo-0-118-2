@@ -20,7 +20,7 @@ Je n’écrirai pas plus ce soir, mais dirai gardez votre courage et croyez, et 
 Avec tout mon amour et bénédictions, je suis votre frère aimant et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
+1. <large id=”f1”> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -53,14 +53,14 @@ Non, comme cela a été dit par Moïse dans l’ancien temps, et comme je l’ai
 
 Comme vous êtes un peu épuisé, je pense que c’est un bon endroit pour arrêter. Je suis heureux que vous soyez en aussi bonne condition. Alors soyez prêts pour une reprise rapide du message.
 
-Avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
+Avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.sup id="a2">[2](#f2)</sup>
 
 Votre frère et ami, Jésus.
 <small>
 
 1. <large id="f1"> Attribution de la motivation humaine, caractéristiques ou comportement d’objets  d’animaux inanimés ou de phénomènes naturels.[↩](#a1)
 
-*Note 2 : Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*
+2. <large id="f2"> *Plusieurs autres messages ont écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

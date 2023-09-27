@@ -19,6 +19,6 @@ Comme je suis reconnaissante que cette preuve t’ait été donnée, car mainten
 
 Mais oh, mon cher Ned, je suis toujours émerveillée de voir que tu a été choisi par le Maître et que tu sois l’objet de son grand amour.
 
-Aime-moi comme je t’aime, je suis ta propre vraie et aimante, Hélène.
+Aime-moi comme je t’aime, je suis ta vraie et bien aimée, Hélène.
 
 [Message de référence](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-1-jep-jesus/).

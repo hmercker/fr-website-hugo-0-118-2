@@ -36,9 +36,10 @@ Je suis avec vous ce soir pour vous réconforter, vous encourager et vous aider 
 
 Je n’écrirai pas plus ce soir car d’autres sont ici pour écrire, et je désire qu’ils le fassent.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note :  Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+1. <large id=”f1”> *Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

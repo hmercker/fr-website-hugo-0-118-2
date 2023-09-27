@@ -27,10 +27,10 @@ Pour beaucoup de ceux qui entendent de telles exhortations des prédicateurs, l�
 
 Bonne nuit.
 
-Votre ami et frère, Jésus.
+Votre ami et frère, Jésus.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Un message d’Hélène à cette date indique que le rapport fut perdu, le message est donc incomplet.[↩](#a1)
+1. <large id="f1"> Un message d’Hélène à cette date (message non publié) indique que le rapport fut perdu, le message est donc incomplet.[↩](#a1)
 
 2. <large id="f2"> Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a2)
 

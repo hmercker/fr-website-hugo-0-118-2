@@ -31,15 +31,16 @@ Mais il y a un grand nombre d’hommes et de femmes vivant aujourd’hui qui ne 
 
 Je ne pense pas que vous pouvez écrire plus ce soir et je vais arrêter en vous disant que vous devez continuer à devenir plus fort, spirituellement et physiquement, de sorte que nous puissions continuer nos écritures plus rapidement et avec une plus grande satisfaction. Croyez ainsi que je suis Jésus, votre vrai ami et frère qui est très souvent avec vous, essayant de vous aider et de vous rendre heureux et satisfait.
 
-Avec mon amour et ma prière, je suis Jésus.
+Avec mon amour et ma prière, je suis Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*
+<large id=”f1”> *Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus `| [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/) | 07 Juin 1915
-Jésus `| [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) | 08 Juin 1915
-Jésus `| [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/)  | 29 Juin 1915
-Jésus `| [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/) | 20 Mai 1918
-Jésus `| [4ème Révélation : Jésus annonce Sa Messianité.](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/) | 25 Mai 1955
-Jésus `|  [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie.](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/) | 14 Juin 1955
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/) | 07 Juin 1915
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) | 08 Juin 1915
+Jésus | [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/)  | 29 Juin 1915
+Jésus | [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/) | 20 Mai 1918
+Jésus | [4ème Révélation : Jésus annonce Sa Messianité.](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/) | 25 Mai 1955
+Jésus |  [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie.](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/) | 14 Juin 1955

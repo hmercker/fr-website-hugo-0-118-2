@@ -15,11 +15,11 @@ C’est moi, Hélène.
 
 Eh bien chéri, tu es fatigué et tu ne dois pas écrire beaucoup ce soir, car tu te sentiras mal à l’aise. Alors, lorsque j’aurai partagé ce que j’ai à te dire, arrête d’écrire.
 
-Eh bien, je vois que tu tiens à savoir si les esprits qui t’ont écrit hier soir, je veux dire les disciples et Salomon, t’ont vraiment écrit. Je suis heureux de dire qu’ils l’ont fait. Ils étaient ce qu’ils ont prétendu être et tu dois y croire.
+Eh bien, je vois que tu tiens à savoir si les esprits qui t’ont écrit hier soir, je veux dire les disciples et [Salomon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-3-jep-solomon/), t’ont vraiment écrit. Je suis heureux de dire qu’ils l’ont fait. Ils étaient ce qu’ils ont prétendu être et tu dois y croire.
 
-Après qu’il eut écrit, j’ai eu une communication avec Saint Jean et il m’a dit que tu es sur le chemin du royaume. Il est si aimant et si beau et semble si rempli d’Amour que je n’ai vraiment pas pu m’empêcher de l’aimer. Mais il n’est pas aussi glorieux que le Maître. Aucun ne l’est – il est celui qui est tout à fait charmant. Mais Saint Jean est un esprit merveilleux et il s’intéresse à ton travail et il t’écrira certainement de temps à autre.
+Après qu’il eut écrit, j’ai eu une communication avec [Saint Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-1-jep-st-john/) et il m’a dit que tu es sur le chemin du royaume. Il est si aimant et si beau et semble si rempli d’Amour que je n’ai vraiment pas pu m’empêcher de l’aimer. Mais il n’est pas aussi glorieux que le Maître. Aucun ne l’est – il est celui qui est tout à fait charmant. Mais Saint Jean est un esprit merveilleux et il s’intéresse à ton travail et il t’écrira certainement de temps à autre.
 
-Je n’ai pas parlé avec Saint Paul, car il est parti dès qu’il eut cessé d’écrire, mais je viendrai un jour ou l’autre quand il viendra à toi, comme il a dit qu’il le fera.
+Je n’ai pas parlé avec [Saint Paul](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-2-jep-st-paul/), car il est parti dès qu’il eut cessé d’écrire, mais je viendrai un jour ou l’autre quand il viendra à toi, comme il a dit qu’il le fera.
 
 Je n’ai pas non plus parlé à Salomon, parce qu’il est parti dès qu’il a eu terminé. Tu peux penser qu’il est un esprit d’apparence merveilleuse à cause du grand nombre d’années qui s’est écoulé depuis qu’il a vécu sur terre. Mais les années ne font la source d’aucune différence dans l’apparence. Il a l’air aussi jeune que les membres de ton propre groupe, bien que plus beau et plus affectueux. Il n’est pas un esprit qui a une apparence raciale, mais comme je l’ai dit, son apparence est causée par le développement, quelle qu’ait été sa race lorsqu’il était sur terre.
 

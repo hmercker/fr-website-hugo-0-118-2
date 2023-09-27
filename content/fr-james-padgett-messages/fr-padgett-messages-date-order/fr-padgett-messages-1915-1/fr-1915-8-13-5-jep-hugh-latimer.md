@@ -32,7 +32,7 @@ Bien à vous, dans l’Amour, Hugh Latimer.<sup id=”a2”>[2](#f2)</sup>
 
 1. <large id="f1"> **Hugh Latimer** (v. 1487 – 16 Octobre 1555) était membre du Clare College de Cambridge et évêque de Worcester avant la Réforme, puis aumônier de l’Église d’Angleterre du roi Édouard VI. En 1555, sous la reine Marie Tudor, il fut brûlé sur le bûcher, devenant ainsi l’un des trois martyrs de l’anglicanisme d’Oxford. (Source : Wikipédia.)[↩](#a1)
 
-2. <large id="f2"> *Note  : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère spiituelle ou les Cieux Célestes.:*[↩](#a2)
+2. <large id="f2"> *Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère spiituelle ou les Cieux Célestes.:*[↩](#a2)
 
 **Auteur** | **Ttre du message** | **Date du message**
 ---|---|---

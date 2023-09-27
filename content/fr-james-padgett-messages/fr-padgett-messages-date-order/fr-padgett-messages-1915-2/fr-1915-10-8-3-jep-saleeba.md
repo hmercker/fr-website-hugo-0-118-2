@@ -21,9 +21,10 @@ J’irai très prochainement vers mon peuple, je leur dirai ce que j’ai trouv�
 
 Je sais que vous êtes heureux que je sois heureuse, et que je m’intéresse à ma progression, et, par conséquent, j’aime venir vous dire quelle est ma condition. Je n’écrirai pas plus ce soir. Croyez donc que je vous aime comme une sœur, que  je et prie pour vous et demande au Père de vous rendre heureux et de remplir votre âme de Son Amour, et de vous bénir.
 
-Bonne nuit, votre sœur, Saleeba.
+Bonne nuit, votre sœur, Saleeba.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Saleeba a commenté son expérience de progression par les messages suivants :*
+1. <large id=”f1”> *Saleeba a commenté son expérience de progression par les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

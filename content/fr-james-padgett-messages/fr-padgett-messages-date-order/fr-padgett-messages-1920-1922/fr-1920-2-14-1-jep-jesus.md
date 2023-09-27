@@ -19,7 +19,7 @@ Il y a encore beaucoup de messages à écrire<sup id="a1">[1](#f1)</sup> et j’
 
 Comme vous le savez, ce n’est pas la chose vitale dans le destin de l’homme, car si la connaissance de la survie de l’homme à la mort du physique peut et procure une grande consolation aux proches et aux êtres chers qui sont restés sur terre, ce fait ne détermine pas, dans le moindre degré, l’état ou la destinée de l’âme qui a quitté sa demeure dans la chair. Il n’existe aucun moyen, maintenant connu des hommes, pour montrer cette destinée, à part certaines choses écrites dans la Bible qui font l’objet de beaucoup de spéculations, de controverses et de manque de croyance. La consolation de ceux qui ont la foi en la Bible est fondée sur cette foi, ou plutôt, dans la plupart des cas, la croyance. Cependant il y a un certain nombre de croyants dans les vérités de la Bible, avec une perception consciente de leur sens réel, qui ont cette foi qui leur assure les faits de la destinée, et la possession de l’amour dans leur âme.
 
-Je viendrai bientôt et je m’efforcerai d’écrire un message officiel ; en attendant, que vos prières montent avec plus de sérieux et de désirs vers le Père. Comme vous le savez, je vous aime comme mon frère et disciple, et je suis avec vous lorsque vous priez chaque soir, en vous unissant dans nos prières. Vous devez faire grandir votre foi, et croire que vos prières sont entendues et seront exaucées au maximum. Je n’écrirai plus maintenant.
+Je viendrai bientôt et je m’efforcerai d’écrire un message officiel ; en attendant, que vos prières montent avec plus de sérieux et de désirs vers le Père. Comme vous le savez, je vous aime comme mon frère et disciple, et je suis avec vous lorsque vous priez chaque soir, en vous unissant dans nos prières. Vous devez faire grandir votre foi, et croire que vos prières sont entendues et seront exaucées au maximum. Je n’écrirai plus maintenant.<sup id="a2">[2](#f2)</sup>
 
 Alors mon frère, bonne nuit, et que le Père vous bénisse de ses plus grandes bénédictions.
 
@@ -28,7 +28,7 @@ Votre frère et ami, Jésus.
 
 1. <large id="f1"> Ce message, très tardif dans la série  des messages reçus, indique que James Padgett n’a jamais reçu de nombreux messages planifiés.[↩](#a1)
 
-*Note : Concernant l'incarnation de l'âme Jésus a communiqué les autres messages suivants :*
+2. <large id="f2"> *Concernant l'incarnation de l'âme Jésus a communiqué les autres messages suivants :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -9,7 +9,7 @@ weight:
 ---
 ### Jean – Qu’est ce qu’un homme qui n’est satisfait avec aucune église doit faire
 
-St Jean - reçu par James Padgett le 19 Octobre 1916, Washington, USA.
+St Jean - reçu par James Padgett le 19 Octobre 1916, Washington, USA.<sup id=”a1”>[1](#f1)</sup>
 
 C’est moi, Jean.
 
@@ -33,10 +33,12 @@ Au fur et à mesure que vous avancerez dans votre expérience avec les églises 
 
 Avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Jean.<sup id=”a1”>[1](#f1)</sup>
+Jean.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
-1. <large id=”f1”> *Note 1: Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a1)
+1. <large id=”f1”>  Ce message est publié dans le Volume II, deuxième édition française, à la page 150 et dans le volume III à la page 351. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
+
+2. <large id=”f2”> *Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -45,6 +47,6 @@ Saint Jean |  [Rejette l’expiation déléguée. Si les hommes pouvaient avoir 
 Saint Jean |  [Il est important que l'homme cherche et trouve la vérité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-12-1-jep-st-john/)   | 12 Mai 1916
 Saint Jean | [Les hommes ou les prophètes ne peuvent pas dire ce qui va se passer dans les siècles à venir – cela ne peut être connu que par le Père.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/\fr-1918-3-10-1-jep-st-john/)   | 10 Mars 1918
 
-2. <large id=”f2”> Note 2 : Ce message est publié dans le Volume II, deuxième édition française, à la page 150 et dans le volume III à la page 351. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a2)
+
 
 

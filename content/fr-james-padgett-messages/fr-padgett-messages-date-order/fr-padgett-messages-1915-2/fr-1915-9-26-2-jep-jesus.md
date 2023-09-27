@@ -34,7 +34,7 @@ Priez le Père et faites-moi confiance, car mon amour pour vous est sans limite,
 Avec tout mon amour et mes bénédictions, je suis, votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
+1. <large id=”f1”> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

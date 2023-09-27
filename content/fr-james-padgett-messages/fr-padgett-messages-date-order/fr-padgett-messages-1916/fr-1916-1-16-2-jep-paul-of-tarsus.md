@@ -49,11 +49,12 @@ Il y a une Résurrection que le Maître a enseignée, et que ses apôtres, quand
 
 Il est trop tard ce soir pour expliquer cette Résurrection, mais je reviendrai très prochainement et j’essaierai de vous la faire comprendre ainsi qu’au monde.
 
-Je vais maintenant vous |dire bonne nuit et que Dieu vous bénisse et vous protège.
+Je vais maintenant vous dire bonne nuit et que Dieu vous bénisse et vous protège.
 
-Votre frère en Christ, Paul.
+Votre frère en Christ, Paul.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*
+1. <large id=”f1”> * Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

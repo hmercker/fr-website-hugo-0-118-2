@@ -41,4 +41,4 @@ Oui, après avoir été quelque temps dans le monde des esprits, j’ai vu d’a
 
 Je vais arrêter maintenant, car je suis fatiguée.
 
-Ta propre vraie et aimante, Hélène.
+Ta vraie et bien aimée, Hélène.

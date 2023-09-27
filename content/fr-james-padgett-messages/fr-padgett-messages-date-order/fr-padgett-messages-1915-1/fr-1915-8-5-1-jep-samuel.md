@@ -39,9 +39,10 @@ Les différents enseignants des différentes religions qui sont venus sur terre 
 
 Eh bien, je dois arrêter. Alors, en vous remerciant pour votre amabilité, je vous souhaite une bonne nuit.
 
-Samuel.
+Samuel.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note :  Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*
+1. <large id=”f1”> *Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

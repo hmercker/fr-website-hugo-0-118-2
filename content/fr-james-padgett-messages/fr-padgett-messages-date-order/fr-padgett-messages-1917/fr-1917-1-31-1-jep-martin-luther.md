@@ -21,9 +21,10 @@ Eh bien, toutes les spéculations qui ont existé sur l’Eucharistie et le chan
 
 Il n’approuve pas l’enseignement des hommes selon lequel sa mort et son sang étaient le moyen pour l’homme d’être sauvé de leurs péchés et de se réconcilier avec Dieu. Il dit que c’est sa vie, ses enseignements et la démonstration de l’Amour de Dieu existant dans sa propre âme qui a montré le seul vrai chemin vers le salut. Mais, je ne dois plus écrire maintenant. Alors, avec mon amour, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Martin Luther.
+Votre frère en Christ, Martin Luther.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+1. <large id=”f1”> *Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

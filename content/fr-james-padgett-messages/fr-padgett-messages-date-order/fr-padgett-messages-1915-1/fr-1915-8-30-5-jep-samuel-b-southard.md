@@ -22,12 +22,14 @@ Je ne suis pas aussi exalté et brillant et je n’ai pas le même développemen
 
 Je suis un étranger pour vous, et vous devez excuser mon intrusion. Cependant, j’ai tellement désiré écrire que, lorsque j’ai vu la voie ouverte, je n’ai pas pu résister à la tentation de le faire.
 
-Je suis S.B.S. J’ai vécu dans la ville de New York et je suis décédé il y a de nombreuses années. Je suis dans la cinquième sphère et je progresse. Alors, en vous remerciant, je vous souhaite une bonne nuit et que Dieu vous bénisse.
-Votre frère en Christ, S.B.S.
+Je suis S.B.S.<sup id=”a1”>[1](#f1)</sup> J’ai vécu dans la ville de New York et je suis décédé il y a de nombreuses années. Je suis dans la cinquième sphère et je progresse. Alors, en vous remerciant, je vous souhaite une bonne nuit et que Dieu vous bénisse.
 
-*Note 1: Cet esprit semble être Samuel B Southard.*
+Votre frère en Christ, S.B.S.<sup id=”a2”>[2](#f2)</sup>
+<small>
 
-*Note 2 : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.:*
+1. <large id=”f1”> *Cet esprit semble être Samuel B Southard.*[↩](#a1)
+
+2. <large id=”f2”> *Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

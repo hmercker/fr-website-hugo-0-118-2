@@ -31,9 +31,10 @@ Il y a une loi de Dieu qui contrôle ces choses qui rend ces âmes préexistante
 
 Je suis heureux que vous soyez en meilleure condition et que vous puissiez continuer les messages comme nous le souhaitons depuis un certain temps. Je serai avec vous et je vous aiderai de toutes les manières possibles, et j’espère que vous garderez votre foi et vos prières au Père. Bonne nuit et que Dieu vous bénisse.
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus.<sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Jésus a communiqué trois autres messages sur l'incarnation de l'âme. ils ont été respectivement communiqués :*
+1. <large id="f1"> *Jésus a communiqué trois autres messages sur l'incarnation de l'âme. ils ont été respectivement communiqués :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

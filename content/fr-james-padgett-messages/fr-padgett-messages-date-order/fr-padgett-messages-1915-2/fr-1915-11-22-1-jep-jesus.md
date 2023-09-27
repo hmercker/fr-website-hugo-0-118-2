@@ -25,9 +25,10 @@ Bien sûr, les hommes ne comprendront pas cette vérité tant qu’ils dépendro
 
 Comme je le disais, les hommes doivent se rendre compte que Dieu connaît non seulement leurs actes, mais aussi leurs pensées, et qu’il leur faudra rendre compte de toute pensée oisive, et qu’il leur faudra payer les pénalités que ses lois imposent. Donc, si seulement les hommes se rendaient compte de ce fait, que Dieu est capable de voir et de savoir ce que sont leurs vies sur terre, ils réfléchiraient à deux fois avant d’accomplir certains actes, en présumant que personne d’autre qu’eux-mêmes ne les connaissent. Je suis très heureux que le professeur vous ait écrit sur ce sujet cette nuit, car il est très important, dans notre plan, de révéler les vérités de Dieu et ses attributs.
 
-Très bientôt, je vous écrirai un autre message, un message qui sera très important pour l’humanité. Je reviendrai bientôt, et je partagerai certaines choses que vous devez connaître. Alors, avec tout mon amour et mes bénédictions, je suis, votre propre frère et ami, Jésus.
+Très bientôt, je vous écrirai un autre message, un message qui sera très important pour l’humanité. Je reviendrai bientôt, et je partagerai certaines choses que vous devez connaître. Alors, avec tout mon amour et mes bénédictions, je suis, votre propre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu ?". Ils peuvent être lus par les liens suivants :*
+1. <large id=”f1”> *Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu ?". Ils peuvent être lus par les liens suivants :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

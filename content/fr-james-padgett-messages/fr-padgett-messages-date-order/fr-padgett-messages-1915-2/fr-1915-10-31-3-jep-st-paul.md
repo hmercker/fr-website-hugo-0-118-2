@@ -19,7 +19,7 @@ Je veux simplement dire que le péché impardonnable tel qu’enseigné par le p
 Votre frère en Christ, Paul.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Suite au message de Paul, Anne Rollins, Luc et Jésus ont également nié l'existence du péché impardonnable.*.[↩](#a1)
+1. <large id=”f1”> *Suite au message de Paul, Anne Rollins, Luc et Jésus ont également nié l'existence du péché impardonnable :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

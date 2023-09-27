@@ -61,9 +61,10 @@ Eh bien, j’ai écrit assez pour ce soir et je dois m’arrêter.
 
 Avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre ami et frère aîné, Jésus.
+Votre ami et frère aîné, Jésus.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*
+1. <large id=”f1”> *Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

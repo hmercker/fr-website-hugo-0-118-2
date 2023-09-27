@@ -25,9 +25,10 @@ Je ne suis pas en état maintenant de vous parler de ma résidence ou de ma vie 
 
 Je n’écrirai pas plus ce soir.
 
-Alors avec mon amour et mes pensées les plus aimables, je suis, votre sœur en Christ, Saleeba.
+Alors avec mon amour et mes pensées les plus aimables, je suis, votre sœur en Christ, Saleeba.<sup id=”a1”>[1](#f1)</sup> 
+<small>
 
-*Note : Saleeba a commenté son expérience de progression par les messages suivants :*
+1. <large id=”f1”> *Saleeba a commenté son expérience de progression par les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

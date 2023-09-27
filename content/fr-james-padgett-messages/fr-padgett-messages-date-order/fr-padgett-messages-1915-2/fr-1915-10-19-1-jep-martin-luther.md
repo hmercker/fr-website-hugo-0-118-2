@@ -35,12 +35,12 @@ Et si un test est nécessaire, je pense qu’un meilleur serait : mettez à l’
 
 Je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Martin Luther.
+Votre frère en Christ, Martin Luther.<sup id=”a2”>[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Un autre mot pour Expiation est réparation ou Repentir.[↩](#a1)
 
-*Note : Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*
+2. <large id="f2"> *Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

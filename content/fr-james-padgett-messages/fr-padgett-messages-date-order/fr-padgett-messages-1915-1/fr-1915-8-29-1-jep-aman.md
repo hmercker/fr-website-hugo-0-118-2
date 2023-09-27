@@ -33,9 +33,10 @@ Ce fut un temps de douleurs, amer, mais la loi avait imposé sa peine, et nous n
 
 Quand Amon et moi avons été créés, il n’y avait pas d’autres êtres humains qui vivaient sur terre, et aucun n’est venu y vivre, jusqu’à ce que nous ayons des fils et des filles qui se sont mariés et ont produit d’autres fils et filles. Je ne peux pas vous dire à quand remonte notre création, mais ce fut plusieurs milliers d’années avant la venue de Jésus. Je n’écrirai plus cette nuit, mais je reviendrai, [un jour ou l’autre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/), vous écrire.
 
-Votre frère en Christ, Aman.
+Votre frère en Christ, Aman.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*
+1. <large id=”f1”> *Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

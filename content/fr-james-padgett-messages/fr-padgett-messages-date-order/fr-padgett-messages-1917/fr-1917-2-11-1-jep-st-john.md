@@ -34,7 +34,6 @@ J’aurais aimé vous écrire plus ce soir, mais vous êtes fatigué et ne devri
 Votre frère en Christ, Jean.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> *L’esprit (Jean) qui délivre le message fait un jeu de mots entre « Atonement (Expiation ou Purification) et « At-Onement » (Communion ou « Unité et Réconciliation »).*.[↩](#a1)
-
+1. <large id="f1"> L’esprit (Jean) qui délivre le message fait un jeu de mots entre *« Atonement (Expiation ou Purification)* et *« At-Onement (« Communion » ou « Unité et Réconciliation ») »*.[↩](#a1)
 
 1. <large id="f2"> Ce message est publié dans le Volume 1 à la page 306 et dans le Volume III à la page 416. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a2)

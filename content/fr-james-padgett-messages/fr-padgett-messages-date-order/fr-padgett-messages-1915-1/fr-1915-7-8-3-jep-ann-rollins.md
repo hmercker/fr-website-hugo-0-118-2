@@ -57,9 +57,10 @@ Pendant de nombreuses années, les puissances du monde des esprits ont cherché 
 
 Je dois m’arrêter maintenant et, comme j’ai écrit depuis longtemps, tu dois te reposer un peu avant de continuer à écrire.
 
-Ta grand-mère aimante.
+Ta grand-mère aimante.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :* 
+1. <large id=”f1”> *Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :* .[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

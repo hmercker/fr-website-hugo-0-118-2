@@ -47,11 +47,12 @@ Dieu est Âme et l’Âme est Dieu, et dans cette âme sa personnalité est pré
 
 J’écris ceci pour vous donner une conception supplémentaire de qui et qu’est ce que Dieu et pour vous montrer qu’Il n’est pas dans l’homme ni que l’homme a son existence en Dieu. Pour vous montrer de plus que Dieu n’est pas et ne pourrait pas exister dans le même lieu avec ces choses qui ne sont pas en accord avec Son caractère et ses qualités ; et que, s’Il était en l’homme ou l’homme en Lui, alors aucun péché ou erreur ou choses qui violent, existerait.
 
-Je doit arrêter maintenant, mais [je reviendrai bientôt pour terminer mon message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/).
+Je doit arrêter maintenant, mais [je reviendrai bientôt pour terminer mon message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/).<sup id=”a1”>[1](#f1)</sup>
 
 Avec tout mon amour, je suis ta grand-mère.
+<small>
 
-*Note : Plusieurs autres messages ont écrits sur ce thème « Qui et qu'est-ce que Dieu ? » Ils peuvent être lus par l'intermédiaire du tableau ci-dessous :*
+1. <large id=”f1”> *Plusieurs autres messages ont écrits sur ce thème « Qui et qu'est-ce que Dieu ? » Ils peuvent être lus par l'intermédiaire du tableau ci-dessous :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

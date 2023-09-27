@@ -25,6 +25,6 @@ Je ne te retiendrai pas plus longtemps ce soir, car je vois que tu es fatigué.
 
 Bonne nuit et fais de beaux rêves.
 
-Ta vraie et aimante Hélène.
+Ta vraie et bien aimée Hélène.
 
 

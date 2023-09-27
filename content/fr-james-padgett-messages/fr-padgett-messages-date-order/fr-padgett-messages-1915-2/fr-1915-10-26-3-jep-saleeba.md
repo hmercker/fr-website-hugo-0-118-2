@@ -33,9 +33,10 @@ Je reviendrai bientôt partager avec vous ce que j’ai promis.
 
 Alors je vous souhaite une bonne nuit.
 
-Votre amie et sœur, Saleeba.
+Votre amie et sœur, Saleeba.<sup id=”a1”>[1](#f1)</sup> 
+<small>
 
-*Note : Saleeba a commenté son expérience de progression par les messages suivants :*
+<large id=”f1”> *Saleeba a commenté son expérience de progression par les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -31,6 +31,6 @@ C’était l’idée du peuple et aussi des prêtres et des scribes; et malgré 
 
 Ainsi, vous voyez, le GRAND CADEAU du Père qui est la nouvelle effusion de l’Amour Divin, n’était pas connu ni même rêvé par les Juifs, ni conçu ni enseigné par leurs scribes, ni même par leurs grands prophètes, ni par les donneurs de loi tels que Moïse, Élie et d’autres. Leur conception de Dieu était celle d’un être personnel exalté, tout puissant et savant, et celui qu’ils pourraient voir face à face, comme ils le pouvaient d’un roi ou d’un souverain quand ils viendraient dans les cieux qu’il avait préparés pour eux, et où Il avait son habitation.
 
-Je vais différer l’écriture et [je le reprendrai plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-12-1-jep-jesus/).
+Je vais différer l’écriture et [je la reprendrai plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-12-1-jep-jesus/).
 
 Jésus.

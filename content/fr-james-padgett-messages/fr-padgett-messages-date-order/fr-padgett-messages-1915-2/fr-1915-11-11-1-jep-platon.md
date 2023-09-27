@@ -25,9 +25,10 @@ Je vois que vous avez reçu beaucoup de messages des esprits qui sont plus élev
 
 Je n’écrirai pas plus, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Platon.
+Votre frère en Christ, Platon.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note :  Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*
+<large id=”f1”> *Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

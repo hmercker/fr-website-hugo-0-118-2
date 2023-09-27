@@ -50,7 +50,7 @@ Avec tout mon amour et mes bénédictions.
 George Riddle.
 <small>
 
-<large id=”f1”> Ce message est publié dans le volume II, deuxième version française, à la page 22 et dans le volume IV à la page 370. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
+1. <large id=”f1”> Ce message est publié dans le volume II, deuxième version française, à la page 22 et dans le volume IV à la page 370. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
 
 
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le témoignage de Mme Eddy Bakker <sup id="a1">[1](#f1)</sup>
+### Le témoignage de Mme Eddy Bakker<sup id="a1">[1](#f1)</sup>
 
 Mme Eddy Baker - reçu par James Padgett le 17 Décembre 1916, Washington, USA.
 

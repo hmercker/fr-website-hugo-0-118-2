@@ -45,15 +45,16 @@ Je pense que tu as bien reçu mes idées et mes propos, et j’espère que les v
 
 Je suis très heureuse et je reviendrai bientôt, et partagerai d’autres vérités qui pourraient t’intéresser.
 
-Je dois arrêter maintenant.
+Je dois arrêter maintenant.<p isud=”a1”>[1](#f1)</sup>
 
 Avec tout mon amour et mes bénédictions, je suis ta propre grand-mère adorée, Anne Rollins.
+<small>
 
-*Note : Plusieurs autres messages ont écrits sur ce thème « Qui et qu'est-ce que Dieu ? » Ils peuvent être lus dans le tableau ci-dessous :*
+1. <large id=”f1”> *Plusieurs autres messages ont écrits sur ce thème *« Qui et qu'est-ce que Dieu ? »* Ils peuvent être lus dans le tableau ci-dessous :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Professeur Salyars | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-21-1-jep-joseph-salyards/)  | 21 Novembre 1915
+Professeur Salyards | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-21-1-jep-joseph-salyards/)  | 21 Novembre 1915
 Jésus | [La personalité de Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/) | 22 Novembre 1915
 Luc | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/) | 22 Novembre 1915
 Anne Rollins | [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/) | 25 Février 1916

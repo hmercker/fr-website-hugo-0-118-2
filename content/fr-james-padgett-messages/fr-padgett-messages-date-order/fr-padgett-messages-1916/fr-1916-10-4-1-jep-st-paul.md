@@ -34,7 +34,7 @@ Alors, avec tout mon amour, je vous souhaite une bonne nuit.
 Ton frère en Christ, Paul.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*.[↩](#a1)
+1. <large id=”f1”> *Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

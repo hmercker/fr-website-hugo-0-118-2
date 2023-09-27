@@ -38,6 +38,6 @@ Quand je dis la nature Divine, je ne veux pas dire que toutes les âmes, que ce 
 J’ai assez écrit pour ce soir, mais je reviendrai pour vous faire part d’autres vérités. Alors avec mon amour et mes bénédictions je suis votre frère en Christ, Samuel.
 <small>
 
-1. <large id="f1"> Le terme anglais utilisé à l’origine était « Involution » et non « Evolution ». Cependant le terme « Involution » est incorrect.[↩](#a1)
+1. <large id="f1"> Le terme anglais utilisé à l’origine était *« Involution »* et non *« Evolution »*. Cependant le terme *« Involution »* est incorrect.[↩](#a1)
 
-1. <large id="f2"> Le terme "Involution" ci-dessus se réfère probablement à l’incarnation de l’esprit dans une réalité déjà existante, le préalable nécessaire à l’évolution.  En effet l'involution est le développement inverse de l'évolution, le retour à l'homogène, à l'uniformité. Il est synonyme de régression.[↩](#a2)
+1. <large id="f2"> Le terme *« Involution »* ci-dessus se réfère probablement à l’incarnation de l’esprit dans une réalité déjà existante, le préalable nécessaire à *« l’évolution »*.  En effet *« l'involution »* est le développement inverse de *« l'évolution »*, le retour à l'homogène, à l'uniformité. Il est synonyme de régression.[↩](#a2)
