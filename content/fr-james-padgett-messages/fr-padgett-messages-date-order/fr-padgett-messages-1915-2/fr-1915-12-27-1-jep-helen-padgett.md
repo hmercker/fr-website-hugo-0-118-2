@@ -23,4 +23,4 @@ Je dirai donc que tu ne dois pas l’envoyer avant qu’il ait tranché la quest
 
 Alors de tout mon cœur, je te souhaite une bonne nuit.
 
-Ta propre vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.

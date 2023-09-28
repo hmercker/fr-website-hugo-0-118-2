@@ -19,7 +19,9 @@ Je suis le colonel Cook. J’ai été le portier en chef de la Maison Blanche pe
 
 Je vous souhaite une bonne nuit.
 
-Colonel Cook.
+Colonel Cook.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> **Stephen Grover Cleveland, dit Grover Cleveland** (18 Mars 1837 - 24 juin 1908) fut le 22e et 24e président des États-Unis. Il est le seul président, à ce jour, à avoir été élu pour deux mandats non consécutifs de 1885 à 1889 et de 1893 à 1897 et est donc le seul à être compté deux fois dans le décompte des présidents.[↩](#a1) 
+1. <large id="f1"> **Stephen Grover Cleveland, dit Grover Cleveland** (18 Mars 1837 - 24 Juin 1908) fut le 22e et 24e président des États-Unis. Il est le seul président, à ce jour, à avoir été élu pour deux mandats non consécutifs de 1885 à 1889 et de 1893 à 1897 et est donc le seul à être compté deux fois dans le décompte des présidents.[↩](#a1) 
+
+2. <large id="f2"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)

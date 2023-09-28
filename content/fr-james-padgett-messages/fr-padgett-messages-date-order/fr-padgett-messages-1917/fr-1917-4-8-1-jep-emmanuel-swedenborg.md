@@ -26,4 +26,4 @@ Je suis dans les Sphères Célestes, et bien sûr, je suis un ange de Dieu et le
 Votre frère en Christ, Swedenborg.
 <small>
 
-1. <large id="f1"> Jésus a délivré un message d’explication concernant M. Swendenborg, au mois de février 1984. Dans ce message, il explique le manque de compréhension de M. Swendenborg au sujet de la différence entre l’amour naturel et l’Amour Divin. (Geoff Cutler).[↩](#a1)
+1. <large id="f1"> Jésus a délivré un message d’explication concernant M. Swendenborg, au mois de [Février 1984](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-2-1-1-vs-jesus/). Dans ce message, il explique le manque de compréhension de M. Swendenborg au sujet de la différence entre l’amour naturel et l’Amour Divin. (Geoff Cutler).[↩](#a1)

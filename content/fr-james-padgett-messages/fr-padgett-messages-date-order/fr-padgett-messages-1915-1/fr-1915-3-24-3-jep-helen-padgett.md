@@ -36,4 +36,4 @@ Eh bien, mon chéri, tu as beaucoup écrit et tu dois arrêter.
 
 Elle va bien et est un peu troublée, mais cela disparaîtra bientôt si tu fais ce que le Maître a dit.
 
-Alors avec tout mon amour, et avec beaucoup de câlins et de baisers, je suis ta propre vraie et bien-aimée, Hélène.
+Alors avec tout mon amour, et avec beaucoup de câlins et de baisers, je suis ta vraie et bien-aimée, Hélène.

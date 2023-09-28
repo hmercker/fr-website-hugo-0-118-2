@@ -19,7 +19,7 @@ Néanmoins, elle n’est pas ton ange gardien. Aigle Blanc est un guide pour bea
 
 Nous nous intéressons tous tellement à toi que tu n’es jamais seul, même pendant ton sommeil. Même M. Riddle et le professeur Salyards sont avec toi pour essayer de t’influencer dans tes affaires terrestres.
 
-Le dernier auteur de message<sup id="a1">[1](#f1)</sup> était l’esprit de l’homme qui a écrit le livre que tu es en train de lire. Je ne le connaissais pas jusqu’à ce qu’il vienne écrire et se présente comme l’auteur du livre et dise que Jésus le recommandait. Bien sûr nous avons consenti à ce qu’il écrive.
+[Le dernier auteur de message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-17-2-jep-eugen-crowell/) était l’esprit de l’homme qui a écrit le livre que tu es en train de lire. Je ne le connaissais pas jusqu’à ce qu’il vienne écrire et se présente comme l’auteur du livre et dise que Jésus le recommandait. Bien sûr nous avons consenti à ce qu’il écrive.
 
 C’est un esprit de la cinquième sphère où je vis et je le verrai davantage maintenant. Il se peut qu’il rejoigne notre groupe, car il est un homme merveilleusement intellectuel et bien versé dans les vérités spirituelles. Oui, il n’est pas rempli de ce grand Amour comme le sont ta grand-mère, ta mère et Hélène. Mais il fera un ajout intéressant, et je crois que toute la bande y consentira, surtout parce que Jésus l’a recommandé.
 
@@ -36,6 +36,3 @@ Oui, elle, [Mme Emmons](/fr-james-padgett-messages/fr-padgett-messages-date-orde
 Je dois arrêter, alors bonne nuit, mon cher fils.
 
 Ton père qui t’aime.
-<small>
-
-1. <large id="f1"> Il s’agit de M. Eugène Crowell, auteur de *« L’identité du christianisme des premiers jours et du spiritualisme moderne »*. Son message, communiqué le 17 Mars 1915, est publié dans le volume IV, édition françaose de Janvier 1921, page 308.  Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/). (G.J.C.)[↩](#a1)

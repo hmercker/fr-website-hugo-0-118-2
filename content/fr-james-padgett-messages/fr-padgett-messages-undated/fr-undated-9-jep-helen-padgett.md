@@ -37,4 +37,4 @@ Il ne me l’a pas dit, mais je crois qu’il attend que tu deviennes plus fort,
 
 Au revoir, avec tout mon amour.
 
-Je suis ta propre vraie, Hélène.
+Je suis ta vraie et bien aimée, Hélène.

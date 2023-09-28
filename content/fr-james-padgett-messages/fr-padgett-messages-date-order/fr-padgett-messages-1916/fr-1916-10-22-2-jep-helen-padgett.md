@@ -24,4 +24,4 @@ Oui, je vais essayer de l’influencer de la manière dont tu as parlé, et je p
 Ta vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id=”f1”> L'expression « bébé » se réfère à Nita Padgett, la fille de James et Hélène Padgett.[↩](#a1)
+1. <large id=”f1”> L'expression « bébé » se réfère à Nita Padgett, la fille de James et Hélène Padgett brusquement décédée le 20 Juin 1918.[↩](#a1)

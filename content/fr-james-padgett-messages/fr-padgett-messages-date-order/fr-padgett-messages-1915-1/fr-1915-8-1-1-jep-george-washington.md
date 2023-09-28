@@ -33,4 +33,8 @@ Ainsi, mon ami, je dois m’arrêter.
 
 Je suis reconnaissant de votre bonté. Je vous dis bonne nuit.
 
-Votre frère dans le Christ Georges Washington.
+Votre frère dans le Christ Georges Washington.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)
+

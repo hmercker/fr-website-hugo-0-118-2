@@ -21,12 +21,14 @@ Je n’ai pas été conçu par l’Esprit Saint, comme cela est enseigné par le
 
 Oui, je le ferai, et vous apprendrez que beaucoup d’erreurs ont été écrites par les auteurs de la Bible. Je vous montrerai que je n’ai jamais prononcé les nombreuses fausses déclarations que j’ai soi-disant faites ou qu’elles n’ont pas exprimé mes enseignements de la vérité. Ses enseignements de la Science Chrétienne n’expriment pas le vrai sens de la vérité et de l’amour comme je les ai enseignés. Elle est dans l’erreur quant aux idées que Dieu est esprit seulement, un esprit du mental. Il est un Esprit de tout ce qui appartient à Son Être. Il est non seulement Esprit, mais Cœur, Âme et Amour.<sup id=”a2”>[2](#f2)</sup>
 
-Vous êtes trop faible pour écrire plus. Vous avez ma bénédiction et celle également de l’Esprit Saint. Jésus le Christ <sup id="a3">[3](#f3)</sup>.
+Vous êtes trop faible pour écrire plus. Vous avez ma bénédiction et celle également de l’Esprit Saint. Jésus le Christ<sup id="a3">[3](#f3)</sup>.
 <small>
 
 1. <large id="f1"> Ceci est le troisième message de Jésus reçu par James Padgett. Le terme « formel » a été utilisé pour différencier les communications les plus importantes des communications les plus conviviales. (Geoff Cutler.)[↩](#a1)
 
-2. <large id=”f1”> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a2)
+2. <large id="f2"> Ce message est publié dans le Volume I desmessages de James Padgett, 2ème édition française, page 365 et dans le volume III des messages à la page 56. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a2)
+
+3. <large id=”f3”> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a3)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -40,6 +42,5 @@ Jésus | [Jésus a montré sa grande gloire et a donné son amour à M. Padgett]
 Jésus | [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
 Jésus | [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/) | 06 Novembre 1917
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
-<small>
 
-3. <large id="f3"> Ce message est publié dans le Volume I desmessages de James Padgett, 2ème édition française, page 365 et dans le volume III des messages à la page 56. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a3)
+

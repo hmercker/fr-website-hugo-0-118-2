@@ -19,6 +19,9 @@ Eh bien, je t’aime aussi d’un amour maternel plus grand qui remplit maintena
 
 Je suis très heureuse et je progresse tout le temps car je suis maintenant plus haut dans les Cieux Célestes que la dernière fois que je t’ai écrit et il en est de même pour Hélène, béni son cher cœur, et bien entendu, ta grand-mère a progressé et elle est devenue un esprit merveilleux, très glorieux et rayonnant. Les esprits qui parfois écrivent sur elle et qui vivent dans les sphères inférieures ne la voient jamais telle qu’elle est vraiment car ils ne pourraient pas résister à son apparence glorieuse. Mais elle apporte son amour avec elle dans ces sphères inférieures et ces esprits peuvent sentir l’influence de cet amour et ils le font.
 
-Elle dit qu’elle viendra bientôt t’écrire un message de vérité. Tous t’envoient de l’amour et bien sûr ta mère te donne et te laisse son amour dans toute son abondance. Et je suis heureuse aussi, mon cher garçon. Garde ta foi et ta confiance et même si tu vis les années qui t’ont été dites, elles seront courtes. Alors tu seras avec nous et ton bonheur sera grand. Bonne nuit et que Dieu te bénisse, ton amour, Mère.
+Elle dit qu’elle viendra bientôt t’écrire un message de vérité. Tous t’envoient de l’amour et bien sûr ta mère te donne et te laisse son amour dans toute son abondance. Et je suis heureuse aussi, mon cher garçon. Garde ta foi et ta confiance et même si tu vis les années qui t’ont été dites, elles seront courtes. Alors tu seras avec nous et ton bonheur sera grand. Bonne nuit et que Dieu te bénisse, ton amour, Mère.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Il semble que ce message ne se réfère pas au message de Jésus à la même date et qu’une quantité considérable de choses personnelles ait été retirées. C’est ce qui ressort clairement du résumé à la même date sur la tablette (Journal quotidien de James  Padgett).*
+1. <large id=”f1”> Il semble que ce message ne se réfère pas au message de Jésus à la même date et qu’une quantité considérable de choses personnelles ait été retirées. C’est ce qui ressort clairement du résumé à la même date sur  [la tablette](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1917/).[↩](#a1)
+
+

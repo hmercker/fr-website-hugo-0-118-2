@@ -36,6 +36,6 @@ Je vous souhaite une bonne nuit.
 Votre récent ami spirituel, Eugène Crowell.
 <small>
 
-1. <large id="f1"> Il a écrit un livre intitulé « The Spirit World (le Monde des Esprits) » : Ses habitants : nature et philosophie » en 1879. Ainsi que « L’identité du Christianisme primitif et du spiritualisme moderne ».[↩](#a1)
+1. <large id="f1"> Il a écrit deux livres intitulés « The Spirit World : : Its inhabitants nature and philosophy (le Monde des Esprits : Ses habitants : nature et philosophie) » en 1879. et « The identity of primitive Christianity and modern spiritualism (L’identité du Christianisme primitif et du spiritualisme moderne) ».[↩](#a1)
 
-2. <large id="f2"> En fait, cela ne semble pas être correct. On considère généralement qu’il est mort en 1894 et voici une copie de sa nécrologie : 30 Octobre 1894, mercredi : Le Dr. Eugène Crowell, qui fut, à un moment donné, le leader du parti « Know-Nothing » en Californie, est mort tôt hier matin, dans ses appartements de l’Hoffman Arms, Fifty-ninth Street et Madison Avenue. Le Dr Crowell était âgé de soixante-dix-huit ans. Il laisse deux fils, Frank et Charles E., et une fille, Mme John Halliday de Nyack, N. Y. (New York Times)[↩](#a2)
+2. <large id="f2"> En fait, cela ne semble pas être correct. On considère généralement qu’il est mort en 1894 et voici une copie de sa nécrologie : mercerdi 30 Octobre 1894 : Le Dr. Eugène Crowell, qui fut, à un moment donné, le leader du parti « Know-Nothing » en Californie, est mort tôt hier matin, dans ses appartements de l’Hoffman Arms, Fifty-ninth Street et Madison Avenue. Le Dr Crowell était âgé de soixante-dix-huit ans. Il laisse deux fils, Frank et Charles E., et une fille, Mme John Halliday de Nyack, N. Y. (New York Times)[↩](#a2)

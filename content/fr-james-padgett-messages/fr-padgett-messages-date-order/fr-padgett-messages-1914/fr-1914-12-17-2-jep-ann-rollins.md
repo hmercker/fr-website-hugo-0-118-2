@@ -25,13 +25,11 @@ Je ne vais pas écrire plus car tu es fatigué.
 
 *[Question et réponse]*
 
-Oui, c’est merveilleux. Il *(M. A. G. Riddle <sup id="a1">[1](#f1)</sup>)* voit maintenant que la prière est la seule chose qui peut l’aider et il prie et écoute les conseils de ta mère et de ton père. Il a beaucoup changé depuis que tu lui as écrit <sup id="a2">[2](#f2)</sup>, et je crois qu’il sera bientôt capable de comprendre ce que c’est que d’avoir l’amour de Dieu dans son âme.
+Oui, c’est merveilleux. Il *(M. A. G. Riddle<sup id="a1">[1](#f1)</sup>)* voit maintenant que la prière est la seule chose qui peut l’aider et il prie et écoute les conseils de ta mère et de ton père. Il a beaucoup changé [depuis que tu lui as écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-16-1-jep-ag-riddle/), et je crois qu’il sera bientôt capable de comprendre ce que c’est que d’avoir l’Amour de Dieu dans son âme.
 
 Alors, que ta prière aille à Dieu pour lui comme nous le faisons tous.
 
 Ta grand-mère, Anne Rollins.
 <small>
 
-1. <large id="f1"> Avocat associé de M. Padgett. (J.P.G.)[↩](#a1)
-
-2. <large id="f2"> Lire la déclaration de M. Riddle sur sa condition spirituelle et sur ce qu’il fait pour « faire une meilleur homme de moi-même. » Se reporter au message publié dans le volume IV, 2ème édition, page 329. (G.J.C.)[↩](#a2)
+1. <large id="f1"> Avocat associé de M. Padgett. (Jean Paul Gibsons)[↩](#a1)

@@ -48,7 +48,7 @@ Le temps viendra peut-être où je ne reverrai plus jamais mes parents et où j�
 
 C’est une réalité que peu de mortels comprennent et il se peut fort bien qu’ils ne la comprennent pas parce que l’amour qui existe entre beaucoup de parents est une chose belle et qui cause beaucoup de bonheur et de préservation de soi. Il n’y a rien sur terre comme l’amour de la mère et rien n’égale ce grand don de l’amour d’une mère pour les mortels que les bénédictions de Dieu lui accordent. Et ainsi avec les autres amours naturels dans une moindre mesure.
 
-Mais, comme Jésus l’a dit : [ « Celui qui fait la volonté de mon Père est ma mère, mon frère et ma sœur » ](https://saintebible.com/matthew/12-50.htm).*
+Mais, comme Jésus l’a dit : [Celui qui fait la volonté de mon Père est ma mère, mon frère et ma sœur](https://saintebible.com/matthew/12-50.htm).*
 
 Tu dois donc te rendre compte ce que toi et l’amour naturel des relations n’est que pour la vie terrestre et pour peu de temps après. Chaque individu est en lui et de lui-même une unité complète qui ne dépend pas de sa relation aux autres, et en tant que telle doit trouver sa place dans la grande éternité qui doit être déterminée par le développement et le progrès de sa propre âme dans l’attente de ce que peuvent devenir les âmes de ses relations terrestres. Il n’est attiré que par des âmes au développement similaire et trouvera son foyer en compagnie de ces âmes indépendamment de la question de la relation naturelle.
 

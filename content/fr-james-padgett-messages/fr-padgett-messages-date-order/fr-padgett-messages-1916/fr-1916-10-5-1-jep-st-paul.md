@@ -1,13 +1,13 @@
 ---
-title: "Paul – suite du message précédent"
+title: "Quel est le corps réel qui est ressuscité au moment de la mort physique (Suite)"
 menu_title: ""
-description: "Paul – suite du message précédent"
+description: "Quel est le corps réel qui est ressuscité au moment de la mort physique (Suite)"
 date: 2022-06-01 06:00:01+00:287
 draft: False
 hidden: True
 weight:
 ---
-### Paul – suite du message précédent <sup id="a1">[1](#f1)</sup>
+### Paul – Quel est le corps réel qui est ressuscité au moment de la mort physique (Suite)<sup id="a1">[1](#f1)</sup>
 
 St Paul - reçu par James Padgett le 5 Octobre 1916, Washington, USA.
 

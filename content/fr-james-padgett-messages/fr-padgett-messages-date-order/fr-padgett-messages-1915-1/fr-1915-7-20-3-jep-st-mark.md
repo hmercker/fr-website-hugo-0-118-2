@@ -20,4 +20,4 @@ Alors je dirai bonne nuit, et que Dieu vous garde, pour toujours, dans Son Amour
 Saint Marc, l’auteur du second évangile, à l’origine vrai tel qu’il a été écrit, mais maintenant rempli d’erreurs.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume III à la page 221 (2ème édition anglaise de Juillet 2014).[↩](#a1)
+1. <large id="f1"> Ce message est également publié dans le volume II page 247 et dans le volume III à la page 284. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

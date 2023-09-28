@@ -21,7 +21,7 @@ Les Allemands seront sûrement victorieux dans cette grande guerre, et les Fran�
 
 Il est inutile que j’écrive davantage sur cette question, car je ne pourrais que répéter ce que j’ai dit ; mais vous, mon ami, gardez cela en mémoire et faites cette prédiction quant à la fin de la guerre : Les Allemands seront les vainqueurs.<sup id="a3">[3](#f3)</sup>
 
-Votre ami, Von Moltke.
+Votre ami, Von Moltke.<sup id="a4">[4](#f4)</sup>
 <small>
 
 1. <large id="f1"> Le titre originel était *« Les esprits qui sont liés à la terre, les pensées ne changent pas lorsqu’ils entrent dans le monde des esprits »*. Cela était totalement sans relation avec le message qui suit.[↩](#a1)
@@ -29,3 +29,5 @@ Votre ami, Von Moltke.
 2. <large id="f2"> L’ancien stratège des armées allemandes lors de la chute de la France.[↩](#a2)
 
 3. <large id="f3"> Cette remarque est la parfaite illustration du fait que les esprits ne peuvent absolument pas prédire l’avenir. Tout ce qu’ils peuvent faire c’est de deviner en connaissance de cause, car ils ont accès à une grande quantité d’informations, néanmoins, Von Moltke avait tort. Toutefois, cela ne doit pas être considéré comme une déclaration selon laquelle l’avenir ne peut jamais être prédit – qu’il est absolument prévisible, mais que l’information doit venir de Dieu. [Le message de Spinoza](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-1-5-1-jep-baruch-spinoza/) du 5 Janvier 1919 *« Baruch Spinoza écrit sur la capacité du médium à prédire l’avenir de tout personne »* le confirme. (G.J.C.)[↩](#a3)
+
+4. <large id="f4"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a4)

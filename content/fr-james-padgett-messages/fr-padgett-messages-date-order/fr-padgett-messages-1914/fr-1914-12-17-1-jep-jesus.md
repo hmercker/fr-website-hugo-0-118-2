@@ -37,4 +37,4 @@ Non, je reviendrai bientôt lorsque vous serez en état de me recevoir. Oui, je 
 
 Vous m’êtes très cher et je ne vous abandonnerai jamais, alors reposez-vous dans cette assurance et je sais que vous serez plus heureux, car aucun homme, qui a mon amour comme vous l’avez maintenant, n’a encore jamais été malheureux. Soyez seulement mon propre vrai disciple et je serai avec vous jusqu’à la fin.
 
-Votre cher enseignant et ami, Jésus de Nazareth qui a été crucifié mais est ressuscité d’entre les morts, comme vous ressusciterez et revivrez dans la faveur et l’amour du Père.
+Votre cher enseignant et ami, Jésus de Nazareth qui a été crucifié mais est ressuscité d’entre les morts, comme vous ressusciterez et revivrez dans la faveur et l’Amour du Père.

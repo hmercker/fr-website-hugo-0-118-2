@@ -21,4 +21,4 @@ Mais ils ne sont pas des esprits de lumière et d’amour comme l’Amour Divin 
 
 Tu ne dois plus écrire.
 
-Alors avec tout mon amour, je suis ta propre vraie et bien-aimée, Hélène.
+Alors avec tout mon amour, je suis ta vraie et bien-aimée, Hélène.

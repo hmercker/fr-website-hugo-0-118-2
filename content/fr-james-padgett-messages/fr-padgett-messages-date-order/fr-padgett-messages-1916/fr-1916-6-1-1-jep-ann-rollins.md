@@ -43,10 +43,10 @@ Eh bien, mon cher garçon, j’ai assez écrit pour ce soir et je vais m’arrê
 
 Tu as mon amour et mon influence pour t’aider de toutes les manières, et aussi mes prières au Père pour ton développement spirituel. Alors, avec ma bénédiction, je te souhaite une bonne nuit.
 
-Ta grand-mère aimante.<sup id=”a1”>[1](#f1)</sup>
+Ta grand-mère bien aimée.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*.[↩](#a1)
+1. <large id=”f1”> *Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

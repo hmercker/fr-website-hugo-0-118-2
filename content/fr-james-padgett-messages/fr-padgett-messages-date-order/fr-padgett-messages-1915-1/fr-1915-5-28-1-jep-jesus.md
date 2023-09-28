@@ -75,11 +75,12 @@ Je dois arrêter maintenant,- et vous donner ma bénédiction et la bénédictio
 Votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
 <small>
 
-1. <large id=”f1”> Il y trois autres messages sur le thème de l'immortalité.[↩](#a1)
+1. <large id=”f1”> Il y a plusieurs autres messages sur le thème de l'immortalité.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Henry Ward Beecher | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) | 05 Juillet 1915
+Gottfried Leibnitz | [l’immortalité et l’incertitude de l’obtenir même dans le monde spirituel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-4-1-jep-gottfried-leibnitz/) | 04 Juin 1917
 Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
 St Luc | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
 

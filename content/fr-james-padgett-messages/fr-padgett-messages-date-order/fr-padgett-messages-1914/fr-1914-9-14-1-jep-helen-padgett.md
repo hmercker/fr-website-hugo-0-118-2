@@ -47,6 +47,7 @@ Oui, et j’ai vu le livre que tu lisais, le dernier n’est pas utile, laisse-l
 
 Sois un vrai disciple de Christ et tu n’auras besoin d’aucune autre connaissance ou aide. Oui, et je ne suis pas d’accord avec lui sur le Spiritualisme ou la Science Chrétienne. Il n’est pas assez bien informé sur l’un ou l’autre pour former un jugement correct. Il est trop sectaire et n’a pas une vraie conception de la Bible. Laissez-le tranquille.
 
-Bonne nuit, avec tout mon amour et beaucoup de baisers. Hélène.
+Bonne nuit, avec tout mon amour et beaucoup de baisers. Hélène.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : [Dans ce message de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.*
+1. <large id=”f1”> [Dans ce message de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.*[↩](#a1)

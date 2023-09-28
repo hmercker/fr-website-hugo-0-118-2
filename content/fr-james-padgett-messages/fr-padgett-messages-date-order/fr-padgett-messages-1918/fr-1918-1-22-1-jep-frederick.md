@@ -30,7 +30,7 @@ Frédéric le père de la nation blessée (Père de Guillaume II<sup id="a3">[3]
 
 1. <large id="f2"> Les divers messages relatifs à la première guerre mondiale ont été regroupés et sont consultables par [ce lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)
 
-2. <large id="f3"> **[Guillamume II**](https://fr.wikipedia.org/wiki/Guillaume_II_(empereur_allemand)) (27 Janvier 1859 - 4 Juin 1941) est le troisième et dernier empereur allemand (Deutscher Kaiser) ainsi que le neuvième roi de Prusse, de 1888 à son abdication en 1918. Il était le petit-fils de Guillaume Ier (premier empereur allemand) et le fils de Frédéric III, qui ne régna que 99 jours et à qui il succéda.[↩](#a3)
+2. <large id="f3"> [**Guillamume II**](https://fr.wikipedia.org/wiki/Guillaume_II_(empereur_allemand)) (27 Janvier 1859 - 4 Juin 1941) est le troisième et dernier empereur allemand (Deutscher Kaiser) ainsi que le neuvième roi de Prusse, de 1888 à son abdication en 1918. Il était le petit-fils de Guillaume Ier (premier empereur allemand) et le fils de Frédéric III, qui ne régna que 99 jours et à qui il succéda.[↩](#a3)
 
 
 

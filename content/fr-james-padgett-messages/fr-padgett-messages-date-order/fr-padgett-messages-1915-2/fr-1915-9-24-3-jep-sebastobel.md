@@ -52,4 +52,4 @@ Sebastobel.
 
 2. <large id=”f2”> Voir à ce sujet le message de Jésus des [18 et 20 Octobre 1988](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-10-18-1-dl-jesus/).[↩](#a2)
 
-3. <large id=”f3”> Le parcours spirituel d'Hélène Padgett  est décrit [dans cette page](Le parcours spirituel d'Hélène Padgett).[↩](#a3)
+3. <large id=”f3”> Le parcours spirituel d'Hélène Padgett est décrit [dans cette page](/fr-james-padgett-messages/1-1-3-fr-details-of-the-life-of-helen-padgett/).[↩](#a3)

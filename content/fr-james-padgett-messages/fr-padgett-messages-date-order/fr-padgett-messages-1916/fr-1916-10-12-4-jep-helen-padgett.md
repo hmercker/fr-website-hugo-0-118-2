@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène écrit que Forrest prie sincèrement pour l’Amour Divin et qu’il progresse, et qu’il était si impatient d’écrire <sup id="a1">[1](#f1)</sup>
+### Hélène écrit que Forrest prie sincèrement pour l’Amour Divin et qu’il progresse, et qu’il était si impatient d’écrire<sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 12 Octobre 1916, Washington, USA.
 

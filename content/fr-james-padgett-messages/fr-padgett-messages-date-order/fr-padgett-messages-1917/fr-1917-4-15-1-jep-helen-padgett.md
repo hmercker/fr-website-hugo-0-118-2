@@ -31,4 +31,4 @@ Alors mon chéri, arrêtons-nous maintenant. Je t’aime et je t’aime et je ve
 
 Bonne nuit et que le Père te bénisse de Son Amour et de Son attention.
 
-Ta propre vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.

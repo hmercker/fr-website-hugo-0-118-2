@@ -30,4 +30,4 @@ Bonne nuit, mon cher mari.
 Ta vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id=”f1”> Il est fait référence à des messages indiqués sur la tablette (journal quotidien de  James Padgett) dont la transcription a été perdue.[↩](#a1)
+1. <large id=”f1”> Il est fait référence à des messages indiqués sur la [tablette (journal quotidien de  James Padgett)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1918/) dont la transcription a été perdue.[↩](#a1)

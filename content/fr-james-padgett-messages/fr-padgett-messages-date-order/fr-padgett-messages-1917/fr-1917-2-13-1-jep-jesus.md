@@ -19,6 +19,7 @@ Je sais que vous êtes impatient de recevoir ce discours et que vous vous attend
 
 C’est ce qui donne à l’homme une création et une existence au-dessus de la création brute de la terre et qui détermine la grande distinction entre l’homme et la création brute et non la raison comme les hommes le font si souvent observer. La raison n’est qu’une faculté de l’esprit qui, dans le cas où l’âme prend la substance divine, devient, pour ainsi dire, une chose de non-existence pour les facultés de l’âme qui supplante la raison. C’est la raison qui distingue tant l’homme, en tant que simple homme, et qui continuera dans cette vie spirituelle à le distinguer comme la plus haute création de Dieu, tant que l’homme restera simple homme même s’il devient l’homme parfait. Mais je n’en parlerai plus maintenant.
 
-Je suis votre ami et votre frère, Jésus.
+Je suis votre ami et votre frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
+<small>
 
-*Note : D’après le résumé de ce message dans la Tablette (journal quotidien de James Padgett), il est évident qu’une quantité considérable de commentaires personnels de Jésus a été supprimée de ce message. L’original contient aussi des phrases incroyablement longues et des preuves d’un mauvais rapport.*
+1. <large id=”f1”> D’après le résumé de ce message dans la [Tablette (journal quotidien de James Padgett)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1917/), il est évident qu’une quantité considérable de commentaires personnels de Jésus a été supprimée de ce message. L’original contient aussi des phrases incroyablement longues et des preuves d’un mauvais rapport.[↩](#a1)

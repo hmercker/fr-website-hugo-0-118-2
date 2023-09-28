@@ -25,9 +25,10 @@ Mais vous devez savoir et proclamer pour toujours que Dieu est amour, et que ceu
 
 Je reviendrai quand vous serez en meilleure condition pour prendre un long message et vous écrire.
 
-Avec tout mon amour, je suis votre frère dans le Christ, St. Luc.
+Avec tout mon amour, je suis votre frère dans le Christ, St. Luc.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*
+1. <large id=”f1”> *Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

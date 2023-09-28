@@ -21,7 +21,7 @@ Et je remercie Dieu pour cette assurance et cette connaissance.<sup id="a1">[1](
 
 Je n’écrirai pas plus ce soir.
 
-Avec tout mon amour, je suis ta propre vraie et bien-aimée Hélène.
+Avec tout mon amour, je suis ta vraie et bien-aimée Hélène.
 <small>
 
-1. <large id="f1"> Cela semble s’être avéré exact, car James Padgett a communiqué de nombreuses fois après sa mort, au cours des 100 dernières années, mais plus particulièrement dans la période qui a suivi immédiatement son décès. La liste de ces messages est disponible par l'intermédiare [de ce lien](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/). [↩](#a1)
+1. <large id="f1"> Cela semble s’être avéré exact, car James Padgett a communiqué de nombreuses fois après sa mort, au cours des 100 dernières années, mais plus particulièrement dans la période qui a suivi immédiatement son décès. La liste de ces messages est disponible par l'intermédiaire [de ce lien](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/).[↩](#a1)

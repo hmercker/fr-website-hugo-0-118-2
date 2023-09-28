@@ -9,9 +9,9 @@ weight:
 ---
 ### John Calhoun travaille toujours pour son pays
 
-John Calhoun <sup id="a1">[1](#f1)</sup> - reçu par James Padgett le 25 Février 1917, Washington, USA.
+John Calhoun - reçu par James Padgett le 25 Février 1917, Washington, USA.
 
-Je suis John C. Calhoun.
+Je suis John C. Calhoun.<sup id="a1">[1](#f1)</sup>
 
 Je viens dire quelques mots au sujet de nos affaires internationales, et je dis les nôtres parce que je m’intéresse toujours à mon pays et que j’ai le sentiment d’en être un citoyen, bien que je sois un esprit et non un mortel.
 
@@ -31,7 +31,7 @@ J’ai essayé d’atteindre l’oreille du président ainsi que celle de certai
 
 M. Wilson est un homme intelligent, plein de bonnes intentions et de patriotisme, et il est un peu difficile pour ceux qui ne savent pas lire dans ses pensées de comprendre la position qu’il défend. Mais, pour nous, il est clair que le grand désir de tenir le pays à l’écart de la guerre – idée que je dois vous dire l’a obsédé et lui a fait croire qu’en le faisant, il gagnait l’approbation du peuple – le conduit à être trop prudent et certain que si la guerre éclate, il n’en sera pas la cause.
 
-Bien sûr, cela peut normalement être louable, mais dans les circonstances actuelles, c’est plus que digne d’être condamné et, dans ses conséquences, elle pourrait presque s’avérer criminelle. Il faut ardemment souhaiter que quelqu’un d’influent puisse seulement le réveiller de cette obsession et le persuader d’agir et d’agir rapidement. La guerre est là et ses grondements approchent ; et il n’est pas nécessaire d’avoir une oreille expérimentée pour entendre les sons de son approche.
+Bien sûr, cela peut normalement être louable, mais dans les circonstances actuelles, c’est plus que digne d’être condamné et, dans ses conséquences, elle pourrait presque s’avérer criminelle. Il faut ardemment souhaiter que quelqu’un d’influent puisse seulement le réveiller de cette obsession et le persuader d’agir et d’agir rapidement. La guerre est là et ses grondements approchent ; et il n’est pas nécessaire d’avoir une oreille expérimentée pour entendre les sons de son approche.<sup id="a2">[2](#f2)</sup>
 
 Eh bien, j’ai écrit plus que ce que j’avais prévu, je vous remercie et je vous souhaite une bonne nuit.
 
@@ -41,3 +41,5 @@ John C. Calhoun.
 <small>
 
 1. <large id="f1"> **John Caldwell Calhoun** (18 Mars 1782 – 31 Mars 1850) fut un politicien et théoricien politique Américain durant la première moitié du 19ème siècle. Originaire de Caroline du Sud, John Calhoun a débuté sa carrière politique comme nationaliste, modernisateur et partisan d’un gouvernement national fort et de fortes protections tarifaires. Après 1830, ses vues ont évolué et il est devenu un plus grand défenseur des droits des États, d’un gouvernement limité, de la théorie politique de « nullification » (*théorie juridique selon laquelle un État a le droit de nullifier, c'est-à-dire invalider, toute loi fédérale qu'il considère comme inconstitutionnelle.*) et du libre-échange, car il considérait ces moyens comme le seul moyen de préserver l’Union. Il est connu pour sa défense intensive et originale de l’esclavage en tant que bien positif, sa méfiance à l’égard du « majoritarisme » et pour avoir conduit le Sud vers la sécession de l’Union. (Source : Wikipédia)[↩](#a1)
+
+2. <large id="f2"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)

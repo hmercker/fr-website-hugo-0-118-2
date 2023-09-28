@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le père de M. Padgett parle du registre des âmes sœurs
+### Le père de M. Padgett parle du registre des âmes-sœurs
 
 John Padgett - reçu par James Padgett le 31 Décembre 1914, Washington, USA.
 
@@ -19,7 +19,7 @@ Je suis très heureux et je suis heureux que tu sembles l’être également.
 
 Oui, à cause de l’expérience que tu as vécue l’autre soir en aimant Hélène et elle de t’aimer. Tu étais certainement rempli d’amour et tu dois être parfaitement heureux d’avoir eu une telle démonstration d’amour et la réalisation de la présence réelle de ta femme, car je te dis qu’elle était avec toi et était tellement remplie de son amour pour toi, que nous nous sommes tous étonnés de son amour. Elle est un esprit qui semble n’avoir aucune limite à son amour pour toi ; peu d’esprits semblent avoir autant d’amour qu’elle en a pour toi. Tu dois donc te considérer comme un homme béni d’avoir une telle femme et une telle âme-sœur.
 
-Oui, comme je te l’ai dit il y a de nombreuses années, il y a un registre dans le ciel – un livre de vie, comme je pourrais l’appeler – qui contient les noms de ceux qui sont décrétés par Dieu comme étant un pour l’éternité ; et lorsque qu’une personne désire connaître qui est son âme sœur, je consulte ce livre, et là je trouve l’information recherchée. Je ne suis pas autorisée à donner le nom de l’âme-sœur si il, ou elle, vit sur la terre, car cela pourrait créer la discorde ou causer le désarroi chez les vivants. Si l’âme-sœur n’est pas mariée, je n’ai aucune restriction mais si l’âme-sœur est mariée, alors je ne dois pas révéler son nom ; telle est la loi de Dieu dans cette circonstance. La raison en est que ce devoir m’a été assigné, et comme Hélène te l’a dit, je lui ai appris à s’acquitter de ce devoir et elle est maintenant engagée dans cette tâche, et elle réussit très bien dans l’accomplissement de sa mission. Elle semble avoir une merveilleuse capacité, ou plutôt une intuition, pour localiser les âmes sœurs dans le monde des esprits, car elle n’échoue jamais lorsqu’elle entreprend d’en trouver une. Elle éprouve aussi une grand joie à faire ce travail et à voir le bonheur qui vient à ceux qui lui demandent d’accomplir cette tâche. Je ne m’y engage pas avec autant d’enthousiasme qu’elle, mais je fais de mon mieux, et je suis aussi récompensé en voyant le bonheur de ces âmes sœurs quand elles sont réunies.
+Oui, comme je te l’ai dit il y a de nombreuses années, il y a un registre dans le ciel – un livre de vie, comme je pourrais l’appeler – qui contient les noms de ceux qui sont décrétés par Dieu comme étant un pour l’éternité ; et lorsque qu’une personne désire connaître qui est son âme-sœur, je consulte ce livre, et là je trouve l’information recherchée. Je ne suis pas autorisée à donner le nom de l’âme-sœur si il, ou elle, vit sur la terre, car cela pourrait créer la discorde ou causer le désarroi chez les vivants. Si l’âme-sœur n’est pas mariée, je n’ai aucune restriction mais si l’âme-sœur est mariée, alors je ne dois pas révéler son nom ; telle est la loi de Dieu dans cette circonstance. La raison en est que ce devoir m’a été assigné, et comme Hélène te l’a dit, je lui ai appris à s’acquitter de ce devoir et elle est maintenant engagée dans cette tâche, et elle réussit très bien dans l’accomplissement de sa mission. Elle semble avoir une merveilleuse capacité, ou plutôt une intuition, pour localiser les âmes sœurs dans le monde des esprits, car elle n’échoue jamais lorsqu’elle entreprend d’en trouver une. Elle éprouve aussi une grand joie à faire ce travail et à voir le bonheur qui vient à ceux qui lui demandent d’accomplir cette tâche. Je ne m’y engage pas avec autant d’enthousiasme qu’elle, mais je fais de mon mieux, et je suis aussi récompensé en voyant le bonheur de ces âmes sœurs quand elles sont réunies.
 
 Non, pas s’ils ne sont pas chargés de ce travail. C’est l’une des dispositions du monde spirituel que chaque personne a un travail d’un certain type, ou de plusieurs types, à accomplir, et ils sont ainsi aidés par les pouvoirs supérieurs, ou, comme nous croyons, par l’Amour de Dieu pour accomplir leur responsabilité. Un esprit qui est affecté à un travail particulier, comme aider l’esprit lorsqu’il entre pour la première fois dans le monde des esprits, ne tentera pas de s’engager dans un autre travail d’un tout autre genre.
 
@@ -29,7 +29,7 @@ Bien sûr, ce n’est seulement que l’esprit qui a eu lui-même cet éveil, qu
 
 Elle l’a à un degré qui lui permet presque de rejoindre ta mère, et je pense que, dans très peu de temps, elle va nous quitter et s’élever vers la sphère supérieure, et qu’elle va nous manquer beaucoup.
 
-Oui, il *(M. A.G. Riddle <sup id="a1">[1](#f1)</sup>)* est de plus en plus en état de recevoir cet amour et de croire en ce que lui dit ta mère. C’est elle qui essaie de lui montrer le chemin, plus que quiconque. Il semble avoir une grande confiance en elle et en son amour.
+Oui, il *(M. A.G. Riddle<sup id="a1">[1](#f1)</sup>)* est de plus en plus en état de recevoir cet amour et de croire en ce que lui dit ta mère. C’est elle qui essaie de lui montrer le chemin, plus que quiconque. Il semble avoir une grande confiance en elle et en son amour.
 
 Il progresse également très rapidement, et j’espère qu’il sera bientôt avec moi dans cette sphère. Tu vois donc que nous progressons tous bien et tes prières nous aident beaucoup.
 
@@ -84,4 +84,4 @@ Oui, tu as certainement causé à ce gentilhomme des difficultés à s’éloign
 Ton père, John H. Padgett.
 <small>
 
-1. <large id="f1"> L’avocat associé de M. James Padgett. (G.J.C.)[↩](#a1)
+1. <large id="f1"> L’avocat associé de M. James Padgett. (Geoff  Cutler)[↩](#a1)

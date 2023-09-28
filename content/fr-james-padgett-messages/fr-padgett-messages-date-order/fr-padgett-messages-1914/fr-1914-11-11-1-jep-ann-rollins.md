@@ -46,7 +46,11 @@ Tu dois arrêter d’écrire maintenant sinon tu ne pourras pas aller à ton dî
 Ta grand-mère adorée.<sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id=”f1”> *Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a1)
+1. <large id=”f1”> Ce message est publié dans le Volume III à la page 65 et dans le Volume IV à la page 225. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
+
+2. <large id=”f2”> Ce message gagnerait beaucoup à être recréé à partir de l’original. Il est clair qu’Anne Rollins éprouve quelques difficultés à s’exprimer. Cependant, il est aussi probable que James Padgett n’avait pas, en ce moment, la condition d’âme pour recevoir aussi fidèlement qu’il l’a eu plus tard. (Geoff Cutler)[↩](#a2)
+
+3. <large id=”f3”> *Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*[↩](#a3)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -56,8 +60,7 @@ Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître.](/f
 Jean | [Qu’est-ce que l’Esprit Saint et comment fonctionne-t-il ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/) | 14 Juin 1917
 Jésus|  [Différence entre l’Esprit de Dieu et l’Esprit Saint.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
 
-2. <large id=”f2”> Ce message gagnerait beaucoup à être recréé à partir de l’original. Il est clair qu’Anne Rollins éprouve quelques difficultés à s’exprimer. Cependant, il est aussi probable que James Padgett n’avait pas, en ce moment, la condition d’âme pour recevoir aussi fidèlement qu’il l’a eu plus tard. (Geoff Cutler)[↩](#a2)
 
-3. <large id=”f3”> Ce message est publié dans le Volume III à la page 65 et dans le Volume IV à la page 225. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a3)
+
 
 

@@ -29,7 +29,9 @@ Comme je l’ai déjà dit, le Kaiser va mourir, ses partisans vont mourir ou ê
 
 Eh bien, j’ai assez écrit et l’écriture est figée. Il n’est pas possible d’échapper à sa prédiction. Bientôt, bientôt, très bientôt, la fin viendra et avec elle le salut de plusieurs de nations plutôt que d’une seule.<sup id=”a2”>[2](#f2)</sup>
 
-Je ne suis pas un prophète, cependant la loi de cause à effet fera en sorte que les individus comme les nations seront ébranlés. Comme je peux voir les causes qui agissent, je peux aussi voir les effets qui doivent suivre. La consécration sera que l’Allemagne doit sombrer, pour ne plus jamais se relever comme étant la grande nation qu’elle a été dans le passé, mais comme une nation plus pure, plus heureuse et plus aimante que jamais. Je n’écrirai pas plus. Les vies américaines ne seront pas en grand nombre sacrifiées, car les grandes batailles de la guerre ont été livrées. Bonne nuit, votre ami, Bismarck.
+Je ne suis pas un prophète, cependant la loi de cause à effet fera en sorte que les individus comme les nations seront ébranlés. Comme je peux voir les causes qui agissent, je peux aussi voir les effets qui doivent suivre. La consécration sera que l’Allemagne doit sombrer, pour ne plus jamais se relever comme étant la grande nation qu’elle a été dans le passé, mais comme une nation plus pure, plus heureuse et plus aimante que jamais. Je n’écrirai pas plus. Les vies américaines ne seront pas en grand nombre sacrifiées, car les grandes batailles de la guerre ont été livrées. 
+
+Bonne nuit, votre ami, Bismarck.
 <small>
 
 1. <large id="f1"> [**Bismark** (1er Avril 1815 - 30 Juillet 1898)- premier chancelier du nouvel Empire allemand de 1871 à 1890](https://fr.wikipedia.org/wiki/Otto_von_Bismarck). 

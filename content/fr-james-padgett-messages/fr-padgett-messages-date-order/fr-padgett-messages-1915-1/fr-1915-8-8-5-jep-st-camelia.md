@@ -11,7 +11,7 @@ weight:
 
 Sainte Celestia - reçu par James Padgett le 8 Août 1915, Washington, USA.
 
-Je suis, Sainte Celestia. <sup id="a1">[1](#f1)</sup>
+Je suis, Sainte Celestia.<sup id="a1">[1](#f1)</sup>
 
 Je fus une Chrétienne martyrisée par l’Église fanatique de Rome. Je vivais en Italie et j’étais un disciple de Jésus, mais je ne croyais pas aux doctrines de l’Église romaine. C’est longtemps après ma mort que j’ai été canonisée par l’église même qui m’a tuée. Bien entendu, le Pape et les fonctionnaires qui m’ont canonisée étaient différents de ceux qui m’ont tuée.
 
@@ -34,4 +34,4 @@ Je vous souhaite une bonne nuit.
 Votre amie et sœur en Christ, St. Celestia.
 <small>
 
-1. <large id="f1"> Note de l’éditeur : Cette « sainte » n’apparaît dans aucune des listes de saints, pour autant que nous puissions le déterminer. Il y a trois possibilités. La première est que James Padgett n’a pas reçu ce message avec exactitude et que son nom exact est différent, qu’elle est bien une sainte canonisée de l’Église Catholique, mais pas publiquement annoncée, et la troisième est que c’était un message d’un imposteur. Il est peu probable qu’elle soit une imposture, car il est clair d’après le message qu’elle est un esprit avancé, et il y a un message de Jésus qui dit que ces saints sont ceux qu’ils prétendaient être, et qu’un imposteur ne sait pas écrire. Jusqu’à ce que quelqu’un pose à nouveau la question, nous ne connaîtrons pas la réponse.[↩](#a1)
+1. <large id="f1"> Cette « sainte » n’apparaît dans aucune des listes de saints, pour autant que nous puissions le déterminer. Il y a trois possibilités. La première est que James Padgett n’a pas reçu ce message avec exactitude et que son nom exact est différent, qu’elle est bien une sainte canonisée de l’Église Catholique, mais pas publiquement annoncée, et la troisième est que c’était un message d’un imposteur. Il est peu probable qu’elle soit une imposture, car il est clair d’après le message qu’elle est un esprit avancé, et il y a un message de Jésus qui dit que ces saints sont ceux qu’ils prétendaient être, et qu’un imposteur ne peut pas écrire. Jusqu’à ce que quelqu’un pose à nouveau la question, nous ne connaîtrons pas la réponse. (Geoff Cutler)[↩](#a1)

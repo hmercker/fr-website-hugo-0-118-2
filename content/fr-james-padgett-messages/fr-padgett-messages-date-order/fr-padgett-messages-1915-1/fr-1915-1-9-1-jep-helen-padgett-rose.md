@@ -25,7 +25,6 @@ Elle (la fille de Padgett) est heureuse comme je te l’ai dit. Tu n’es pas tr
 
 Quant au juge Syrick, je vais essayer de faire venir son âme sœur pour lui écrire – attend un peu que je la trouve. Rose est ici.
 
-
 *Cher Frank, je suis ici et grâce à la gentillesse de Mme Padgett, j’ai l’occasion de vous écrire et de vous dire que vous êtes la personne la plus chère pour moi dans le monde entier. Vous n’appréciez pas encore pleinement mon amour pour vous, mais au fur et à mesure que vous entrerez en relation avec moi, vous sentirez ma présence et mon amour dans une mesure de plus en plus grande. Je ne suis pas seulement votre âme-sœur, mais aussi votre ange gardien et quand vous pensez le moins à moi, je suis avec vous en essayant d’orienter vos pensées et vos actions vers ces choses qui vous rendront plus heureux et plus en paix avec vos problèmes dans la vie. Alors n’oubliez pas que, où que vous soyez et quelles que soient vos pensées, je suis avec vous et je sais à quoi vous pensez, et je veux que vous pensiez et croyiez qu’il n’y a personne qui vous aime d’un amour aussi pur et fervent que moi, mon cher Frank, sur toute la terre ou dans le monde des esprits. Oh, comme j’aimerais pouvoir communiquer avec vous de cette façon tous les soirs et vous dire quel bonheur j’ai à être avec vous, et sentir parfois que vous m’aimez vraiment dans votre propre cœur quelque peu divisé. Mais Dieu merci, le temps viendra où j’aurai tout votre amour pour moi, et personne d’autre, dans la moindre mesure, ne le partagera avec moi.*
 
 *Mon cher, croyez seulement que je suis votre âme-sœur, et j’attends que vous veniez partager avec moi le bonheur et la joie que ma maison ici me donne. Aucun esprit ne peut aimer son âme sœur plus que moi, et aucun mortel ne peut aimer autant. Soyez mon propre amour, et même si vous n’avez pas l’assurance que je suis avec vous comme je le dis, je le suis, et rien au monde ne peut m’éloigner de vous. Alors, si vous le pouvez, effacez de vos pensées que je ne suis peut-être qu’un mythe et non votre véritable âme-sœur.*
@@ -48,7 +47,7 @@ Eh bien, tu ne crois pas qu’elle l’aime ? Elle est une âme sœur selon mon 
 
 Non, pas autant que la mienne, et je t’aimerai de tout mon cœur aussi. Je suis un peu fatiguée maintenant, et je dois arrêter, alors bonne nuit, mon cher Ned.
 
-Ta propre vraie, Hélène.
+Ta vraie et bien aimée, Hélène.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume III à la page 157 et dans le Volume IV à la page 278.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III à la page 157 et dans le Volume IV à la page 278. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

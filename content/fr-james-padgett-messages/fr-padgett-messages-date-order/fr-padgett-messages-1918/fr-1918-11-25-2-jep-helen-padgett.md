@@ -22,4 +22,4 @@ Eh bien, ce sera satisfaisant. Je ne pense pas qu’il soit préférable d’éc
 Ta propre vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id=”f1”> Seul le message de Longiticus a été enregistré.[↩](#a1)
+1. <large id=”f1”> Seul le message de [Longiticus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-25-1-jep-longitikus/) a été enregistré.[↩](#a1)

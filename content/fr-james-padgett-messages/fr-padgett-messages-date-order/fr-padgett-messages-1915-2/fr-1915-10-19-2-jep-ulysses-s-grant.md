@@ -33,7 +33,10 @@ Ultérieurement, si cela vous convient, je vous écrirai à ce sujet.
 
 Je vais maintenant vous souhaiter bonne nuit.
 
-Votre ami, U. S. Grant.
+Votre ami, U. S. Grant.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **Ulysses S. Grant** (né Hiram Ulysses Grant ; 27 avril 1822 – 23 juillet 1885) fut le 18e président des États-Unis (1869-77). En tant que commandant général (1864-1869), Ulysses Grant a travaillé en étroite collaboration avec le président Abraham Lincoln pour mener l’armée de l’Union à la victoire sur la Confédération pendant la guerre civile américaine. Il a mis en œuvre la Reconstruction du Congrès, souvent en désaccord avec le successeur de Lincoln, Andrew Johnson. Deux fois élu président, Ulysses Grant a dirigé les Républicains dans leurs efforts pour éliminer les vestiges du nationalisme Confédéré et de l’esclavage, protéger la citoyenneté afro-américaine et soutenir la prospérité économique dans tout le pays. Sa présidence a souvent été critiquée pour avoir protégé des associés corrompus et pour avoir conduit le pays dans une grave dépression économique au cours de son second mandat.[↩](#a1)
+
+2. <large id="f2"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)
+

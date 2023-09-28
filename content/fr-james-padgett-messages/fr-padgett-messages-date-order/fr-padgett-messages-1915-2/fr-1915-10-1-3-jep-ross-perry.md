@@ -15,7 +15,7 @@ Je suis votre défunt ami, Perry.
 
 Je veux vous dire que je suis dans un état de grandes ténèbres et de souffrance, et que je ne peux trouver un moyen de sortir des ténèbres ou de me libérer de mes tortures.
 
-Je sais que vous pouvez trouver étrange que je n’aie pas écouté M. Riddle lorsque vous l’avez mis en relation avec moi il y a peu de temps <sup id="a1">[1](#f1)</sup>, mais je n’ai pas pu croire ce qu’il m’a dit, ni comprendre de quelle manière les ténèbres me quitteraient en priant simplement Dieu et en essayant de croire que l’Amour Divin existe. Si seulement je pouvais avoir la foi, en ce qu’il m’a dit, devenir suffisamment fort pour me faire oublier les souvenirs de mon terrible acte.
+Je sais que vous pouvez trouver étrange que je n’aie pas écouté M. Riddle lorsque vous l’avez mis en relation avec moi il y a peu de temps<sup id="a1">[1](#f1)</sup>, mais je n’ai pas pu croire ce qu’il m’a dit, ni comprendre de quelle manière les ténèbres me quitteraient en priant simplement Dieu et en essayant de croire que l’Amour Divin existe. Si seulement je pouvais avoir la foi, en ce qu’il m’a dit, devenir suffisamment fort pour me faire oublier les souvenirs de mon terrible acte.
 
 J’ai vu qu’il était un esprit extraordinairement brillant et qu’il semblait si heureux dans sa condition de croyance, mais, néanmoins, je n’ai pas pu croire que c’était le résultat de ce qu’il me disait et, ainsi, je suis dans le même état que lorsque je vous ai écrit la dernière fois.
 
@@ -60,4 +60,4 @@ C’est pourquoi, mon cher ami, permettez-moi de vous dire que je vous remercie 
 Votre ami, R. Ross Perry.
 <small>
 
-1. <large id="f1"> Il semble que cela se soit produit le 28 Juillet 1915, mais que ce message n’ait pas été publié.[↩](#a1)
+1. <large id="f1"> Il semble que cela se soit produit [le 28 Juillet 1915](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1915/), mais que ce message n’ait pas été publié.[↩](#a1)

@@ -26,4 +26,4 @@ Votre frère en Christ, Luther.
 
 1. <large id="f1"> Ce fut les papes Léon X et Pape Clément VII. (Geoff Cutler)[↩](#a1)
 
-2. <large id="f2"> La tablette de Padgett (qui donne résumé de chaque message) suggère que la phrase *« Ils ne sont pas dans les Cieux Célestes »* qui se trouve dans la publication, devrait en fait être *« Ils sont maintenant dans les Cieux Célestes »*. Le texte ci-dessus a été modifié en conséquence, de même que le titre. (Geoff Cutler.)[↩](#a2)
+2. <large id="f2"> La [tablette de James Padgett (qui donne résumé de chaque message)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1916/) suggère que la phrase *« Ils ne sont pas dans les Cieux Célestes »* qui se trouve dans la publication, devrait en fait être *« Ils sont maintenant dans les Cieux Célestes »*. Le texte ci-dessus a été modifié en conséquence, de même que le titre. (Geoff Cutler)[↩](#a2)

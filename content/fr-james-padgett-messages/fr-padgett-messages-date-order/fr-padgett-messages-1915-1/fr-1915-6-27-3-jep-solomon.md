@@ -21,12 +21,12 @@ Je suis devenu un disciple du Maître il y a de nombreuses années, et je sais q
 
 J’aimerais écrire davantage, mais vous êtes fatigué. Alors je vous souhaite une bonne nuit.
 
-Salomon le sage.
+Salomon le sage.<sup id=”a2”>[2](#f2)</sup> 
 <small>
 
 1. <large id="f1">  Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 127 et dans le volume III à la page 280. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
-*Note :  Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*
+2. <large id="f2"> *Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

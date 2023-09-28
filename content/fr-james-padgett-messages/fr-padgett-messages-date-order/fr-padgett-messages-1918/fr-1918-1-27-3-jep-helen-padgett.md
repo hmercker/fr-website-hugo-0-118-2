@@ -19,4 +19,4 @@ Je sais que tu ne te sens pas comme d’habitude, et tu n’en comprends pas exa
 
 Pense à ces choses et garde ton courage et crois en l’avenir et en ce que nous t’avons dit et promis. Je n’écrirai pas plus maintenant. Aime-moi et crois que je t’aime et que je suis avec toi et que j’essaie tellement de t’aider. Bonne nuit.
 
-Ta propre vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.

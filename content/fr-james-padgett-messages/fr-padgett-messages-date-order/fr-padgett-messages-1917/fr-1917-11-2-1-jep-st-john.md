@@ -37,11 +37,13 @@ Il m’est difficile d’exprimer exactement ce que j’ai l’intention de tran
 
 Une pensée spirituelle – je veux dire une pensée qui ne peut venir que d’un esprit qui a le développement de l’âme qui rend cette âme Divine – ne peut pas passer à travers un cerveau humain qui n’a jamais été développé par une âme dans laquelle l’Amour Divin est entré et a travaillé ses pouvoirs régénérateurs. Les choses de la matière peuvent être transmises par un cerveau purement matériel, les choses morales par un cerveau qui a été influencé par des vérités morales, et les choses spirituelles par un cerveau qui a assimilé ces vérités qui ne viennent qu’avec le développement de l’Âme par l’Amour. C’est la loi du rapport et de la communication.
 
-Eh bien, je n’écrirai pas plus maintenant. Mais, en conclusion, exhortez vous à avoir foi en nous, laissez vos soucis vous quitter, et priez davantage le Père. Au revoir.
+Eh bien, je n’écrirai pas plus maintenant. Mais, en conclusion, exhortez vous à avoir foi en nous, laissez vos soucis vous quitter, et priez davantage le Père. Au revoir.<sup id="a2">[2](#f2)</sup>
 
-Votre frère en Christ, Jean.<sup id="a2">[2](#f2)</sup>
+Votre frère en Christ, Jean.<sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id="f1"> C’est l’un des trois messages auxquels Jésus fait référence dans le message qu'il a communiqué publié [le 25 Octobre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/).[↩](#a1)
 
 2. <large id="f2"> Le second message communiqué par Jean sur ce sujet fut communiqué le [04 Janvier 2018](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/).[↩](#a2)
+
+3. <large id="f3"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a3)

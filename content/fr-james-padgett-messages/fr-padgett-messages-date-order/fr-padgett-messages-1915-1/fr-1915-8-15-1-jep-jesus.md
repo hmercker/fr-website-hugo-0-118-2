@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais <sup id="a1">[1](#f1)</sup>
+### Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 15 Août 1915, Washington, USA.
 
 C’est moi, Jésus.
 
-J’étais avec vous, ce soir, lors de la réunion des Chrétiens, et j’ai vu que vous pensiez à plusieurs choses que j’avais écrites et que vous vouliez partager avec le prédicateur au sujet de mes vérités. Mais bien sûr vous n’avez pas pu. Il a pris quelques paroles de la Bible que j’étais supposé avoir prononcées et je l’ai fait, mais je ne voulais pas exactement exprimer ce qu’il a expliqué être le sens de ces paroles lorsque j’ai dit *« [Quiconque vit et croit en moi ne mourra jamais](https://saintebible.com/john/11-26.htm) »* . Je voulais dire que l’homme dont l’âme n’était pas morte dans le péché et avait cru dans les vérités que j’avais révélées, c’est à dire l’Amour Divin de Dieu, attendant d’entrer et de remplir son âme avec son essence et substance et que l’homme qui, par la prière et la foi, a reçu cet Amour Divin, ne devrait jamais mourir. Il deviendrait immortel car Dieu est immortel.
+J’étais avec vous, ce soir, lors de la réunion des Chrétiens, et j’ai vu que vous pensiez à plusieurs choses que j’avais écrites et que vous vouliez partager avec le prédicateur au sujet de mes vérités. Mais bien sûr vous n’avez pas pu. Il a pris quelques paroles de la Bible que j’étais supposé avoir prononcées et je l’ai fait, mais je ne voulais pas exactement exprimer ce qu’il a expliqué être le sens de ces paroles lorsque j’ai dit *[Quiconque vit et croit en moi ne mourra jamais](https://saintebible.com/john/11-26.htm)* . Je voulais dire que l’homme dont l’âme n’était pas morte dans le péché et avait cru dans les vérités que j’avais révélées, c’est à dire l’Amour Divin de Dieu, attendant d’entrer et de remplir son âme avec son essence et substance et que l’homme qui, par la prière et la foi, a reçu cet Amour Divin, ne devrait jamais mourir. Il deviendrait immortel car Dieu est immortel.
 
 Aucune simple croyance en moi, comme Jésus homme ou fils de Dieu, n’est suffisante pour donner à l’homme une vie éternelle car, alors qu’il doit croire que j’ai été envoyé par le Père pour proclamer la grande vérité qu’il avait de nouveau accordée à l’homme, la possibilité d’obtenir cet Amour Divin par ses prières et sa foi, cependant, à moins qu’il croit en cela et ne devienne le possesseur de cet Amour Divin, il ne pourra jamais détenir la vie éternelle.
 

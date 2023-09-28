@@ -19,4 +19,7 @@ Eh bien, tout cela est très triste, et nous les Esprits, ainsi que vous les mor
 
 Tu es fatigué et je ne dois pas écrire plus. Mais je dois dire que tu es dans une bien meilleure condition d’esprit et d’âme, et si tu continues à prier le Père, tu seras bientôt en condition pour que les esprits supérieurs puissent écrire leurs messages, ce qu’ils souhaitent tant faire. Nous envoyons tous de l’amour et des bénédictions et nous désirons que tu sois heureux. Tu sais combien je t’aime et désire que tu sois heureux, et comme mes prières vont au Père pour ton bonheur et l’afflux de l’amour. Pense donc à moi et aime-moi, et aie foi et courage, et tu seras béni. Embrasse-moi et souhaite-moi une bonne nuit.
 
-Ta vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)

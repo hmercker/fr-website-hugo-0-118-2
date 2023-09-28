@@ -28,6 +28,6 @@ Je vais maintenant vous souhaiter bonne nuit et, ce faisant, vous dire tout mon 
 Votre frère en Christ, St. Étienne.
 <small>
 
-1. <large id="f1"> Ceci est un message de la première heure et je soupçonne que le terme « église » ne serait normalement pas appliqué, par le Maître, au corps des esprits vivant dans les Cieux Célestes. Cependant, Étienne a essayé de redéfinir ce mot ici. Certes, ils sont unis dans leurs croyances, mais le terme « église » à terme a beaucoup trop de connotations terrestres pour être, à mon avis, approprié. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Ceci est un message de la première heure et je soupçonne que le terme « église » ne serait normalement pas appliqué, par le Maître, au corps des esprits vivant dans les Cieux Célestes. Cependant, Étienne a essayé de redéfinir ce mot ici. Certes, ils sont unis dans leurs croyances, mais le terme « église » à terme a beaucoup trop de connotations terrestres pour être, à mon avis, approprié. (Geoff Cutler)[↩](#a1)
 
 2. <large id="f2"> « Co-worker » dans le texte originel.[↩](#a2)

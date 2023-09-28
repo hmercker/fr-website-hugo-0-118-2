@@ -39,4 +39,4 @@ Lorsque les hommes réaliseront que le changement appelé mort ne détruit pas l
 Eh bien, j’ai écrit autant que j’ai jugé bon de le faire ce soir, et je vous remercie de votre indulgence. Avec mes meilleures salutations, je vous souhaite une bonne nuit, votre ami, Francis Bacon.
 <small>
 
-<large id=”f1”> Francis Bacon s'était exprimé précédeement [le 20 Novembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-20-1-jep-francis-bacon/) et le [1er Décembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-1-1-jep-francis-bacon/).[↩](#a1)
+1. <large id=”f1”> Francis Bacon s'était exprimé précédeement [le 20 Novembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-20-1-jep-francis-bacon/) et le [1er Décembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-1-1-jep-francis-bacon/).[↩](#a1)

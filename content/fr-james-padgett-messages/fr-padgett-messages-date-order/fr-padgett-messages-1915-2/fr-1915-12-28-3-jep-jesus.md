@@ -23,13 +23,14 @@ Mon but est que vous et votre ami obteniez ce Grand Amour alors que vous êtes e
 
 Je vous écrirai bientôt un autre message qui montrera une autre grande vérité que l’humanité doit connaître.
 
-Eh bien, j’expliquerai, très prochainement, cette phrase dans un de mes messages, et je montrerai, à la satisfaction de votre ami, que Dieu ne soumet jamais aucun de ses enfants à la tentation, et que je n’ai jamais dit, en enseignant à mes disciples la prière du Seigneur, qu’ils devraient prier pour que Dieu ne les soumette pas à la tentation. Je vous communiquerai aussi la prière que je leur ai enseignée, et qui est la vraie prière que tous les hommes au cœur fervent, honnête et désireux, devraient offrir au Père. Que cela ne vous trouble pas, vous ou votre ami, car Dieu ne soumet pas les hommes à la tentation, mais, au contraire, il utilise l’influence de ses justes esprits sur eux pour les aider à résister à toute tentation.
+Eh bien, j’expliquerai, très prochainement, cette phrase dans un de mes messages, et je montrerai, à la satisfaction de votre ami, que Dieu ne soumet jamais aucun de ses enfants à la tentation, et que je n’ai jamais dit, en enseignant à mes disciples la prière du Seigneur, qu’ils devraient prier pour que Dieu ne les soumette pas à la tentation. Je vous communiquerai aussi la prière que je leur ai enseignée, et qui est la vraie prière que tous les hommes au cœur fervent, honnête et désireux, devraient offrir au Père. Que cela ne vous trouble pas, vous ou votre ami, car Dieu ne soumet pas les hommes à la tentation, mais, au contraire, il utilise l’influence de ses justes esprits sur eux pour les aider à résister à toute tentation.<sup id="a1">[1](#f1)</sup>
 
 Avec tout mon amour pour vous et votre collègue, et les bénédictions du Père sur vous deux, je suis votre frère et ami, Jésus.
+<small>
 
-*Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
+1. <large id="f1"> *Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*[↩](#a1)
 
-*Auteur** | **Titre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [– Conseils donnés par Jésus sur la participation au service religieux.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-2-jep-jesus/) |  29 Août 1915
 Jésus | [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/)  | 16 Mai 1916 

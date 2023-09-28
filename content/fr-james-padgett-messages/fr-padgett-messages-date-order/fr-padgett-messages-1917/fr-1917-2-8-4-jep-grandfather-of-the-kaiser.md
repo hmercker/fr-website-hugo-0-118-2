@@ -19,4 +19,7 @@ J’ai beaucoup sympathisé avec tous ceux qui sont engagés dans cette guerre, 
 
 Je ne peux pas en dire plus ce soir, mais nous prions tous pour les peuples du monde et demandons au Père d’ouvrir les cœurs des dirigeants à l’apport de Son Amour et à l’instauration de la paix. Je vais conclure.
 
-William, le grand-père du Kaiser.
+William, le grand-père du Kaiser.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)

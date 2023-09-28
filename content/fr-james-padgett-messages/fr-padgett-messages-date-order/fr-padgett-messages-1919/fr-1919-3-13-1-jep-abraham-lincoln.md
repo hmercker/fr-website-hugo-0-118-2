@@ -31,7 +31,7 @@ La renonciation n’est pas tant une question d’intellect que de nature morale
 
 Je vais m’arrêter maintenant, car le rapport a cessé, mais je reviendrai. Bonne nuit, je suis votre ami et bienfaiteur.
 
-Lincoln. <sup id=”a1”>[1](#f1)</sup
+Lincoln.<sup id=”a1”>[1](#f1)</sup
 <small>
 
 1. <large id=”f1”> Il y a un autre [message récent d’Abraham Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/). En fait en 1969 Abraham Lincoln a communiqué deux messages et au cours des années 2005 à 2020, il a communiqué 11 messages. Tous ces différents messages peuvent être lus par l'intermédiaire de ce [lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

@@ -33,11 +33,9 @@ Si tu pouvais comprendre pleinement l’état de ton bébé, tu ne voudrais pas 
 
 Eh bien, mon chéri, quand tu seras un peu plus fort, je viendrai t’écrire plus en détail sur la mort de bébé et elle écrira aussi. Aime-moi et aime-la, et prie le Père. Je te souhaite une bonne nuit. Que Dieu te bénisse et te réconforte, mon cher mari.
 
-Ta vraie et bien-aimée, Hélène.<sup id="a2">[2](#f2)</sup>
+Ta vraie et bien-aimée, Hélène.
 <small>
 
 1. <large id="f1"> L’avis de décès suivant a été découvert récemment. Cette information a été publiée dans le Baltimore Sun le samedi matin 22 Juin 1918, comme suit : 
 
 > PADGETT – Le jeudi 20 Juin au soir, à Washington, Helenita Padgett, de Washington, fille de James E. et de feu Hélène W. Padgett. Les funérailles auront lieu au cimetière du Mont Olivet, Frederick, Md. à 14 h, le samedi 22 Juin après-midi.[↩](#a1)
-
-2. <large id="f2"> *Je me suis longtemps demandé s’il s’écoule du temps entre la mort physique et la reprise de conscience dans les domaines spirituels. D’après ce message, il semble qu’il n’y en ait aucun. Ce qui rend la déclaration dans le Livre d’Urantia très curieuse. Ce livre prétend que cela prend trois jours.* (Geoff Cutler)[↩](#a2)

@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 27 Janvier 1915, Washington, USA.
 
 C’est moi, Hélène.
 
-Oui, nous allons essayer – tu es en meilleure condition que tu ne l’étais ce soir, au bureau, et je pourrai écrire d’une manière plus connectée. Eh bien, j’étais présente quand Jen est passée, et je l’ai prise dans mes bras et je l’ai portée à un lieu dans le plan terrestre où elle devra vivre jusqu’à ce qu’elle avance vers une sphère supérieure – elle était très heureuse de me voir car elle m’a reconnue et m’a dit : *« Oh, Hélène, où suis-je ? C’est étrange que je sois avec toi. »* <sup id="a1">[1](#f1)</sup>
+Oui, nous allons essayer – tu es en meilleure condition que tu ne l’étais ce soir, au bureau, et je pourrai écrire d’une manière plus connectée. Eh bien, j’étais présente quand Jen est passée, et je l’ai prise dans mes bras et je l’ai portée à un lieu dans le plan terrestre où elle devra vivre jusqu’à ce qu’elle avance vers une sphère supérieure – elle était très heureuse de me voir car elle m’a reconnue et m’a dit : *« Oh, Hélène, où suis-je ? C’est étrange que je sois avec toi. »*<sup id="a1">[1](#f1)</sup>
 
 Je lui ai dit qu’elle était passée de la vie mortelle à la vie spirituelle, et qu’elle ne devait plus penser à son corps et qu’elle ne pourrait plus jamais y entrer. Elle ne m’a pas tout à fait comprise, mais elle a dit qu’elle ne voyait pas pourquoi elle ne pourrait pas rentrer dans son corps, car il était seulement endormi, et qu’elle le ferait aussitôt qu’il se réveillerait. Je lui ai dit que jamais plus elle n’entrerait dans son corps, qu’elle avait cessé d’être mortelle, et que dès que son corps serait enterré, elle réaliserait qu’elle est un esprit, et qu’elle ne vivrait plus sur terre comme mortelle, mais qu’elle visiterait ses proches sur terre plusieurs fois, mais pas sous forme physique.
 
@@ -31,7 +31,7 @@ L’âme sœur de George est toujours sur terre, mais elle ne vit pas à Washing
 
 Le corps de Jen sera enterré dans la terre comme le mien, mais, mon chéri, elle n’y sera pas plus que moi ; et quand son corps sera finalement déposé, elle n’ira jamais à l’endroit où il est enterré, sauf si ses parents y vont et pleurent sur sa tombe, et ainsi l’attirent vers eux. Mais elle ne veut pas qu’ils le fassent, comme je le sais de par ma propre expérience.
 
-*[D’autres questions et réponses ne sont pas enregistrées, mais il n’est imprimé ce qui a été transcrit.]*
+*[D’autres questions et réponses ne sont pas enregistrées, et il n’est imprimé ce qui a été transcrit.]*
 
 Eh bien, nous verrons bien. Peut-être qu’elle ne voudra pas. Mais si c’est le cas, je le communiquerai certainement. Elle pensait qu’elle l’avait fait, mais elle ne l’a pas vraiment fait, et maintenant, quand elle apprendra la vérité, elle ne ressentira plus aucune attirance envers lui. Elle se peut qu’elle ressente encore quelque attirance car nous ne pouvons pas oublier si tôt nos amours mortels, même si nous trouvons le véritable amour après notre passage – et quand je pense à cela, elle voudra peut-être lui envoyer un message de réconfort.
 
@@ -40,4 +40,4 @@ Oui, ce fut une curieuse coïncidence. Mais tu vois, nous ne savons jamais quand
 Ta propre vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id="f1"> C’est Mme Emmons. (G.J.C.)[↩](#a1)
+1. <large id="f1"> C’est Mme Emmons. (Geoff Cutler)[↩](#a1)
