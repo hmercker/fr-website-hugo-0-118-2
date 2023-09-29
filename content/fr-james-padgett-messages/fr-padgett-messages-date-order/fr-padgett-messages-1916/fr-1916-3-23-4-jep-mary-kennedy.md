@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les âmes sœurs ont versé des larmes de joie en apprenant que M. Padgett, le Dr Stone et M. Morgan étaient favorisés par Jésus
+### Les âmes-sœurs ont versé des larmes de joie en apprenant que M. Padgett, le Dr Stone et M. Morgan étaient favorisés par Jésus
 
 Mary Kennedy - reçu par James Padgett le 23 Mars 1916, Washington, USA.
 

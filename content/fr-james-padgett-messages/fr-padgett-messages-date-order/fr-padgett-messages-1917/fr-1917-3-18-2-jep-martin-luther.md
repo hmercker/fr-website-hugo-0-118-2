@@ -21,7 +21,9 @@ Bien sûr, je me suis intéressé à la guerre, car je compatis avec tous les mo
 
 Mais je dirai ceci : je pense que la guerre va bientôt se terminer et que la paix sera rétablie sur terre, et j’ai confiance en une paix plus grande que celle qui n’a jamais existé entre les hommes depuis longtemps. Eh bien, je dois arrêter maintenant. Alors, bonne nuit et que Dieu vous bénisse.
 
-Votre frère dans le Christ, Luther.
+Votre frère dans le Christ, Luther.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> La première guerre mondiale – on l’appelait simplement la guerre à l’époque, parce que la seconde guerre mondiale n’avait pas eu lieu. (Geoff Cutler)[↩](#a1)
+
+2. <large id="f2"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)

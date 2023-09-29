@@ -1,13 +1,13 @@
 ---
-title: "Luc: Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
+title: "Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
 menu_title: ""
-description: "Luc: Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
+description: "Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True
 weight:
 ---
-### Luc: Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité
+### Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité
 
 St Luc - reçu par James Padgett le 4 Janvier 1917, Washington, USA.
 
@@ -35,5 +35,5 @@ J’ai assez écrit et, en terminant, je dirai à tous les hommes : sachez et r�
 Votre frère en Christ, Luc.
 <small>
 
-<large id=”f1”> Une explication détailée des pensées et formes de pensées est disponible par [l'intermédiaire de ce sujet](/7-fr-life-after-death/7-1-4-fr-thoughts-and-thought-forms/).[↩](#a1)
+1. <large id=”f1”> Une explication détailée des pensées et formes de pensées est disponible par [l'intermédiaire de ce sujet](/7-fr-life-after-death/7-1-4-fr-thoughts-and-thought-forms/).[↩](#a1)
 

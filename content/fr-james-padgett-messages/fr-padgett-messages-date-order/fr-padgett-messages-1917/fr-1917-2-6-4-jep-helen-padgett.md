@@ -19,4 +19,4 @@ Bien sûr, tu en as déjà été informé à maintes reprises, et tu n’avais c
 
 Mon cher, si toi et le Docteur aviez pu voir la grande gloire qui était avec Jean lorsqu’il a fait l’annonce, que jamais plus vous – et je veux dire vous trois – vous ne douteriez. Le travail est devant vous, et aucun autre en ce moment ne peut le faire, et vous devez tous considérer ceci comme le grand objet de vos efforts pendant les quelques années qui seront les vôtres sur terre. Il n’y a pas d’erreur, et la réalité de la mission est si certaine que lorsque vous aurez fait votre travail et vu les résultats lorsque vous arriverez au monde des esprits, vous vous demanderez comment vous avez jamais pu douter.
 
-Ta propre vraie et bien-aimée Hélène.
+Ta vraie et bien-aimée Hélène.

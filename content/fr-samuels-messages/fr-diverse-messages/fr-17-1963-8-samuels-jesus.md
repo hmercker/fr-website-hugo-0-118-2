@@ -1,15 +1,15 @@
 ---
-title: "Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre."
+title: "Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre"
 menu_title: ""
-description: "Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre."
+description: "Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True
 weight:
 ---
-### Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre.
+### Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre
 
-Jésus - reçu par Dr Samuels le Août 1963, Washington, DC, USA.
+Jésus - reçu par Dr Samuels Août 1963, Washington, DC, USA.
 
 Au sujet des fêtes à observer par l’Église de la Nouvelle Naissance, il ne s’agit pas d’instituer de nouveaux jours de fête, mais de clarifier la signification de ceux que nous possédons et de réinterpréter, à la lumière de l’Amour Divin, ceux que nous voulons conserver pour la célébration. Il y a aussi une question de dates, au sujet desquelles je propose d’exprimer mes pensées et mes désirs.
 

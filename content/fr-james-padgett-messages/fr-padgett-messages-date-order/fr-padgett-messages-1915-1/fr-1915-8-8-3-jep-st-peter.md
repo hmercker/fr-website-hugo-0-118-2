@@ -24,4 +24,4 @@ Je m’intéresse tellement à vous et au développement de votre âme que je vo
 Ainsi, avec tout mon amour et mes bénédictions, je suis votre propre ami et frère en Christ, Saint Pierre.
 <small>
 
-1. <large id="f1"> Ce message est également publié  II, 2ème édition française, à la page 154 et dans le volume IV à la page 1600 Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
+1. <large id="f1"> Ce message est également publié  II, 2ème édition française, à la page 154 et dans le volume IV à la page 160. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

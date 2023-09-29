@@ -37,4 +37,4 @@ Eh bien, j’ai écrit longuement et je me sens mieux de l’avoir fait et je vo
 Votre ami et bon samaritain, Louis I. O’Neil.
 <small>
 
-1. <large id="f1"> Ceci est typique des esprits qui se trouvent dans le plans astral, aussi appelé le plan de la Terre. On les appelle souvent les « liés à la terre (earth-bounds, dans le texte originel) ».[↩](#a1)
+1. <large id="f1"> Ceci est typique des esprits qui se trouvent dans [le plan astral](/7-fr-life-after-death/7-1-3-fr-astral-plan/), aussi appelé le plan de la Terre. On les appelle souvent les « liés à la terre (earth-bounds, dans le texte originel) ».[↩](#a1)

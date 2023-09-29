@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Mariages civils, le divorce, l’adultère, le contrôle des naissances et l’avortement <sup id="a1">[1](#f1)</sup>
+### Mariages civils, le divorce, l’adultère, le contrôle des naissances et l’avortement<sup id="a1">[1](#f1)</sup>
 
-Jésus - reçu par Dr Samuels le 1 Avril 1961, Washington, DC, USA.
+Jésus - reçu par Dr Samuels le 1er Avril 1961, Washington, DC, USA.
 
 C’est moi, Jésus.
 

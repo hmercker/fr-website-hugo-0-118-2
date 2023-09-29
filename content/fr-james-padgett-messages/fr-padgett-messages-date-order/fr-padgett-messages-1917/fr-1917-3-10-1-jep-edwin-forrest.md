@@ -24,5 +24,5 @@ Je crois ce que tu dis, et je suivrai tes conseils. Je vais maintenant m’arrê
 Ton vieil ami, Forrest.
 <small>
 
-1. <large id="f1"> Edwin Forrest avait prédemment écrit qurlques jours plus tôt le [04 Mars 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-4-1-jep-edwin-forrest/).[↩](#a1)
+1. <large id="f1"> Edwin Forrest avait prédemment écrit quelques jours plus tôt le [04 Mars 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-4-1-jep-edwin-forrest/).[↩](#a1)
 

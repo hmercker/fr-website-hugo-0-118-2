@@ -26,4 +26,4 @@ Eh bien, je lui écrirai très bientôt une longue lettre d’amour maternelle e
 Non. Je n’oublierai pas – il est prêt à tout moment et cela ne dépend que de toi que tu puisses être en état de recevoir ses messages. Le docteur l’a examiné, il connaît son problème et il est prêt à lui rédiger une ordonnance. Tu ferais mieux d’aller te coucher plus tôt le soir, car tu as besoin de récupérer, et un bon sommeil t’aidera beaucoup. Alors, aime-moi et crois que je t’aime. Bonne nuit, mon cher Ned – ta véritable et affectueuse Hélène.
 <small>
 
-1. <large id=”f1”> L'expression « bébé » se réfère à Nita Padgett, la fille de James et Hélène Padgett.[↩](#a1)
+1. <large id=”f1”> L'expression « bébé » se réfère à Nita Padgett, la fille de James et Hélène Padgett, qui est brusquement passée dans le monde spirituel le 20 Juin 1918 [↩](#a1)

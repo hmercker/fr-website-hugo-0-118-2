@@ -24,6 +24,6 @@ Alors, je vous souhaite une bonne nuit.
 Votre frère dans le Christ, Jacques.
 <small>
 
-1. <large id="f1"> Plus récemment, au cours des années 2001 à 2003, un médium de l’Amour Divin a reçu de la part de Judas une quantité importante de matériel jusqu’alors inconnu concernant la vie de Jésus sur terre. Ils ont été publiés, en version imprimée ainsi qu’en format Kindle, sous le titre « Messages de Judas de Kérioth ». [Ils peuvent être lus ici](/fr-judas-of-kerioth-messages/fr-judas-messages-by-date/).[↩](#a1)
+1. <large id="f1"> Plus récemment, au cours des années 2001 à 2003, un médium de l’Amour Divin a reçu de la part de Judas une quantité importante de matériel jusqu’alors inconnu concernant la vie de Jésus sur terre. Ils ont été publiés, en version imprimée ainsi qu’en format Kindle, sous le titre « Messages de Judas de Kérioth ». [Ils peuvent être lus ici](/fr-judas-of-kerioth-messages/3-2-fr-judas-messages-by-date/).[↩](#a1)
 
 2. <large id="f1"> Jacues (le mineur) est le frère biologique de Jésus.

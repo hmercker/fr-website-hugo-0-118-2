@@ -65,9 +65,10 @@ Oui, je le ferai, et j’essaierai de lui parler lorsque l’occasion se présen
 
 Alors bonne nuit, mon cher Ned.
 
-Hélène.
+Hélène.<sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Le progrès spirituel constaté de certains esprits amis de james Padgett :*
+<large id=”f1”> *Le progrès spirituel constaté de certains esprits amis de james Padgett :*[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

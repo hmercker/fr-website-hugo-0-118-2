@@ -9,7 +9,7 @@ weight:
 ---
 ### L’âme d’un Enfant
 
-Jésus - reçu par Dr Samuels le pas de date, Washington, DC, USA.
+Jésus - reçu par Dr Samuels, Washington, DC, USA.
 
 C’est moi, Jésus.
 

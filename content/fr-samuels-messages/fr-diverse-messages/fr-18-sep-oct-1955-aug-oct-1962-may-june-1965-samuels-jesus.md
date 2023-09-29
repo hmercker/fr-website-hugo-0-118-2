@@ -9,7 +9,7 @@ weight:
 ---
 ### Les fêtes de Pâques et leur célébration commune le 2e samedi soir et dimanche d’Avril
 
-Jésus - reçu par Dr Samuels le Septembre et Octobre 1955, Août et Octobre 1962, Mai et Juin 1965, Washington, DC, USA.
+Jésus - reçu par Dr Samuels en Septembre et Octobre 1955, Août et Octobre 1962, Mai et Juin 1965, Washington, DC, USA.
 
 Le premier jour férié de l’année sacrée était Pâques, le septième mois de l’année civile qui commençait au coucher du soleil du 14 Nissan, et se poursuivait les 15 et 16 (Mars – Avril). Elle célébrait la délivrance des Juifs de l’esclavage en Égypte par Moïse et exigeait la présence de tout homme de plus de 12 ans devant le sanctuaire du Seigneur. C’est pendant le repas de Pâques, avant mon arrestation par Pilate, que j’ai donné à mes disciples le Onzième. Commandement : *« Aimez-vous les uns les autres comme je vous ai aimés. »* Je voulais dire que puisque j’aimais l’humanité, et surtout mes disciples, avec l’Amour qui m’est venu de l’Essence du Père, les disciples devaient chercher l’Amour Divin dans la prière au Père et s’aimer les uns les autres de cet Amour Divin. Ainsi, nous devions tous être un dans l’Amour du Père. C’était là le Commandement, qui devait être obéi par mes disciples et les lier, tout comme les Dix Commandements liaient tous les Juifs de l’époque, et même d’aujourd’hui, en tant que préceptes moraux donnés à l’humanité par Dieu à travers Moïse.
 

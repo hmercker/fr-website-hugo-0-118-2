@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### La naissance et la jeunesse de Jésus comme révélés par Marie, mère de Jésus <sup id="a1">[1](#f1)</sup>
+### La naissance et la jeunesse de Jésus comme révélés par Marie, mère de Jésus<sup id="a1">[1](#f1)</sup>
 
-Marie - reçu par Dr Samuels le 1963, Washington, DC, USA.
+Marie - reçu par Dr Samuels 1963, Washington, DC, USA.
 
 C’est moi, Marie.
 

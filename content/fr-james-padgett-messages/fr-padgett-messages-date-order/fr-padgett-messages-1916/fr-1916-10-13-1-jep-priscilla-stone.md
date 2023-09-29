@@ -31,7 +31,7 @@ Mère.
 
 *M. Padgett et moi discutions de choses spirituelles, et j’ai parlé de mon enfance, puis M. Padgett a entendu la voix de ma mère lui disant qu’elle voulait m’écrire. M. Padgett a ensuite pris le crayon, voici une copie de la lettre :*
 
-De Mary Kennedy – 13 octobre 1916
+De Mary Kennedy – 13 Octobre 1916
 
 Vous m’avez entendue et je vous en suis reconnaissante. Je dirai seulement que ce que sa mère a dit de mon profond amour pour lui est vrai. Je sais que je lui ai dit à maintes reprises que je l’aimais, mais je voulais que sa mère le lui dise aussi, car il sait et peut se rendre compte que sa mère était et est un être réel, et qu’il ne doit pas lui venir à l’esprit une ombre ou une pensée quant à son existence réelle. Et je pensais que si seulement elle lui disait que je suis réelle comme elle, il me considérerait dans son âme comme étant sa mère. C’est ce que je voulais dire, et je suis si heureuse de pouvoir le dire. Bonne nuit, mon cher ami, Mary, l’âme-soeur du Docteur.
 

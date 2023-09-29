@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Ancienne et la nouvelle Alliance
 
-Jésus - reçu par Dr Samuels le  Août 1955, Washington, DC, USA.
+Jésus - reçu par Dr Samuels Août 1955, Washington, DC, USA.
 
 L’ALLIANCE que Dieu a faite avec Abraham n’est peut-être pas la première faite entre la Divinité et l’homme, parce que les hommes spirituels, dans l’histoire et dans différentes régions du monde, ont pris connaissance de ses lois de vertu et de justice et ont cherché à les interpréter et à les faire connaître à leurs peuples. Mais l’Alliance avec Abraham avait une signification spéciale pour l’humanité car, plutôt que d’être un tâtonnement vers Dieu, elle apparaît comme une révélation de Dieu lui-même et annonciatrice de cette Nouvelle Alliance, à travers Jésus, qui a mis à la disposition de l’homme son Amour Divin et son Salut.
 

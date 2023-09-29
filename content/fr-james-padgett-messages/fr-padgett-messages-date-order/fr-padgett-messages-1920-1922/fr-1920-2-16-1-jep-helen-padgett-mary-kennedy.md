@@ -45,10 +45,10 @@ Tu sais combien je t’aime et ce que signifie cet amour, et qu’il n’y a pas
 
 Je dois arrêter maintenant, car tu as assez écrit. Mais n’oublie pas que Bébé tient beaucoup à écrire, et tu ne dois par tarder à lui donner l’occasion de le faire. Bientôt tu te sentiras mieux et tu seras en état d’effectuer ton travail, qui est pour toi maintenant le plus important. Aussi je vais te souhaiter une bonne nuit.
 
-Ta vraie et aimante, Hélène.
+Ta vraie et bien aimée, Hélène.
 <small>
 
 1. <large id="f1"> Il ressort du journal quotidien que James Padgett avait une autre femme dans sa vie, Ella, et qu’Hélène était très heureuse à ce sujet. Voir à ce sujet l'entrée, pour cette date, [dans le journal quotidien de James Padgett](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1919/). Ce message particulier d’Hélène n’a pas été publié.[↩](#a1)
 
-2. <large id="f2"> Mary Kennedy voulait en fait exprimer que même si notre vie terrestre  est relativement longue, comparée à l'éternité, elle est relativement courte. Le Dr Stone a transité à l’âge de 90 ans, le 15 Janvier 1967.[↩](#a2)()
+2. <large id="f2"> Mary Kennedy voulait en fait exprimer que même si notre vie terrestre  est relativement longue, comparée à l'éternité, elle est relativement courte. Le Dr Stone a transité à l’âge de 90 ans, le 15 Janvier 1967.[↩](#a2)
  

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Progresse vers la Première Sphère Céleste et donne une description de sa nouvelle demeure <sup id="a1">[1](#f1)</sup>
+### Progresse vers la Première Sphère Céleste et donne une description de sa nouvelle demeure<sup id="a1">[1](#f1)</sup>
 
 Mary Kennedy - reçu par James Padgett le 8 Octobre 1915, Washington, USA.
 
@@ -15,7 +15,7 @@ C’est moi, Mary.
 
 Eh bien Docteur, je suis ici, comme vous serez peut-être surpris de le savoir, si vous aviez oublié mon dernier secret, mais je ne crois pas que vous l’ayez fait. Je veux dire que je suis plus heureuse que je ne l’ai jamais été jusqu’à présent, car je suis maintenant dans la Sphère Céleste où je sais que le bonheur est tellement plus grand qu’il ne l’a jamais été. Vous devez donc me croire lorsque je vous dis que mon amour est tellement plus abondant et que vous m’êtes plus cher que jamais. Essayez donc de réaliser ce que je veux dire, et imaginez que vous êtes avec moi, même pour un petit moment, et alors vous serez également plus heureux. J’ai dit ce que je voulais dire et je dois m’arrêter.
 
-*[Quelques jours plus tard, lorsque l’occasion s’est présentée, Mary Kennedy a écrit ce qui suit)]*
+*[Quelques jours plus tard, lorsque l’occasion s’est présentée, Mary Kennedy a écrit ce qui suit]*
 
 Je suis l’esprit d’une femme qui vivait autrefois sur terre, dans le pays lointain de l’autre côté de l’océan, et qui était connue par mon peuple comme une petite fille anglaise peu importante, mais maintenant je suis très importante pour un humain qui aime m’avoir à ses côtés. Je lui écris simplement pour lui faire savoir qu’il n’est pas toujours en état de sentir lorsque je suis vraiment avec lui, car je l’ai entendu dire que je n’étais pas avec lui toute la soirée ; j’ai entendu tout ce qu’il a dit, et j’ai aimé l’entendre parler, cependant, jusqu’à présent il n’a pas mentionné mon nom. Si c’était le seul signe qui me permette de savoir qu’il pense à moi, je supposerais qu’il m’a oubliée, mais grâce à mes pouvoirs de lire dans son esprit, il n’est pas nécessaire de prononcer mon nom.
 

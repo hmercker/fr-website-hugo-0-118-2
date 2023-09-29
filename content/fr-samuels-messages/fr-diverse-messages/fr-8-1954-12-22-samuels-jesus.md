@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 22 Décembre 1954, Washington, DC, USA.
 
 Je suis là, Jésus.
 
-Je vous 'ai dit cet après-midi que je viendrais ce soir pour vous écrire, à vous et au docteur, un message d'Amour, de foi et d'espoir, et c'est un plaisir particulier pour moi de le faire ce soir. En effet, il y a longtemps que je n'ai pas écrit à un mortel de cette façon, et je suis heureux et reconnaissant de l'occasion qui m'est donnée d'écrire ces messages que vous avez pu recevoir grâce à votre volonté de vous soumettre à nos influences et suggestions et à votre désir des choses de l'esprit.
+Je vous ai dit cet après-midi que je viendrais ce soir pour vous écrire, à vous et au docteur, un message d'Amour, de foi et d'espoir, et c'est un plaisir particulier pour moi de le faire ce soir. En effet, il y a longtemps que je n'ai pas écrit à un mortel de cette façon, et je suis heureux et reconnaissant de l'occasion qui m'est donnée d'écrire ces messages que vous avez pu recevoir grâce à votre volonté de vous soumettre à nos influences et suggestions et à votre désir des choses de l'esprit.
 
 Je voudrais vous dire combien vous avez de la chance de pouvoir recevoir ces messages qui vous mettent dans une condition de proximité avec les esprits les plus élevés du Royaume Céleste, et dans une condition d'âme qui vous permet de percevoir la Présence du Père Céleste chaque fois que l'Amour Divin brille dans votre âme en réponse à vos désirs et à vos prières sincères - un sentiment physique qui est pour vous aussi réel, voire plus réel, que votre existence même. Et, donc, je veux souligner pour vous la grande importance de prier pour l'Amour Divin, qui vous permettra d'avoir plus de foi dans les Promesses du Père et la foi dans nos messages de révélation à vous.
 

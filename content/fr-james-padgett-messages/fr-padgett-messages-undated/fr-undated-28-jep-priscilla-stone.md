@@ -33,4 +33,4 @@ Marie dit qu’elle a entendu ce que j’ai dit, ou plutôt simplement écrit, e
 
 Je dois arrêter maintenant. Alors avec mon amour, je vous souhaite une bonne nuit.
 
-Sa mère aimante, Priscilla Stone.
+Sa mère bien-aimée, Priscilla Stone.

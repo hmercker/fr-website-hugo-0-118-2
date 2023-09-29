@@ -34,7 +34,7 @@ Je viendrai bientôt vous écrire un autre message sur un sujet important, afin 
 Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*.[↩](#a1)
+1. <large id=”f1”> Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*.[↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

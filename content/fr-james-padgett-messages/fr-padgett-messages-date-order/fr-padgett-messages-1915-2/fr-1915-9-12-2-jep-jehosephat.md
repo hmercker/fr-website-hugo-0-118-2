@@ -1,15 +1,15 @@
 ---
-title: "Jehosephat de l’Ancien Testament explique son statut alors qu’il vivait sur le terre"
+title: "Josaphat de l’Ancien Testament explique son statut alors qu’il vivait sur le terre"
 menu_title: ""
-description: "Jehosephat de l’Ancien Testament explique son statut alors qu’il vivait sur le terre"
+description: "Josaphat de l’Ancien Testament explique son statut alors qu’il vivait sur le terre"
 date: 2022-06-01 06:00:01+00:241
 draft: False
 hidden: True
 weight:
 ---
-### Jehosephat de l’Ancien Testament explique son statut alors qu’il vivait sur le terre
+### Josaphat de l’Ancien Testament explique son statut alors qu’il vivait sur le terre
 
-Jehosephat - reçu par James Padgett le 12 Septembre 1915, Washington, USA.
+Josapahat - reçu par James Padgett le 12 Septembre 1915, Washington, USA.
 
 Je suis, Jehosephat.<sup id="a1">[1](#f1)</sup>
 
@@ -23,7 +23,7 @@ Je voulais simplement dire ceci, afin que vous sachiez que, bien que nous soyons
 
 Je vous souhaite une bonne nuit.
 
-Jehosephat.
+Josaphat.
 <small>
 
 1. <large id="f1"> Josaphat est un personnage  biblique [Rois 15:24](https://saintebible.com/1_kings/15-24.htm), [Rois 22:50](https://saintebible.com/1_kings/22-50.htm) et [Mattieu 1:8](https://saintebible.com/matthew/1-8.htm) qui n'est connu que par les extraitsbibliques se rapportant à lui. ils est présenté comme le fils d'Asa et d'Azuba, fille de Shilhi et il succéda à son père à l'âge de 35 ans. La Bible le décrit comme un roi qui, à l'instar de son père, fit *« ce qui est droit aux yeux de l’Éternel »* Selon certains auteurs, il régna avec son père durant la maladie de ce dernier, avant de lui succéder. Il eut sept fils : Joram, l'aîné ; Azaria, Yehiel, Zacharie, Azaryahu, Mikaël et Shephatyahu. Il leur laissa un héritage conséquent8. Joram régna sans doute avec lui durant cinq ans, puis lui succéda.[↩](#a1)
