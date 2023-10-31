@@ -1,13 +1,13 @@
 ---
-title: "Commentaire sur le developpement de l'âme"
+title: "Commentaire sur le développement de l'âme"
 menu_title: ""
-description: "Commentaire sur le developpement de l'âme"
+description: "Commentaire sur le développement de l'âme"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True
 weight:
 ---
-### Commentaire sur le developpement de l'âme
+### Commentaire sur le développement de l'âme
 
 Orion - reçu par Al Fike le 4 Décembre 2022, Gibsons, Colombie-Britannique, Canada.
 

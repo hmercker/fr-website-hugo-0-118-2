@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Assaisonnez votre vie avec l'amour de Dieu
+### Assaisonnez votre vie avec l'Amour de Dieu
 
 Augustin - reçu par Al Fike le 1 Novembre 2022, Gibsons, Colombie-Britannique, Canada.
 

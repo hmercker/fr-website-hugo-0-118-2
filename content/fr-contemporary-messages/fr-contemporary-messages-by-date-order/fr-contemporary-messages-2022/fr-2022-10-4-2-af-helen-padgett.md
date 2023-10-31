@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Buvez profondément ces eaux de l'amour de Dieu
+### Buvez profondément ces eaux de l'Amour de Dieu
 
 Hélène Padgett - reçu par Al Fike le 4 Octobre 2022, Menifee, CA, USA.
 

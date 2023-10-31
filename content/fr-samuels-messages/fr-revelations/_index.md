@@ -13,47 +13,47 @@ weight: 100
 
 ### Les Révélations peuvent être regroupées autour de 13 grands thèmes :
 
-1°) Mécompréhension de la mission du Messie (laquelle continue de nos jours) :
+**1°) Mécompréhension de la mission du Messie (laquelle continue de nos jours) :**
 
 Lorsque Jésus a dit *« Je suis dans le Père et le Père est en moi »*, Jésus n’a jamais voulu dire que Dieu le Père et lui-même formaient une seule et même personne. Le mot Christ représentait l’Amour Divin du Père. Sa mission avait pour but de montrer qu’une Nouvelle Naissance, par l’effusion de l’Amour du Père pour le salut éternel, était à portée de main. Ainsi, originellement, le Christianisme signifiait la Nouvelle Naissance.
 
-2°) Le sacrifice de Jésus sur la croix n’est en aucun cas une source de salut pour l’humanité.
+**2°) Le sacrifice de Jésus sur la croix n’est en aucun cas une source de salut pour l’humanité.**
 
-3°) Fausse compréhension de la notion de sacrifice :
+**3°) Fausse compréhension de la notion de sacrifice :**
 
 Jésus n’a jamais jeûné 40 jours dans le désert et n’a jamais dialogué avec Satan. Le sacrifice doit essentiellement être compris comme un acte effectué au niveau du cœur et non comme une redevance à s’acquitter ou un prix à payer pour bénéficier des faveurs divines.
 
-4°) Précisions apportées sur le sens de certains sermons (le sermon du bon berger et le sermon sur la montagne).
+**4°) Précisions apportées sur le sens de certains sermons (le sermon du bon berger et le sermon sur la montagne).**
 
 Jésus a enseigné que la noblesse de cœur résulterait du cœur transformé par l’Amour du Père pour ses enfants, lequel permettrait à ces enfants de résider dans les Cieux Célestes.
 
-5°) Introduction du 11ème commandement : *« Aimez-vous les uns les autres, comme je vous ai aimés. »*
+**5°) Introduction du 11ème commandement : *« Aimez-vous les uns les autres, comme je vous ai aimés. »***
 
 Cette déclaration signifiait que, en tant que Messie, Jésus donnait un commandement qui devait être placé avec, et surtout au-dessus, des dix commandements de Moïse. Ce commandement était la Loi de l’Amour de Dieu.
 
-6°) Dieu écoute tous ceux qui le cherchent par l’intermédiaire d’une prière sincère.
+**6°) Dieu écoute tous ceux qui Le cherchent par l’intermédiaire d’une prière sincère.**
 
-7°) Pourquoi Jésus a enseigné à travers les paraboles : La parabole des vierges Sages et des vierges folles expliquent la fermeture du Ciel Céleste.
+**7°) Pourquoi Jésus a enseigné à travers les paraboles : La parabole des vierges Sages et des vierges folles expliquent la fermeture du Ciel Céleste.**
 
-8°) Les origines anciennes de certains des miracles cités dans le Nouveau Testament.
+**8°) Les origines anciennes de certains des miracles cités dans le Nouveau Testament.**
 
 Plusieurs des miracles prétendument accomplis par Jésus ont leur origine dans la mythologie grecque. Tous ces miracles qui lui ont été attribués ont eu pour but de souligner ses pouvoirs surnaturels au point de faire de lui une divinité égale à Dieu, voire Dieu lui-même. Dès ses premiers messages à James Padgett Jésus s’est élevé et a condamné très sévèrement cette croyance en allant jusqu’à dire que les croyants qui s’obstinaient dans cette attitude se rendaient coupables de blasphème. Pour plus de précisions il faut se référer au message du [24 Septembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/)  ou au message du [25 Décembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-25-3-jep-jesus/) :
 
-9°) Précisions apportées sur la naissance virginale de Jésus,
+**9°) Précisions apportées sur la naissance virginale de Jésus,**
 
 sur son enfance, sur sa relation avec son cousin, Jean le Baptiste, et sur sa relation avec ses parents qui voyaient en lui un prophète comme Jean-Baptiste qui demanderait au peuple de se repentir de leurs péchés et d’être purifiés.
 
-10°) Jésus n’a jamais cherché à en finir avec le Judaïsme ou établir une nouvelle église.
+**10°) Jésus n’a jamais cherché à en finir avec le Judaïsme ou établir une nouvelle église.**
 
-11°) Fausse compréhension de la nature et de la mission de Jésus :
+**11°) Fausse compréhension de la nature et de la mission de Jésus :**
 
 Jésus n’a jamais cherché à introduire des sacrements ou à établir une église. Le Baptême doit être seulement compris comme faisant référence à la Nouvelle Naissance enseignée par Jésus à Nicodème et non comme un rituel. De même l’introduction de l’Eucharistie en comparant Jésus à l’ancien roi-prêtre Melchisédek n’a pas de raison d’être. Effectivement, Melchisédek, dans la Genèse, au chapitre 14, versets 18-20, bénit Abraham et lui offrit du pain et du vin à l’occasion de l’une de ses fêtes. Cependant, il n’y a aucune raison de se remémorer cet épisode à travers le rituel de l’eucharistie.
 
-12°) Explication de la différence entre l’Esprit Saint et l’Esprit de Dieu
+**12°) Explication de la différence entre l’Esprit Saint et l’Esprit de Dieu**
 
-13°) Comment les écritures d’Osée ont aidé Jésus à comprendre la Nouvel Alliance entre Dieu et l’humanité.
+**13°) Comment les écritures d’Osée ont aidé Jésus à comprendre la Nouvel Alliance entre Dieu et l’humanité.**
 
-Conclusion : Dans tous les messages transmis, Jésus a toujours insisté pour être considéré comme un ami, et un frère aîné, pour chacun de nous, et non pas comme une divinité qu’il convient d’adorer. Jésus a expliqué qu’il avait ouvert le chemin de l’Amour parfait et qu’il était de notre responsabilité de marcher sur ce chemin.
+<u>Conclusion</u> : Dans tous les messages transmis, Jésus a toujours insisté pour être considéré comme un ami, et un frère aîné, pour chacun de nous, et non pas comme une divinité qu’il convient d’adorer. Jésus a expliqué qu’il avait ouvert le chemin de l’Amour parfait et qu’il était de notre responsabilité de marcher sur ce chemin.
 
 [Version PDF](https://lanouvellenaissance.files.wordpress.com/2017/08/rc3a9vc3a9lations-au-dr-samuels.pdf)
 
@@ -61,7 +61,7 @@ Conclusion : Dans tous les messages transmis, Jésus a toujours insisté pour ê
 ---|---|---
 Jésus | [1ère Révélation : Relation entre Jésus et son cousin Jean le Baptiste](/fr-samuels-messages/fr-revelations/fr-rev-1-1955-3-24-samuels-jesus/) | 24 Mars 1955
 St Jean | [2ème Révélation : La vie et le ministère de Jean le Baptiste](/fr-samuels-messages/fr-revelations/fr-rev-2-1955-3-3-samuels-st-john/) | 3 Mars 1955
-Jésus | [ 3ème Révélation : L’amour divin est un privilège, un Don du Père](/fr-samuels-messages/fr-revelations/fr-rev-3-21-april-und-3-may-1955-samuels-jesus/) | 21 Avril et 3 Mai 1955
+Jésus | [ 3ème Révélation : L’Amour Divin est un privilège, un Don du Père](/fr-samuels-messages/fr-revelations/fr-rev-3-21-april-und-3-may-1955-samuels-jesus/) | 21 Avril et 3 Mai 1955
 Jésus | [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/) | 25 Mai 1955
 Jésus | [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/) | 14 Juin et 5 Novembre 1955
 Jésus | [6ème Révélation : La création de l’homme](/fr-samuels-messages/fr-revelations/fr-rev-6-16-august-8-september-1955-samuels-jesus/) | 16 Août et 8 Septembre 1955

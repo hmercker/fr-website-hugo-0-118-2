@@ -1,19 +1,19 @@
 ---
-title: "Permettez à la bénédiction de l'amour de Dieu de venir dans votre âme"
+title: "Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme"
 menu_title: ""
-description: "Permettez à la bénédiction de l'amour de Dieu de venir dans votre âme"
+description: "Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True
 weight:
 ---
-### Permettez à la bénédiction de l'amour de Dieu de venir dans votre âme
+### Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme
 
 Marie-Madeleine - reçu par Jimbeau Walsh le 12 Juillet 2022, Marietta Valley, WI, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-priere.png)
 
-Je suis Marie-Madeleine. Je vis dans une sphère élevée dans les Royaumes Célestes. Je suis venue dans votre discussion sur le discernement et la perception des vérités du Royaume de Dieu avec l’âme. La plupart sont conscients de mon occupation sur terre et certains sont conscients de mon statut dans ma communauté de Magdala. Vous pouvez trouver étrange que j’étais l’amie de nombreuses femmes, des femmes au foyer, des prostituées bien sûr, et des jeunes et vieilles femmes de ma communauté, mais c’est la vérité.
+Je suis Marie-Madeleine. Je vis dans une sphère élevée dans les Royaumes Célestes. Je vous rejoint dans votre discussion sur le discernement et la perception des vérités du Royaume de Dieu avec l’âme. La plupart sont conscients de mon occupation sur terre et certains sont conscients de mon statut dans ma communauté de Magdala. Vous pouvez trouver étrange que j’étais l’amie de nombreuses femmes, des femmes au foyer, des prostituées bien sûr, et des jeunes et vieilles femmes de ma communauté, mais c’est la vérité.
 
 Il est prétendu que j’avais la plus grande compréhension des enseignements du Maître lorsque j’étais sur terre. Je vous dirai qu’il y a une part de vérité dans cette affirmation, mais comme il y avait beaucoup de disciples de Jésus, il y en avait aussi d’autres qui ressentaient l’Amour de Dieu et qui, avec leur âme, pouvaient comprendre les paroles du Maître comme je l’ai fait. Et à cette époque comme aujourd’hui, la plupart des gens étaient occupés par des choses matérielles, des distractions matérielles, des préoccupations matérielles. Ceux qui se trouvent en crise et commencent à voir la futilité d’essayer de trouver le bonheur et la liberté dans la possession de choses matérielles ou l’auto-satisfaction des sens, commencent à prier, chacun à sa manière, pour une guérison, pour la vérité, pour la rédemption.
 

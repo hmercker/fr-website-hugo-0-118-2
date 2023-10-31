@@ -13,15 +13,15 @@ Jésus - reçu par Dr Samuels le 28 Avril et 5 Mai 1955, Washington, USA.
 
 C’est moi, Jésus.
 
-Oui, je suis de nouveau ici et je vais écrire sur le thème proposé par le Docteur, c’est-à-dire « Sur cette pierre je bâtirai mon église » en m’adressant à Pierre.
+Oui, je suis de nouveau ici et je vais écrire sur le thème proposé par le Docteur, c’est-à-dire [Sur cette pierre je bâtirai mon église](https://saintebible.com/matthew/16-18.htm) en m’adressant à Pierre.
 
 Maintenant, en premier lieu, je tiens à dire qu’il n’y a rien dans les Évangiles qui indique que Pierre aurait dû recevoir cette primauté, car, en fait, il ne fut pas le premier à reconnaître que j’étais le Messie. Le premier à le faire fut Jean, le Baptiste, et c’est sur ce fondement qu’il a commencé à prêcher le repentir et la venue du Messie dans le désert ; et c’est lui qui a trouvé des disciples, parmi lesquels étaient André et Pierre.
 
-C’est André qui a amené Pierre et lui a dit qu’il avait rencontré le Messie, et c’est ainsi que Pierre est venu. Encore une fois, ce sont Philippe et Nathaniel qui, tous les deux, m’ont proclamé le Messie, c’est à dire, le fils de Dieu, ou Rédempteur, ce n’est donc pas Pierre qui le premier a fait cette annonce. En même temps, il conviendrait de souligner qu’aucun d’entre eux n’a compris ma grande mission. C’est seulement plus tard que Pierre a compris ce qu’impliquait ma Messianité.
+C’est André qui a amené Pierre et lui a dit qu’il avait rencontré le Messie, [et c’est ainsi que Pierre est venu](https://saintebible.com/john/1-40.htm). Encore une fois, [ce sont Philippe et Nathaniel qui, tous les deux, m’ont proclamé le Messie](https://saintebible.com/john/1-43.htm), c’est à dire, le fils de Dieu, ou Rédempteur, ce n’est donc pas Pierre qui le premier a fait cette annonce. En même temps, il conviendrait de souligner qu’aucun d’entre eux n’a compris ma grande mission. C’est seulement plus tard que Pierre a compris ce qu’impliquait ma Messianité.
 
 Quand les Évangiles ont été écrit, le mouvement Chrétien était en cours de développement et le récit, tout en soulignant que Pierre m’avait reconnu comme étant le Christ, n’a en rien montré que j’avais donné le leadership à Pierre et sa prééminence fut le résultat des pires pratiques de l’époque. Par ce que Pierre  était l’aîné et recevait le respect des disciples, il était admiré en raison de ses liens étroits avec moi et aussi parce que, très souvent, je m’adressais à lui lorsque j’enseignais mes disciples, et parce que je l’avais favorisé en le choisissant, parmi quelques autres, pour m’accompagner à la Montagne de la Transfiguration. Pour ces diverses raisons, des questions relatives au mouvement lui furent adressées, en vue d’une solution, après ma mort, et il s’est montré capable de conserver le leadership, une fois qu’il lui fut, plus ou moins consciemment, décerné.
 
-Maintenant, par respect de ce que j’ai dit à Pierre : « Sur cette pierre je bâtirai mon Église » est une distorsion de mes propos à  son égard, distorsion créée ultérieurement par les écrivains, afin que l’Évangile confirme la direction donnée à Pierre par l’église croissante. Et la citation des évangiles ne représente pas exactement mes paroles ou ce que je voulais exprimer. Pierre a simplement parlé pour les disciples, lorsqu’il a répondu à la question « Mais toi qui dis-tu ce que je suis ? », parce que là, encore une fois, il était le porte-parole ; et lorsqu’il m’a appelé le fils de Dieu, ce n’était pas une grande proclamation qui venait de Dieu, car Dieu ne parle pas directement aux mortels. <sup id="a1">[1](#f1)</sup>
+Maintenant, par respect de ce que j’ai dit à Pierre : « Sur cette pierre je bâtirai mon Église » est une distorsion de mes propos à  son égard, distorsion créée ultérieurement par les écrivains, afin que l’Évangile confirme la direction donnée à Pierre par l’église croissante. Et la citation des évangiles ne représente pas exactement mes paroles ou ce que je voulais exprimer. Pierre a simplement parlé pour les disciples, lorsqu’il a répondu à la question [Mais toi qui dis-tu ce que je suis ?](https://saintebible.com/matthew/16-15.htm), parce que là, encore une fois, il était le porte-parole ; et lorsqu’il m’a appelé le fils de Dieu, ce n’était pas une grande proclamation qui venait de Dieu, car Dieu ne parle pas directement aux mortels.<sup id="a1">[1](#f1)</sup>
 
 Et, ainsi, nous voyons que les mots de l’Évangile sont inexacts, et c’était une opinion qui était partagée parmi les disciples. Et lorsque j’ai dit, « Tu es Pierre », je n’ai pas dit « Et sur cette pierre je bâtirai mon église »,  signifiant sur Pierre, le rocher, ou sur moi, comme étant un plus grand roc que Pierre, mais sur le Rocher des Ages – le Père, Lui-même, comme révélé à l’humanité avec Son Divin Amour maintenant disponible pour l’humanité. Et j’ai cherché à construire une église qui connaîtrait le Père Céleste à travers l’Amour qui  avait été mis en lumière avec ma venue. Je n’avais aucune intention de construire une église fondée sur Pierre ou sur moi, mais simplement d’ajouter l’Amour Divin aux révélations qu’Il avait données à l’humanité et qui transformeraient l’homme avec un cœur renouvelé par cet Amour et une âme rendue immortelle grâce à son efficacité.
 
@@ -33,7 +33,7 @@ Votre frère aîné et ami.
 
 Jésus de la Bible et Maître des Cieux Célestes.
 
-Reçu 5 Mai 1955 :
+<u>Reçu 5 Mai 1955</u> :
 
 C’est moi, Jésus.
 
@@ -55,7 +55,7 @@ Votre frère aîné et ami.
 
 Jésus de la Bible et Maître des Cieux Célestes.
 
-Également reçu 5 Mai 1955
+É<u>galement reçu 5 Mai 1955</u>
 
 C’est moi, Jésus.
 

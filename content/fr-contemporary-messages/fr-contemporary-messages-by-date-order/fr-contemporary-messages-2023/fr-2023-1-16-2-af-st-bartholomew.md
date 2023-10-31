@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Etablir un fondement de vérite, d'humilite, d'amour et de grace
+### Etablir un fondement de vérité, d'humilité, d'amour et de grace
 
 Bartholomée - reçu par Al Fike le 16 Janvier 2023, Sechelt, Colombie-Britannique, Canada.
 

@@ -11,7 +11,7 @@ weight:
 
 Orion - reçu par Al Fike le 26 Mars 2023, Sechelt, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/Nepal1.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/Népal1.jpg)
 
 Bienvenue, chers amis. Je suis Orion. Comme beaucoup d’entre vous le savent, je viens d’une planète très éloignée de la vôtre, bien que située dans la Voie lactée. Je viens avec l’effort et le désir d’aider à élever mes frères et sœurs, car vous êtes vraiment mes frères et sœurs. Tous les individus de l’univers qui possèdent une âme sont inextricablement et puissamment liés les uns aux autres parce qu’ils sont frères et sœurs, enfants de Dieu. Certains d’entre vous me considèrent comme un ami. D’autres s’interrogent et se méfient. D’autres encore me considèrent comme un personnage sorti d’un roman de science-fiction. Mais en vérité, je suis réel. Je suis ici avec vous, sinon en chair et en os, du moins en esprit.
 

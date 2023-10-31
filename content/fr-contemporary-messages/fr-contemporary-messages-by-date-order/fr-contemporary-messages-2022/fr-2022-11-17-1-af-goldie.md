@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Mangez de la crème glacée pour célébrer l'amour de Dieu !
+### Mangez de la crème glacée pour célébrer l'Amour de Dieu !
 
 Goldie - reçu par Al Fike le 17 Novembre 2022, Gibsons, Colombie-Britannique, Canada.
 

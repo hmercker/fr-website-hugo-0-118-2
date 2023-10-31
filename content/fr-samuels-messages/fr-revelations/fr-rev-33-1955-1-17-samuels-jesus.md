@@ -11,13 +11,13 @@ weight:
 
 Jésus - reçu par Dr Samuels le 17 Janvier 1955, Washington, USA.
 
-Ce message fut corrigé ultérieurement par un message donné par Judas le 20 Novembre 2001 qui explique qu’il ne s’agissait pas d’une supernova mais simplement d’une nova, étoile variable. Quant à l’expression « A l’est », il s’agit d’une mauvaise traduction. En fait, le terme grec original signifie « au lever ». Quant au terme « Assyrie », il est inexact puisque l’Assyrie n’existait plus à cette époque. Le terme à utiliser était « Mésopotamie ». Ce sont les propres pensées du médium qui ont interféré avec le message.
+Ce message fut corrigé ultérieurement par un message donné par Judas [le 20 Novembre 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-20-1-hr-judas/) qui explique qu’il ne s’agissait pas d’une supernova mais simplement d’une nova, étoile variable. Quant à l’expression « A l’est », il s’agit d’une mauvaise traduction. En fait, le terme grec original signifie « au lever ». Quant au terme « Assyrie », il est inexact puisque l’Assyrie n’existait plus à cette époque. Le terme à utiliser était « Mésopotamie ». Ce sont les propres pensées du médium qui ont interféré avec le message.
 
 C’est moi, Jésus.
 
 Je suis de nouveau, ici, pour vous écrire sur les erreurs contenues dans le Nouveau Testament, comme nous l’avons déjà fait, et, étant donné que nous devons poursuivre le travail, je vais aller de l’avant et vous décrire un certain nombre d’entre elles traitant de mon enfance.
 
-La première chose dont je souhaite vous parler est l’étoile de Bethléem, qui, en réalité, n’était pas une étoile mais une explosion nova, ou supernova, qui a causé une lumière considérable dans les cieux, à l’est au-dessus de Tyr et de Babylone, mais pas en Judée ou en Israël. Les trois Rois Mages qui ont vu cette supernova exploser dans les cieux étaient des astrologues ayant la connaissance d’un antique savoir astrologique Chaldéen. Ils ont conclu, suite à l’apparition de la grande lumière dans les cieux, qu’un grand événement devait avoir lieu. En fonction de leur très bonne connaissance des Écritures Hébraïques et avec l’aide des cercles Hébraïques en Assyrie, ils ont décidé de se rendre en Judée, où il était prédit qu’un Messie, pour les Hébreux et pour toute l’humanité, devait naître.
+La première chose dont je souhaite vous parler est l’étoile de Bethléem, qui, en réalité, n’était pas une étoile mais une explosion nova, ou supernova, qui a causé une lumière considérable dans les cieux, à l’est au-dessus de Tyr et de Babylone, mais pas en Judée ou en Israël. [Les trois Rois Mages](https://saintebible.com/matthew/2-1.htm) qui ont vu cette supernova exploser dans les cieux étaient des astrologues ayant la connaissance d’un antique savoir astrologique Chaldéen. Ils ont conclu, suite à l’apparition de la grande lumière dans les cieux, qu’un grand événement devait avoir lieu. En fonction de leur très bonne connaissance des Écritures Hébraïques et avec l’aide des cercles Hébraïques en Assyrie, ils ont décidé de se rendre en Judée, où il était prédit qu’un Messie, pour les Hébreux et pour toute l’humanité, devait naître.
 
 Cela leur semblait d’autant plus vrai que la lumière semblait pointer dans une direction ouest et ils se sont mis en route pour Jérusalem, la capitale de la Judée, plutôt que vers Israël ou la Galilée. En raison des préparatifs pour le voyage et le voyage réel à travers le désert d’Arabie, beaucoup de temps s’est écoulé avant qu’ils n’atteignent Jérusalem. La lumière n’était plus avec eux, ayant disparu après avoir été vu, dans les cieux orientaux, pendant plusieurs semaines et causée une grande excitation et anxiété dans le pays.
 
@@ -38,3 +38,5 @@ Je vais arrêter maintenant et vous  dire bonne nuit, mais pas avant de saluer m
 Votre ami et frère aîné, qui vous aime tant et qui vous pousse à continuer à prier pour l’Amour Divin,
 
 Jésus de la Bible.
+
+[De plus amples informations concernant les trois mages furent reçues par la suite de Jésus](/fr-samuels-messages/fr-revelations/fr-rev-25-1955-5-17-samuels-jesus).

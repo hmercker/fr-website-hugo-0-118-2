@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 31 Janvier 1955, Washington, USA.
 
 C’est moi, Jésus.
 
-Je voudrais m’exprimer sur certains des passages messianiques trouvés dans Isaïe, le prophète. L’un d’eux est le passage traitant de la soit disant vierge qui donnerait naissance à un fils qui mangerait le miel et le beurre, lequel fils est censé me représenter.
+Je voudrais m’exprimer sur certains des passages messianiques trouvés dans Isaïe, le prophète. L’un d’eux est le passage traitant de la soit disant vierge [qui donnerait naissance à un fils qui mangerait le miel et le beurre](https://saintebible.com/isaiah/7-14.htm), lequel fils est censé me représenter.
 
 Maintenant, la vérité est que ce message est Messianique dans la nature, et même s’il fut appliqué à l’un des fils du prophète, il a aussi eu un sens de grande envergure qui pouvait être appliqué à la venue du Messie. Le mot qui est traduit, par certaines églises, pour signifier vierge, signifie simplement une jeune femme. Le sens était que l’enfant, qui devait naître, serait simple et ingénu, sans péché, et que cet enfant, appelé Emmanuel, aurait la foi dans le Père Céleste que le roi Achaz n’a pas eu. Cet enfant aurait pu être l’enfant du prophète, celui qui, à cause de l’invasion des Assyriens serait contraint de vivre dans le pays, mais l’énoncé avait un sens plus large pour indiquer la naissance d’un enfant avec certaines qualités qui vont au-delà ceux de l’enfant qu’Isaïe avait peut-être à l’esprit lorsque le passage est premièrement venu à lui.
 
