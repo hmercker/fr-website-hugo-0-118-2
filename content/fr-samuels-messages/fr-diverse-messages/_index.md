@@ -11,7 +11,7 @@ weight: 120
 
 ![](/fr-samuels-messages/fr-diverse-messages/fr-paysage-de-montagne13.jpg)
 
-Le Dr Samuels a reçu une série de messages entre 1954 et 1966, qui s'inscrivent dans le prolongement du travail de James Padgett. Pour autant que nous puissions en juger, il a surtout reçu des messages de Jésus, et ceux-ci sont rassemblés sur deux pages, les soi-disant révélations explications et aperçus sur le Nouveau Testament et les soi-disant sermons sur l'Ancien Testament.
+Le Dr Samuels a reçu une série de messages entre 1954 et 1966, qui s'inscrivent dans le prolongement du travail de James Padgett. Pour autant que nous puissions en juger, il a surtout reçu des messages de Jésus, et ceux-ci sont rassemblés sur deux pages, appelées respectivement [révélations](/fr-samuels-messages/fr-revelations) relatives à des explications et aperçus sur le Nouveau Testament et celles appelées [sermons](/fr-samuels-messages/fr-sermons) relatives à des explications sur l'Ancien Testament.
 
 L'accès aux originaux des messages de Samuel est désormais possible, mais il n'est pas en ligne. Cette annonce a été faite récemment par la FCNB (Foundation Church of New Birth) :
 
