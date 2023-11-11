@@ -27,7 +27,7 @@ Il semblait, d’après les circonstances, que Jérémie ben Hilkiah était dest
 
 Jérémie lui-même, comme un jeune garçon, savait qu’il devait être au service de Dieu, non pas comme un prêtre du village, mais comme son prophète. Dans son livre, qu’il a écrit et édité plus tard dans la vie, il nous parle de l’appel de Dieu envers lui :
 
-> « Avant que je t’eusse formé dans le ventre de ta mère, je te connaissais, et avant que tu fusses sorti de son sein, je t’avais consacré, je t’avais établi prophète des nations. » (Jérémie 1 : 5)
+> *« Avant que je t’eusse formé dans le ventre de ta mère, je te connaissais, et avant que tu fusses sorti de son sein, je t’avais consacré, je t’avais établi prophète des nations. »* (Jérémie 1 : 5)
 
 Il y a eu beaucoup de théologiens qui ont utilisé ces mots pour appuyer les revendications d’une naissance virginale pour moi, Jésus. Cependant si vous lisez attentivement, vous vous rendrez compte que Jérémie, comme il me l’a dit, signifie simplement que Dieu connaît les âmes de ses êtres créés avant qu’elles ne soient incarnées dans la chair à travers la conception, et que l’âme de Jérémie fut choisie par Dieu afin d’être son prophète ou d’être son instrument sur la terre pour montrer le chemin de la justice et la miséricorde de Dieu.
 

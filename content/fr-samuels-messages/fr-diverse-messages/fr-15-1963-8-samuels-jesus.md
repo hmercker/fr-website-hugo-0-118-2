@@ -43,4 +43,4 @@ Bref, la Pentecôte est la fête la plus importante de l’Église de la Nouvell
 Jésus de la Bible et Maître des Cieux Célestes.
 <small>
 
-1. <large id=”f1”> L’influence du médium est évidente sur ces messages, et cela se confirme [dans ce message}(/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).[↩](#a1)
+1. <large id=”f1”> L’influence du médium est évidente sur ces messages, et cela se confirme [dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).[↩](#a1)

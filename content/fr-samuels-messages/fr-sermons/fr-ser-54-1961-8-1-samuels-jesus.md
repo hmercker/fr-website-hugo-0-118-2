@@ -23,7 +23,7 @@ Par conséquent, je souhaite parler du prophète Habacuc ben Jeshua, le Lévite,
 
 > « Il est comme un arbre qui pousse dans un complot. Il devient vert, et le fruit augmente ; Il se tient en présence de son Seigneur; Ses fruits sont doux, son ombre est agréable, et il trouve sa fin dans le jardin. »
 
-Jérémie, qui, bien entendu, était familier avec ce livre de la sagesse Égyptienne, a également écrit de façon très similaire (Jérémie 12 : 2) et Habacuc a aussi entendu ces paroles alors qu’il écoutait Jérémie. Mais Habacuc cacha son identité parce qu’il désirait se référer à l’iniquité des prêtres et des faux prophètes avec qui il vivait proche, et comme il était associé aux prêtres du Temple, il ne souhaitait pas être privé de fonction comme un critique hostile.
+Jérémie, qui, bien entendu, était familier avec ce livre de la sagesse Égyptienne, a également écrit de façon très similaire [Jérémie 12 : 2](https://saintebible.com/jeremiah/12-12.htm) et Habacuc a aussi entendu ces paroles alors qu’il écoutait Jérémie. Mais Habacuc cacha son identité parce qu’il désirait se référer à l’iniquité des prêtres et des faux prophètes avec qui il vivait proche, et comme il était associé aux prêtres du Temple, il ne souhaitait pas être privé de fonction comme un critique hostile.
 
 Habacuc, originaire de Jérusalem et non d’origine princière, était concerné par un double problème : le triomphe de la grande et cruelle puissance, Babylone, en tant que successeur à venir de cette autre nation maléfique, l’Égypte, alors qu’un roi Hébreu, faible et équivoque, Jojakim, était assis sur son trône et était indifférent aux maux qui sévissaient dans son pays. Ainsi, lorsqu’Habacuc s’est plaint des maux et de la tyrannie, il a parlé ouvertement de maux étrangers, mais dans son esprit c’était des maux domestiques, qu’il n’a pas dénoncés ouvertement par crainte de compromettre sa propre position.
 
@@ -31,7 +31,7 @@ Alors Habacuc a élaboré une prophétie qui demandait à Dieu de répondre à s
 
 Habacuc s’est plaint :
 
-> « Pourquoi me fais-tu voir l’iniquité, et contempler l’injustice ? Parce que l’oppression et la violence sont devant moi? Aussi la loi n’a point de vie, La justice n’a point de force ; Car le méchant triomphe du juste, Et l’on rend des jugements iniques. » (Habacuc 1:3-4)
+> *« Pourquoi me fais-tu voir l’iniquité, et contempler l’injustice ? Parce que l’oppression et la violence sont devant moi? Aussi la loi n’a point de vie, La justice n’a point de force ; Car le méchant triomphe du juste, Et l’on rend des jugements iniques. »* (Habacuc 1:3-4)
 
 Dieu répond que les Chaldéens, surgiront, cruels et rapides, terribles et redoutables, pour conquérir et posséder.
 
@@ -39,18 +39,20 @@ Habacuc reconnaît que ces conquérants viendront comme un correcteur pour les m
 
 Habacuc va à sa tour de guet, pour méditer en silence et attendre la réponse de Dieu à ses requêtes. Et le Seigneur lui répond :
 
-« Écris la prophétie: Grave-la sur des tables, Afin qu’on la lise couramment. » (de façon si claire que toute personne passant par là en courant puisse la lire).
+> *« Écris la prophétie: Grave-la sur des tables, Afin qu’on la lise couramment. »* (de façon si claire que toute personne passant par là en courant puisse la lire).
 
-> « Car c’est une prophétie dont le temps est déjà fixé, Elle marche vers son terme, et elle ne mentira pas ; Si elle tarde, attends-la, Car elle s’accomplira, elle s’accomplira certainement. Voici, son âme s’est enflée, elle n’est pas droite en lui; Mais le juste vivra par sa foi. » (Habacuc 2 : 2-4)
+> *« Car c’est une prophétie dont le temps est déjà fixé, Elle marche vers son terme, et elle ne mentira pas ; Si elle tarde, attends-la, Car elle s’accomplira, elle s’accomplira certainement. Voici, son âme s’est enflée, elle n’est pas droite en lui; Mais le juste vivra par sa foi. »* (Habacuc 2 : 2-4)
 
 Il s’agit de la première partie de la réponse, et je tiens à la commenter et à l’éclairer à la lumière de notre connaissance spirituelle avant de continuer sur la deuxième partie.
 
-Tout d’abord, la traduction du Nouveau Testament est généralement donnée comme « le juste vivra par sa foi » (Emunah) qui diffère de ce que les prophètes de l’Ancien Testament voulaient transmettre. Elle ne signifie pas réellement que l’homme bon vit de sa foi en Dieu et a la foi que Dieu va protéger l’homme bon contre le mal, car ce n’est pas toujours ainsi, car l’homme bon peut être détruit par les maladies, la violence et les troubles sur lesquels il n’a aucun contrôle. Bien qu’il soit aidé par des agents du Seigneur quand il L’appelle à l’aide dans la prière fervente, les vicissitudes matérielles peuvent réclamer la vie ou la fortune de l’homme comme les lois matérielles le dictent.
+Tout d’abord, la traduction du Nouveau Testament est généralement donnée comme *« le juste vivra par sa foi »* (Emunah) qui diffère de ce que les prophètes de l’Ancien Testament voulaient transmettre. Elle ne signifie pas réellement que l’homme bon vit de sa foi en Dieu et a la foi que Dieu va protéger l’homme bon contre le mal, car ce n’est pas toujours ainsi, car l’homme bon peut être détruit par les maladies, la violence et les troubles sur lesquels il n’a aucun contrôle. Bien qu’il soit aidé par des agents du Seigneur quand il L’appelle à l’aide dans la prière fervente, les vicissitudes matérielles peuvent réclamer la vie ou la fortune de l’homme comme les lois matérielles le dictent.
 
 Mais Habacuc signifiait que l’homme juste continue à faire ce qui est juste et à vivre une vie droite, quel que soit le mal autour de lui, et à être fidèle aux idées morales, parce qu’il sait que son âme vient de Dieu.
 
 Maintenant lorsqu’Habacuc a parlé de la vision qui était cependant pour un temps déterminé, cela signifiait que l’âme de l’homme bon, bien que toujours enfermée dans la chair, était destinée, à un certain moment, à entrer dans le monde des esprits et que, dans ce monde, la bonne âme récolterait alors les fruits de sa belle vie et vivrait dans l’une des belles sphères du ciel, de bonheur et de lumière, avec une éventuelle demeure dans le Paradis, le plus haut des cieux spirituels des Hébreux.
 
-Habacuc a ainsi voulu vivre une vie morale et éthique, et même si cette vie dans la chair était éteinte par le mal dans le monde matériel, l’âme, non touchée par ce fléau, continuerait à vivre heureuse dans le monde des esprits. Les commentateurs d’Habacuc, qu’ils soient Juifs ou Chrétiens, n’ont pas été en mesure de découvrir le vrai sens du prophète, et maintenant je veux vous dire ce qu’il entend vraiment par ces mots : « le juste vivra par sa foi », les mots qui sont chéris par tant d’hommes des églises Chrétiennes, surtout des sectes Protestantes, mais qu’ils n’ont pas vraiment compris.
+Habacuc a ainsi voulu vivre une vie morale et éthique, et même si cette vie dans la chair était éteinte par le mal dans le monde matériel, l’âme, non touchée par ce fléau, continuerait à vivre heureuse dans le monde des esprits. Les commentateurs d’Habacuc, qu’ils soient Juifs ou Chrétiens, n’ont pas été en mesure de découvrir le vrai sens du prophète, et maintenant je veux vous dire ce qu’il entend vraiment par ces mots : *« le juste vivra par sa foi »*, les mots qui sont chéris par tant d’hommes des églises Chrétiennes, surtout des sectes Protestantes, mais qu’ils n’ont pas vraiment compris.
 
 Jésus de la Bible et Maître des Cieux Célestes.
+
+D'autres messages relatifs à Job ont été communiqués le [06 Décembre 2006](https://lanouvellenaissance.com/2023/02/04/le-livre-de-job-et-le-probleme-du-mal/) et le [26 Septembre 2008](https://lanouvellenaissance.com/2023/02/09/la-verite-sur-job/). Job a également communiqué lui-même un message le [1er Octobre 2019](https://lanouvellenaissance.com/2019/10/01/job-commente-le-livre-que-m-padgett-etait-en-train-de-lire-qui-nincorpore-que-lamour-naturel-et-non-lamour-divin/)

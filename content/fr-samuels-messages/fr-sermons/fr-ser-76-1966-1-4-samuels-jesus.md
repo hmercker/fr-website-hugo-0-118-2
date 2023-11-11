@@ -15,22 +15,33 @@ C’est moi, Jésus.
 
 Avec le neuvième chapitre de Zacharie, il est nécessaire de faire une pause et faire quelques commentaires. Le contenu des six derniers chapitres n’a rien en commun, en ce qui concerne leur sujet, avec les précédents, et, de ce fait, de nombreux commentateurs des prophètes de l’Ancien Testament estiment qu’un second Zacharie les a écrits. Cependant, en dépit des données complètement nouvelles qui sont présentées, la même personne a écrit tous les chapitres; nous trouvons en effet le même esprit visionnaire et le même optimisme, seulement sur une échelle plus grande et plus grandiose.
 
-Quelques 25 années se sont écoulées avant que Zacharie écrive ses derniers chapitres. Le Temple a été restauré en 516 av J.-C., et tout semblait pacifique ; cependant en 490 avant J.-C., la bataille de Marathon a eu lieu et 10 ans plus tard, les Grecs battaient les Perses à la bataille navale de Salamine. Ainsi Zacharie, maintenant un homme d’âge moyen, voit dans ces événements historiques un signe pour reprendre la plume de la prophétie et écouter la voix du Seigneur. Maintenant, il n’est plus intéressé par le Temple, un fait accompli, mais dans le sort des Juifs et de Jérusalem pour le cas où la Perse devrait être conquise par les Grecs, comme cela s’est produit lors de l’apparition d’Alexandre le Grand, sur la scène, 150 ans plus tard. La conclusion de Zacharie est que maintenant qu’Israël, la Terre Sainte, est de nouveau en possession des Juifs, toute agression par les Grecs ou par une combinaison de nations contre Jérusalem, doit cette fois échouer, même si Dieu lui-même doit descendre du ciel et combattre, debout sur Sa Montagne Sainte, pour sauver son peuple de la destruction. Sa voix a ramené les Hébreux de l’exil en Babylonie; Son zèle, si nécessaire, apporte cette fois la victoire à Son peuple, en cas d’attaque. Ainsi les Juifs doivent regarder vers l’avenir avec confiance, quelles que soient les bouleversements opérés parmi les nations païennes ; la menace de la Grèce s’estomperait, Jérusalem deviendrait la Ville Temple du monde entier vers lequel les peuples de partout viendraient au culte, et en ce jour futur « le Seigneur sera Roi sur toute la terre; en ce jour-là, le Seigneur sera Un, et son nom sera Un. » (Zacharie 14 : 9)
+Quelques 25 années se sont écoulées avant que Zacharie écrive ses derniers chapitres. Le Temple a été restauré en 516 av J.-C., et tout semblait pacifique ; cependant en 490 avant J.-C., la bataille de Marathon a eu lieu et 10 ans plus tard, les Grecs battaient les Perses à la bataille navale de Salamine. Ainsi Zacharie, maintenant un homme d’âge moyen, voit dans ces événements historiques un signe pour reprendre la plume de la prophétie et écouter la voix du Seigneur. Maintenant, il n’est plus intéressé par le Temple, un fait accompli, mais dans le sort des Juifs et de Jérusalem pour le cas où la Perse devrait être conquise par les Grecs, comme cela s’est produit lors de l’apparition d’Alexandre le Grand, sur la scène, 150 ans plus tard. La conclusion de Zacharie est que maintenant qu’Israël, la Terre Sainte, est de nouveau en possession des Juifs, toute agression par les Grecs ou par une combinaison de nations contre Jérusalem, doit cette fois échouer, même si Dieu lui-même doit descendre du ciel et combattre, debout sur Sa Montagne Sainte, pour sauver son peuple de la destruction. Sa voix a ramené les Hébreux de l’exil en Babylonie; Son zèle, si nécessaire, apporte cette fois la victoire à Son peuple, en cas d’attaque. Ainsi les Juifs doivent regarder vers l’avenir avec confiance, quelles que soient les bouleversements opérés parmi les nations païennes ; la menace de la Grèce s’estomperait, Jérusalem deviendrait la Ville Temple du monde entier vers lequel les peuples de partout viendraient au culte, et en ce jour futur *« le Seigneur sera Roi sur toute la terre; en ce jour-là, le Seigneur sera Un, et son nom sera Un. »* (Zacharie 14 : 9)
 
 Quand j’étais sur la terre, en Palestine, j’ai été très intéressé par les écrits de Zacharie, non seulement en raison de la foi en l’Amour du Seigneur et de la protection de Son Peuple, mais à cause de la figure du Messie qu’il introduisit comme visions. Ce recours à la Messianité survient dès le chapitre 9 : 9 et 10 qui sont très célèbres dans les cercles religieux :
 
-> « Sois transportée d’allégresse, Ô fille de Sion
-Pousse des cris de joie, fille de Jérusalem ! ;
-Voici, ton roi vient à toi :
-Il est juste et victorieux ;
-Il est humble et monté sur un âne,
-Sur un âne, le petit d’une ânesse.
-Je détruirai les chars d’Ephraïm,
-Et les chevaux de Jérusalem,
-Et les arcs de guerre seront anéantis.
-Il annoncera la paix aux nations,
-Et il dominera d’une mer à l’autre,
-Depuis le fleuve jusqu’aux extrémités de la terre. »
+> *« Sois transportée d’allégresse, Ô fille de Sion
+<br>
+> Pousse des cris de joie, fille de Jérusalem ! ;
+<br>
+> Voici, ton roi vient à toi :
+<br>
+> Il est juste et victorieux ;
+<br>
+> Il est humble et monté sur un âne,
+<br>
+> Sur un âne, le petit d’une ânesse.
+<br>
+> Je détruirai les chars d’Ephraïm,
+<br>
+> Et les chevaux de Jérusalem,
+<br>
+> Et les arcs de guerre seront anéantis.
+<br>
+> Il annoncera la paix aux nations,
+<br>
+> Et il dominera d’une mer à l’autre,
+<br>
+> Depuis le fleuve jusqu’aux extrémités de la terre. »*
 
 Maintenant il ne peut y avoir aucun doute au sujet de la nouvelle dimension dans la conception d’Israël du Messie. Ici, il n’est plus le seigneur conventionnel oint de Dieu par le sacerdoce ; le Messie, que Zacharie avait pensé être Zorobabel, avait échoué à survivre à l’opposition des Perses, et on peut dire de la prêtrise aussi, en ce que cette organisation craignait la limitation de ses pouvoirs par un pouvoir séculier natif. Zacharie a maintenant vu que le Messie à venir doit être, c’est certain, un être humain, mais possédé des qualités spirituelles transcendantes d’humilité et d’amour. En outre, Zacharie a vu que le Messie de Dieu aurait non seulement Israël à cœur, mais l’humanité toute entière.
 
@@ -38,21 +49,33 @@ Ici, alors, il y avait un concept du Messie qui dépassait celui d’une figure 
 
 Mais si Zacharie voit la vision du Messie comme la volonté de Dieu pour l’amour et la paix, il a vu cependant la lutte et l’invasion autour de lui. Il a senti que les Grecs prenaient la place des Perses et attaquaient l’Asie mineure et le Moyen Orient. Ce qu’ils avaient fait dans les siècles passés, lorsque les Grecs avaient détruit Troie et les Philistins envahi Israël. Maintenant de nouvelles guerres étaient à l’horizon. Les Perses étaient maintenant en guerre avec les Grecs, et Zacharie prévoyait des attaques terrestres puissantes. En fait, celles-ci ont eu lieu beaucoup plus tard à l’époque d’Alexandre le Grand. Zacharie avait donc peur de la guerre contre Jérusalem, même dans la mesure où Juda, la terre entourant la ville, sentiraient le choc de l’invasion et attaqueraient l’ennemi à leur tour. Ici, Zacharie souhaitait imprégner ses auditeurs avec un sentiment de sécurité. Dieu combattrait pour eux maintenant, comme il n’avait pas fait dans la défense contre Babylone. Auparavant, Il avait puni ;  maintenant, il rachèterait :
 
-> « En ce jour-là, l’Éternel protégera les habitants de Jérusalem,
-Et le faible parmi eux sera dans ce jour comme David ;
-{aussi vaillant et puissant guerrier il sera}.
-Et la maison de David sera comme un être divin,
-Comme l’ange l’Éternel devant eux.
-En ce jour-là, Je m’efforcerai de détruire
-Toutes les nations {si leur culpabilité justifie leur destruction}
-Qui viendront contre Jérusalem :
-Et alors je répandrai sur la Maison de David,
-Et sur les habitants de Jérusalem
-L’esprit de grâce et de supplication,
-{oui, L’esprit du salut et de la prière}
-Et ils tourneront les regards vers moi, celui qu’ils ont percé.
-Ils pleureront sur lui comme on pleure sur un fils unique,  … »
-(Zacharie 12 : 8-10)
+> *« En ce jour-là, l’Éternel protégera les habitants de Jérusalem,
+<br>
+> Et le faible parmi eux sera dans ce jour comme David ;
+<br>
+> aussi vaillant et puissant guerrier il sera.
+<br>
+> Et la maison de David sera comme un être divin,
+<br>
+> Comme l’ange l’Éternel devant eux.
+<br>
+> En ce jour-là, Je m’efforcerai de détruire
+<br>
+> Toutes les nations, si leur culpabilité justifie leur destruction,
+<br>
+> Qui viendront contre Jérusalem :
+<br>
+> Et alors je répandrai sur la Maison de David,
+<br>
+> Et sur les habitants de Jérusalem
+<br>
+> L’esprit de grâce et de supplication,
+<br>
+> oui, L’esprit du salut et de la prière
+<br>
+> Et ils tourneront les regards vers moi, celui qu’ils ont percé.
+<br>
+> Ils pleureront sur lui comme on pleure sur un fils unique,  … »* (Zacharie 12 : 8-10)
 
 Or, c’est une prophétie attribuée au Père lui-même, relative à une défense de Jérusalem ; Il inspirera le courage et la bravoure des soldats Hébreux, mais il déversera également  son esprit sur le peuple. J’ai demandé à Zacharie quand cela a eu lieu, ou devait avoir lieu, et qui était la personne pleurée qu’ils ont percé et Zacharie m’a dit qu’il avait été inspiré par une vision, comme il avait reçu dans les prophéties antérieures et pouvait seulement dire qu’il s’agissait d’une question d’interprétation. Toutefois, il a déclaré qu’il ne connaissait personne dans le monde des esprits qui était venu en s’autoproclamant être cette personne, même pas le roi Josias qui fut tué par le Pharaon Necho à Meggido et qui fut considéré comme faisant référence au Messie, fils de Joseph, qui fut violemment tué dans l’accomplissement de sa mission, selon une vieille tradition Hébraïque. J’ai pensé que cela pourrait faire référence à l’assassinat de Guedalia, le gouverneur de Jérusalem à l’époque, où il fut capturé par Nabuchodonosor, par des membres de la maison royale Hébraïque.
 
@@ -60,8 +83,8 @@ Une journée de deuil national fut mise en place pour se souvenir de cet acte ho
 
 En outre, le début du chapitre 13 se réfère à une fontaine des eaux à Jérusalem :
 
-> « En ce jour-là, une source sera ouverte Pour la maison de David et les habitants de Jérusalem, Pour le péché et pour l’impureté. » (Zacharie 13 : 1)
+> *« En ce jour-là, une source sera ouverte Pour la maison de David et les habitants de Jérusalem, Pour le péché et pour l’impureté. »* (Zacharie 13 : 1)
 
-Étant donné que le seul court d’eau à Jérusalem est le ruisseau de Kidron, la référence ici était la vision d’Ézéchiel des eaux s’écoulant du Temple (Ézéchiel 47 : 1) et était prophétique dans ce sens. Au moment de ma venue, cette fontaine pour la Maison de David et les habitants de Jérusalem n’aurait aucun sens pour les ablutions en termes physiques, mais seulement dans le sens de l’écoulement de l’Amour Divin de Dieu en moi comme son Messie et dans les personnes qui devraient écouter ma prédication du nouveau Salut de Dieu par Son Amour, et prier et l’obtenir comme je les ai exhortés à le faire, et dans ceux dans le monde des esprits, qui devraient suivre ma prédication, quelle que soit leur résidence et l’état d’âme. Donc j’ai été très sensible aux écrits de Zacharie, et j’ai beaucoup compris sur ma mission en tant que Christ à travers ce prophète d’Israël recevant la parole de Dieu des siècles avant ma venue.
+Étant donné que le seul court d’eau à Jérusalem est le ruisseau de Kidron, la référence ici était la vision d’Ézéchiel des eaux s’écoulant du Temple [Ézéchiel 47 : 1](https://saintebible.com/ezekiel/41-7.htm) et était prophétique dans ce sens. Au moment de ma venue, cette fontaine pour la Maison de David et les habitants de Jérusalem n’aurait aucun sens pour les ablutions en termes physiques, mais seulement dans le sens de l’écoulement de l’Amour Divin de Dieu en moi comme son Messie et dans les personnes qui devraient écouter ma prédication du nouveau Salut de Dieu par Son Amour, et prier et l’obtenir comme je les ai exhortés à le faire, et dans ceux dans le monde des esprits, qui devraient suivre ma prédication, quelle que soit leur résidence et l’état d’âme. Donc j’ai été très sensible aux écrits de Zacharie, et j’ai beaucoup compris sur ma mission en tant que Christ à travers ce prophète d’Israël recevant la parole de Dieu des siècles avant ma venue.
 
 Jésus de la Bible et Maître des Cieux Célestes.
