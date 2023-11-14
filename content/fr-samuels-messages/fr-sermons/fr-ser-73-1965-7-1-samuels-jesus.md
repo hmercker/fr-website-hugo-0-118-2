@@ -15,7 +15,7 @@ C’est moi, Jésus.
 
 Dans les cinq cents ans ou plus qui ont précédé ma venue comme le Messie, le Temple a acquis de vastes trésors, non par la privation ou la spoliation des autres nations, comme Aggée l’a pensé, et donc déclaré, afin d’insuffler à ses semblables la confiance et l’importance nécessaire, mais par la patiente acquisition de biens mondiaux. Mais plus vitale et au-delà de comparaison fut la révélation de Dieu à Aggée :
 
-> «* La gloire de cette dernière Maison sera plus grande Que celle de la première, Dit l’Éternel des armées; Et c’est dans ce lieu que je donnerai la paix, Dit l’Éternel des armées. »* (Aggée 2 : 9)
+> *« La gloire de cette dernière Maison sera plus grande Que celle de la première, Dit l’Éternel des armées; Et c’est dans ce lieu que je donnerai la paix, Dit l’Éternel des armées. »* [Aggée 2 : 9](https://saintebible.com/haggai/2-9.htm)
 
 La prophétie d’Aggée, pour autant que la gloire du Temple fût concernée, peut être comprise à la lumière de la règle des Maccabées, et même de l’institution de l’Hanoucca, en considérant que la durée de ce Temple a dépassé celle de Salomon, ainsi que les ornements et les magnifiques apports faits par Hérode.
 
@@ -25,7 +25,7 @@ Aggée affirme que la prochaine récolte sera abondante, grâce à la récompens
 
 Jérémie avait déclaré à propos de Joachin :
 
-> *« Ainsi parle l’Éternel: Inscrivez cet homme comme privé d’enfants … Car nul de ses descendants ne réussira A s’asseoir sur le trône de David. »* (Jérémie 22 : 30)
+> *« Ainsi parle l’Éternel: Inscrivez cet homme comme privé d’enfants … Car nul de ses descendants ne réussira A s’asseoir sur le trône de David. »* [Jérémie 22 : 30](https://saintebible.com/jeremiah/22-30.htm)
 
 Le repentir sincère du souverain, cependant, avait, dans le temps, évité l’accomplissement du mal; et Zorobabel atteindrait, en temps voulu, un poste élevé parmi le peuple Hébreu. Aggée éprouvait beaucoup de sympathie pour Zorobabel et fut heureux de prophétiser un retour au pouvoir du petit-fils du roi, pour l’amour de l’homme et pour le salut d’Israël. Cependant, il fut forcé de se retirer à la suite de forces d’opposition.
 

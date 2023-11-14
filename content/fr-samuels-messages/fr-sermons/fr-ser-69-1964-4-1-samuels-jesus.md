@@ -25,15 +25,15 @@ Le prophète, donc, se tourna vers eux dans l’esprit des anciens prophètes, e
 
 Voici les versets du Troisième Isaïe :
 
-> *« Vous tous qui avez soif, venez aux eaux, Même celui qui n’a pas d’argent! Venez, achetez et mangez, Venez, achetez du vin et du lait, sans argent, sans rien payer ! Pourquoi pesez-vous de l’argent pour ce qui ne nourrit pas ? Pourquoi travaillez-vous pour ce qui ne rassasie pas ?  Écoutez-moi donc, et vous mangerez ce qui est bon, Et votre âme se délectera de mets succulents.… Prêtez l’oreille et venez à moi.… »* (Isaïe 55 : 1-3)
+> *« Vous tous qui avez soif, venez aux eaux, Même celui qui n’a pas d’argent! Venez, achetez et mangez, Venez, achetez du vin et du lait, sans argent, sans rien payer ! Pourquoi pesez-vous de l’argent pour ce qui ne nourrit pas ? Pourquoi travaillez-vous pour ce qui ne rassasie pas ?  Écoutez-moi donc, et vous mangerez ce qui est bon, Et votre âme se délectera de mets succulents.… Prêtez l’oreille et venez à moi.… »* [Isaïe 55 : 1-3](https://saintebible.com/isaiah/55-1.htm)
 
 L’Hébreu dit :
 
-> *« Écoutez et votre âme vivra ;  Je traiterai avec vous une alliance éternelle, Pour rendre durables mes faveurs envers David. »* (Isaïe 55 : 3)
+> *« Écoutez et votre âme vivra ;  Je traiterai avec vous une alliance éternelle, Pour rendre durables mes faveurs envers David. »* [Isaïe 55 : 3](https://saintebible.com/isaiah/55-3.htm)
 
 Ici, bien sûr « David » signifie la personne qui devrait être le *« Christ »*, et ses faveurs signifiaient son Amour rédempteur, et le Messie de Dieu. Le troisième Isaïe ne savait pas exactement ce que la *« miséricorde de David »* voulait dire, mais il a écrit cela en sachant qu’il ne mentionnait pas la personne historique, le Roi David, et que la phrase, souvent utilisée par les prophètes, avait une connotation qui allait bien au-delà de la signification originelle et se référait en quelque sorte à la puissance rédemptrice de Dieu, par l’intermédiaire de Son représentant sur terre.
 
-Dans un sermon prononcé pour mon peuple dans la synagogue à Nazareth, j’ai utilisé les premières lignes de [Isaïe 61 : 1-3](https://www.aelf.org/bible/is/63) , même si les paroles rapportées sont un peu différentes :
+Dans un sermon prononcé pour mon peuple dans la synagogue à Nazareth, j’ai utilisé les premières lignes de [Isaïe 61 : 1-3](https://saintebible.com/isaiah/61-3.htm) , même si les paroles rapportées sont un peu différentes :
 
 > *« L’Esprit du Seigneur est sur moi ; Parce que le Seigneur m’a oint pour porter de bonnes nouvelles pour les humbles. Il m’a envoyé pour guérir ceux qui ont le cœur brisé, pour proclamer aux captifs la liberté, et aux prisonniers l’ouverture de la prison ; Pour proclamer l’année de grâce du Seigneur,… Pour consoler tous les affligés… en Sion, Pour leur donner un diadème au lieu de la cendre, Une huile de joie au lieu du deuil … »*
 

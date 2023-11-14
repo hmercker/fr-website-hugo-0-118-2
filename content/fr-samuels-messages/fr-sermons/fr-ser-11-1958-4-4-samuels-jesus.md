@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### 11ème Sermon – L’amour Divin du Père préfiguré par les expériences de Joseph
+### 11ème Sermon – L’Amour Divin du Père préfiguré par les expériences de Joseph
 
 Jésus - reçu par Dr Samuels le 4 Avril 1958, Washington, USA.
 

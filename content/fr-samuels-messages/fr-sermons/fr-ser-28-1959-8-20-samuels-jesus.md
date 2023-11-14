@@ -23,25 +23,25 @@ Maintenant dans les conditions du plan terrestre de l’époque, Israël, une go
 
 Maintenant, Osée a eu une grande clairvoyance spirituelle et il lui fut donné de se rendre compte que la seule façon pour Israël de survivre était de revenir au Seigneur. Dans son livre, il a écrit d’une manière que les gens pouvaient comprendre, et il a attribué les conditions, bonnes et mauvaises, à l’action de Dieu. Mais au lieu de dire, *« Travaillez mal et le mal travaillera en vous »*, il a seulement pu dire *« Travaillez mal et Dieu vous punira. »* Mais il a eu la perspicacité de réaliser qu’une fois que les personnes auraient subi une catastrophe, ils comprendraient que cette catastrophe fut causée par leurs propres péchés et qu’en rejetant leurs péchés et iniquités, ils se tourneraient vers Dieu et demanderaient Son aide :
 
-> *« Ce qui cause ta ruine, Israël, C’est que tu as été contre moi, contre celui qui pouvait te secourir.  Où donc est ton Roi? Qu’il te délivre dans toutes tes villes! ? Où sont tes juges, au sujet desquels tu disais : Donne-moi un roi et des princes ? »* (Osée 13: 9-10)
+> *« Ce qui cause ta ruine, Israël, C’est que tu as été contre moi, contre celui qui pouvait te secourir.  Où donc est ton Roi? Qu’il te délivre dans toutes tes villes! ? Où sont tes juges, au sujet desquels tu disais : Donne-moi un roi et des princes ? »* [Osée 13: 9-10](https://saintebible.com/hosea/13-9.htm)
 
 S’il n’y avait aucun moyen pour les gens d’avoir foi en Dieu et d’obéir à Ses lois de justice (dans leur façon de vivre), alors leurs propres maux créeraient les forces du mal qui pourraient les dépasser. Ou, comme l’a pensé Osée, Dieu utiliserait d’autres nations comme Son instrument de punition.
 
 Ainsi, dans son amour pour son peuple, Israël, il les exhorterait à renoncer à leurs maux et à retourner à Dieu, avant qu’il ne soit trop tard – et avant la punition, qu’il voyait venir, pourrait frapper ses terribles coups. Seul le repentir pour le mal accompli et un retour avec un cœur contrit pourrait avoir un impact quelconque sur Dieu. Un retour superficiel, tourné extérieurement vers Dieu sans un changement de cœur serait vide de sens.
 
-> *« Ils iront avec leurs brebis et leurs bœufs chercher l’Éternel, Mais ils ne le trouveront point: Il s’est retiré du milieu d’eux. »* (Osée 5 : 6)
+> *« Ils iront avec leurs brebis et leurs bœufs chercher l’Éternel, Mais ils ne le trouveront point: Il s’est retiré du milieu d’eux. »* [Osée 5 : 6](https://saintebible.com/hosea/5-6.htm)
 
 Et à cet égard, le rituel du sacrifice est sans valeur :
 
-> *« Car j’aime la piété et non les sacrifices, Et la connaissance de Dieu plus que les holocaustes. »* (Osée 6 : 6)
+> *« Car j’aime la piété et non les sacrifices, Et la connaissance de Dieu plus que les holocaustes. »* [Osée 6 : 6](https://saintebible.com/hosea/6-6.htm)
 
 Le thème principal d’Osée, est, ensuite, la pénitence pour le péché et un renouveau de la foi en Dieu et la marche dans Ses Statuts. La punition n’est pas simplement par souci de punition, mais pour permettre à Israël de se réformer et de corriger sa voie afin atteindre les normes morales et éthiques fixées par Dieu. Selon les termes d’Osée, Dieu dit :
 
-> *« Je m’en irai, je reviendrai dans Ma Demeure, jusqu’à ce qu’ils s’avouent coupables et cherchent Ma Face. Quand ils seront dans la détresse, ils Me chercheront. »* (Osée 5 : 15)
+> *« Je m’en irai, je reviendrai dans Ma Demeure, jusqu’à ce qu’ils s’avouent coupables et cherchent Ma Face. Quand ils seront dans la détresse, ils Me chercheront. »* [Osée 5 : 15](https://saintebible.com/hosea/5-15.htm)
 
 Osée a alors prophétisé, après la catastrophe à venir, le retour à Dieu et la Renaissance qui en résultera et la vie pour la nation :
 
-> *« Venez, retournons à l’Éternel! Car Il a déchiré, mais Il nous guérira; Il a frappé, mais Il bandera nos plaies. Il nous rendra la vie dans deux jours; Le troisième jour il nous relèvera, Et nous vivrons devant Lui. »* (Osée 6 : 1-2)
+> *« Venez, retournons à l’Éternel! Car Il a déchiré, mais Il nous guérira; Il a frappé, mais Il bandera nos plaies. Il nous rendra la vie dans deux jours; Le troisième jour il nous relèvera, Et nous vivrons devant Lui. »* [Osée 6 : 1-2](https://saintebible.com/hosea/6-12.htm)
 
 Ceci fut alors la promesse de rédemption que Dieu donna aux Israélites par la bouche d’Osée. Cela n’avait rien à voir avec moi, Jésus, comme le pensent certains Chrétiens. Ils prétendent voir dans ces mots une prophétie de ma résurrection, le troisième jour. Or, rien ne pourrait être plus faux. Osée n’avait aucune idée de ma venue, comme il me l’a dit, et ses paroles furent uniquement consacrées au peuple Hébreu sans la moindre idée que ses paroles pourraient être mal interprétées, soient affectées à une autre situation plus de sept siècles plus tard.
 
@@ -49,13 +49,13 @@ Mais Osée a eu un aperçu de la rédemption de son peuple. Ce rachat était dou
 
 Maintenant lorsqu’Osée a parlé d’un retour à Dieu, il voulait dire principalement une régénération morale, une renaissance après la punition de l’exil à l’Assyrie, dont la réalisation approchait rapidement. Cet exil, pensait-il, allait durer *« jusqu’à la fin des jours »*, mais le retour serait finalement un renouvellement de leur héritage sous David, leur roi :
 
-> *« Après cela, les enfants d’Israël reviendront; ils chercheront l’Éternel, leur Dieu, et David, leur roi ; et ils tressailliront à la vue de Éternel et de sa bonté, dans la suite des temps. »* (Osée 3 : 5)
+> *« Après cela, les enfants d’Israël reviendront; ils chercheront l’Éternel, leur Dieu, et David, leur roi ; et ils tressailliront à la vue de Éternel et de sa bonté, dans la suite des temps. »* [Osée 3 : 5](https://saintebible.com/hosea/3-5.htm)
 
 Osée avait alors ici une conception Messianique claire – le bonheur ultime pour le peuple Hébreu se ferait sous un roi provenant de la Maison de David. Il serait un Royaume atteint par le biais d’un repentir vers un contentement, avec Dieu leur protecteur et dirigé par un descendant de leur grand roi, David.
 
 Voici l’un des premiers concepts Hébreux du Messie – pas le Messie tel que conçu par les Chrétiens, quelque huit cents à mille ans plus tard, mais le Messie tel qu’il fut conçu par l’un des plus grands prophètes Hébreux au début de l’histoire de la prophétie sacrée. Car Osée dit :
 
-> *« Les enfants de Juda et les enfants d’Israël se rassembleront, se donneront un chef, et sortiront du pays; car grande sera la journée de Jizreel. »* (Osée 1 : 11)
+> *« Les enfants de Juda et les enfants d’Israël se rassembleront, se donneront un chef, et sortiront du pays; car grande sera la journée de Jizreel. »* [Osée 1 : 11](https://saintebible.com/hosea/1-11.htm)
 
 Cela signifie qu’après l’exil des Hébreux, les Israélites et les Judéens retourneraient à la terre, unis comme un seul pays et, ayant choisi leur roi, quitteraient la terre d’exil, et retourneraient à leur propre terre. Ils seraient dans le même temps régénérés dans une attitude d’obéissance aux lois de Dieu, car le jour de Jizreel signifie le jour de la rédemption. Leur chef, alors, serait le roi de leur nation rachetée, leur Messie. C’est une des prophéties concernant ma venue, trouvée dans les livres des prophètes, un sujet que je traiterai alors que je montrerai le développement de l’amour dans l’Ancien Testament.
 
@@ -63,11 +63,11 @@ Lorsqu’Israël abandonnera ses mauvaises manières et retournera à Dieu, alor
 
 A ce moment les péchés d’Israël seraient oubliés, car l’âme purifiée ne peut pas contenir la mémoire du péché, ils devraient passer de l’idolâtrie à la foi dans le Père, en l’appelant, comme la véritable Église, Ishi, mon Mari. Et le Père était de retour à Son Peuple dans l’amour – l’Amour Divin qui le Père a pour Ses enfants.
 
-> *« Je réparerai leur infidélité, J’aurai pour eux un amour sincère; Car ma colère s’est détournée d’eux. »* (Osée 14 : 4)
+> *« Je réparerai leur infidélité, J’aurai pour eux un amour sincère; Car ma colère s’est détournée d’eux. »* [Osée 14 : 4](https://saintebible.com/hosea/14-4.htm)
 
 Et, affirme Osée, cet Amour Divin sera comme entre mari et femme :
 
-> *« Je serai ton fiancé pour toujours;  Oui  je serai ton fiancé par la justice, la droiture, la grâce et la miséricorde (l’Amour Divin). Je serai ton fiancé par la fidélité, et tu reconnaîtras l’Éternel.… »* (Osée 2 : 19-20)
+> *« Je serai ton fiancé pour toujours;  Oui  je serai ton fiancé par la justice, la droiture, la grâce et la miséricorde (l’Amour Divin). Je serai ton fiancé par la fidélité, et tu reconnaîtras l’Éternel.… »* [Osée 2 : 19-20](https://saintebible.com/hosea/19-20.htm)
 
 Ce fut à travers l’étude d’Osée que j’ai réalisé que l’Amour de Dieu différait de l’amour humain et qu’il pourrait être possédé par l’homme.
 

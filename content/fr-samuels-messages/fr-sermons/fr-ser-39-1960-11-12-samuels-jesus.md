@@ -15,19 +15,19 @@ C’est moi, Jésus.
 
 Non seulement Sophonie a prédit l’exil pour Juda, mais également la colère de Dieu qui s’est abattue sur les autres nations en raison de leur immoralité et mauvaises actions. Les Prophètes précédents l’avaient déclarée, et Sophonie a été convaincu de ce présage. En tout cas, Sophonie a prédit la ruine des villes Philistines près de la côte, sur le parcours emprunté par les Scythes, et il a pu écrire sur ce qu’Amos avait précédemment prédit. Parce qu’Amos avait déclaré :
 
-> *« J’enverrai le feu dans les murs de Gaza, Et il en dévorera les palais. J’exterminerai d’Asdod les habitants, Et d’Askalon celui qui tient le sceptre; Je tournerai ma main contre Ekron, Et le reste des Philistins périra, dit le Seigneur, l’Éternel.… »* (Amos 1 : 7-8)
+> *« J’enverrai le feu dans les murs de Gaza, Et il en dévorera les palais. J’exterminerai d’Asdod les habitants, Et d’Askalon celui qui tient le sceptre; Je tournerai ma main contre Ekron, Et le reste des Philistins périra, dit le Seigneur, l’Éternel.… »* [Amos 1 : 7-8](https://saintebible.com/amos/7-8.htm)
 
 Sophonie a ainsi déclaré :
 
-> *« Car Gaza sera délaissée, Askalon sera réduite en désert, Asdod sera chassée en plein midi, Ekron sera déracinée. Malheur aux habitants des côtes de la mer, à la nation des Kéréthiens ! L’Éternel a parlé contre toi, Canaan, pays des Philistins .… »* (Sophonie 2 : 4-5)
+> *« Car Gaza sera délaissée, Askalon sera réduite en désert, Asdod sera chassée en plein midi, Ekron sera déracinée. Malheur aux habitants des côtes de la mer, à la nation des Kéréthiens ! L’Éternel a parlé contre toi, Canaan, pays des Philistins .… »* [Sophonie 2 : 4-5](https://saintebible.com/zephaniah/4-5.htm)
 
 Et quand il a prédit la destruction de Ninive, la capitale de l’Assyrie, qui s’est déroulée en 606 av. J.-C., il a pu lire ce que Michée avait dit :
 
-> *« Et ils ravageront le pays d’Assyrie avec l’épée. »* (Michée 5 : 6)
+> *« Et ils ravageront le pays d’Assyrie avec l’épée. »* [Michée 5 : 6](https://saintebible.com/micah/5-6.htm)
 
 Ainsi Sophonie, en accord avec Michée, continua à prédire la destruction de Ninive :
 
-> *« Il étendra sa main sur le septentrion, Il détruira l’Assyrie, Et il fera de Ninive une solitude, Une terre aride comme le désert. »* (Sophonie 2 : 13)
+> *« Il étendra sa main sur le septentrion, Il détruira l’Assyrie, Et il fera de Ninive une solitude, Une terre aride comme le désert. »* [Sophonie 2 : 13](https://saintebible.com/zephaniah/2-13.htm)
 
 Sophonie indique que Dieu est impartial, et que les autres nations de cette époque qui ont un mauvais comportement seront détruites, pas seulement les petites localités comme Gaza, Ashkelon, Ashdod et des villes-États Philistines comme Gaza, mais aussi l’Égypte (appelée Éthiopie à cause du souverain Éthiopien), l’Assyrie et Ninive. Le Seigneur est le Seigneur de la terre entière et Son Jugement s’exécute sur tous les peuples à cause des péchés. Ce jugement sera la destruction de tout sur la face de la terre, non seulement l’homme, mais aussi les animaux et la nature, parce que le mal dans la nature est l’expression du mal dans le cœur de l’homme.
 
@@ -37,20 +37,20 @@ Pourtant, l’Éternel ne veut pas détruire tous les habitants de la terre, mai
 
 Ainsi Sophonie exhorte avec un grand sens de l’emprise de Dieu sur tous les peuples de la terre :
 
-> *« Cherchez l’Éternel, vous tous, humbles du pays, qui pratiquez ses ordonnances! Recherchez la justice, recherchez l’humilité! Peut-être serez-vous épargnés au jour de la colère de l’Éternel. »* (Sophonie 2 : 3)
+> *« Cherchez l’Éternel, vous tous, humbles du pays, qui pratiquez ses ordonnances! Recherchez la justice, recherchez l’humilité! Peut-être serez-vous épargnés au jour de la colère de l’Éternel. »* [Sophonie 2 : 3](https://saintebible.com/zephaniah/2-3.htm)
 
 Et il parle du retour des Hébreux comme « un peuple pauvre et affligé, et ils se réfugieront dans le Nom du Seigneur », pauvre en biens matériels et politiquement, en effet, mais riche dans le trésor de l’Amour du Père et de Sa protection. Quand j’ai parlé, à ceux qui ont écouté mes sermons, des humbles et des opprimés, j’ai  parlé dans l’esprit de Sophonie, nous identifiant avec le sort des pauvres et des humbles, en prêchant que la sécurité, le salut et l’intégrité de l’âme reposent dans la confiance en Lui.
 
 Le prophète continue alors de prédire :
 
-> *« Les restes d’Israël ne commettront point d’iniquité, Ils ne diront point de mensonges, Et il ne se trouvera pas dans leur bouche une langue trompeuse; Mais ils paîtront, ils se reposeront, et personne ne les troublera. »* (Sophonie 3: 13)
+> *« Les restes d’Israël ne commettront point d’iniquité, Ils ne diront point de mensonges, Et il ne se trouvera pas dans leur bouche une langue trompeuse; Mais ils paîtront, ils se reposeront, et personne ne les troublera. »* [Sophonie 3: 13](https://saintebible.com/zephaniah/3-13.htm)
 
 Avec le chapitre 3, versets 14 à 20, Sophonie frappe une note d’exultation qui forme un contraste saisissant avec les passages sinistres et sombres du Jour du Jugement. Et bien sûr, les écrivains trouvent qu’il est difficile de voir cela comme écrit de la main du prophète, mais Sophonie n’écrivait pas alors d’une façon prophétique, mais il réaffirmait sincèrement ce qu’Amos et Michée avaient déclaré précédemment. Pourtant, son élan d’exultation et de joie est ici si exubérant, et le style si personnel et convaincant, qu’il a été utilisé par le Second Isaïe, dont je parlerai plus tard en détail dans d’autres sermons, comme point de départ de ses grands écrits.
 
 Ainsi Sophonie s’est réjoui :
 
-> *« Pousse des cris de joie, fille de Sion ! Pousse des cris d’allégresse, Israël ! Réjouis-toi et triomphe de tout ton cœur, fille de Jérusalem ! Le roi d’Israël, le Seigneur est au milieu de toi … Le Seigneur ton Dieu est au milieu de toi, un héros qui sauvera; Il se réjouira avec joie avec toi, il sera silencieux dans Son Amour, Il se réjouira sur toi en chantant. »* (Sophonie 3: 14-17)
+> *« Pousse des cris de joie, fille de Sion ! Pousse des cris d’allégresse, Israël ! Réjouis-toi et triomphe de tout ton cœur, fille de Jérusalem ! Le roi d’Israël, le Seigneur est au milieu de toi … Le Seigneur ton Dieu est au milieu de toi, un héros qui sauvera; Il se réjouira avec joie avec toi, ***il sera silencieux dans Son Amour****, Il se réjouira sur toi en chantant. »* [Sophonie 3: 14-17](https://saintebible.com/zephaniah/3-14.htm)
 
-La ligne extrêmement importante, « Il sera silencieux dans Son Amour », est indicative de l’Amour Divin que le Père possède comme son plus grand attribut, et avec lequel Il aime Ses Enfants. Ce que Sophonie connaissait comme étant l’essence de Dieu a causé des difficultés parmi les érudits Hébreux, car ils pensaient que la ligne signifie que le profond Amour de Dieu était une extase silencieux, mais ce fut contredit par la joie de Dieu à travers le chant. L’explication de Rabbi Rashi, par exemple, que Dieu, dans Son Amour, couvre les péchés d’Israël dans le silence, est inacceptable, car Dieu ne couvre pas les péchés, mais, par ses lois, provoque l’éveil et le fonctionnement dans la conscience du remords de l’homme et un sens de la justice. Mais ce que Sophonie voulait dire était qu’alors que l’Amour Divin de Dieu en lui-même est si profond qu’il est silencieux. Cependant l’expression de l’Amour, qui pourrait être l’indignation et la colère en présence du péché et du mal, était une de joie et de chant, en présence de la justice et de la vertu, en particulier lorsque celles-ci représentaient le retour de Ses enfants égarés à Lui. Vous vous souviendrez que j’ai utilisé cela comme un thème dans mon sermon sur le Fils Prodigue.
+La ligne extrêmement importante, *« Il sera silencieux dans Son Amour *», est indicative de l’Amour Divin que le Père possède comme son plus grand attribut, et avec lequel Il aime Ses Enfants. Ce que Sophonie connaissait comme étant l’essence de Dieu a causé des difficultés parmi les érudits Hébreux, car ils pensaient que la ligne signifie que le profond Amour de Dieu était une extase silencieux, mais ce fut contredit par la joie de Dieu à travers le chant. L’explication de Rabbi Rashi, par exemple, que Dieu, dans Son Amour, couvre les péchés d’Israël dans le silence, est inacceptable, car Dieu ne couvre pas les péchés, mais, par ses lois, provoque l’éveil et le fonctionnement dans la conscience du remords de l’homme et un sens de la justice. Mais ce que Sophonie voulait dire était qu’alors que l’Amour Divin de Dieu en lui-même est si profond qu’il est silencieux. Cependant l’expression de l’Amour, qui pourrait être l’indignation et la colère en présence du péché et du mal, était une de joie et de chant, en présence de la justice et de la vertu, en particulier lorsque celles-ci représentaient le retour de Ses enfants égarés à Lui. Vous vous souviendrez que j’ai utilisé cela comme un thème dans mon sermon sur le Fils Prodigue.
 
 Jésus de la Bible et Maître des Cieux Célestes.

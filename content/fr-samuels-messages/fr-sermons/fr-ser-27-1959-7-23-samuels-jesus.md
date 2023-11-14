@@ -25,23 +25,23 @@ Les prophéties d’Osée vont dans ce sens. La plupart de ses écrits traitent 
 
 Osée prévoit donc non seulement la fin de la maison régnante Israélite, mais aussi celle de toute la nation. Et il déclare, comme venant de Dieu : 
 
-> *« Je mettrai fin au royaume de la maison d'Israël »*. (Osée 1:4) 
+> *« Je mettrai fin au royaume de la maison d'Israël »*. [Osée 1:4](https://saintebible.com/hosea/1-4.htm)
 
 Et au chapitre 4, Osée charge une nouvelle fois contre le peuple : 
 
-> *« Écoutez la parole de l’Éternel, enfants d’Israël ! Car l’Éternel a un procès avec les habitants du pays, Parce qu’il n’y a point de vérité, point de miséricorde, point de connaissance de Dieu dans le pays. »* (Osée 4:1) 
+> *« Écoutez la parole de l’Éternel, enfants d’Israël ! Car l’Éternel a un procès avec les habitants du pays, Parce qu’il n’y a point de vérité, point de miséricorde, point de connaissance de Dieu dans le pays. »* [Osée 4:1](https://saintebible.com/hosea/4-1.htm)
 
 Et après avoir nommé, un à un, les mauvais comportements comme le mensonge et le meurtre, le vol et l'adultère et d’autres, il déclare que la terre se lamentera. Les prêtres, ceux qui devraient montrer la voie, sont désignés avec colère : 
 
-> *« Mon peuple est détruit, parce qu'il lui manque la connaissance. Puisque tu as rejeté la connaissance, Je te rejetterai, et tu seras dépouillé de mon sacerdoce. Ils se repaissent des péchés de mon peuple, Ils sont avides de ses iniquités. Il en sera du prêtre comme du peuple : Je le châtierai selon ses voies, Je lui rendrai selon ses œuvres.… »* (Osée 4:6, 8, 9) 
+> *« Mon peuple est détruit, parce qu'il lui manque la connaissance. Puisque tu as rejeté la connaissance, Je te rejetterai, et tu seras dépouillé de mon sacerdoce. Ils se repaissent des péchés de mon peuple, Ils sont avides de ses iniquités. Il en sera du prêtre comme du peuple : Je le châtierai selon ses voies, Je lui rendrai selon ses œuvres.… »* [Osée 4:6, 8, 9](https://saintebible.com/hosea/4-6.htm)
 
 Osée va ensuite, au nom de Dieu, s’en prendre aux idolâtries qui se trouvent dans le Royaume du Nord : 
 
-> *« Ils sacrifient sur les sommets des montagnes et brûlent de l’encens sur les collines, sous les chênes et les peupliers et les ormes.... C’est pourquoi vos filles se prostituent et vos épouses commettent l'adultère. »* (Osée 4:13) 
+> *« Ils sacrifient sur les sommets des montagnes et brûlent de l’encens sur les collines, sous les chênes et les peupliers et les ormes.... C’est pourquoi vos filles se prostituent et vos épouses commettent l'adultère. »* [Osée 4:13](https://saintebible.com/hosea/4-13.htm)
 
 Osée exprime ici qu'étant donné que Dieu et le peuple Hébreu étaient comme époux et épouse, leur culte des dieux païens et de baalim était comme l’adultère dans le lien du mariage, et que, par conséquent, les enfants seraient incapables d’apprécier la confiance et la fidélité de la promesse de mariage et détruiraient leur estime de soi dans des relations déplorables. 
 
-*« Écoutez ceci, sacrificateurs ! Sois attentive, maison d'Israë l! Prête l'oreille, maison du roi ! Car c'est à vous que le jugement s'adresse,...»* (Osée 5:1) 
+> *« Écoutez ceci, sacrificateurs ! Sois attentive, maison d'Israë l! Prête l'oreille, maison du roi ! Car c'est à vous que le jugement s'adresse,...»* [Osée 5:1](https://saintebible.com/hosea/5-1.htm) 
 
 Et il continue d’affirmer que l’iniquité d’Israël est telle que les âmes du peuple furent séparées de la Toute-Âme du Père et étaient dans un état tel qu’elles ne pouvaient penser à la recherche de Dieu ; si elles l'avaient fait, elles ne l'auraient pas trouvé. Leurs faits et gestes ont créé une croûte sur leur âme, si bien qu’ils ne voyaient pas la justice resplendissant du Père, comme si un nuage sombre cachait le rayonnement du soleil dans les yeux du spectateur. Seulement l’enlèvement du nuage sombre - le mal et les péchés - par les personnes elles-mêmes, pourrait permettre que le visage de Dieu leur soit à nouveau révélé. Je continuerai avec le livre d’Osée dans mon prochain sermon. 
 

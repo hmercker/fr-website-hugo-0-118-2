@@ -21,25 +21,36 @@ Quand j’étais sur la terre, en Palestine, j’ai été très intéressé par 
 
 > *« Sois transportée d’allégresse, Ô fille de Sion
 <br>
+<br>
 > Pousse des cris de joie, fille de Jérusalem ! ;
+<br>
 <br>
 > Voici, ton roi vient à toi :
 <br>
+<br>
 > Il est juste et victorieux ;
+<br>
 <br>
 > Il est humble et monté sur un âne,
 <br>
+<br>
 > Sur un âne, le petit d’une ânesse.
+<br>
 <br>
 > Je détruirai les chars d’Ephraïm,
 <br>
+<br>
 > Et les chevaux de Jérusalem,
+<br>
 <br>
 > Et les arcs de guerre seront anéantis.
 <br>
+<br>
 > Il annoncera la paix aux nations,
 <br>
+<br>
 > Et il dominera d’une mer à l’autre,
+<br>
 <br>
 > Depuis le fleuve jusqu’aux extrémités de la terre. »*
 
@@ -51,39 +62,52 @@ Mais si Zacharie voit la vision du Messie comme la volonté de Dieu pour l’amo
 
 > *« En ce jour-là, l’Éternel protégera les habitants de Jérusalem,
 <br>
+<br>
 > Et le faible parmi eux sera dans ce jour comme David ;
+<br>
 <br>
 > aussi vaillant et puissant guerrier il sera.
 <br>
+<br>
 > Et la maison de David sera comme un être divin,
+<br>
 <br>
 > Comme l’ange l’Éternel devant eux.
 <br>
+<br>
 > En ce jour-là, Je m’efforcerai de détruire
+<br>
 <br>
 > Toutes les nations, si leur culpabilité justifie leur destruction,
 <br>
+<br>
 > Qui viendront contre Jérusalem :
+<br>
 <br>
 > Et alors je répandrai sur la Maison de David,
 <br>
+<br>
 > Et sur les habitants de Jérusalem
+<br>
 <br>
 > L’esprit de grâce et de supplication,
 <br>
+<br>
 > oui, L’esprit du salut et de la prière
+<br>
 <br>
 > Et ils tourneront les regards vers moi, celui qu’ils ont percé.
 <br>
-> Ils pleureront sur lui comme on pleure sur un fils unique,  … »* (Zacharie 12 : 8-10)
+<br>
+> Ils pleureront sur lui comme on pleure sur un fils unique,  … »* [Zacharie 12 : 8-10](https://saintebible.com/zechariah/12-8.htm)
 
 Or, c’est une prophétie attribuée au Père lui-même, relative à une défense de Jérusalem ; Il inspirera le courage et la bravoure des soldats Hébreux, mais il déversera également  son esprit sur le peuple. J’ai demandé à Zacharie quand cela a eu lieu, ou devait avoir lieu, et qui était la personne pleurée qu’ils ont percé et Zacharie m’a dit qu’il avait été inspiré par une vision, comme il avait reçu dans les prophéties antérieures et pouvait seulement dire qu’il s’agissait d’une question d’interprétation. Toutefois, il a déclaré qu’il ne connaissait personne dans le monde des esprits qui était venu en s’autoproclamant être cette personne, même pas le roi Josias qui fut tué par le Pharaon Necho à Meggido et qui fut considéré comme faisant référence au Messie, fils de Joseph, qui fut violemment tué dans l’accomplissement de sa mission, selon une vieille tradition Hébraïque. J’ai pensé que cela pourrait faire référence à l’assassinat de Guedalia, le gouverneur de Jérusalem à l’époque, où il fut capturé par Nabuchodonosor, par des membres de la maison royale Hébraïque.
 
-Une journée de deuil national fut mise en place pour se souvenir de cet acte horrible, et sa mort a été profondément ressentie et pleurée. Je ne peux pas adhérer à l’interprétation Juive générale que le martyr dénommé faisait référence aux soldats Juifs tombés devant les attaques des païens, mais le Talmud déclare (Soucca, 52 a), comme Zacharie, qu’il fait référence au Messie et à sa mort prématurée. Bien sûr, le Nouveau Testament considère la prophétie comme accomplie par ma mort en dehors de Jérusalem. Si cela est vrai, alors la prophétie est étonnante, mais je suis réticent à croire que la preuve est suffisamment forte pour être considérée comme convaincante. Dans le même temps, lorsque j’ai réalisé que j’étais le Messie de Dieu, je savais que ma route de prédication du salut par l’Amour de Dieu devait inévitablement encourir l’hostilité de ceux dont le concept du Judaïsme ne tolérait aucun développement ultérieur, comme l’hostilité des hauts-fonctionnaires placés dont les positions pourraient être abolies par l’acceptation de la « bonne nouvelle » et la persécution par les autorités Romaines au nom de la révolte contre l’ordre existant qu’elles avaient pour devoir de maintenir.
+Une journée de deuil national fut mise en place pour se souvenir de cet acte horrible, et sa mort a été profondément ressentie et pleurée. Je ne peux pas adhérer à l’interprétation Juive générale que le martyr dénommé faisait référence aux soldats Juifs tombés devant les attaques des païens, mais le Talmud déclare (Soucca, 52 a), comme Zacharie, qu’il fait référence au Messie et à sa mort prématurée. Bien sûr, le Nouveau Testament considère la prophétie comme accomplie par ma mort en dehors de Jérusalem. Si cela est vrai, alors la prophétie est étonnante, mais je suis réticent à croire que la preuve est suffisamment forte pour être considérée comme convaincante. Dans le même temps, lorsque j’ai réalisé que j’étais le Messie de Dieu, je savais que ma route de prédication du salut par l’Amour de Dieu devait inévitablement encourir l’hostilité de ceux dont le concept du Judaïsme ne tolérait aucun développement ultérieur, comme l’hostilité des hauts-fonctionnaires placés dont les positions pourraient être abolies par l’acceptation de la *« bonne nouvelle »* et la persécution par les autorités Romaines au nom de la révolte contre l’ordre existant qu’elles avaient pour devoir de maintenir.
 
 En outre, le début du chapitre 13 se réfère à une fontaine des eaux à Jérusalem :
 
-> *« En ce jour-là, une source sera ouverte Pour la maison de David et les habitants de Jérusalem, Pour le péché et pour l’impureté. »* (Zacharie 13 : 1)
+> *« En ce jour-là, une source sera ouverte Pour la maison de David et les habitants de Jérusalem, Pour le péché et pour l’impureté. »* [Zacharie 13 : 1](https://saintebible.com/zechariah/13-1.htm)
 
 Étant donné que le seul court d’eau à Jérusalem est le ruisseau de Kidron, la référence ici était la vision d’Ézéchiel des eaux s’écoulant du Temple [Ézéchiel 47 : 1](https://saintebible.com/ezekiel/41-7.htm) et était prophétique dans ce sens. Au moment de ma venue, cette fontaine pour la Maison de David et les habitants de Jérusalem n’aurait aucun sens pour les ablutions en termes physiques, mais seulement dans le sens de l’écoulement de l’Amour Divin de Dieu en moi comme son Messie et dans les personnes qui devraient écouter ma prédication du nouveau Salut de Dieu par Son Amour, et prier et l’obtenir comme je les ai exhortés à le faire, et dans ceux dans le monde des esprits, qui devraient suivre ma prédication, quelle que soit leur résidence et l’état d’âme. Donc j’ai été très sensible aux écrits de Zacharie, et j’ai beaucoup compris sur ma mission en tant que Christ à travers ce prophète d’Israël recevant la parole de Dieu des siècles avant ma venue.
 

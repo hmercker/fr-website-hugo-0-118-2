@@ -21,7 +21,7 @@ Ainsi Jonathan fit alliance avec David, « Si je dois vivre encore, veuille user
 
 Jonathan venait pour consoler David quand il devait vivre comme un hors-la-loi dans le désert et dans différentes places fortes, aussi David versa des larmes amères lorsqu’il apprit la mort de Jonathan et celle de son père, dans l’affrontement du mont Gilboa. Et il se lamentait :
 
-> Comment Jonathan a-t-il succombé sur tes collines ?
+> *« Comment Jonathan a-t-il succombé sur tes collines ?
 <br>
 <br>
 Je suis dans la douleur à cause de toi, Jonathan, mon frère !
@@ -33,11 +33,11 @@ Tu faisais tout mon plaisir ; Ton amour pour moi, était admirable,
 Plus noble que l’amour des femmes. Comment des héros sont-ils tombés ?
 <br>
 <br>
-Et leurs armes de guerre détruites.  [2 Samuel 1 : 25-27](https://saintebible.com/2_samuel/1-25.htm)
+Et leurs armes de guerre détruites. »*  [2 Samuel 1 : 25-27](https://saintebible.com/2_samuel/1-25.htm)
 
 En ce qui concerne la mort de Saul, David a estimé qu’il s’agissait d’une punition de Dieu et la justification de son propre comportement éthique, car il ne lui avait pas été permis de détruire l’oint de Dieu sur Israël, bien qu’il ait été déterminé à le tuer. En effet, alors qu’il était un fugitif, David a pu pénétrer dans le camp de Saul et prendre sa lance alors que le roi dormait. Et quand Abischaï, le frère de Joab, était prêt à le tuer, David l’en a empêché :
 
-> Ne le détruis pas, car qui pourrait impunément porter la main sur l’oint de l’Éternel ?
+> *« Ne le détruis pas, car qui pourrait impunément porter la main sur l’oint de l’Éternel ?
 <br>
 <br>
 L’Éternel est vivant ! C’est à l’Éternel seul à le frapper,
@@ -49,7 +49,10 @@ Soit que son jour vienne et qu’il meure,
 Soit qu’il descende sur un champ de bataille et qu’il y périsse.
 <br>
 <br>
-Loin de moi, par l’Éternel ! de porter la main sur l’oint de l’Éternel ![1 Samuel 26 : 9-11](https://saintebible.com/1_samuel/26-11.htm)
+Loin de moi, par l’Éternel ! de porter la main sur l’oint de l’Éternel ! »*
+<br>
+<br>
+[1 Samuel 26 : 9-11](https://saintebible.com/1_samuel/26-9.htm)
 
 Voilà sa foi en Dieu était telle qu’il ne pouvait pas s’engager dans ce qu’il ressentait serait un crime contre le représentant de Dieu. Certes, ce n’est pas la plus haute éthique, car l’âme pure ne peut pas prendre la vie, même comme indiqué dans les dix commandements de Moïse, car c’est une loi de Dieu, et il n’y a aucune haine ou pensée de vengeance dans l’âme pure, peu importe qui soit la personne qui blesse ou transgresse. Oui, cette foi en Dieu a agi avec une grande force en David, reléguant la punition au Père. David a réussi à retirer la haine et la vengeance de lui-même et fut capable d’observer la Loi de Dieu : « Tu ne tueras point. » Ainsi la lamentation de David pour Saül ne fut pas une exultation devant la défaite de l’ennemi, ni ne fut une référence quelconque à l’hostilité et à la jalousie de Saül ; seulement l’expression de la tristesse que le dirigeant d’Israël ait péri avant ses ennemis.
 

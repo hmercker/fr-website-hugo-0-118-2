@@ -51,7 +51,7 @@ Jésus | [7ème Sermon – Le rite Chrétien appelé Messe](/fr-samuels-messages
 Jésus | [8ème Sermon – Jérémie, le serviteur souffrant](/fr-samuels-messages/fr-sermons/fr-ser-8-1957-12-19-samuels-jesus/) | 19 Décembre 1957
 Jésus | [9ème Sermon – Le Nouveau Cœur dans l’Ancien Testament](/fr-samuels-messages/fr-sermons/fr-ser-9-1958-1-25-samuels-jesus/) | 25 Janvier 1958
 Jésus | [10ème Sermon – L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin](/fr-samuels-messages/fr-sermons/fr-ser-10-1958-2-18-samuels-jesus/) | 18 Février 1958
-Jésus | [11ème Sermon – L’amour Divin du Père préfiguré par les expériences de Joseph](/fr-samuels-messages/fr-sermons/fr-ser-11-1958-4-4-samuels-jesus/) | 4 Avril 1958
+Jésus | [11ème Sermon – L’Amour Divin du Père préfiguré par les expériences de Joseph](/fr-samuels-messages/fr-sermons/fr-ser-11-1958-4-4-samuels-jesus/) | 4 Avril 1958
 Jésus | [12ème Sermon – La confiance de Ruth dans l’Amour du Père](/fr-samuels-messages/fr-sermons/fr-ser-12-1958-4-10-samuels-jesus/) | 10 Avril 1958
 Jésus | [13ème Sermon – La gentillesse abondante du roi David](/fr-samuels-messages/fr-sermons/fr-ser-13-1958-7-21-samuels-jesus/) | 21 Juillet 1958
 Jésus | [14ème Sermon – La foi inébranlable de David dans le Père](/fr-samuels-messages/fr-sermons/fr-ser-14-1958-7-22-samuels-jesus/) | 22 Juillet 1958

@@ -21,7 +21,7 @@ Maintenant les écritures rapportent comment, une fois, David a appris que Nabal
 
 David, bien sûr, dépendait de ces arrangements pour se nourrir, et s’il permettait à Nabal de le casser, lui et ses hommes ne pourraient subsister, ainsi, sans se soucier de Saül et ses troupes, David marcha rapidement contre Nabal.
 
-Et David dit à ses hommes: « Que chacun de vous ceigne son épée ! » (1 Samuel 25 : 13) Et ils ceignirent chacun leur épée. David aussi ceignit son épée, et environ quatre cents hommes montèrent à sa suite.
+Et David dit à ses hommes: « Que chacun de vous ceigne son épée ! » [1 Samuel 25 : 13](https://saintebible.com/1_samuel/25-13.htm) Et ils ceignirent chacun leur épée. David aussi ceignit son épée, et environ quatre cents hommes montèrent à sa suite.
 
 Un des serviteurs de Nabal vint dire à Abigaïl, femme de Nabal, en disant :
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### 54ème Sermon – Habacuc, chanteur et étudiant des Psaumes
 
-Jésus - reçu par Dr Samuels le 1 Août 1961, Washington, USA.
+Jésus - reçu par Dr Samuels le 1er Août 1961, Washington, USA.
 
 C’est moi, Jésus.
 
@@ -21,7 +21,7 @@ Par conséquent, je souhaite parler du prophète Habacuc ben Jeshua, le Lévite,
 
 Étant donc un chanteur du Temple et ayant connaissance des hymnes étrangers aux divinités, il prit le nom pour son livre prophétique comme une sorte de préface, un titre dérivé du Livre de la Sagesse Égyptienne. Dans l’enseignement de l’Amen-em-ope, il est écrit :
 
-> « Il est comme un arbre qui pousse dans un complot. Il devient vert, et le fruit augmente ; Il se tient en présence de son Seigneur; Ses fruits sont doux, son ombre est agréable, et il trouve sa fin dans le jardin. »
+> *« Il est comme un arbre qui pousse dans un complot. Il devient vert, et le fruit augmente ; Il se tient en présence de son Seigneur; Ses fruits sont doux, son ombre est agréable, et il trouve sa fin dans le jardin. »*
 
 Jérémie, qui, bien entendu, était familier avec ce livre de la sagesse Égyptienne, a également écrit de façon très similaire [Jérémie 12 : 2](https://saintebible.com/jeremiah/12-12.htm) et Habacuc a aussi entendu ces paroles alors qu’il écoutait Jérémie. Mais Habacuc cacha son identité parce qu’il désirait se référer à l’iniquité des prêtres et des faux prophètes avec qui il vivait proche, et comme il était associé aux prêtres du Temple, il ne souhaitait pas être privé de fonction comme un critique hostile.
 
@@ -31,7 +31,7 @@ Alors Habacuc a élaboré une prophétie qui demandait à Dieu de répondre à s
 
 Habacuc s’est plaint :
 
-> *« Pourquoi me fais-tu voir l’iniquité, et contempler l’injustice ? Parce que l’oppression et la violence sont devant moi? Aussi la loi n’a point de vie, La justice n’a point de force ; Car le méchant triomphe du juste, Et l’on rend des jugements iniques. »* (Habacuc 1:3-4)
+> *« Pourquoi me fais-tu voir l’iniquité, et contempler l’injustice ? Parce que l’oppression et la violence sont devant moi? Aussi la loi n’a point de vie, La justice n’a point de force ; Car le méchant triomphe du juste, Et l’on rend des jugements iniques. »* [Habacuc 1:3-4](https://saintebible.com/habakkuk/1-3.htm)
 
 Dieu répond que les Chaldéens, surgiront, cruels et rapides, terribles et redoutables, pour conquérir et posséder.
 
@@ -41,7 +41,7 @@ Habacuc va à sa tour de guet, pour méditer en silence et attendre la réponse 
 
 > *« Écris la prophétie: Grave-la sur des tables, Afin qu’on la lise couramment. »* (de façon si claire que toute personne passant par là en courant puisse la lire).
 
-> *« Car c’est une prophétie dont le temps est déjà fixé, Elle marche vers son terme, et elle ne mentira pas ; Si elle tarde, attends-la, Car elle s’accomplira, elle s’accomplira certainement. Voici, son âme s’est enflée, elle n’est pas droite en lui; Mais le juste vivra par sa foi. »* (Habacuc 2 : 2-4)
+> *« Car c’est une prophétie dont le temps est déjà fixé, Elle marche vers son terme, et elle ne mentira pas ; Si elle tarde, attends-la, Car elle s’accomplira, elle s’accomplira certainement. Voici, son âme s’est enflée, elle n’est pas droite en lui; Mais le juste vivra par sa foi. »* [Habacuc 2 : 2-4](https://saintebible.com/habakkuk/2-4.htm)
 
 Il s’agit de la première partie de la réponse, et je tiens à la commenter et à l’éclairer à la lumière de notre connaissance spirituelle avant de continuer sur la deuxième partie.
 
@@ -55,4 +55,4 @@ Habacuc a ainsi voulu vivre une vie morale et éthique, et même si cette vie da
 
 Jésus de la Bible et Maître des Cieux Célestes.
 
-D'autres messages relatifs à Job ont été communiqués le [06 Décembre 2006](https://lanouvellenaissance.com/2023/02/04/le-livre-de-job-et-le-probleme-du-mal/) et le [26 Septembre 2008](https://lanouvellenaissance.com/2023/02/09/la-verite-sur-job/). Job a également communiqué lui-même un message le [1er Octobre 2019](https://lanouvellenaissance.com/2019/10/01/job-commente-le-livre-que-m-padgett-etait-en-train-de-lire-qui-nincorpore-que-lamour-naturel-et-non-lamour-divin/)
+D'autres messages relatifs à Job ont été communiqués le [06 Décembre 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-6-1-fab-jesus/) et le [26 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-26-1-fab-jesus/). Job a également communiqué lui-même un message le [19 Févier 1919](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-2-19-1-jep-job/)

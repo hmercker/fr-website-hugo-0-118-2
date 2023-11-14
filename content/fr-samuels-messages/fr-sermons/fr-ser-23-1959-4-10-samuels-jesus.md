@@ -38,7 +38,7 @@ Maintenant, cela ressemble beaucoup à une prophétie, en particulier dans certa
 
 > *« Et Ishbi-benob, qui était le fils du géant (Goliath de Gath)… il est ceint d’une nouvelle épée, censé avoir tué David. »*
 
-> *« Mais Abischaï, fils de Tseruja, vint au secours de David, frappa le Philistin et le tua.  … Alors les gens de David jurèrent, en lui disant: Tu ne sortiras plus avec nous pour combattre, et tu n’éteindras pas la lampe d’Israël.…» (2 Samuel 21 : 15-17)*
+> *« Mais Abischaï, fils de Tseruja, vint au secours de David, frappa le Philistin et le tua.  … Alors les gens de David jurèrent, en lui disant: Tu ne sortiras plus avec nous pour combattre, et tu n’éteindras pas la lampe d’Israël.…»  [2 Samuel 21 : 15-17](https://saintebible.com/2_samuel/21-15.htm)
 
 Ce moment de péril extrême, dans lequel David âgé ne trouvait plus la force de combattre activement, fut celui choisi par le Psalmiste pour dépeindre les peurs et les sentiments de David. L’écrivain, comme il était fréquent chez les anciens Hébreux, a utilisé des fantaisies poétiques et des images, comme celles des taureaux de Basan, qui, bien sûr, symbolisaient les forts soldats ennemis, ou d’être versé comme l’eau, autrement dit, complètement épuisé par l’effort, son cœur fondre dans ses entrailles, et sa langue, s’accrochant à sa mâchoire, ce qui signifie de plus en plus faible avec crainte et paralysé, de l’ennemi féroce les chiens l’encerclant, c’est-à-dire, prêt à livrer les coups finaux.
 

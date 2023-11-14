@@ -44,12 +44,26 @@ Le sens est: qui pourrait croire le fait que Cyrus ait permis le rapatriement de
 Le chapitre se poursuit – et nous avons ici le Second Isaïe qui suscite l’étonnement des Babyloniens eux-mêmes, qui, comme j’interprète maintenant la poésie, déclare :
 
 > *« Car Israël s’est élevé devant Lui comme une faible plante,
+<br>
+<br>
 Comme un rejeton qui sort d’une terre desséchée.
+<br>
+<br>
 Israël n’avait ni beauté, ni éclat pour attirer nos regards,
+<br>
+<br>
 Et son aspect n’avait rien pour plaire aux Babyloniens.
+<br>
+<br>
 Il fut méprisé et abandonné par les autres nations, (faible vassal à nos forces)
+<br>
+<br>
 Une nation malade et faible et au courant de la maladie dans le corps.
+<br>
+<br>
 Semblable à celui dont on détourne le visage,
+<br>
+<br>
 Nous l’avons dédaigné, nous n’avons fait de lui aucun cas. »*
 
 En bref, pour les Chaldéens, Israël est une herbe faible plantée par son Dieu sans aucune fermeté pour résister aux tempêtes et à l’adversité. Il n’avait aucune virilité, ni œuvres d’art ni architecture (naturellement, parce que les Hébreux avaient été interdits de graver des images) et en raison de sa position enclavée. Sans gouvernement ni armée organisée, il était faible et malade dans sa structure en tant que nation, et donc les autres nations païennes regardaient cet Israël battu avec dédain. Il a été abandonné par les autres pays de cette région du monde et a souffert parce qu’il était un paria parmi les autres puissances.
