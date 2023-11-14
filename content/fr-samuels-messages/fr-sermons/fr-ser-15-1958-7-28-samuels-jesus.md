@@ -25,7 +25,8 @@ Et David dit à ses hommes: « Que chacun de vous ceigne son épée ! » [1 Samu
 
 Un des serviteurs de Nabal vint dire à Abigaïl, femme de Nabal, en disant :
 
-> *« Voici, David a envoyé du désert des messagers pour saluer notre maître Nabal qui les a rudoyés. Et pourtant ces gens ont été bons pour nous ; ils ne nous ont fait aucun outrage, et rien ne nous a été enlevé tout le temps que nous avons été avec eux, lorsque nous étions dans les champs, ils nous ont, nuit et jour, servi de muraille, tout le temps que nous avons été avec eux, faisant paître les troupeaux.  Sache maintenant et vois ce que tu as à faire, car la perte de notre maître et de toute sa maison est résolue, et il est si méchant qu’on n’ose lui parler. »* [1 Samuel 25  : 14-17](https://saintebible.com/1_samuel/25-14.htm)
+> *« Voici, David a envoyé du désert des messagers pour saluer notre maître Nabal qui les a rudoyés. Et pourtant ces gens ont été bons pour nous ; ils ne nous ont fait aucun outrage, et rien ne nous a été enlevé tout le temps que nous avons été avec eux, lorsque nous étions dans les champs, ils nous ont, nuit et jour, servi de muraille, tout le temps que nous avons été avec eux, faisant paître les troupeaux.  Sache maintenant et vois ce que tu as à faire, car la perte de notre maître et de toute sa maison est résolue, et il est si méchant qu’on n’ose lui parler. »*
+[1 Samuel 25  : 14-17](https://saintebible.com/1_samuel/25-14.htm)
 
 Alors Abigail, sans consulter Nabal, qui était en état d’ébriété, prépara une quantité considérable de provisions, les chargea sur des ânes et les conduisit pour intercepter David avant qu’il n’atteigne la maison de Nabal. Et lorsqu’elle le rencontra, elle se prosterna devant David, lui présenta les provisions en l’implorant afin qu’il ne cherche pas la vengeance.
 

@@ -34,7 +34,8 @@ Beaucoup de ses premières prophéties sont de la veine d’Amos et Osée, les d
 Isaïe parla ainsi au peuple, à cause de leur comportement pécheur, de leur ingratitude envers le Père. Il continua alors comme si Dieu parlait à travers lui, exigeant le jugement:
 
 > *« Qu’y avait-il encore à faire à Ma vigne, sue je n’aie pas fait pour elle ?  Pourquoi, quand j’ai espéré qu’elle produirait de bons raisins, en a-t-elle produit de mauvais ? »* [Isaïe 5 :  4](https://saintebible.com/isaiah/5-4.htm)
-
+<br>
+<br>
 > *« La vigne de l’Éternel des armées, c’est la maison d’Israël, et les hommes de Juda, c’est le plant qu’il chérissait. Il avait espéré de la droiture, et voici du sang versé! De la justice, et voici des cris de détresse ! »* [Isaïe 5 : 7](https://saintebible.com/isaiah/5-7.htm)
 
 La chose importante à retenir, pour mon prophète ici, est qu’Isaïe a ainsi poursuivi la conception de l’Amour Divin de Dieu pour Son peuple. Il a parlé, et a écrit, dans une parabole qui était claire et chère à tous les Hébreux – l’amour que l’homme a pour la terre de son domaine. Dieu aimait les Hébreux parce qu’ils étaient ceux qui mèneraient à bien Ses Commandements pour la justice et la vertu, et Dieu, le Mari d’Israël, ou Dieu, le Planteur de la vigne. Il était Dieu qui aimait avec Son Amour Divin le peuple de Son choix, et qu’il châtierait si nécessaire, afin qu’ils retournent à Lui, par la pratique de ces commandements sacrés  pour la justice et la vertu qui Le caractérisait pour les Hébreux à cette époque. Et pourtant, la foi d’Isaïe en Dieu est telle qu’il déclare que le temps viendrait où non seulement Juda reviendrait à Lui, mais également tous les hommes. Parce qu’Isaïe savait et proclamait que Jéhovah est non seulement le Dieu des Hébreux, mais le Dieu universel de l’humanité toute entière :

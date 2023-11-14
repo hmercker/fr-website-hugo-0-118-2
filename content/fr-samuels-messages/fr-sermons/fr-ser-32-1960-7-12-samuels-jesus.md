@@ -31,7 +31,7 @@ La prophétie de la jeune femme et son enfant fut suivie par la défaite d’Isr
 
 Isaïe a vécu à travers ces années, pleinement conscient de la grande menace que représentaient, pour la Judée, ces mêmes armées, et il a estimé que la catastrophe qui s’était déversée sur la Syrie et Israël était la conséquence de leur refus d’obéir aux lois de Dieu, telles qu’elles figurent dans les Dix commandements. Il a également estimé que la Judée était dans un État éthique tout aussi pauvre que  l’avaient été les pays conquis. En outre, il avait le cœur brisé parce que l’alliance d’Achaz avec l’Assyrie avait entraîné la reconnaissance des dieux Assyriens. Achaz est allé jusqu’à commander l’érection, dans le Temple, d’un nouvel autel dédié à Teglath-Phalasar, le roi Assyrien, et cet autel païen déplaça l’ancien autel dédié à l’Éternel. Comme Élie avant lui avait dénoncé le Baal des Phéniciens, Isaïe ne cautionnerait pas maintenant une telle abomination. Pour Isaïe, cette situation ne pouvait signifier qu’une chose – que Jéhovah causerait la destruction de la Judée. Avant le désastre qui a frappé l’Israël, il avait prédit que les Judéens seraient accablés par les Assyriens comme les eaux d’inondation :
 
-> *« Parce que ce peuple a méprisé les eaux de Siloé qui coulent doucement ….. Voici, le Seigneur va faire monter contre eux Les puissantes et grandes eaux du fleuve  Il s’élèvera partout au-dessus de son lit, Et il se répandra sur toutes ses rives; Il pénétrera dans Juda, il débordera et inondera, Il atteindra jusqu’au cou.… »* [Isaïe 8 :  6-8](https://saintebible.com/isaiah/6-8.htm)
+> *« Parce que ce peuple a méprisé les eaux de Siloé qui coulent doucement ….. Voici, le Seigneur va faire monter contre eux Les puissantes et grandes eaux du fleuve  Il s’élèvera partout au-dessus de son lit, Et il se répandra sur toutes ses rives; Il pénétrera dans Juda, il débordera et inondera, Il atteindra jusqu’au cou.… »* [Isaïe 8 :  6-8](https://saintebible.com/isaiah/8-6.htm)
 
 À différentes occasions Isaïe a fait connaître la volonté de Dieu que Juda serait, éventuellement, ultérieurement détruit et les personnes emmenées en captivité. Quand son deuxième fils est né, aux environs de 732 av J.-C., il l’a appelé « Lemaher shalal hash baz » (Rapide est la corruption, prompt est la proie), et quand l’Égypte et ses mesquines alliances se sont élevées contre Sargon dans les années 713-711 av J.-C., y compris Philistia, Moab, Edom et Judah, Isaïe, alors dans la quarantaine, a arpenté, nu, les rues comme un vif rappel de la méthode de traitement des prisonniers par les Assyriens. La coalition fut un échec et a conduit douloureusement à une défaite dans la bataille. Bien que Juda ne fût pas directement attaqué, le roi dut cependant payer des sommes considérables pour éviter l’assaut contre Jérusalem. Sargon, le monarque Assyrien, renonça en partie parce que Juda était resté neutre dans le passé – de sorte qu’Isaïe, par le biais de sa politique de paix et de non-intervention, a contribué à sauver la ville sainte qui éprouverait en temps voulu du chagrin.
 
@@ -41,12 +41,15 @@ Jésus de la Bible et Maître des Cieux Célestes.
 
 Note 1 : J'ai reçu des informations qui remettent en question l'exactitude de ce nom, et il semblerait que ce ne soit probablement pas le cas. En médiumnité, la réception précise des noms et des dates est très difficile. Voici le commentaire dans son intégralité :
 
-     Lorsque j’ai essayé de chercher le roi de Judée mentionné (Rékah de Judée), je n’ai trouvé personne portant ce nom ou même un nom qui lui ressemblait beaucoup. Par ailleurs, en prenant en compte la première phrase du paragraphe suivant, qui se lit :
-
-     En fait, ces principautés étaient tellement contrariées par la passivité de la Judée à cette époque (environ 738 av. J.-C.) qu’elles décidèrent d’attaquer Jérusalem. Comme je l’ai mentionné dans mon premier sermon sur Isaïe, Achaz, fils de Jotham, était sur le trône de Judée.
-
-     Il semble donc qu’Achaz était alors roi de Judée et non un roi nommé Rékah. Et qui plus est : il est très peu probable que Rezin de Syrie conspire avec un roi de Judée, réputé passif.
-
-     Alors, j'ai commencé à regarder autour de moi, et ce que j'ai découvert, c'est que Rezin avait effectivement conspiré contre Juda en se rangeant du côté de l'Égypte, et il l'avait fait avec un roi israélite nommé Pékah, un nom qui ressemble beaucoup au nom de Rékah. Donc, je conclus que la mention de Rékah de Judée me semble être un lapsus de la plume et devrait se lire : Rékah d’Israël. (Source : jvsjohn)
+> Lorsque j’ai essayé de chercher le roi de Judée mentionné (Rékah de Judée), je n’ai trouvé personne portant ce nom ou même un nom qui lui ressemblait beaucoup. Par ailleurs, en prenant en compte la première phrase du paragraphe suivant, qui se lit :
+<br>
+<br>
+> En fait, ces principautés étaient tellement contrariées par la passivité de la Judée à cette époque (environ 738 av. J.-C.) qu’elles décidèrent d’attaquer Jérusalem. Comme je l’ai mentionné dans mon premier sermon sur Isaïe, Achaz, fils de Jotham, était sur le trône de Judée.
+<br>
+<br>
+> Il semble donc qu’Achaz était alors roi de Judée et non un roi nommé Rékah. Et qui plus est : il est très peu probable que Rezin de Syrie conspire avec un roi de Judée, réputé passif.
+<br>
+<br>
+> Alors, j'ai commencé à regarder autour de moi, et ce que j'ai découvert, c'est que Rezin avait effectivement conspiré contre Juda en se rangeant du côté de l'Égypte, et il l'avait fait avec un roi israélite nommé Pékah, un nom qui ressemble beaucoup au nom de Rékah. Donc, je conclus que la mention de Rékah de Judée me semble être un lapsus de la plume et devrait se lire : Rékah d’Israël. (Source : jvsjohn)
 ​
 

@@ -17,7 +17,7 @@ Et on verra que, plus tard, le prophète Michée a parlé dans la même veine. J
 
 A ce moment, Ézéchias est tombé gravement malade, dû à une forme aggravée d’anthrax qui empoisonnait le sang. Ses médecins ne pouvaient faire grand-chose pour le soulager. Isaïe lui a dit qu’il allait mourir. Ézéchias a alors tourné son visage vers le mur de sa chambre, priant et pleurant pour tous ses péchés et ses intrigues, repentant dans son cœur pour les basses actions qu’il avait fabriquées, recherchant, par une prière directe à Dieu, le rétablissement. Et il pria ainsi :
 
-> *« O Éternel ! Souviens-toi que j’ai marché devant ta face avec fidélité et intégrité de cœur, et quej’ai fait ce qui est bien à tes yeux! Et Ézéchias répandit d’abondantes larmes.»* [Isaïe 38 : 2-3](https://saintebible.com/isaiah/38-2.htm)
+> *« O Éternel ! Souviens-toi que j’ai marché devant ta face avec fidélité et intégrité de cœur, et quej’ai fait ce qui est bien à tes yeux! Et Ézéchias répandit d’abondantes larmes. »* [Isaïe 38 : 2-3](https://saintebible.com/isaiah/38-2.htm)
 
 Et la vérité est, comme je l’ai dit, que le roi a entrepris une réforme des rituels religieux pour éliminer les symboles de fertilité et autres abominations. Je voudrais donc souligner et mettre l’accent sur l’un des cas, réel et tangible, de l’aide rapide de Dieu, en réponse à la prière directe, car Dieu a entendu et a eu pitié de son repentir sincère et, par l’intermédiaire de ses messagers,  expliqua à Isaïe comment traiter l’infection. Et la parole de l’Éternel me fut adressée, en ces mots:
 

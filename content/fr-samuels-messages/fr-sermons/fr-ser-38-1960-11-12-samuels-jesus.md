@@ -19,7 +19,7 @@ Sophonie de Cushi, le prophète de la dite journée de la colère de Dieu, est n
 
 Son grand-père était un ancêtre de ce Guedalia, qui devint gouverneur de Judée après la chute de Jérusalem en 556 av. J.-C. Cette dénomination des ancêtres allait à l’encontre de la coutume et indiquait que les ancêtres du prophète remontaient au Roi Ézéchiel, dans les jours d’Isaïe. Sophonie a vécu à Jérusalem près du palais, et il a décrit sa topographie brièvement :
 
-> *« En ce jour-là, dit l’Éternel, Il y aura des cris à la porte des poissons, des lamentations dans l’autre quartier de la ville, et un grand désastre sur les collines… En ce temps-là, je fouillerai Jérusalem avec une lampe. »* [Sophonie 1 : 10-12](https://saintebible.com/zephaniah/10-12.htm)
+> *« En ce jour-là, dit l’Éternel, Il y aura des cris à la porte des poissons, des lamentations dans l’autre quartier de la ville, et un grand désastre sur les collines… En ce temps-là, je fouillerai Jérusalem avec une lampe. »* [Sophonie 1 : 10-12](https://saintebible.com/zephaniah/1-10.htm)
 
 Il fut l’un de ceux qui pensaient qu’une réaction contre l’idolâtrie et les fléaux de Manassé et de son fils, Amon, était indispensable si le pays de Juda et ses habitants ne voulaient pas être détruits. Par cela, je ne veux pas dire que les rois seuls étaient coupables, car beaucoup de personnes avaient accepté les divinités assyriennes et leurs rites, y compris même l’abomination des sacrifices humains. Ceux qui avaient résisté en défendant Jéhovah et sa morale vivante avaient été persécutés et tués, et donc la vraie religion en Juda fut contrainte de devenir, pour ainsi dire, souterraine.
 

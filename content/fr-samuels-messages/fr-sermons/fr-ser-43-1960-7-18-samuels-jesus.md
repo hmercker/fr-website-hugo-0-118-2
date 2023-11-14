@@ -25,7 +25,7 @@ Et puis il continue à se plaindre :
 
 Jérémie voulait dire que le peuple avait abandonné le Dieu vivant pour les idoles. J’ai fait usage de cette image de Dieu, ou « la fontaine des eaux vives » dans ma propre prédication lorsque je suis arrivé en Palestine pour annoncer la bonne nouvelle de l’Amour du Père. J’ai utilisé d’autres documents rédigés par Jérémie, parce que ce qu’il disait était vrai et s’appliquait à ma propre prédication.
 
-De la même manière que Jérémie a fait usage de Deutéronome dans son insistance pour que le croyant en Dieu n’ait pas peur d’agir ou de faire face au mal, car Dieu était avec lui. Dans [Deutéronome 1 : 23](https://saintebible.com/deuteronomy/1-23.htm) Moïse a dit :
+De la même manière que Jérémie a fait usage de Deutéronome dans son insistance pour que le croyant en Dieu n’ait pas peur d’agir ou de faire face au mal, car Dieu était avec lui. Dans [Deutéronome 1 : 21](https://saintebible.com/deuteronomy/1-21.htm) Moïse a dit :
 
 > *« Voici, le Seigneur ton Dieu a mis la terre devant toi ; monte et possède la; que le Seigneur, le Dieu de tes pères, t’a parlé; n’aie pas peur, n’aie crainte. »*
 

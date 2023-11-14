@@ -31,7 +31,7 @@ Tel est le sens réel des versets 10 et 11, car ils sont très confus dans la ve
 
 > *« Il a plu à l’Éternel de le briser par la souffrance… Après avoir livré sa vie en sacrifice pour le péché, Il verra une postérité et prolongera ses jours ; Et l’œuvre de l’Éternel prospérera entre ses mains. A cause du travail de son âme, il rassasiera ses regards ; Par sa connaissance mon serviteur juste justifiera beaucoup d’hommes, Et il se chargera de leurs iniquités. »*
 
-Je vais continuer avec le chapitre 53 : 12 :
+Je vais continuer avec le [chapitre 53 : 12](https://saintebible.com/isaiah/53-12.htm) :
 
 > *« La consécration de Mon Serviteur est pour beaucoup de personnes, et c’est leur punition qu’il a portée; leurs maux et les agressions, au lieu d’être punis par Dieu comme mérités, a été reportée, et Israël seul a été conduit à la souffrance et à la catastrophe, de vivre parmi eux et par son exemple de les instruire dans une vie juste par l’adhésion aux statuts de Dieu. Par conséquent, dit Dieu, Je lui partagerai une portion avec les grands, et il partagera le butin avec les puissants ; en bref, Israël vivra à nouveau en tant que nation, intellectuellement virile et matériellement prospère. »*
 

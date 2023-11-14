@@ -17,7 +17,7 @@ Dans mon dernier sermon, j’ai montré comment Osée, le grand prophète d’Is
 
 Toutefois, les maux que les Israélites de ce temps pratiquaient, leur perte croissante de la fibre morale, la détérioration dans l’immoralité et le culte païen, ont créé, inévitablement, des conditions matérielles qui travaillaient contre eux. Le peuple a perdu sa grande foi en Dieu et ce qu’elle représentait pour lui: la droiture et la justice. Ils ont perdu, en un mot, leur noble idéalisme qui leur avait donné l’acier et les nerfs pour s’emparer de la terre de Canaan comme la terre qui le leur avait promis. Ils ont perdu la foi qu’Il les protégerait – et ainsi perdu leur lien avec Lui. Seulement par un retour à Lui, le lien pourrait être rétabli.
 
-Les forces spirituelles du Père ont été incapables d’aider et de protéger Israël, car le contact spirituel avait été brisé par le refuge du peuple dans le matérialisme et les mauvaises pratiques. Les deux royaumes Hébreux – et spécialement Israël à l’époque – sont ainsi restés à découvert s’exposant aux tempêtes du matérialisme et aux forces dominantes matérialistes alors en opération. Car tout comme je l’ai dit lorsque j’ai prêché en Palestine, « Rendez à César ce qui est de César », l’homme est sujet aux puissances du Royaume auxquelles il appartient, et si l’homme se soumet au Royaume du plan terrestre, il ne pourra alors que s’accrocher aux  forces de ce plan et se conformer au pouvoir de ces forces.
+Les forces spirituelles du Père ont été incapables d’aider et de protéger Israël, car le contact spirituel avait été brisé par le refuge du peuple dans le matérialisme et les mauvaises pratiques. Les deux royaumes Hébreux – et spécialement Israël à l’époque – sont ainsi restés à découvert s’exposant aux tempêtes du matérialisme et aux forces dominantes matérialistes alors en opération. Car tout comme je l’ai dit lorsque j’ai prêché en Palestine, *« Rendez à César ce qui est de César »* [Luc : 20-25](https://saintebible.com/luke/20-25.htm), l’homme est sujet aux puissances du Royaume auxquelles il appartient, et si l’homme se soumet au Royaume du plan terrestre, il ne pourra alors que s’accrocher aux  forces de ce plan et se conformer au pouvoir de ces forces.
 
 Maintenant dans les conditions du plan terrestre de l’époque, Israël, une goutte d’eau contre une mer puissante, a été ballottée par la plus grande et la plus puissante des nations du Croissant Fertile et ne pouvait compter sur aucune aide pour sa protection. Elle a cherché des alliances avec d’autres pays, mais, si je peux utiliser le mot *« âme »* avec une connotation collective, quel confiance pourrait-elle elle avoir en des nations dans un état d’âme similaire voire pire ? C’est seulement si l’âme retourne au Père et Le recherche qu’elle peut recevoir Sa Protection. C’est seulement si Israël se détournait de ses mauvaises voies et retournait à Dieu en obéissant à ses lois de justice et à la droiture, qu’Israël pourrait s’élever au-dessus du plan terrestre, rétablir le lien spirituel avec Lui et obtenir Sa Protection.
 
@@ -41,7 +41,7 @@ Le thème principal d’Osée, est, ensuite, la pénitence pour le péché et un
 
 Osée a alors prophétisé, après la catastrophe à venir, le retour à Dieu et la Renaissance qui en résultera et la vie pour la nation :
 
-> *« Venez, retournons à l’Éternel! Car Il a déchiré, mais Il nous guérira; Il a frappé, mais Il bandera nos plaies. Il nous rendra la vie dans deux jours; Le troisième jour il nous relèvera, Et nous vivrons devant Lui. »* [Osée 6 : 1-2](https://saintebible.com/hosea/6-12.htm)
+> *« Venez, retournons à l’Éternel! Car Il a déchiré, mais Il nous guérira; Il a frappé, mais Il bandera nos plaies. Il nous rendra la vie dans deux jours; Le troisième jour il nous relèvera, Et nous vivrons devant Lui. »* [Osée 6 : 1-2](https://saintebible.com/hosea/6-1.htm)
 
 Ceci fut alors la promesse de rédemption que Dieu donna aux Israélites par la bouche d’Osée. Cela n’avait rien à voir avec moi, Jésus, comme le pensent certains Chrétiens. Ils prétendent voir dans ces mots une prophétie de ma résurrection, le troisième jour. Or, rien ne pourrait être plus faux. Osée n’avait aucune idée de ma venue, comme il me l’a dit, et ses paroles furent uniquement consacrées au peuple Hébreu sans la moindre idée que ses paroles pourraient être mal interprétées, soient affectées à une autre situation plus de sept siècles plus tard.
 
@@ -67,7 +67,7 @@ A ce moment les péchés d’Israël seraient oubliés, car l’âme purifiée n
 
 Et, affirme Osée, cet Amour Divin sera comme entre mari et femme :
 
-> *« Je serai ton fiancé pour toujours;  Oui  je serai ton fiancé par la justice, la droiture, la grâce et la miséricorde (l’Amour Divin). Je serai ton fiancé par la fidélité, et tu reconnaîtras l’Éternel.… »* [Osée 2 : 19-20](https://saintebible.com/hosea/19-20.htm)
+> *« Je serai ton fiancé pour toujours;  Oui  je serai ton fiancé par la justice, la droiture, la grâce et la miséricorde (l’Amour Divin). Je serai ton fiancé par la fidélité, et tu reconnaîtras l’Éternel.… »* [Osée 2 : 19-20](https://saintebible.com/hosea/2-19.htm)
 
 Ce fut à travers l’étude d’Osée que j’ai réalisé que l’Amour de Dieu différait de l’amour humain et qu’il pourrait être possédé par l’homme.
 

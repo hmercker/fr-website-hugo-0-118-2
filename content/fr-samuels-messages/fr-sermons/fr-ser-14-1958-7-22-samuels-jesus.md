@@ -33,7 +33,10 @@ Tu faisais tout mon plaisir ; Ton amour pour moi, était admirable,
 Plus noble que l’amour des femmes. Comment des héros sont-ils tombés ?
 <br>
 <br>
-Et leurs armes de guerre détruites. »*  [2 Samuel 1 : 25-27](https://saintebible.com/2_samuel/1-25.htm)
+Et leurs armes de guerre détruites. »*
+<br>
+<br>
+[2 Samuel 1 : 25-27](https://saintebible.com/2_samuel/1-25.htm)
 
 En ce qui concerne la mort de Saul, David a estimé qu’il s’agissait d’une punition de Dieu et la justification de son propre comportement éthique, car il ne lui avait pas été permis de détruire l’oint de Dieu sur Israël, bien qu’il ait été déterminé à le tuer. En effet, alors qu’il était un fugitif, David a pu pénétrer dans le camp de Saul et prendre sa lance alors que le roi dormait. Et quand Abischaï, le frère de Joab, était prêt à le tuer, David l’en a empêché :
 

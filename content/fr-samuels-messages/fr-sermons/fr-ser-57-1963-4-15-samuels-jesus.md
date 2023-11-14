@@ -23,7 +23,7 @@ Il est apparu à Ézéchiel, pour être certain, qu’il devait trouver un moyen
 
 Comme Jérémie avait dit précédemment:
 
-> *« Tes paroles ont été trouvées, et je les ai dévorées; et ta parole a été pour moi la joie et l’allégresse de mon cœur. »* [Jérémie 15 : 16](https://saintebible.com/jeremiah/15-5.htm)
+> *« Tes paroles ont été trouvées, et je les ai dévorées; et ta parole a été pour moi la joie et l’allégresse de mon cœur. »* [Jérémie 15 : 16](https://saintebible.com/jeremiah/15-16.htm)
 
 Ézéchiel a écrit d’autres choses que Jérémie avait d’abord dites, comme ne pas avoir peur, et ne pas être écouté par le peuple. Avec cette « vision » d’ouverture, Ézéchiel, cependant, sentait qu’il pouvait maintenant exprimer la volonté de Dieu en Babylonie, et même considérer que Dieu était venu sur cette terre pour présider aux fortunes spirituelles de Son peuple. Où en Babylonie ? Ézéchiel ne l’a pas dit, mais ce ne fut pas nécessaire. Pour le prophète, Dieu était le Roi de l’Univers et pouvait rester partout où il le souhaitait.
 

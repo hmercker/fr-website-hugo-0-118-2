@@ -27,7 +27,7 @@ Jérémie a été particulièrement outré de la rupture des Commandements de l�
 
 Maintenant, Jérémie a senti, lorsque les statues pour les différents luminaires ont été détruites, dans le Temple et dans les hauts-lieux, sans les conséquences désastreuses qui auraient montré que le culte stellaire était vain, que les gens devaient se rendre compte que les corps célestes en eux-mêmes étaient simplement des créations du Père et que les hommes devaient adorer le Créateur, pas le produit. Il dit au peuple qu’ils étaient aveugles de ne pas voir cela. Il a faire dire à Dieu :
 
-> *« Annoncez ceci à la maison de Jacob, Publiez-le en Juda, et dites : Écoutez ceci, peuple insensé, et qui n’a point de cœur! Ils ont des yeux et ne voient point, Ils ont des oreilles et n’entendent point.… ? Ne me craindrez-vous pas, dit l’Éternel, Ne tremblerez-vous pas devant moi … ? »* [Jérémie 5 : 20-22](https://saintebible.com/jeremiah/5-22.htm)
+> *« Annoncez ceci à la maison de Jacob, Publiez-le en Juda, et dites : Écoutez ceci, peuple insensé, et qui n’a point de cœur! Ils ont des yeux et ne voient point, Ils ont des oreilles et n’entendent point.… ? Ne me craindrez-vous pas, dit l’Éternel, Ne tremblerez-vous pas devant moi … ? »* [Jérémie 5 : 20-22](https://saintebible.com/jeremiah/5-20.htm)
 
 Dans ma propre génération, je me suis senti comme Jérémie et, dans certains sermons, j’ai utilisé des mots similaires pour indiquer l’incompréhension lorsque je leur ai révélé la Présence du Père dans mon âme avec l’Amour Divin.
 

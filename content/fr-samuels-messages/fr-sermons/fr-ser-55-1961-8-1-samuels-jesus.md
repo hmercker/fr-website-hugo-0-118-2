@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 1er Août 1961, Washington, USA.
 
 C’est moi, Jésus.
 
-Maintenant la deuxième partie de la réponse porte sur le sort des méchants. Cette réponse est assez longue et couvre [les vers 5 à 20 an chapitre 2](https://saintebible.com/habakkuk/2-5.htm), c’est-à-dire, jusqu’à la fin du chapitre. Il énonce très clairement que la méchanceté crée sa propre destruction, et où la bonté pardonne, le mal apporte le châtiment et la vengeance, ou, comme je le dis, dans un langage spirituel, le mal crée les mauvaises conditions, et l’homme du mal est finalement dévoré par son propre mal et le mal qu’il a introduit en existence contre lui.
+Maintenant la deuxième partie de la réponse porte sur le sort des méchants. Cette réponse est assez longue et couvre [les vers 5 à 20 au chapitre 2](https://saintebible.com/habakkuk/2-5.htm), c’est-à-dire, jusqu’à la fin du chapitre. Il énonce très clairement que la méchanceté crée sa propre destruction, et où la bonté pardonne, le mal apporte le châtiment et la vengeance, ou, comme je le dis, dans un langage spirituel, le mal crée les mauvaises conditions, et l’homme du mal est finalement dévoré par son propre mal et le mal qu’il a introduit en existence contre lui.
 
 Cette iniquité détruit éventuellement un homme mauvais dans sa prospérité, apportant des affections et des maladies de l’esprit et du corps, et si, par une certaine loi matérielle, ceci ne se produit pas, l’homme mauvais paye ses péchés et iniquités quand il devient un esprit et son âme subit les tortures de la Loi spirituelle de la compensation. Ceci est la réponse au problème du mal et j’ai l’intention d’en dire plus à ce sujet lorsque j’écrirai un sermon sur le Livre de Job.
 

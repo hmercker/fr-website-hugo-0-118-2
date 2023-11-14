@@ -9,7 +9,7 @@ weight:
 ---
 ### 72ème Sermon – Aggée insuffle le courage et la foi dans la reconstruction du Temple
 
-Jésus - reçu par Dr Samuels le 1 Juillet 1965, Washington, USA.
+Jésus - reçu par Dr Samuels le 1er Juillet 1965, Washington, USA.
 
 C’est moi, Jésus.
 

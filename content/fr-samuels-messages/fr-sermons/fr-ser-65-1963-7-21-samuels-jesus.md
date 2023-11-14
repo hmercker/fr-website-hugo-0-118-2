@@ -55,7 +55,10 @@ La terre tombera en lambeaux comme un vêtement,
 Et ses habitants périront comme des mouches; Mais mon Salut durera éternellement
 <br>
 <br>
-Et Ma Justice n’aura pas de fin. »* [Isaïe 51 : 6](https://saintebible.com/isaiah/51-6.htm)
+Et Ma Justice n’aura pas de fin. »* 
+<br>
+<br>
+[Isaïe 51 : 6](https://saintebible.com/isaiah/51-6.htm)
 
 Maintenant, les Hébreux, ou le peuple d’Israël, sont les instruments de Dieu par qui Sa connaissance doit être donnée aux Gentils. Cela est démontré, à travers l’histoire du peuple, par leurs dirigeants, Abraham, Moïse, Josué, David et les prophètes, qui ont connu et accepté le Seigneur, et qui, dans leurs jours les plus sombres de la défaite, ont conservé leur foi en Lui. Et c’est ainsi que les Hébreux sont les Serviteurs du Seigneur, Israël est le Serviteur du Seigneur, avec la mission d’apporter le salut aux Gentils.
 
@@ -96,9 +99,9 @@ Il ne se découragera point et ne se relâchera point,
 Jusqu’à ce qu’il ait établi la justice sur la terre.
 <br>
 <br>
-Et que les îles espèrent en sa loi. »
+Et que les îles espèrent en sa loi. »*
 
-Ce passage a attiré l’attention rapide des copistes cherchant toute relation entre le Christ et la prophétie de l’ancien Testament pour montrer, à travers ma venue, l’accomplissement des Écritures. Ici, ils ont souligné « J’ai mis mon esprit sur lui », dont ils ont pensé qu’il faisait référence à moi, mais qui renvoie en fait aux grands mots dans Jérémie annonçant la Nouvelle Alliance. Cela signifiait qu’étant donné que les Hébreux étaient autorisés à retourner à Jérusalem, ils étaient rachetés de l’Éternel et la prophétie du « cœur de chair » était maintenant accomplie. Ils retourneraient sans péché et enseigneraient la connaissance de Dieu aux nations. Les écrivains chrétiens ont pensé que la description d’Israël comme un peuple si spirituel qu’il, comme un roseau meurtri, ne romprait pas ou n’éteindrait pas une bougie allumée, faisait référence à moi, dans le sens où je n’ai offert aucune résistance lors de mon  arrestation. Mais en fait cette description représente simplement le peuple d’Israël lorsqu’il est possédé de l’esprit de Dieu agissant en eux. Le Second Isaïe avait à l’esprit Jérémie comme modèle pour le peuple d’Israël lorsqu’ils furent rachetés du péché par l’Esprit de Dieu.
+Ce passage a attiré l’attention rapide des copistes cherchant toute relation entre le Christ et la prophétie de l’ancien Testament pour montrer, à travers ma venue, l’accomplissement des Écritures. Ici, ils ont souligné *« J’ai mis mon esprit sur lui »*, dont ils ont pensé qu’il faisait référence à moi, mais qui renvoie en fait aux grands mots dans Jérémie annonçant la Nouvelle Alliance. Cela signifiait qu’étant donné que les Hébreux étaient autorisés à retourner à Jérusalem, ils étaient rachetés de l’Éternel et la prophétie du « cœur de chair » était maintenant accomplie. Ils retourneraient sans péché et enseigneraient la connaissance de Dieu aux nations. Les écrivains chrétiens ont pensé que la description d’Israël comme un peuple si spirituel qu’il, comme un roseau meurtri, ne romprait pas ou n’éteindrait pas une bougie allumée, faisait référence à moi, dans le sens où je n’ai offert aucune résistance lors de mon  arrestation. Mais en fait cette description représente simplement le peuple d’Israël lorsqu’il est possédé de l’esprit de Dieu agissant en eux. Le Second Isaïe avait à l’esprit Jérémie comme modèle pour le peuple d’Israël lorsqu’ils furent rachetés du péché par l’Esprit de Dieu.
 
 Le prophète termine son chant en se référant à Israël n’échouant pas, ou n’étant pas écrasé, jusqu’à l’introduction de la vérité au monde. Cela aurait pu renvoyer vers moi, comme mettant en lumière l’Amour Divin du Père, mais cela signifiait aussi que la promesse de l’Amour du Père avait déjà été apportée à l’humanité, et elle signifiait aussi le retour d’un peuple racheté consacré à Dieu, avant la mort de Jérémie.
 
