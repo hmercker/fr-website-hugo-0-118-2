@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les principautés de l’air<sup id="a1">[1](#f1)</sup>
+### Les principautés de l’air <sup id="a1">[1](#f1)</sup>
 
 Jacques - reçu par Dr Samuels le 2 Novembre 1954, Washington, DC, USA.
 
@@ -17,9 +17,9 @@ Je suis Jacques, apôtre de Jésus. C’est la première fois que je vous écris
 
 Vous devez vous rendre compte que le plus important et le plus utile prérequis quant à la capacité de recevoir correctement ces messages est la possession de l’Amour Divin dans votre âme, dans la mesure où vous pourrez prendre les messages dans la manière et dans les limites que les esprits qui écrivent souhaitent véhiculer, et pour cette raison l’Amour Divin est le moyen par lequel le rapport approprié peut être fait.
 
-Maintenant, ce soir, j’ai été présent et ai écouté avec intérêt la discussion entre vous et le docteur<sup id="a2">[2](#f2)</sup> au sujet de la signification des principautés de l’air, tel que mentionné précédemment dans l’un de mes messages à M. Padgett. Et je tiens à dire que le sens est conforme à votre conception des esprits matérialisées que j’ai actuellement vus sur le Mont de la Transfiguration, et toutes les autres principautés de l’air en dehors de ces manifestations n’auraient aucun sens, sauf pour les anges hors du tombeau de Joseph d’Arimathie à la mort de Jésus et aussi la matérialisation de Jésus, que j’ai réellement observée.
+Maintenant, ce soir, j’ai été présent et ai écouté avec intérêt la discussion entre vous et le docteur <sup id="a2">[2](#f2)</sup> au sujet de la signification des principautés de l’air, tel que mentionné précédemment dans l’un de mes messages à M. Padgett. Et je tiens à dire que le sens est conforme à votre conception des esprits matérialisées que j’ai actuellement vus sur le Mont de la Transfiguration, et toutes les autres principautés de l’air en dehors de ces manifestations n’auraient aucun sens, sauf pour les anges hors du tombeau de Joseph d’Arimathie à la mort de Jésus et aussi la matérialisation de Jésus, que j’ai réellement observée.
 
-Vous risquez d’oublier la description trouvée dans la version du Nouveau Testament de Luc que Luc n’a pas écrit du tout<sup id="a3">[3](#f3)</sup>, et qui porte sur l’ouverture des tombes et le laisser aller des esprits qu’elles étaient supposées contenir, lesquels esprits ont alors couru dans les rues de Jérusalem en se montrant à beaucoup. Ceci, vous le réalisez est strictement imaginé par les compilateurs de l’Évangile, de nombreuses années après que Luc ait écrit son Évangile et qui contiennent ces passages que les auteurs imaginatifs ont mis dans son travail.
+Vous risquez d’oublier la description trouvée dans la version du Nouveau Testament de Luc que Luc n’a pas écrit du tout <sup id="a3">[3](#f3)</sup>, et qui porte sur l’ouverture des tombes et le laisser aller des esprits qu’elles étaient supposées contenir, lesquels esprits ont alors couru dans les rues de Jérusalem en se montrant à beaucoup. Ceci, vous le réalisez est strictement imaginé par les compilateurs de l’Évangile, de nombreuses années après que Luc ait écrit son Évangile et qui contiennent ces passages que les auteurs imaginatifs ont mis dans son travail.
 
 Cependant, j’ai effectivement observé la matérialisation des esprits sur le Mont de la Transfiguration, mais aussi la matérialisation de Jésus, lui-même, comme je l’ai mentionné principalement dans mon message à M. Padgett.
 
