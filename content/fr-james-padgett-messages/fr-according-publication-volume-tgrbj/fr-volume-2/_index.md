@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume II des messages reçus par James Padgett
 
-![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/paysage-du-canada2.jpg)
+![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-2/fr-paysage-du-canada2.jpg)
 
 La première publication de ce volume de messages en anglais, a eu lieu en 1950 et celle de la première version française en Janvier 2019. Dans ce second volume des messages, l’accent est surtout mis sur le fait que Jésus fut la première personne à recevoir et à réellement personnifier l’Amour de Dieu. Il n’était pas, et n’a jamais voulu être, un messie militaire qui chasserait les occupants romains. Il a seulement cherché à témoigner de l’Amour de Dieu. Jésus explique ainsi que le but de notre vie est vraiment de nous ouvrir à la réception de l’Amour de Dieu par l’intermédiaire de l’Esprit Saint. **C’est cette réception de l’Amour Divin que Jésus qualifie de Nouvelle Naissance. Ce concept est la clef de voûte de l’ensemble des messages reçus par James Padgett.**
 

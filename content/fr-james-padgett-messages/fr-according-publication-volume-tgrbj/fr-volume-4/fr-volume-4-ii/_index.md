@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume IV des messages reçus par James Padgett - Deuxième Partie
 
-![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/volume-4-ii/savoie-mont-blanc-1.jpg)
+![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-ii/fr-savoie-mont-blanc-1.jpg)
 
 Liste des messages reçus par James Padgett faisant partie du Volume IV (Seconde partie) :
 
