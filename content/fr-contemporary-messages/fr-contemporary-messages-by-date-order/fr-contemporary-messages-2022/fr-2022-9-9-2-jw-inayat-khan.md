@@ -11,7 +11,7 @@ weight:
 
 Inayat Khan - reçu par Jimbeau Walsh le 9 Septembre 2022, Nashville, TN, USA.
 
-Je suis Inayat Khan, votre frère dans l’Amour de Dieu. Je guidais mon frère aujourd’hui, j’étais donc présent lors de votre discussion animée sur la compréhension de la  « forme »<sup id=”a1”>[1](#f1)</sup> de Dieu. Je souhaite parler d’un sujet parallèle à cette discussion, à savoir l’utilisation du mot « Bien-aimé ».
+Je suis Inayat Khan, votre frère dans l’Amour de Dieu. Je guidais mon frère aujourd’hui, j’étais donc présent lors de votre discussion animée sur la compréhension de la  « forme » <sup id=”a1”>[1](#f1)</sup> de Dieu. Je souhaite parler d’un sujet parallèle à cette discussion, à savoir l’utilisation du mot « Bien-aimé ».
 
 Bien sûr, comme le terme « Amour Divin », il peut être mal interprété ou utilisé pour signifier quelque chose de très différent de ce que vous connaissez tous de l’Amour Divin ou de l’Amour de Dieu. En Orient, et plus particulièrement dans les écrits des poètes soufis que vous connaissez, tels que Rumi, Hafiz, et peut-être Attar et d’autres, ils utilisent souvent les termes « amant et bien-aimé », amant signifiant l’aspirant spirituel, le dévot spirituel, et bien-aimé, Dieu. Ces termes des poètes soufis sont utilisés sous la forme d’une romance divine où l’amant cherche le bien-aimé et où le bien-aimé attire l’amant. Parfois, vous voyez une expression d’ivresse ou d’intoxication utilisée, et par cela les poètes veulent dire être enivré par l’Amour de Dieu, le vin étant Son Amour.
 
