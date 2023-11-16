@@ -30,7 +30,7 @@ Et, encore une fois, le prédicateur a dit que Dieu a créé le corps de l’hom
 Le prédicateur a beaucoup de choses à apprendre, et, comme il croit à la recherche de la vérité, s’il laisse l’Amour Divin couler dans son cœur et transformer son âme en l’essence et en la substance même de la divinité du Père, il sera capable d’apprendre que de nombreuses choses spirituelles, ainsi que de nombreuses choses matérielles, sont régies par la loi, et si l’âme ne se trouve pas dans une condition qui lui permet de voir et de réaliser les vérités supérieures du monde spirituel, elle ne peut jamais obtenir la connaissance des choses spirituelles, et l’un des objets de cette connaissance est Dieu.
 Eh bien, j’ai assez écrit et je vais arrêter. Avec mon amour, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+Votre frère et ami, Jésus <sup id=”a1”>[1](#f1)</sup>.
 <small>
 
 1. <large id="f1"> Il semblerait qu’il s’agissait d’une série de conférences données par le Dr Swain au cours de soirées consécutives. Jésus a également commenté un autre sermon du Dr Swain [le jour suivant](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-8-1-jep-jesus/).[↩](#a1)

@@ -31,10 +31,9 @@ Je ne dois pas m’attarder pour corriger ces énonciations présumées, mais do
 
 Je viendrai bientôt et j’écrirai un message sur une vérité vitale et j’espère que vous serez en mesure de la recevoir. Je vais maintenant vous dire bonne nuit et que Dieu vous bénisse et vous protège.
 
-Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id=”f1”> *Jésus s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*.[↩](#a1)
+***Note : Jésus s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :***
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

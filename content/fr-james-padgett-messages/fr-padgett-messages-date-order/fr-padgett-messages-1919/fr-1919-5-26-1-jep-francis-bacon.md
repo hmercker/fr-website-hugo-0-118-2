@@ -39,15 +39,12 @@ Lorsque l’Esprit désire contrôler la matière invisible, il n’est limité 
 
 Eh bien, j’ai assez écrit pour ce soir, mais je reviendrai pour approfondir mon message. En vous remerciant, je vous souhaite une bonne nuit.
 
-Votre ami, Francis Bacon.<sup id="a1">[1](#f1)</sup>
-<small>
+Votre ami, Francis Bacon.
 
-1. <large id="f1"> *Francis Bacon s'était déjà exprimé dans les messages suivants :*[↩](#a1)
+***Note : Francis Bacon s'était déjà exprimé dans les messages suivants :***
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Francis Bacon | [Commentaires au sujet d’un article écrit par James Hyslop sur le Christianisme et le Spiritualisme à propos des lois utilisées lois lors des miracles effectués par Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-20-1-jep-francis-bacon/) | 20 Novembre 1918
 Francis Bacon | [Francis Bacon explique la différence entre les éléments spirituels et les éléments matériels](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-1-1-jep-francis-bacon/) | 1 Décembre 1918
 Francis Bacon | [Les limites qu’un mortel place sur sa perception des lois gouvernant l’univers](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-1-6-1-jep-francis-bacon/) | 06 Janvier 1919
-
-
