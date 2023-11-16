@@ -9,6 +9,8 @@ weight: 99
 ---
 ## A propos du Dr Daniel G Samuels
 
+![title](/fr-james-padgett-messages/fr-dr-daniel-g-samuels.jpg)
+
 Pendant longtemps, les informations sur le Dr Daniel G. Samuels, sa vie et son travail, n’ont pas été disponibles ou relativement incomplètes. Pourtant, il a laissé un héritage vraiment extraordinaire à l'humanité en acceptant de servir Jésus de Nazareth comme second instrument mortel pour continuer l’œuvre commencée par James Padgett de proclamer la Bonne Nouvelle de l'Amour Divin sur terre.
 
 James Padgett fut un avocat américain qui, entre les années 1914 et 1923, a reçu un certain nombre de messages de Jésus de Nazareth, de ses disciples et divers anciens esprits. Ces messages, près de 2500, ont eu pour but d'apporter un éclairage nouveau sur la mission de Jésus, en montrant que l'essentiel de sa mission était de faire connaître l'Amour Divin que le Père Céleste a pour ses enfants. Ces messages ont enseigné la nécessité de la transformation de l’âme humaine - ce qui était le but premier de la création - dans l’essence même de Dieu, par l’intermédiaire de l’effusion de l’Amour du Père sur quiconque chercherait sérieusement cet Amour. James Padgett est "décédé" le 17 Mars 1923.
@@ -60,9 +62,9 @@ Bien que le révérend Dr Gibson, qui a pris la direction terrestre des administ
 Daniel G. Samuels est décédé à l'âge de soixante-treize ans, en Mars 1982, dans sa maison au 1561 Long Beach, dans le comté de Nassau, New York.
 ________________
 Sources :
-https://new-birth.net/mediumship/dr-samuels-medium/
-https://new-birth.net/new-birth-christians/history-divine-love-churches/
-https://new-birth.net/padgetts-messages/dr-john-paul-gibson/
-http://board.divinelovesanctuary.com/viewtopic.php?f=11&t=900&start=10
-https://board.divinelovesanctuary.com/viewtopic.php?f=25&t=1488#p12662 : Klaus Fuch, Einsichten in das Neue Testament  (Aperçus sur le Nouveau Testament)
-Oreck, Douglas, The Gospel of God’s Love—Old Testament Sermons New Heart Press 2003, ISBN 978-0972510615
+1. https://new-birth.net/mediumship/dr-samuels-medium/
+2. https://new-birth.net/new-birth-christians/history-divine-love-churches/
+3. https://new-birth.net/padgetts-messages/dr-john-paul-gibson/
+4. http://board.divinelovesanctuary.com/viewtopic.php?f=11&t=900&start=10
+5. https://board.divinelovesanctuary.com/viewtopic.php?f=25&t=1488#p12662 : Klaus Fuch, Einsichten in das Neue Testament  (Aperçus sur le Nouveau Testament)
+6. Oreck, Douglas, The Gospel of God’s Love—Old Testament Sermons New Heart Press 2003, ISBN 978-0972510615

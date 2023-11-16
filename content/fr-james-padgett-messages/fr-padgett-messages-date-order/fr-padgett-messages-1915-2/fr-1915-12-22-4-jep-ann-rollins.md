@@ -13,7 +13,7 @@ Anne Rollins - reçu par James Padgett le 22 Décembre 1915, Washington, USA.
 
 C’est moi, ta grand-mère.
 
-Je viens, parce que je vois que tu t’es beaucoup intéressé à la description des différentes sphères du monde des esprits telle que contenue dans le livre<sup id="a1">[1](#f1)</sup> que tu viens de lire.
+Je viens, parce que je vois que tu t’es beaucoup intéressé à la description des différentes sphères du monde des esprits telle que contenue dans le livre <sup id="a1">[1](#f1)</sup> que tu viens de lire.
 
 Eh bien, mon fils, j’ai lu le livre comme tu l’as lu et je dois dire que je doute sérieusement qu’un mortel ait jamais eu l’expérience que le Dr. décrit dans ce livre. Bien sûr, je ne peux pas affirmer pas qu’il n’a pas quitté son corps pour visiter certaines sphères du monde des esprits, et tenter de donner une description de ce qu’il a vu, mais je ne pense pas qu’il lui ait été possible de visiter une sphère qui soit supérieure à son développement d’âme. Comme il n’est pas, selon mes informations, une personne dont le développement de d’âme pourrait le qualifier pour les hautes sphères de l’âme, je ne vois pas comment il aurait pu pénétrer une sphère supérieure à la sixième. Je doute donc qu’il y soit entré car, selon ma connaissance, aucun mortel n’a pu entrer, et visiter, une sphère plus élevée que la troisième, que Saint Paul dit avoir visitée.
 
@@ -37,14 +37,15 @@ J’aimerais écrire plus ce soir, mais il est tard, et tu es fatigué.
 
 Je te souhaite, avec tout mon amour, une bonne nuit.
 
-Ta propre grand-mère bien-aimée <sup id=”a2”>[2](#f2)</sup.
-<small>
+Ta propre grand-mère bien-aimée.
 
-1. <large id="f1"> Ceci fait référence au livre du Dr Peebles « Immortalité » – et Anne Rollins doute que les expériences du Dr Pierce qui y sont décrites soient exactes.[↩](#a1)
+***Note: Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères.***
 
-2. <large id="f2"> Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les sphères célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-10-2-jep-ann-rollins/) | 10 Mars 1915
 Anne Rollins | [Anne Rollins parle de sa progression de la première sphère Céleste vers la seconde sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) | 27 Avril 1915
-Anne Rollins | [Les expériences d’Anne Rollins dans la Seconde Sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/) | 8 Juillet 1915[↩](#a2)
+Anne Rollins | [Les expériences d’Anne Rollins dans la Seconde Sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/) | 8 Juillet 1915
+<small>
+
+1. <large id="f1"> Ceci fait référence au livre du Dr Peebles « Immortalité » – et Anne Rollins doute que les expériences du Dr Pierce qui y sont décrites soient exactes.[↩](#a1)
