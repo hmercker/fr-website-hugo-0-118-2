@@ -29,7 +29,7 @@ Nous sommes engagés dans l’étude des choses qui se rapportent davantage aux 
 
 Oui, nous avons, toutes et tous, nos bibliothèques et nos maisons, comme Hélène te l’a dit, mais, bien sûr, il y a une grande différence entre ces maisons, en fonction de la quantité d’Amour que l’esprit a dans son âme. Je vis maintenant dans une maison si belle que je ne pourrais pas, dans le court laps de temps de mon écriture ce soir, te la décrire ; mais [bientôt je le ferai en détail](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/), et alors tu pourras réaliser ce que c’est une maison.
 
-*[commentaire de M. Padgett]*
+*[Commentaire de M. Padgett]*
 
 Eh bien, ne crois pas tout ce que tu as lu dans le livre que tu viens de lire bien qu’il est dit avoir été écrit par des esprits, parce que, même s’il en est ainsi, l’information donnée dépend de la condition, de la connaissance et de la croyance de ces esprits. Certains peuvent dire la vérité exacte telle qu’ils la conçoivent, mais ce n’est peut-être pas la vérité.
 
@@ -46,20 +46,19 @@ Les sphères supérieures dans lesquelles vivent ces anciens voyants et ces sage
 
 Oui, j’ai rencontré Paul et Pierre et Jean et Jacques et plusieurs autres moins avancés ; tous sont dans les sphères Célestes et très heureux, mais ils vont dans les sphères inférieures pour faire le travail qui leur est confié. Aucun esprit qui n’a pas reçu cette Nouvelle Naissance n’est jamais autorisé à entrer dans les Sphères Célestes et, par conséquent, l’esprit dont tu parles n’a jamais vu la maison de Jean, et ne le fera jamais avant d’avoir été racheté par l’Amour du Père.
 
-Je ne pense pas que ces mortels qui prétendent avoir quitté leur corps et être entrés dans les Sphères Célestes, ne l’aient jamais fait, et je doute sérieusement qu’ils soient jamais entrés dans les sphères spirituelles au-dessus de la troisième<sup id="a1">[1](#f1)</sup>. Je dois arrêter maintenant, et tu ne dois pas écrire plus ce soir.
+Je ne pense pas que ces mortels qui prétendent avoir quitté leur corps et être entrés dans les Sphères Célestes, ne l’aient jamais fait, et je doute sérieusement qu’ils soient jamais entrés dans les sphères spirituelles au-dessus de la troisième <sup id="a1">[1](#f1)</sup>. Je dois arrêter maintenant, et tu ne dois pas écrire plus ce soir.
 
 Alors, avec tout mon amour, je suis ta propre grand-mère aimante.
 
-Anne Rollins.<sup id="a2">[2](#21)</sup>
-<small>
+Anne Rollins.
 
-1. <large id="f1"> Cette remarque d'Anne Rollins n'est pas exacte. En effet Mère Teresa et François d'Assise ont tous deux atteint la cinquième sphère. Bien sûr, Mère Teresa n'était pas encore décédée en 1915, mais Saint François d'Assise était décédé en 1226. Et d'après les récentes communications de Yogananda, Sri Yukteswar, Osho et d'autres, il semble que de nombreux gourous du sous-continent (continent asiatique) aient atteint la quatrième sphère.[↩](#a1)
+**Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :**
 
-2. <large id="f2"> *Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :*[↩](#a2)
- 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Anne Rollins | [Anne Rollins parle de sa progression de la première sphère Céleste vers la seconde sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) | 27 Avril 1915
 Anne Rollins | [Les expériences d’Anne Rollins dans la Seconde Sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/) | 8 Juillet 1915
 Anne Rollins | [Anne Rollins décrit certaines des différentes sphères.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) | 22 Décembre 1915
+<small>
 
+1. <large id="f1"> Cette remarque d'Anne Rollins n'est pas exacte. En effet Mère Teresa et François d'Assise ont tous deux atteint la cinquième sphère. Bien sûr, Mère Teresa n'était pas encore décédée en 1915, mais Saint François d'Assise était décédé en 1226. Et d'après les récentes communications de Yogananda, Sri Yukteswar, Osho et d'autres, il semble que de nombreux gourous du sous-continent (continent asiatique) aient atteint la quatrième sphère.[↩](#a1)

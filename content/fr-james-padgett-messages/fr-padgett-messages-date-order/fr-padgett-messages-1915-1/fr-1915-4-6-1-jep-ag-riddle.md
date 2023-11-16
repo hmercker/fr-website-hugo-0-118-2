@@ -19,7 +19,7 @@ Son savoir consistait à ne pas savoir ce qu’il y avait à savoir. Il avait ce
 
 J’ai vite constaté que sa capacité d’apprentissage était limitée par l’horizon de ce qu’il ne savait pas, c’est-à-dire qu’il pensait que comme il savait tout, il n’y avait rien dans tout l’univers de Dieu qui lui restait à apprendre.
 
-C’était le plus grand cas d’un homme qui possédait toutes les connaissances que j’ai jamais rencontré. Dès le début de notre conversation, j’ai vu que la seule façon de traiter avec lui était de lui laisser croire qu’il était le grand mental qu’il croyait être, et je me suis donc posé en quelqu’un qui lui était inférieur sur le plan intellectuel, et qui était prêt à s’asseoir aux pieds de Gamaliel<sup id="a1">[1](#f1)</sup> pour apprendre.
+C’était le plus grand cas d’un homme qui possédait toutes les connaissances que j’ai jamais rencontré. Dès le début de notre conversation, j’ai vu que la seule façon de traiter avec lui était de lui laisser croire qu’il était le grand mental qu’il croyait être, et je me suis donc posé en quelqu’un qui lui était inférieur sur le plan intellectuel, et qui était prêt à s’asseoir aux pieds de Gamaliel <sup id="a1">[1](#f1)</sup> pour apprendre.
 
 Il a commencé à me parler de son merveilleux esprit et des grandes connaissances qu’il possédait et m’a dit qu’il se sentait très seul dans le monde des esprits, car il ne trouvait personne de compétent pour discuter de sujets que seuls les esprits de sa grandeur pouvaient saisir et comprendre.
 

@@ -11,7 +11,7 @@ weight:
 
 St Sébastien - reçu par James Padgett le 22 Juillet 1915, Washington, USA.
 
-C’est moi, Saint-Sébastien.<sup id="a1">[1](#f1)</sup>
+C’est moi, Saint-Sébastien. <sup id="a1">[1](#f1)</sup>
 
 Je suis l’esprit d’un homme qui a vécu sur la terre quelques centaines d’années après la mort de Jésus, fut évêque de l’église du Christ, et fut crucifié à cause de sa foi et de son enseignement de la vérité de Jésus.
 

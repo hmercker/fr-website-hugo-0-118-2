@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Confirmation par St Marc que le Maître effectue le grand travail à travers M. Padgett<sup id="a1">[1](#f1)</sup>
+### Confirmation par St Marc que le Maître effectue le grand travail à travers M. Padgett <sup id="a1">[1](#f1)</sup>
 
 St Marc - reçu par James Padgett le 20 Juillet 1915, Washington, USA.
 

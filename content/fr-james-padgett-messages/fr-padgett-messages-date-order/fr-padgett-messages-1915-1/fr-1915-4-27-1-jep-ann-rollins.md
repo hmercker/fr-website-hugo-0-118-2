@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La grand-mère de M. Padgett décrit sa maison dans la seconde sphère Céleste<sup id="a1">[1](#f1)</sup>
+### La grand-mère de M. Padgett décrit sa maison dans la seconde sphère Céleste <sup id="a1">[1](#f1)</sup>
 
 Anne Rollins - reçu par James Padgett le 27 Avril 1915, Washington, USA.
 
@@ -27,17 +27,15 @@ Oui, j’ai rencontré des esprits que je connaissais sur terre, mais pas beauco
 
 Eh bien, je ne dois pas écrire plus ce soir car tu n’es pas en état d’écrire plus longtemps. Ainsi donc, avec tout mon amour, qui est tellement plus grand que lorsque je t’ai écrit la dernière fois, je suis ta propre grand-mère vraie et aimante.
 
-Anne Rollins.<sup id="a2">[2](#f3)</sup>
-<small>
+Anne Rollins.
 
-1. <large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 71 et dans le volume III à la page 138. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
-
-2. <large id="f2"> *Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :*[↩](#a2) 
+**Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :**
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les sphères célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-10-2-jep-ann-rollins/) | 10 Mars 1915
 Anne Rollins | [Les expériences d’Anne Rollins dans la Seconde Sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/) | 8 Juillet 1915
 Anne Rollins | [Anne Rollins décrit certaines des différentes sphères.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) | 22 Décembre 1915
+<small>
 
-
+1. <large id="f1"> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 71 et dans le volume III à la page 138. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

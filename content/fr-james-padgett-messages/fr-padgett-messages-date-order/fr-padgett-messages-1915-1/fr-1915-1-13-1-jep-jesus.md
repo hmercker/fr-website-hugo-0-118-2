@@ -42,5 +42,3 @@ Je ne vous laisserai pas écrire plus ce soir car vous êtes maintenant dans un 
 Alors, avec cet amour, je vous bénis maintenant, et je prie pour que l’amour de Dieu puisse venir abondamment dans votre cœur.
 
 Jésus.
-
-

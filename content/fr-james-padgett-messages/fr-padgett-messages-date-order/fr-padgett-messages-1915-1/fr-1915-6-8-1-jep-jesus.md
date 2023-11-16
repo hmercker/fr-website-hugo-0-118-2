@@ -39,10 +39,9 @@ Je vais arrêter maintenant et, avec tout mon amour et bénédictions, et les b�
 
 Votre ami et frère,
 
-Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Jésus.
 
-1. <large id=”f1”> *Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*[↩](#a1)
+**Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :**
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

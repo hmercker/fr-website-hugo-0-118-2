@@ -85,7 +85,7 @@ Mais cette libération graduelle de ces peines ne signifie pas qu’un esprit pr
 
 Comme tu es fatigué, je continuerai le reste de mon discours lorsque j’écrirai à [nouveau](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-3-1-jep-joseph-salyards/).
 
-Avec tout mon amour, je suis, ton véritable ami et professeur, Joseph H. Salyards.<sup id="a1">[1](#f1)</sup>
+Avec tout mon amour, je suis, ton véritable ami et professeur, Joseph H. Salyards. <sup id="a1">[1](#f1)</sup>
 <small>
 
 1. <large id="f1"> Joseph Salyards a fondé, en 1870, avec Benjamin Benton, le New Market Polytechnic Institute.[↩](#a1)

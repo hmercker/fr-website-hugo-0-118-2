@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Amos le Prophète préfère la version dans la Bible<sup id=”a1”>[1](#f1)</sup>.
+### Amos le Prophète préfère la version dans la Bible <sup id="a1">[1](#f1)</sup>
 
 Amos - reçu par James Padgett le 10 Août 1915, Washington, USA.
 
@@ -24,9 +24,8 @@ Il est vrai que nous n’avons jamais possédé cet Amour Divin avant la venue d
 Je vais maintenant m’arrêter.
 
 Avec tout mon amour je suis à vous en esprit Amos.
+
+**Code : [Â…] texte indéchiffrable**
 <small>
 
 1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
-
-*Code : [Â…] texte indéchiffrable*
-

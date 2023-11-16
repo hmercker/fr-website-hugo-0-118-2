@@ -11,7 +11,7 @@ weight:
 
 St Clément - reçu par James Padgett le 29 Août 1915, Washington, USA.
 
-Moi, St Clément<sup id="a1">[1](#f1)</sup>, je veux écrire quelques lignes.
+Moi, St Clément <sup id="a1">[1](#f1)</sup>, je veux écrire quelques lignes.
 
 Je vous ai déjà écrit une fois et je vous ai parlé des maux et des erreurs de l’église dont je faisais partie, et maintenant je veux vous dire que, dans un avenir lointain, cette église perdra son pouvoir sur le cœur des hommes, et ensuite elle se désintégrera et disparaîtra finalement de la surface de la terre. Elle ne peut jamais être réformée de l’intérieur parce que ceux qui la gouvernent et la contrôlent ne connaissent rien des vérités réelles du salut, et n’apprendront jamais.
 

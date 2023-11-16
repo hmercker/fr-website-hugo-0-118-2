@@ -41,16 +41,11 @@ Je vous ai écrit ceci pour vous montrer que vous ne devez pas laisser les ensei
 
 Je n’écrirai plus ce soir, mais je continuerai à partager avec vous les vérités qui seront *« mon Nouvel Évangile pour tous les hommes »* et, lorsqu’ils auront entendu mes messages, ils croiront qu’il n’ y a qu’un seul Dieu, et seulement un seul à adorer.
 
-Avec mon amour et mes bénédictions je termine pour cette fois.<sup id="a2">[2](#f2)</sup>
+Avec mon amour et mes bénédictions je termine pour cette fois. <sup id="a2">[2](#f2)</sup>
 
-Jésus.<sup id="a3">[3](#f3)</sup>
-<small>
+Jésus.
 
-1. <large id="f1"> La correction proposée par Judas dans [son message du 27 Décembre 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-27-1-hr-judas/) a été appliquée.[↩](#a1)
-
-2. <large id="f2"> Ce message est aussi publié dans le Volume I, 2ème édition française, à la page 317 et dans le volume III à la page 87. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a2)
-
-3. <large id="f3"> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*[↩](#a3)
+**Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :**
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -64,4 +59,8 @@ Jésus | [Jésus a montré sa grande gloire et a donné son amour à M. Padgett]
 Jésus | [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
 Jésus | [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/) | 06 Novembre 1917
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
+<small>
 
+1. <large id="f1"> La correction proposée par Judas dans [son message du 27 Décembre 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-27-1-hr-judas/) a été appliquée.[↩](#a1)
+
+2. <large id="f2"> Ce message est aussi publié dans le Volume I, 2ème édition française, à la page 317 et dans le volume III à la page 87. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a2)

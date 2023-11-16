@@ -11,7 +11,7 @@ weight:
 
 Albert Riddle - reçu par James Padgett le 20 Février 1915, Washington, USA.
 
-C’est moi, ton vieil ami, George Riddle.<sup id=”a1”>[1](#f1)</sup>
+C’est moi, ton vieil ami, George Riddle. <sup id="a1">[1](#f1)</sup>
 
 Je suis très heureux ce soir et je suis heureux que tu ailles beaucoup mieux. Tu as eu des moments plutôt difficiles, et cela m’a un peu rappelé la souffrance que j’ai souvent enduré lorsque je vivais à Washington. Eh bien, tu es guéri de ton indigestion, et tes organes digestifs seront bientôt en parfait état de fonctionnement.
 
@@ -50,7 +50,4 @@ Avec tout mon amour et mes bénédictions.
 George Riddle.
 <small>
 
-1. <large id=”f1”> Ce message est publié dans le volume II, deuxième version française, à la page 22 et dans le volume IV à la page 370. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
-
-
-
+1. <large id="f1"> Ce message est publié dans le volume II, deuxième version française, à la page 22 et dans le volume IV à la page 370. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

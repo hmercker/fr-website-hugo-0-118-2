@@ -11,7 +11,7 @@ weight:
 
 Sainte Camélia - reçu par James Padgett le 31 Août 1915, Washington, USA.
 
-Je suis Sainte Camélia.<sup id="a1">[1](#f1)</sup>
+Je suis Sainte Camélia. <sup id="a1">[1](#f1)</sup>
 
 Oui, je fus une nonne Catholique. Je veux simplement dire que je ne suis plus une religieuse ou une catholique, mais une Chrétienne rachetée par l’Amour du Père et les enseignements du Maître.
 

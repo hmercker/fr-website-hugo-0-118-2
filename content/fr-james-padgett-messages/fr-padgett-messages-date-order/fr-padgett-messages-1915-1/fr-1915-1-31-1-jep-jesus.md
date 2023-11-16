@@ -31,7 +31,7 @@ L’homme n’a jamais vu Dieu, et les récits dans l’Ancien Testament concern
 
 Il est écrit dans la Bible que la voix de Dieu a parlé à mes disciples sur la montagne de la Transfiguration, ainsi qu’à Jean et aux personnes présentes à mon baptême, mais ce n’était pas la voix de Dieu, mais la voix d’un des anges les plus élevés de Dieu.
 
-Personne n’a jamais entendu la voix de Dieu, car il n’a pas de voix. Il travaille d’une manière silencieuse et mystérieuse, par l’opération de son âme sur l’âme des hommes, tout comme lors de la venue de l’Esprit Saint à la Pentecôte. La Bible dit qu’il y eut un bruit comme un vent puissant, mais il ne fut pas perceptible aux oreilles physiques des disciples. 
+Personne n’a jamais entendu la voix de Dieu, car il n’a pas de voix. Il travaille d’une manière silencieuse et mystérieuse, par l’opération de son âme sur l’âme des hommes, tout comme lors de la venue de l’Esprit Saint à la Pentecôte. La Bible dit qu’il y eut un bruit comme un vent puissant, mais il ne fut pas perceptible aux oreilles physiques des disciples.
 
 Cependant, dans leur âme, ils ont senti la présence d’une telle manifestation, et afin de faire comprendre à l’humanité qu’il y a eu cette merveilleuse manifestation, ils ont utilisé l’imagerie de la voix d’un vent puissant. Ainsi l’homme doit comprendre que Dieu parle à l’homme par Ses anges, ou par la communication de Son Âme et des leurs.
 
@@ -39,10 +39,9 @@ Je parle ainsi parce que je veux qu’il soit clair que Dieu n’est pas la pers
 
 Je n’écrirai plus ce soir. Avec ma bénédiction et mon amour.
 
-Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Jésus.
 
-1. <large id=”f1”> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a1)
+**Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :**
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -56,4 +55,3 @@ Jésus | [Jésus a montré sa grande gloire et a donné son amour à M. Padgett]
 Jésus | [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
 Jésus | [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/) | 06 Novembre 1917
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
-

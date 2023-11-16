@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus reconnaît la capacité de la grand-mère de M. Padgett en écrivant les Vérités du Père<sup id=”a1”>[1](#f1)</sup> 
+### Jésus reconnaît la capacité de la grand-mère de M. Padgett en écrivant les Vérités du Père <sup id=”a1”>[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 5 Juin 1915, Washington, USA.
 
@@ -29,4 +29,3 @@ Votre frère et ami, Jésus.
 <small>
 
 1. <large id="f1">  Ce message est aussi publié dans le Volume I, 2ème édition française, à la page 341 et dans le volume II à la page 94. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
-

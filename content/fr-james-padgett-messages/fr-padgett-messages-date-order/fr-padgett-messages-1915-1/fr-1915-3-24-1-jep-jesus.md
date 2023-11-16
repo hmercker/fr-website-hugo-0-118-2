@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus admet que son pouvoir est limité en certaines choses et ne connaît pas toujours la réponse sans aller au Père, la Source de toute connaissance 
+### Jésus admet que son pouvoir est limité en certaines choses et ne connaît pas toujours la réponse sans aller au Père, la Source de toute connaissance
 
 Jésus - reçu par James Padgett le 24 Mars 1915, Washington, USA.
 

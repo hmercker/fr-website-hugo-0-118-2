@@ -11,7 +11,7 @@ weight:
 
 Sainte Celestia - reçu par James Padgett le 8 Août 1915, Washington, USA.
 
-Je suis, Sainte Celestia.<sup id="a1">[1](#f1)</sup>
+Je suis, Sainte Celestia. <sup id="a1">[1](#f1)</sup>
 
 Je fus une Chrétienne martyrisée par l’Église fanatique de Rome. Je vivais en Italie et j’étais un disciple de Jésus, mais je ne croyais pas aux doctrines de l’Église romaine. C’est longtemps après ma mort que j’ai été canonisée par l’église même qui m’a tuée. Bien entendu, le Pape et les fonctionnaires qui m’ont canonisée étaient différents de ceux qui m’ont tuée.
 

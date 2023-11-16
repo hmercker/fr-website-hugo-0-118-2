@@ -65,10 +65,9 @@ Oui, je le ferai, et j’essaierai de lui parler lorsque l’occasion se présen
 
 Alors bonne nuit, mon cher Ned.
 
-Hélène.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Hélène.
 
-<large id=”f1”> *Le progrès spirituel constaté de certains esprits amis de james Padgett :*[↩](#a1)
+**Note : Le progrès spirituel constaté de certains esprits amis de james Padgett :**
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -76,5 +75,3 @@ Georges Harvey | [Harvey veut savoir pourquoi Mackey et Taggart ont tant changé
 Hugh G. Taggart | [Taggart est reconnaissant pour ce que M. Padgett a fait pour lui](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-22-7-jep-hugh-taggart/) | 22 Juillet 1915
 Maurice Smith | [Maurice Smith, un ancien collègue avocat, voudrait bénéficier de l’aide de M. Padgett.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-19-2-jep-maurice-smith/) | 19 Mars 1916
 Hugh G. Taggart | [Taggart préfère la joie spirituelle à la vie terrestre.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-4-4-jep-hugh-taggart/) | 04 Novembre 1916
-
-

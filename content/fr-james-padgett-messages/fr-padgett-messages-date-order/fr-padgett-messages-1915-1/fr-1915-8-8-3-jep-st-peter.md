@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### St Pierre donne des conseils pour la prière<sup id="a1">[1](#f1)</sup>
+### St Pierre donne des conseils pour la prière <sup id="a1">[1](#f1)</sup>
 
 St Pierre - reçu par James Padgett le 8 Août 1915, Washington, USA.
 

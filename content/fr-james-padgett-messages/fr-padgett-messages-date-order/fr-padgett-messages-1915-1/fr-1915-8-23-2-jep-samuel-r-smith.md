@@ -11,7 +11,7 @@ weight:
 
 Samuel R Smith - reçu par James Padgett le 23 Août 1915, Washington, USA.
 
-Je suis, comme tu l’appelais, [l’homme qui avait l’esprit lourd](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-29-1-jep-samuel-r-smith/).<sup id="a1">[1](#f1)</sup>
+Je suis, comme tu l’appelais, [l’homme qui avait l’esprit lourd](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-29-1-jep-samuel-r-smith/). <sup id="a1">[1](#f1)</sup>
 
 Depuis la dernière fois que je vous ai écrit, j’ai vécu une expérience formidable et le résultat est que je vois à quel point j’ai dû vous apparaître à tous, à l’époque, comme un fou. J’ai écrit, et à cause de la façon dont j’ai écrit, je vois maintenant que j’étais vraiment un homme ignorant, et que j’ai seulement été enseigné sur ce que je ne savais pas. En effet, dans ma grande vanité, je pensais que ce que je ne savais pas ne valait pas la peine d’être appris. Mais, depuis ce temps, mes yeux se sont vraiment ouverts et mes pouvoirs mentaux se sont éveillés au fait que j’étais juste sur le point d’apprendre ce que j’avais à apprendre.
 

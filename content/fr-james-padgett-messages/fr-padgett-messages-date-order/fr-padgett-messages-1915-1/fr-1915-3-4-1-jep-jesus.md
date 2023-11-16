@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus – Sur l’amour de l’Homme ou l’Amour Naturel en contraste avec l’Amour Divin qui est nécessaire d’obtenir afin de procurer à l’homme le plus haut degré de Bonheur<sup id="a1">[1](#f1)</sup>
+### Jésus – Sur l’amour de l’Homme ou l’Amour Naturel en contraste avec l’Amour Divin qui est nécessaire d’obtenir afin de procurer à l’homme le plus haut degré de Bonheur <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 4 Mars 1915, Washington, USA.
 
@@ -46,7 +46,5 @@ Comme vous êtes fatigué, je dois m’arrêter.
 
 Avec toutes mes bénédictions et mon amour, je suis votre frère en esprit, Jésus.
 <small>
--
+
 1. <large id="f1"> Ce message est publié dans le Vol. II, 1ère édition, française, page 26 et et dans le volume III à la page 93. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).↩](#a1)
-
-

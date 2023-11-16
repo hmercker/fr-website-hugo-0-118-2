@@ -17,7 +17,7 @@ Vous allez beaucoup mieux. Le Maître vous a beaucoup aidé hier soir. Je vous a
 
 Oui, vous avez raison. C’est le seul qui peut vous aider en cas de problème. Gardez seulement votre foi et vous réaliserez qu’il est votre Père et votre assistant. Jésus dit que votre foi est merveilleuse, et que vous serez capable de faire beaucoup de choses qui aideront l’humanité. Soyez lui seulement fidèle et vous ne serez jamais abandonné.
 
-Non, vous n’avez plus besoin d’utiliser de médicaments maintenant, le travail est terminé et les médicaments ne sont plus nécessaires. Eh bien, il (Dr Stone <sup id="a1">[1](#f01)</sup>) peut vous aider à fortifier vos différents muscles et nerfs*, mais son traitement n’est même pas nécessaire maintenant. Quand Dieu guérit, Il guérit efficacement, et aucune autre aide n’est nécessaire.
+Non, vous n’avez plus besoin d’utiliser de médicaments maintenant, le travail est terminé et les médicaments ne sont plus nécessaires. Eh bien, il (Dr Stone <sup id="a1">[1](#f1)</sup>) peut vous aider à fortifier vos différents muscles et nerfs*, mais son traitement n’est même pas nécessaire maintenant. Quand Dieu guérit, Il guérit efficacement, et aucune autre aide n’est nécessaire.
 
 Vous commencez à avoir ce Grand Amour dans votre âme maintenant. Bientôt vous serez remplis, votre bonheur sera alors complet, c’est-à-dire qu’il sera tel que les soucis de la vie ne vous rendront pas malheureux.
 
@@ -29,12 +29,10 @@ Aigle Blanc.
 
 Cette photographie d’Aigle blanc a été publiée sans aucun commentaire sur la façon dont elle a été obtenue.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-white-eagle.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-white-eagle.jpg)
 
 D’autres commentaires accompagnant cette photographie se lisent comme suit :
 Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau.
 <small>
 
 1. <large id="f1"> Dr Stone était kinésithérapeute.[↩](#a1)
-
-

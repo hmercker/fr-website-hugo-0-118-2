@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 10 Mars 1915, Washington, USA.
 
 C’est moi, Hélène.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-fairy-tale-house.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-fairy-tale-house.jpg)
 
 Eh bien, je suis très heureuse, et tu es plus heureux et tu te sens mieux.
 
@@ -42,7 +42,7 @@ J’essaie maintenant d’aider certains des esprits qui sont récemment venus d
 
 Je suis fatiguée maintenant et je dois arrêter.
 
-Alors avec tout mon amour, je suis ta vraie et bien aimée, Hélène.<sup id=”a1”>[1](#f1)</sup>
+Alors avec tout mon amour, je suis ta vraie et bien aimée, Hélène. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> Le [28 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-2-jep-helen-padgett/) Hélène a décrit sa maison dans la troisième sphère Céleste.[↩](#a1)
+1. <large id="f1"> Le [28 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-2-jep-helen-padgett/) Hélène a décrit sa maison dans la troisième sphère Céleste.[↩](#a1)

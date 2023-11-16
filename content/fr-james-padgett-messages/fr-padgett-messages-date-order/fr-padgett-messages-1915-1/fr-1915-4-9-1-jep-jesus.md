@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Message personnel. L’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père<sup id=”a1”>[1](#f1)</sup>
+### Message personnel. L’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 9 Avril 1915, Washington, USA.
 
@@ -28,6 +28,4 @@ Alors, comme nous avons écrit un peu longuement ce soir, je vais m’arrêter m
 Je suis votre frère aimant, Jésus.
 <small>
 
-1. <large id=”f1”> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 59 et dans le volume III à la page 96. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
-
-
+1. <large id="f1"> Ce message est aussi publié dans le Volume II, 2ème édition française, à la page 59 et dans le volume III à la page 96. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

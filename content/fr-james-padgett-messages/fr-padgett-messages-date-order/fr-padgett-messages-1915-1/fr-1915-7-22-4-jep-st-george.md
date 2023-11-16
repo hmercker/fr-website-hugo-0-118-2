@@ -11,7 +11,7 @@ weight:
 
 St Georges - reçu par James Padgett le 15 Juillet 1915, Washington, USA.
 
-Je suis Saint Georges (du Dragon).<sup id="a1">[1](#f1)</sup>
+Je suis Saint Georges (du Dragon). <sup id="a1">[1](#f1)</sup>
 
 Je fus un guerrier, pas un saint. Je fus enthousiaste dans la cause des Chrétiens contre les Turcs, je me suis battu, j’ai souffert et je suis mort mais en tant que saint, je n’ai été qu’un guerrier, en aucun point supérieur à un autre, qui a été ému par la grande cause qui nous a poussés à œuvrer pour délivrer la Terre Sainte des infidèles.
 

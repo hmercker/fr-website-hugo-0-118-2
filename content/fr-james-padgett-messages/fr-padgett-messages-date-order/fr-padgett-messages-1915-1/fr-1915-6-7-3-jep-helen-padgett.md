@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène explique comment Saleeba contrôlerait et parlerait à travers Padgett<sup id="a1">[1](#f1)</sup>
+### Hélène explique comment Saleeba contrôlerait et parlerait à travers Padgett <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 7 Juin 1915, Washington, USA.
 
@@ -22,4 +22,4 @@ Elle viendra te bientôt et tu écriras à nouveau car elle semble penser beauco
 
 1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
 
-2. <large id="f1"> Il s’agirait d’une voix directe utilisant l’ectoplasme, car elle aurait recours à un appareil pour exclure la lumière. Ce message a été extrait des archives par Geoff Cutler en mai 2019.[↩](#a2)
+2. <large id="f2"> Il s’agirait d’une voix directe utilisant l’ectoplasme, car elle aurait recours à un appareil pour exclure la lumière. Ce message a été extrait des archives par Geoff Cuttler en mai 2019.[↩](#a2)

@@ -21,7 +21,7 @@ Je vais maintenant vous dire ce que signifie cet Amour Divin pour tous ceux qui 
 
 Aussi, ne pensez pas que si un homme devient simplement merveilleux dans sa connaissance au sens intellectuel du terme, il est apte à vivre dans ces sphères supérieures, car il ne l’est pas ; seul le grand développement de l’âme, par l’obtention dans son âme de l’Amour Divin, lui permettra d’ y vivre.
 
-*[question]*
+*[Question]*
 
 Jean n’a jamais dit que toutes les choses qui ont été créées l’ont été par moi, et que moi, en tant que Dieu, je suis venu sur terre et suis devenu un habitant dans la chair. C’est une erreur et une interpolation, car je n’ai jamais été Dieu, et je n’ai jamais créé aucune partie de l’univers. Je n’étais qu’un esprit de Dieu, envoyé par Lui pour établir le salut de l’homme, et lui montrer le seul chemin vers la Maison Céleste que Dieu a pour ceux qui reçoivent la Nouvelle Naissance.
 
@@ -29,7 +29,7 @@ Eh bien, je vis dans toutes les sphères, mais ma maison est dans une sphère qu
 
 Ceux qui ont pleinement reçu cet Amour Divin par la foi et la prière sont dans les Sphères Célestes, mais ceux qui n’ont pas encore obtenu cet Amour au degré mentionné ne le sont pas. Oui, Paul l’est, tout comme Pierre, Jean, Jacques et plusieurs autres.
 
-*[question]*
+*[Question]*
 
 Je voulais dire que j’irais dans les Sphères Célestes où je suis maintenant et que je préparerais ces demeures, ce que j’ai fait. Et il appartient aux esprits et aux mortels de n’en devenir ses habitants.
 

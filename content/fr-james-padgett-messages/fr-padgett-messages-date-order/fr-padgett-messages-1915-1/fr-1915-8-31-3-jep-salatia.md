@@ -11,7 +11,7 @@ weight:
 
 Sainte Salatia - reçu par James Padgett le 31 Août 1915, Washington, USA.
 
-Je suis Sainte Salatia.<sup id="a1">[1](#f1)</sup>
+Je suis Sainte Salatia. <sup id="a1">[1](#f1)</sup>
 
 J’étais Italienne lors de ma vie sur terre. J’ai beaucoup travaillé pour l’Église et j’étais à la tête de certaines de ses institutions et, après ma mort, c’est-à-dire après plusieurs années, j’ai été canonisée. Je suis morte en 1689 à Milan. Mon nom est parmi les saints de l’église Romaine.
 

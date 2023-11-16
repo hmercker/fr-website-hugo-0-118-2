@@ -43,8 +43,7 @@ J’irai avec votre grand-mère, et je reviendrai vers vous, et si je trouve le 
 
 Je vous souhaite une bonne nuit.
 
-Votre ami, Grover Cleveland.<sup id=”a1”>[1](#f1)</sup>
+Votre ami, Grover Cleveland. <sup id=”a1”>[1](#f1)</sup>
 <small>
 
 <large id=”f1”> **Stephen Grover Cleveland, dit Grover Cleveland** (18 Mars 1837 - 24 Juin 1908). est un homme d'État américain, 22e et 24e président des États-Unis. Il est le seul président, à ce jour, à avoir été élu pour deux mandats non consécutifs de 1885 à 1889 et de 1893 à 1897 et est donc le seul à être compté deux fois dans le décompte des présidents.Son second mandat coïncide avec la panique de 1893, une sévère dépression que Cleveland est incapable d'inverser. Elle affaiblit considérablement le Parti démocrate qui est balayé par le Parti républicain en 1894 et en 1896 ; le résultat est un réalignement politique qui ouvre alors la voie à l'Ère progressiste. Son biographe Allan Nevins écrit : « Grover Cleveland n'était pas doué de qualités extraordinaires. Il possédait de l'honnêteté, du courage, de la fermeté, de l'indépendance et du bon sens. Mais il les possédait à un degré plus élevé que d'autres ». (Source : Wikipédia)..[↩](#a1)
-
