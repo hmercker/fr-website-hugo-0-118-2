@@ -36,4 +36,4 @@ Hugh Latimer | [Hugh Latimer dans les Cieux Célestes. Ses croyances sur terre -
 Lafayette | [Relate son changement d’attitude envers les allemands](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) | 23 Avril 1916
 <small>
 
-1. <large id=”f1”> *Cet esprit semble être Samuel B Southard.*[↩](#a1)
+1. <large id=”f1”> Cet esprit semble être Samuel B Southard.[↩](#a1)

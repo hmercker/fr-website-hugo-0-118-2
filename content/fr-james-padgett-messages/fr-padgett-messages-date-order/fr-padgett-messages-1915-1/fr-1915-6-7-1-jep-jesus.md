@@ -71,6 +71,6 @@ Jésus | [4ème Révélation : Jésus annonce Sa Messianité.](/fr-samuels-mess
 Jésus | [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie.](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/) | 14 Juin 1955
 <small>
 
-1. <large id="f1"> *Credits du portrait de Jésus : [Akiane Kramarik](https://akiane.com)*.[↩](#a1)
+1. <large id="f1"> Credits du portrait de Jésus : [Akiane Kramarik](https://akiane.com).[↩](#a1)
 
-2. <large id="f2"> *[Un message contemporain de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) prétend que Jésus avait en fait cinq frères et deux sœurs et il cite leurs noms.*[↩](#a2)
+2. <large id="f2"> [Un message contemporain de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) prétend que Jésus avait en fait cinq frères et deux sœurs et il cite leurs noms.[↩](#a2)

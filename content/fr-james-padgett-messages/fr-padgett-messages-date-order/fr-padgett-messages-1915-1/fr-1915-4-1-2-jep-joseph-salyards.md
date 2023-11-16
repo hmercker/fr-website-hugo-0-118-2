@@ -38,7 +38,7 @@ Eh bien, je vais essayer.
 > Tu possèdes le merveilleux amour du Père, la divinité est la tienne, et l’immortalité est la tienne.
 <br>
 <br>
-> Alors laisse mon amour être
+> Alors laisse mon amour être.
 
 Je ne suis pas capable d’écrire plus. Laissez-moi essayer une autre fois lorsque vous serez en meilleure condition. Non, je le terminerai la prochaine fois que j’écrirai. Vous voyez, ce n’est pas en vers, mais en prose, ce que je préfère, car le sens peut être exprimé plus clairement.
 

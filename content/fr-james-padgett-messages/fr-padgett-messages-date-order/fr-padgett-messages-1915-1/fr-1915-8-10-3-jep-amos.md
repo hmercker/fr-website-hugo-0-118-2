@@ -25,7 +25,7 @@ Je vais maintenant m’arrêter.
 
 Avec tout mon amour je suis à vous en esprit Amos.
 
-**Code : [Â…] texte indéchiffrable**
+**Code** : [Â…] texte indéchiffrable
 <small>
 
 1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
