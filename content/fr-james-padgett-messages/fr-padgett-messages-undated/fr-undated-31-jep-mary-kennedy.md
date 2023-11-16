@@ -23,7 +23,7 @@ Je ne laisserai même pas sa mère revendiquer ce privilège, bien qu’elle l�
 
 Eh bien, dites-lui que j’étais là aussi, et que mon amour coulait vers lui ainsi que celui de sa mère, mais qu’il n’y avait pas de conflit dans notre amour, car nous l’aimons toutes les deux plus qu’il ne peut le concevoir. La seule différence est que mon amour est un amour qui va grandir et durer toute l’éternité, alors que celui de sa mère ne durera pas toute l’éternité, car elle devra le transmettre à son âme-sœur lorsque le moment sera venu de se séparer de lui. Cela ne signifie pas que sa mère ne l’aimera pas toujours, mais qu’un autre sera le premier dans son amour, tandis qu’il sera toujours le premier dans mon amour, car il est mon âme-sœur, et aucun amour ne peut se mettre entre nous, même l’Amour Divin du Père ne le fera pas, mais cela ne fera que renforcer notre amour l’un pour l’autre.
 
-Eh bien<sup id="a1">[1](#f1)</sup>, comme il l’a dit, vous allez commencer à penser que je vais écrire toute la nuit, mais il me calomnie car je ne serais pas si méchante de vous faire subir une telle épreuve.
+Eh bien <sup id="a1">[1](#f1)</sup>, comme il l’a dit, vous allez commencer à penser que je vais écrire toute la nuit, mais il me calomnie car je ne serais pas si méchante de vous faire subir une telle épreuve.
 
 Alors, en vous remerciant, je dirai que je vous aime comme une sœur, et lui – enfin, je suppose que je devrai dire comme un vrai compagnon d’âme ; et s’il n’est pas un bon garçon et ne m’aime pas, je ne lui ferai pas savoir à nouveau combien je l’aime.
 

@@ -32,4 +32,3 @@ Il y a des jours où vous êtes profondément mis au défi, et il y a des jours 
 Mes beaux et bien-aimés frères et sœurs, chacun de vous éclaire le monde, chacun de vous recherchant la camaraderie, le réconfort, la sagesse, l’acceptation les uns des autres. Je vous le dis, vous recevez de nombreux cadeaux et l’un d’eux est cette communion fraternelle. Vous grandirez grâce à cela et en profiterez, et Dieu vous bénira chaque jour avec beaucoup de choses, beaucoup de choses.
 
 Que Dieu vous bénisse, mes amis. Que Son Amour se déverse dans vos âmes. Puissiez-vous aspirer à cela et grandir avec cela. Je suis Aaron et mon amour est avec toi. Soyez fort, soyez de lumière et exprimez la vérité en tout. Que Dieu vous bénisse. Mon amour est avec vous.
-

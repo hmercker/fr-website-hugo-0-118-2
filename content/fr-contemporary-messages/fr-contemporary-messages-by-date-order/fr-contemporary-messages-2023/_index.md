@@ -161,7 +161,7 @@ Copernic | [L'humanité a été un virus sur la Terre Mère](/fr-contemporary-me
 Jésus | [Le but et le pouvoir du rassemblement de Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-11-1-af-jesus/) | 11 Juillet 2023
 Professeur Salyards | [Met l'accent sur l'appel à la retraite de Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-13-1-af-professor-salyards/) | 13 Juillet 2023
 Barbara Davies | [Faire la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-14-1-af-barbara-davies/) | 14 Juillet 2023
-Jésus | [La puissance de l'Amour de Dieu fait des miracles dans nos vies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-16-1-af-jésus/) | 16 Juillet 2023
+Jésus | [La puissance de l'Amour de Dieu fait des miracles dans nos vies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-16-1-af-jesus/) | 16 Juillet 2023
 St François d'Assise | [Calme dans la tempête](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-17-1-jw-st-francis-of-assisi/) | 17 Juillet 2023
 Professeur Salyards | [L'harmonie prévaudra à la retraite de Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-20-1-af-professor-salyards/) | 20 Juillet 2023
 George Gurdjieff | [Restez éveillé dans l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-24-1-af-george-gurdjieff/) | 24 Juillet 2023

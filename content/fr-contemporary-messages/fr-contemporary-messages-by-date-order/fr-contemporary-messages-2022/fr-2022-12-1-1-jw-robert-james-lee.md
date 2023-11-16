@@ -11,7 +11,7 @@ weight:
 
 Robert James Lee - reçu par Jimbeau Walsh le 1 Décembre 2022, Nashville, TN, USA.
 
-Mes chers frères et sœurs, je suis ici, Robert Lees<sup id=”a1”>[1](#f1)</sup>. Comme toujours, je suis ravi lorsque vous parcourez les pages des livres qui contiennent les messages de l’esprit que j’ai reçus avec tant de gratitude. Je suis conscient que vous pouvez voir une certaine confluence de vérité dans ce que j’ai reçu et ce que James Padgett<sup id=”a2”>[2](#f2)</sup> a reçu et ce que le Révérend Owen<sup id=”a3”>[3](#f3)</sup> a reçu, tous autour de la même période. Il l m’a été dit, lorsque je suis arrivé au monde de l’esprit, qu’il y avait un consortium parmi les anges Célestes pour apporter les vérités du monde de l’esprit, les vérités de la progression dans l’Amour Divin, en commençant par la simple vérité de la vie après la mort sur terre.
+Mes chers frères et sœurs, je suis ici, Robert Lees <sup id=”a1”>[1](#f1)</sup>. Comme toujours, je suis ravi lorsque vous parcourez les pages des livres qui contiennent les messages de l’esprit que j’ai reçus avec tant de gratitude. Je suis conscient que vous pouvez voir une certaine confluence de vérité dans ce que j’ai reçu et ce que James Padgett <sup id=”a2”>[2](#f2)</sup> a reçu et ce que le Révérend Owen <sup id=”a3”>[3](#f3)</sup> a reçu, tous autour de la même période. Il l m’a été dit, lorsque je suis arrivé au monde de l’esprit, qu’il y avait un consortium parmi les anges Célestes pour apporter les vérités du monde de l’esprit, les vérités de la progression dans l’Amour Divin, en commençant par la simple vérité de la vie après la mort sur terre.
 
 Ainsi, chacun de nous, si béni d’avoir une communication spirituelle et pourtant si unique dans sa personnalité, a reçu une grande partie du même matériel et pourtant, comme vous pouvez facilement le voir, chacun à sa manière. Et dans un sens, on pourrait dire qu’il y a une synchronicité de la vérité répandue sur une plateforme très diverse afin qu’elle puisse résonner avec une grande variété d’âmes. C’était à une époque où il y avait une grande soif d’apprendre les mystères les plus profonds de la vie sur terre, les histoires anciennes et les mysticismes, la vie dans le monde des esprits, et la capacité des mortels à communiquer avec ce monde.
 
@@ -22,6 +22,6 @@ Donc, encore une fois, je vous remercie et je souhaite vous rappeler, au cas où
 
 1. <large id=”f1”> [Lien vers ses livres](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#mists).[↩](#a1)
 
-2. <large id=”f2”> [Lien vers ses livres](/fr-publications-and-downloads/fr-books/).[↩](#a2) 
+2. <large id=”f2”> [Lien vers ses livres](/fr-publications-and-downloads/fr-books/).[↩](#a2)
 
 3. <large id=”f3”> [Lien vers ses livres](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#lowlands/).[↩](#a3)

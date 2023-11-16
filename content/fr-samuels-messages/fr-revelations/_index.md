@@ -59,6 +59,7 @@ Jésus n’a jamais cherché à introduire des sacrements ou à établir une ég
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
+Jésus | [Il est dit au Dr Samuels que son travail actuel aboutira à un Évangile nouveau et corrigé pour l'humanité](/fr-samuels-messages/fr-diverse-messages/fr-8-1954-12-22-samuels-jesus/) | 22 Décembre 1954
 Jésus | [1ère Révélation : Relation entre Jésus et son cousin Jean le Baptiste](/fr-samuels-messages/fr-revelations/fr-rev-1-1955-3-24-samuels-jesus/) | 24 Mars 1955
 St Jean | [2ème Révélation : La vie et le ministère de Jean le Baptiste](/fr-samuels-messages/fr-revelations/fr-rev-2-1955-3-3-samuels-st-john/) | 3 Mars 1955
 Jésus | [3ème Révélation : L’Amour Divin est un privilège, un Don du Père](/fr-samuels-messages/fr-revelations/fr-rev-3-21-april-und-3-may-1955-samuels-jesus/) | 21 Avril et 3 Mai 1955

@@ -61,10 +61,12 @@ Bien que le révérend Dr Gibson, qui a pris la direction terrestre des administ
 
 Daniel G. Samuels est décédé à l'âge de soixante-treize ans, en Mars 1982, dans sa maison au 1561 Long Beach, dans le comté de Nassau, New York.
 ________________
+
 Sources :
-1. https://new-birth.net/mediumship/dr-samuels-medium/
-2. https://new-birth.net/new-birth-christians/history-divine-love-churches/
-3. https://new-birth.net/padgetts-messages/dr-john-paul-gibson/
-4. http://board.divinelovesanctuary.com/viewtopic.php?f=11&t=900&start=10
-5. https://board.divinelovesanctuary.com/viewtopic.php?f=25&t=1488#p12662 : Klaus Fuch, Einsichten in das Neue Testament  (Aperçus sur le Nouveau Testament)
+
+1. [Dr Samuels médiumnité](https://new-birth.net/mediumship/dr-samuels-medium/)
+2. [Chrétiens de la nouvelle naissance](https://new-birth.net/new-birth-christians/history-divine-love-churches/)
+3. [Dr John Paul Gibson](https://new-birth.net/padgetts-messages/dr-john-paul-gibson/)
+4. [Forum du sanctuaire de l'amour divin - Aujourd'hui, je suis révérend](http://board.divinelovesanctuary.com/viewtopic.php?f=11&t=900&start=10)
+5. [Forum du sanctuaire de l'amour divin : Klaus Fuch, Einsichten in das Neue Testament - (Aperçus sur le Nouveau Testament)](https://board.divinelovesanctuary.com/viewtopic.php?f=25&t=1488#p12662)
 6. Oreck, Douglas, The Gospel of God’s Love—Old Testament Sermons New Heart Press 2003, ISBN 978-0972510615

@@ -11,7 +11,7 @@ weight:
 
 Claire d'Assise - reçu par Jimbeau Walsh le 27 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-nepal1.jpeg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-nepal1.jpeg)
 
 Mes chères, mes chères souris aimables, je suis votre sœur dans l’Amour de Dieu, Claire.
 
