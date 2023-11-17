@@ -23,22 +23,19 @@ Oui, Jésus est le maître, et l'Esprit Saint est le messager ou l’instrument 
 
 Jésus viendra tranquillement dans le cœur de chaque homme et établira ainsi le millénaire. Il n’aura pas un royaume à lui tout seul. Il est le fils de son Père et restera dans le monde des esprits pour enseigner aux hommes à progresser vers les plans célestes qui atteignent la présence de Dieu. Il est l’esprit le plus glorieux dans tous les cieux et il est le plus grand esprit sous la domination de son Père.
 
-Il n’y a qu’un seul Dieu. Jésus et l'Esprit Saint<sup id=”a1”>[1](#f1)</sup> ne sont que les forces dont Dieu se sert pour réaliser ses grands desseins pour la rédemption de l’homme.
+Il n’y a qu’un seul Dieu. Jésus et l'Esprit Saint ne sont que les forces dont Dieu se sert pour réaliser ses grands desseins pour la rédemption de l’homme.
 
 Permets-moi de m’arrêter maintenant car je suis fatiguée.
 
-Ta grand-mère. *(Anne Rollins)*
+Ta grand-mère. *(Anne Rollins)* <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Note : Plusieurs autre messages relatifs au sujet de l’Esprit Saint  ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :*.[↩](#a1)
+1. <large id="f1"> Plusieurs autre messages relatifs au sujet de l’Esprit Saint ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Anne Rollins | [Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/) | 11 Novembre 1914
-Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
-Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/) | 05 Novembre 1916
+Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
+Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/) | 05 Novembre 1916
 Jean | [Qu’est-ce que l’Esprit Saint et comment fonctionne-t-il ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/) | 14 Juin 1917
-Jésus |  [Différence entre l’Esprit de Dieu et l’Esprit Saint.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920
-
-
-
+Jésus | [Différence entre l’Esprit de Dieu et l’Esprit Saint](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-10-1-jep-jesus/) | 10 Mai 1920[↩](#a1)

@@ -31,14 +31,11 @@ Quand j’étais sur terre, j’étais le seul fils qui, jusque-là, était deve
 
 Soyez seulement un croyant de Dieu et de Ses vérités et vous serez bientôt dans le Royaume.
 
-Vous serez bientôt en mesure de comprendre ce que je comprends.<sup id=”a1”>[1](#f1)</sup>
+Vous serez bientôt en mesure de comprendre ce que je comprends. <sup id="a1">[1](#f1)</sup>
 
-Bonne nuit. Jésus Christ.<sup id=”a2”>[2](#f2)</sup>
-<small>
+Bonne nuit. Jésus Christ.
 
-1. <large id=”f1”> *[Dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.*.[↩](#a1)
-
-2. <large id=”f1”> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*.[↩](#a2)
+**Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :**
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -52,3 +49,6 @@ Jésus | [Jésus a montré sa grande gloire et a donné son amour à M. Padgett]
 Jésus | [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
 Jésus | [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/) | 06 Novembre 1917
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
+<small>
+
+1. <large id="f1"> *[Dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.*.[↩](#a1)

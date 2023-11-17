@@ -21,7 +21,7 @@ Vous n’êtes pas en état de continuer à écrire. Je reviendrai vers vous lor
 
 Au revoir et que l’Esprit Saint vous bénisse comme je le fais.
 
-Jésus Christ<sup id="a2">[2](#f2)</sup>.
+Jésus Christ <sup id="a2">[2](#f2)</sup>.
 <small>
 
 1. <large id="f1"> M. Padgett a dit qu’il avait eu une vision de Jésus de nombreuses années avant de savoir qu’il avait le don médiumnique pour recevoir des communications d’esprits. Il m’a dit que lorsqu’il a vu Jésus, à l’époque de la vision, il le regardait avec un grand amour et une grande sympathie comme s’il voulait qu’il devienne un de ses vrais disciples. Les premiers messages de Jésus ont eu pour but d’encourager M. Padgett à obtenir, en son âme, l’Amour Divin de façon si abondante que son cerveau obtienne cette haute qualité qui puisse permettre à Jésus d’écrire la haute qualité des vérités ou messages solennels, qu’il est si désireux de donner au monde.[↩](#a1)
