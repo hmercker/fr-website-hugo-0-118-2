@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Ce que les Hommes doivent faire pour voir Dieu et réaliser qu’il est un Dieu personnel, avec tous les attributs qui appartiennent à un être suprême, infini<sup id="a1">[1](#f1)</sup>
+### Ce que les Hommes doivent faire pour voir Dieu et réaliser qu’il est un Dieu personnel, avec tous les attributs qui appartiennent à un être suprême, infini <sup id="a1">[1](#f1)</sup>
 
-Judas - reçu par James Padgett le 21 Mars 1922<sup id="a2">[2](#f2)</sup>, Washington, USA.
+Judas - reçu par James Padgett le 21 Mars 1922 <sup id="a2">[2](#f2)</sup>, Washington, USA.
 
 Je suis, Judas et je désire vous écrire.
 

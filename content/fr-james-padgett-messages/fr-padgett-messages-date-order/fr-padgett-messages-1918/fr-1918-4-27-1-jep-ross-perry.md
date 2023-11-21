@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Perry est très heureux de dire à M. Padgett qu’il prie le Père avec toute la nostalgie de son âme pour un accroissement de Son Amour, et qu’il sera bientôt dans la troisième sphère<sup id="a1">[1](#f1)</sup>
+### Perry est très heureux de dire à M. Padgett qu’il prie le Père avec toute la nostalgie de son âme pour un accroissement de Son Amour, et qu’il sera bientôt dans la troisième sphère <sup id="a1">[1](#f1)</sup>
 
 Ross Perry - reçu par James Padgett le 27 Avril 1918, Washington, USA.
 

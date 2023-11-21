@@ -41,7 +41,7 @@ Eh bien, j’ai assez écrit pour ce soir, mais je reviendrai pour approfondir m
 
 Votre ami, Francis Bacon.
 
-***Note : Francis Bacon s'était déjà exprimé dans les messages suivants :***
+**Note :** Francis Bacon s'était déjà exprimé dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Commente le sermon de Billy Sunday, sur le fait que ses enseignements sont orientés vers le progrès de l’âme et de l’homme parfait 
+### Commente le sermon de Billy Sunday, sur le fait que ses enseignements sont orientés vers le progrès de l’âme et de l’homme parfait
 
 Hélène Padgett - reçu par James Padgett le 9 Janvier 1918, Washington, USA.
 
@@ -29,9 +29,9 @@ Et ce que je t’ai dit, je le dis au Dr Stone, car je vois que ses pensées son
 
 Je t’aime mon cher mari, et je suis plus proche de toi dans tes pensées, et je ne veux pas que tu es des mauvaises pensées, qu’elles quelles soient, même si tu penses bien dans un grand nombre de choses et les plus importantes. Prie et laisse ta foi grandir et crois que nous sommes tous avec toi en train d’essayer de te diriger dans le droit chemin. Celui qui sait est plus anxieux, que n’importe lequel d’entre nous, que ta connaissance des vérités se développe, et tes expériences, découlant de cette connaissance, t’apportent, avec une force plus convaincante, les vérités, que Dieu est Amour, et ton Dieu. Bonne nuit.
 
-Ta vraie et bien-aimée, Hélène.<sup id="a2">[2](#f2)</sup>
+Ta vraie et bien-aimée, Hélène. <sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Cette rubrique, telle qu’elle a été publiée à l’origine, est beaucoup plus longue : La femme de M. Padgett, Hélène, fait des commentaires sur le sermon de Billy Sunday, sur le fait que ses enseignements sont dirigés vers le progrès de l’âme et de l’homme parfait. Cependant, cette orientation dans les enseignements religieux ne doivent pas être découragés, car ils conduisent à la pureté, même si ce n’est pas à la divinité de l’âme. Billy Sunday est un prédicateur évangéliste. (Geoff Cutler)[[↩](#a1)
+1. <large id="f1"> Cette rubrique, telle qu’elle a été publiée à l’origine, est beaucoup plus longue : La femme de M. Padgett, Hélène, fait des commentaires sur le sermon de Billy Sunday, sur le fait que ses enseignements sont dirigés vers le progrès de l’âme et de l’homme parfait. Cependant, cette orientation dans les enseignements religieux ne doivent pas être découragés, car ils conduisent à la pureté, même si ce n’est pas à la divinité de l’âme. Billy Sunday est un prédicateur évangéliste. (Geoff Cutler)[↩](#a1)
 
-2. <large id="f2">. Ce message est publié dans le Volume III page 385 et le dans Volume IV page 425. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a2)
+2. <large id="f2"> Ce message est publié dans le Volume III page 385 et le dans Volume IV page 425. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a2)

@@ -15,7 +15,7 @@ C’est moi, Jean.
 
 Je n’écrirai pas maintenant, sauf pour dire que votre condition spirituelle s’est beaucoup améliorée et que vous avancez dans votre âme dans la perception de la vérité et de la réalité du Père et de Son Amour.
 
-*[Question.]*
+*[Question :]*
 
 Oui, je sais, mais vous devez vous souvenir de deux choses en référence aux écrits de la Bible qui m’ont été attribués, à savoir :
 

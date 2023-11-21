@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Lois du rapport et de la communication, suite<sup id="a1">[1](#f1)</sup>
+### Lois du rapport et de la communication, suite <sup id="a1">[1](#f1)</sup>
 
 St Jean - reçu par James Padgett le 22 Octobre 1918, Washington, USA.
 
@@ -34,8 +34,4 @@ Je n’écrirai pas plus ce soir, mais je dirai simplement que nous avons beauco
 Votre frère en Christ, Jean.
 <small>
 
-1. <large id=”f1”> Ce message de Jean est la suite du message communiqué [le 04 Janvier 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/). Faute de pouvoir disposer d'un rapport suffisant avec James Padgett, Jean a dû attendre avant de pouvoir transmette son message.[↩](#a1)
-
-
-
-
+1. <large id="f1"> Ce message de Jean est la suite du message communiqué [le 04 Janvier 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/). Faute de pouvoir disposer d'un rapport suffisant avec James Padgett, Jean a dû attendre avant de pouvoir transmette son message.[↩](#a1)

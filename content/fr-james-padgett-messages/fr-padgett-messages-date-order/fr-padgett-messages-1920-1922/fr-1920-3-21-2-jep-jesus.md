@@ -31,7 +31,7 @@ C’est pourquoi vous constaterez que ce grand objectif s’accomplit aussi bien
 
 Alors, je dis, le but de l’incarnation de l’âme est de lui donner une individualisation, et cela en deux aspects ; premièrement, dans celui de la forme physique que les hommes, par leur perception de leurs sens naturels, peuvent percevoir, et, deuxièmement, une forme plus sublimée et généralement invisible à ces organes ; une forme spirituelle.
 
-Au moment de l’incarnations<sup id="a1">[1](#f1)</sup>, l’âme prend la forme qui lui a été préparée par les forces qui existent chez les parents et retient celle de la vie naturelle ; et au même moment, il est créé pour elle ou attiré par elle, la forme du corps d’esprit, qui alors, et toujours ensuite, reste avec lui. Ces deux corps sont formés de matière ; l’un de la matière visible de l’univers, l’autre de la matière invisible mais toujours de la matière.
+Au moment de l’incarnations <sup id="a1">[1](#f1)</sup>, l’âme prend la forme qui lui a été préparée par les forces qui existent chez les parents et retient celle de la vie naturelle ; et au même moment, il est créé pour elle ou attiré par elle, la forme du corps d’esprit, qui alors, et toujours ensuite, reste avec lui. Ces deux corps sont formés de matière ; l’un de la matière visible de l’univers, l’autre de la matière invisible mais toujours de la matière.
 
 Comme vous le savez, ce corps qui est fait de la matière visible ne dure qu’un temps relativement court et disparaît ensuite pour toujours, tandis que celui qui est composé de matière invisible, et qui est plus réel et substantiel que le premier et qui existe tout le temps de l’existence du visible, continue avec l’âme après la disparition du corps visible. Et; tout en étant modifiable en réponse au progrès de cette âme, le corps spirituel ne quitte jamais cette âme sous sa forme composite. Dans la vie spirituelle, nous savons que cela est vrai, tout aussi certainement que vous, mortels, vous connaissez la vérité de l’existence du corps physique. Et comme vous, mortels, vous pouvez, dans le court espace de la vie sur terre, identifier l’homme – qui est réellement l’âme – par l’apparence de son corps physique, ainsi nous, dans le monde spirituel, identifions le même homme par l’apparence du corps spirituel, et donc ce fait doit être éternel.
 
@@ -43,22 +43,20 @@ Et c’est cette condition que les hommes s’efforcent plus ou moins maintenant
 
 Ces faits devraient être prêchés par tous les prêtres, pasteurs et enseignants, et pratiqués par les hommes partout, car dans leur pratique, le bonheur et la béatitude sont innommables. Lorsque cela est atteint, l’homme redevient le fils de Dieu et obéit à ses lois, et réalise le sens *« d’aimer Dieu et aimer son frère »*. Et ainsi, je le répète, le prédicateur, en prononçant le fondement de sa religion, a déclaré les vérités qui le conduiront dans la condition de l’homme parfait, en harmonie avec la volonté de Dieu quant à la création de l’homme.
 
-Eh bien, je vois que vous êtes fatigué et nous allons donc reporter la suite de ce message. Je suis très heureux que vous soyez en bien meilleure condition et j’espère que nous pourrons continuer nos messages sans autre interruption. Priez seulement davantage et croyez que le Père répondra à vos prières. Croyez donc que je vous aime et que je veux que vous soyez heureux et libre de tout souci.<sup id="a2">[2](#f2)</sup>
+Eh bien, je vois que vous êtes fatigué et nous allons donc reporter la suite de ce message. Je suis très heureux que vous soyez en bien meilleure condition et j’espère que nous pourrons continuer nos messages sans autre interruption. Priez seulement davantage et croyez que le Père répondra à vos prières. Croyez donc que je vous aime et que je veux que vous soyez heureux et libre de tout souci. <sup id="a2">[2](#f2)</sup>
 
-Bonne nuit. Votre frère et ami, Jésus.<sup id="a3">[3](#f3)</sup>
+Bonne nuit. Votre frère et ami, Jésus.
+
+**Note :** Concernant l'incarnation de l'âme, Jésus s'ext également exprimé dans les messages suivants :
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-2-1-jep-jesus/) | 02 Mars 1916
+Jésus | [L’âme – ce qu’elle est et ce qu’elle n’est pas](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/) | 02 Mars 1917
+Jésus | [Jésus donne des conseils à M. Padgett afin qu'il se mette en condition d’âme pour recevoir les messages](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-14-1-jep-jesus/) | 14 Février 1920
+Jésus | [Incarnation de L’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-15-1-jep-jesus/) | 15 Février 1920
 <small>
 
 1. <large id="f1"> [Ce message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/) apporte plus de clarté sur le moment de l'incarnation.[↩](#a1)
 
 2. <large id="f2">  Un autre commentaire sur le sermon de ce prédicateur a été communiqué, [le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-3-21-1-jep-dr-channing/), par le Dr Channing.[↩](#a2)
-
-3. <large id="f3"> Concernant l'incarnation de l'âme, Jésus s'ext également exprimé dans les messages suivants :*[↩](#a3)
-
-**Auteur** | **Titre du message** | **Date du message**
----|---|---
-Jésus | [Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-2-1-jep-jesus/) |02 Mars 1916
-Jésus |[L’âme – ce qu’elle est et ce qu’elle n’est pas.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/) |  02 Mars 1917
-Jésus | [Jésus donne des conseils à M. Padgett afin qu'il se mette en condition d’âme pour recevoir les messages.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-14-1-jep-jesus/)|  14 Février 1920
-Jésus | [Incarnation de L’âme.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-15-1-jep-jesus/) |  15 Février 1920 
-
-

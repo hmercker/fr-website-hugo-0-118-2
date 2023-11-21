@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Il n’y a rien dans l’existence ou dans la connaissance de l’homme qui soit comparable à la Bible – si ce n’est les vérités que Jésus et les esprits Célestes ont écrites à travers M. Padgett<sup id="a1">[1](#f1)</sup>
+### Il n’y a rien dans l’existence ou dans la connaissance de l’homme qui soit comparable à la Bible – si ce n’est les vérités que Jésus et les esprits Célestes ont écrites à travers M. Padgett <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 23 Février 1918, Washington, USA.
 

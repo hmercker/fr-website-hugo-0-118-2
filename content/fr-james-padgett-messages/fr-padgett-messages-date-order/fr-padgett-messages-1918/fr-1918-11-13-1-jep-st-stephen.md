@@ -13,7 +13,7 @@ St Étienne - reçu par James Padgett le 13 Novembre 1918, Washington, USA.
 
 Je suis St. Étienne.
 
-Permettez-moi d’écrire quelques mots, ce soir, car je suis l’un des esprits dont votre femme a parlé hier soir<sup id=”a1”>[1](#f1)</sup> et qui viendraient écrire ce soir.
+Permettez-moi d’écrire quelques mots, ce soir, car je suis l’un des esprits dont votre femme a parlé hier soir <sup id="a1">[1](#f1)</sup> et qui viendraient écrire ce soir.
 
 Mon sujet est : *« Quelle est la signification de la nature Divine à laquelle participe l’âme de l’homme, lors de la transformation de cette âme par l’afflux et la possession de l’Amour Divin ? »*
 
@@ -36,4 +36,4 @@ Eh bien, nous devons nous arrêter ici. Je terminerai plus tard.
 Je suis St. Étienne.
 <small>
 
-1. <large id=”f1”>  Ce message n'a apparemment pas été publié bien qu'il soit mentionné dans [la tablette (journal quotidien de James Padgett)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1918/).[↩](#a1)
+1. <large id="f1">  Ce message n'a apparemment pas été publié bien qu'il soit mentionné dans [la tablette (journal quotidien de James Padgett)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1918/).[↩](#a1)

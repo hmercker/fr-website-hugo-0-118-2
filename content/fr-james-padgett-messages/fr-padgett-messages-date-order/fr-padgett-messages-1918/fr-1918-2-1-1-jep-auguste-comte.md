@@ -11,7 +11,7 @@ weight:
 
 Auguste Comte - reçu par James Padgett le 1 Février 1918, Washington, USA.
 
-Je suis Auguste Comte.<sup id="a1">[1](#f1)</sup>
+Je suis Auguste Comte. <sup id="a1">[1](#f1)</sup>
 
 Je ne suis pas un de ces esprits qui viennent à vous pour parler de la Nouvelle Naissance et de l’Amour Divin et des Sphères Célestes, mais simplement un esprit qui croit en ce que l’on peut apprendre en observant et exerçant ses facultés de raison. Je suis dans la vie spirituelle depuis de nombreuses années et je suis dans une sphère de lumière, j’éprouve beaucoup de bonheur et je profite de la vie d’un enquêteur de la vérité.
 
@@ -35,11 +35,9 @@ Je n’ai jamais vu ni parlé avec les esprits des Cieux Célestes, bien que j�
 
 Il vient alors à moi un bel esprit lumineux, comme je n’en ai jamais vu auparavant, qui dit avoir répondu à votre appel et être prêt à me montrer, avec amour, la voie la plus facile et la meilleure pour le développement, et cela ne dépend que de moi d’apprendre cette voie ou non ; mais si je veux, il me l’enseignera. Eh bien, je suis surpris, j’avoue ! J’irai avec lui et j’apprendrai tout ce qu’il peut m’apprendre. Je reviendrai vers vous.
 
-Je vous souhaite une bonne nuit. 
+Je vous souhaite une bonne nuit.
 
 Auguste Comte.
 <small>
 
 1. <large id="f1"> **Isidore Auguste Marie François Xavier Comte** (19 Janvier 1798 – 5 Septembre 1857), plus connu sous le nom d’Auguste Comte, fut un philosophe français. Il a été l’un des fondateurs de la discipline de la sociologie et de la doctrine du positivisme. Il est parfois considéré comme le premier philosophe de la science au sens moderne du terme. Influencé par l’utopiste socialiste Henri Saint-Simon, Auguste Comte a développé la philosophie positive pour tenter de remédier au malaise social de la Révolution française, appelant à une nouvelle doctrine sociale fondée sur les sciences. Auguste Comte a exercé une influence majeure sur la pensée du XIXe siècle, influençant le travail de penseurs sociaux tels que Karl Marx, John Stuart Mill et George Eliot. Son concept de sociologie et d’évolutionnisme social a donné le ton aux premiers théoriciens et anthropologues sociaux tels que Harriet Martineau et Herbert Spencer, qui ont évolué vers une sociologie académique moderne présentée par Émile Durkheim comme une recherche sociale pratique et objective. Les théories sociales d’Auguste Comte ont culminé dans la « Religion de l’Humanité », qui a influencé le développement des organisations religieuses humanistes et les organisations humanistes séculières au 19ème siècle. Auguste Comte a également inventé le mot altruisme. (Source : Wikipédia)[↩](#a1)
-
-

@@ -8,6 +8,7 @@ hidden: True
 weight:
 ---
 ### La Vérité Divine doit être déclarée à toute l’humanité
+
 Jésus - reçu par James Padgett le 02 Mai 1920, Washington, USA.
 
 C’est moi, Jésus.
@@ -26,20 +27,18 @@ Samuel est maintenant ici, et il était avec vous à l’église. Il s’est ren
 
 Eh bien, mon cher frère, je n’écrirai pas plus ce soir, mais je viendrai bientôt pour écrire un message important, dont je sais qu’il vous sera non seulement bénéfique, mais qu’il vous intéressera. Eh bien, je vais écrire sur le sujet que vous suggérez, car c’est une chose importante que les hommes doivent savoir, car beaucoup pensent qu’ils font la volonté de Dieu dans leurs divers cours de vie et dans leurs diverses formes d’adoration. Sa volonté est une volonté qui correspond à toutes les lois qui affectent l’homme de toutes les manières, et les hommes doivent savoir ce qu’est cette volonté.
 
-Je viendrai bientôt et j’écrirai sur ce sujet et j’espère que vous parviendrez à recevoir mon message comme j’ai l’intention de le livrer. Avec mon amour et ma bénédiction, et l’assurance d’être avec vous en tout temps de besoin, et d’essayer de vous diriger dans vos pensées, je vous souhaite une bonne nuit.<sup id="a1">[1](#f1)</sup>
+Je viendrai bientôt et j’écrirai sur ce sujet et j’espère que vous parviendrez à recevoir mon message comme j’ai l’intention de le livrer. Avec mon amour et ma bénédiction, et l’assurance d’être avec vous en tout temps de besoin, et d’essayer de vous diriger dans vos pensées, je vous souhaite une bonne nuit. <sup id="a1">[1](#f1)</sup>
 
-Votre frère et ami, Jésus.<sup id="a2">[2](#f2)</sup> 
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id="f1"> Ce message est publié dans le volume II page 276 et dans le volume IV à la page 190. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
-
-2. <large id="f2"> *Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a2)
+**Note :** Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-4-jep-jesus/)| 05 Septembre 1915
-Jésus | [Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-1-jep-jesus/)  | 12 Septembre 1915 
-Jésus | [Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-19-1-jep-jesus/) | 19 Septembre 1915
-Jésus |  [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-6-1-jep-jesus/) | 06 Mai 1917
+Jésus | [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-4-jep-jesus/) | 05 Septembre 1915
+Jésus | [Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-1-jep-jesus/) | 12 Septembre 1915
+Jésus | [Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-19-1-jep-jesus/) | 19 Septembre 1915
+Jésus | [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-6-1-jep-jesus/) | 06 Mai 1917
+<small>
 
-
+1. <large id="f1"> Ce message est publié dans le volume II page 276 et dans le volume IV à la page 190. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

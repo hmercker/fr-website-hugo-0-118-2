@@ -11,9 +11,9 @@ weight:
 
 Baruch Spinoza - reçu par James Padgett le 14 Avril 1918, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-spinoza.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-spinoza.jpg)
 
-Je suis, Spinoza.<sup id="a1">[1](#f1)</sup>
+Je suis, Spinoza. <sup id="a1">[1](#f1)</sup>
 
 Je souhaite écrire quelques lignes, si vous me le permettez. Je n’ai pas besoin de dire que je ne vous ai jamais écrit auparavant, car vous savez, de par la difficulté que j’ai à écrire, que tel doit être le cas. Non, je suis étranger à ce mode de communication, et pour vous, comme pour moi, c’est une merveilleuse révélation qui s’est imposée ces derniers jours.
 

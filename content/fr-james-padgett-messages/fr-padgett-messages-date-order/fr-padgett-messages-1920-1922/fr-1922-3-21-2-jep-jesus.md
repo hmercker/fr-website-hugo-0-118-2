@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus approuvant et insistant sur ce que Judas a écrit<sup id="a1">[1](#f1)</sup>
+### Jésus approuvant et insistant sur ce que Judas a écrit <sup id="a1">[1](#f1)</sup>
 
-Jésus - reçu par James Padgett le 21 Mars 1922<sup id="a2">[2](#f2)</sup>, Washington, USA.
+Jésus - reçu par James Padgett le 21 Mars 1922 <sup id="a2">[2](#f2)</sup>, Washington, USA.
 
 J’approuve ce que [Judas vous a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-3-21-1-jep-judas/), je le souligne, et avec tout mon amour pour le simple homme, comme pour l’esprit, je les exhorte à poursuivre le chemin et à atteindre le grand but pour lequel l’Amour Divin les adaptera et les conduira.
 

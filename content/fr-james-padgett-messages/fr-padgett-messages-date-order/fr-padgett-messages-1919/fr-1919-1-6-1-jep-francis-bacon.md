@@ -11,7 +11,7 @@ weight:
 
 Francis Bacon - reçu par James Padgett le 06 Janvier 1919, Washington, USA.
 
-Je suis Francis Bacon.<sup id=”a1”>[1](#f1)</sup>
+Je suis Francis Bacon. <sup id="a1">[1](#f1)</sup>
 
 Permettez-moi d’écrire quelques lignes, car je désire vous parler d’une chose qui peut être importante pour vous.
 
@@ -39,4 +39,4 @@ Lorsque les hommes réaliseront que le changement appelé mort ne détruit pas l
 Eh bien, j’ai écrit autant que j’ai jugé bon de le faire ce soir, et je vous remercie de votre indulgence. Avec mes meilleures salutations, je vous souhaite une bonne nuit, votre ami, Francis Bacon.
 <small>
 
-1. <large id=”f1”> Francis Bacon s'était exprimé précédeement [le 20 Novembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-20-1-jep-francis-bacon/) et le [1er Décembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-1-1-jep-francis-bacon/).[↩](#a1)
+1. <large id="f1"> Francis Bacon s'était exprimé précédeement [le 20 Novembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-20-1-jep-francis-bacon/) et le [1er Décembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-12-1-1-jep-francis-bacon/).[↩](#a1)

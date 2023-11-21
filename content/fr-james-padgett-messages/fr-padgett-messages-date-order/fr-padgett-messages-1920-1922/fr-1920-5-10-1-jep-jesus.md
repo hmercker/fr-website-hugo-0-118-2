@@ -33,22 +33,18 @@ Ne laissez donc pas les enseignants ou les prédicateurs enseigner, ou leurs aud
 
 Je vous ai écrit auparavant sur le fonctionnement de l’Esprit Saint, sur la manière dont il peut apporter aux hommes l’Amour Divin du Père, et sur ce que les hommes doivent faire pour sa venue. Le chemin décrit est le seul chemin possible. Les hommes ne doivent pas croire et se reposer dans la sécurité de la croyance que tout travail de l’Esprit de Dieu est le fonctionnement de l’Esprit Saint.
 
-> A moins qu’un homme naisse de nouveau, il ne peut entrer dans le Royaume de Dieu, 
+> A moins qu’un homme naisse de nouveau, il ne peut entrer dans le Royaume de Dieu,
 
 et cette réalisation n’est possible que par l’action de l’Esprit Saint. [(Jean 3:3)](https://saintebible.com/john/3-3.htm)
 
-Oh, prédicateur, sur lequel repose une grande responsabilité, apprenez la vérité et conduisez les hommes dans la voie du salut. Je ne vais pas écrire plus maintenant, mais je reviendrai et je délivrerai un autre message. Croyez que je vous aime et que je suis votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
-<small>
+Oh, prédicateur, sur lequel repose une grande responsabilité, apprenez la vérité et conduisez les hommes dans la voie du salut. Je ne vais pas écrire plus maintenant, mais je reviendrai et je délivrerai un autre message. Croyez que je vous aime et que je suis votre ami et frère, Jésus.
 
-1. <large id=”f1”> Plusieurs autre messages relatifs au sujet de l’Esprit Saint ont été communiqués par Anne Rollins, Jésus, Jean ou Luc. Is sont listés c-dessous.[↩](#a1)
+**Note :** Plusieurs autre messages relatifs au sujet de l’Esprit Saint ont été communiqués par Anne Rollins, Jésus, Jean ou Luc. Is sont listés c-dessous :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Anne Rollins | [le flot de l’Esprit de Dieu dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins/) | 15 Septembre 1914
 Anne Rollins | [Anne Rollins répond à de nombreuses questions sur l’Esprit Saint et le Père Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-11-1-jep-ann-rollins/) | 11 Novembre 1914
-Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
-Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/)| 05 Novembre 1916
+Jésus | [L’Esprit Saint n’est pas Dieu. Pas de péché impardonnable](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-6-1-jep-jesus/) | 06 Juin 1915
+Luc | [Il n’y a aucun mystère que les hommes ne devraient pas connaître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-5-1-jep-luke/) | 05 Novembre 1916
 Jean | [Qu’est-ce que l’Esprit Saint et comment fonctionne-t-il ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-14-2-jep-st-john/) | 14 Juin 1917
-
-
-

@@ -9,7 +9,7 @@ weight:
 ---
 ### Que s’est-il réellement passé lors de la crucifixion de Jésus ?
 
-Samuel - reçu par James Padgett le 27 Mars 1921<sup id="a1">[1](#f1)</sup>, Washington, USA.
+Samuel - reçu par James Padgett le 27 Mars 1921 <sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 Je voudrais écrire quelques lignes ce soir, car je ne vous ai pas écrit [depuis longtemps](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-7-2-jep-samuel/) et je désire vous décrire la scène qui vous a été présentée ce soir, à l’église, par les paroles et la musique.
 
@@ -26,15 +26,15 @@ Il n’était pas présent ce soir, dans aucune des églises, où sa mort sur la
 
 Et bien, je vois que vous êtes fatigué et je n’écrirai pas plus. Avec tout mon amour je vais vous dire bonne nuit.
 
-Votre frère en Christ, Samuel.<sup id="a2">[2](#f2)</sup>
-<small>
+Votre frère en Christ, Samuel.
 
-1. <large id="f1"> Un post-scriptum à ce message indique que le service de Pâques mentionné ci-dessus s’est déroulé en l’année 1921, et Pâques, cette année là, fut le 27 Mars. Bien sûr il est aussi possible qu’il ait attendu un service le vendredi Saint.[↩](#a1)
-
-2. <large id="f2"> *Liens vers d'autres messages relatifs à la crucifixion de Jésus :*[↩](#a2)
+**Note :** Liens vers d'autres messages relatifs à la crucifixion de Jésus :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-St Luc | [Explique la dématérialisation du corps terrestre de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-24-1-jep-st-luke/) | 24 Octobre 1915
-Joseph d’Arimathie | [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-16-1-jep-joseph/)  | 16 Mars 1916 
-Elohiam | [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/) | 22 Janvier 1917
+St Luc | [Explique la dématérialisation du corps terrestre de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-24-1-jep-st-luke/) | 24 Octobre 1915
+Joseph d’Arimathie | [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-16-1-jep-joseph/) | 16 Mars 1916
+Elohiam | [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/) | 22 Janvier 1917
+<small>
+
+1. <large id="f1"> Un post-scriptum à ce message indique que le service de Pâques mentionné ci-dessus s’est déroulé en l’année 1921, et Pâques, cette année là, fut le 27 Mars. Bien sûr il est aussi possible qu’il ait attendu un service le vendredi Saint.[↩](#a1)
