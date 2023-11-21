@@ -15,7 +15,7 @@ C’est moi, Luc.
 
 Ce soir, je désire écrire sur le sujet de *« Quels sont les faits qui prouvent l’authenticité de la Bible ? »* J’étais avec vous lors du sermon du prédicateur sur ce sujet et je fus surpris qu’il puisse  affirmer avec autant de confiance qu’il est évident que la Bible est la parole authentique de Dieu, écrite par les hommes dont les noms sont cités. Le fait qu’il ait retracé l’existence de certains manuscrits et versions à cent cinquante ans après le temps des enseignements de Jésus n’établit pas la véracité de sa déclaration quant à l’authenticité de la Bible, ou que les manuscrits, tels qu’ils existent maintenant, contiennent les véritables écrits des apôtres, ou des personnes qui sont censées être les auteurs, par le simple fait que leurs noms sont associés à ces manuscrits.
 
-Il n’est pas vrai non plus que la vie de Jean a été prolongée jusqu’à la fin du premier siècle afin qu’il puisse écrire les déclarations véritables des vérités éternelles proclamées par Jésus, car Jean n’a pas vécu jusqu’à ce temps-là et ses écrits n’ont pas été conservés comme Il les avait formulés, et les résultats de ses déclarations n’ont pas été honnêtement transmis, comme le prétendent ceux qui enseignent l’inviolabilité sup id="a1">[1](#f1)</sup> des Écritures.
+Il n’est pas vrai non plus que la vie de Jean a été prolongée jusqu’à la fin du premier siècle afin qu’il puisse écrire les déclarations véritables des vérités éternelles proclamées par Jésus, car Jean n’a pas vécu jusqu’à ce temps-là et ses écrits n’ont pas été conservés comme Il les avait formulés, et les résultats de ses déclarations n’ont pas été honnêtement transmis, comme le prétendent ceux qui enseignent l’inviolabilité <sup id="a1">[1](#f1)</sup> des Écritures.
 
 Je fus un écrivain sur ces sujets sacrés et, comme je vous l’ai dit antérieurement, j’ai écrit un document qui a été appelé les « actes des apôtres » et, à ma mort, j’ai laissé un certain nombre d’exemplaires de mes écrits ; mais cette compilation était simplement un récit de ce que j’avais entendu de la part de ceux qui avaient vécu avec Jésus et avaient entendu ses enseignements, et de leurs efforts pour diffuser et enseigner ses doctrines après sa mort. J’ai pu aussi bénéficier de certains écrits des disciples de Jésus, mais ces écrits étaient très limités, car ces disciples et adeptes de Jésus n’ont pas commencé à rédiger, sous forme d’un manuscrit, les enseignements de Jésus ou l’expérience de sa vie qu’assez longtemps après qu’il ait quitté la terre. Ils espéraient son retour rapide lorsqu’il deviendrait leur roi et législateur, et, par conséquent, ils n’ont pas vu l’opportunité ou la nécessité de conserver sous la forme d’écrits les vérités dont il les avait instruits.
 
@@ -49,16 +49,16 @@ La Bible contient de nombreuses vérités, et suffisamment, pour permettre à l�
 
 Je n’écrirai pas plus maintenant car vous êtes fatigué, mais je viendrai bientôt pour écrire un message sur un autre sujet que j’ai présent à l’esprit depuis un certain temps.
 
-Avec tout mon amour et bénédictions, je suis votre frère en Christ, Luc.<sup id=”a2”>[2](#f2)</sup>
-<small>
+Avec tout mon amour et bénédictions, je suis votre frère en Christ, Luc.
 
-1. <large id="f1"> Incassable: impossible d’être violé, contrevenu ou brisé.[↩](#a1)
-
-2. <large id="f12"> *Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a2)
+**Note :** Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saint Luc | [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/) | 05 Septembre 1915 
-Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
-Saint Luc | [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/) | 5 Décembre 1915
-Saint Luc | [Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-30-1-jep-st-luke/) | 30 Novembre 1916
+Saint Luc | [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/) | 05 Septembre 1915
+Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
+Saint Luc | [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/) | 5 Décembre 1915
+Saint Luc | [Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-30-1-jep-st-luke/) | 30 Novembre 1916
+<small>
+
+1. <large id="f1"> Incassable: impossible d’être violé, contrevenu ou brisé.[↩](#a1)

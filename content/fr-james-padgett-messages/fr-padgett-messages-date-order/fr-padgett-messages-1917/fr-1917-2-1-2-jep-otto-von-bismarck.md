@@ -11,7 +11,7 @@ weight:
 
 Otto von Bismarck - reçu par James Padgett le 1 Février 1917, Washington, USA.
 
-Je suis Bismarck.<sup id=”a1”>[1](#f1)</sup>
+Je suis Bismarck. <sup id="a1">[1](#f1)</sup>
 
 Permettez-moi de dire un mot, car j’ai écouté [ce qui vient d’être écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-1-1-jep-james-blaine/) et je m’intéresse à l’objet de cette communication, et je ne suis pas d’accord avec les sentiments ou les conclusions des réflexions qu’elle contient. Je ne suis pas impartial, je l’avoue, mais je pense que je peux rendre justice aux deux parties belligérantes, car je suis un esprit et j’ai appris que le droit est un droit, quelle que soit la personne ou la nation qui prétend avoir le droit dans ses actions.
 
@@ -37,12 +37,11 @@ Il est aussi possible  de  dire que l’utilisation du sous-marin est brutale et
 
 Je ne vois pas pourquoi les États-Unis devraient avoir l’impression que leurs droits sont violés plus largement, plus différemment, ou plus illégalement, par le blocus allemand plutôt que par le blocus qui a été créé et mis en place, depuis si longtemps, par les Anglais. Évidemment, les effets des deux blocus sur les affaires des États-Unis sont d’un degré différent, car ils ont fait et font plus d’affaires avec les Alliés qu’ils n’en ont fait avec l’Allemagne. Mais cela n’entre pas en ligne de compte et n’affecte pas la question du bien-fondé ou non du fait. Eh bien, je n’écrirai pas plus sur ce sujet.
 
-Quant aux résultats de la guerre, ou plutôt quant à sa fin, je ne peux pas faire de pronostic. L’Allemagne se bat dans des conditions très inégales, elle risque d’être vaincue, et je ne serais pas surpris si cela mettait un terme au conflit. Mais, néanmoins, et même si les Alliés peuvent remporter la victoire, j’affirme que le droit est avec elle et que les nations neutres ne lui rendent pas justice quand elles déclarent qu’elle est l’agresseur et que sa poursuite actuelle du conflit est injustifiée. On me dit que j’en ai assez écrit, et je dois donc m’arrêter, mais ce que j’ai dit était bien fondé. 
+Quant aux résultats de la guerre, ou plutôt quant à sa fin, je ne peux pas faire de pronostic. L’Allemagne se bat dans des conditions très inégales, elle risque d’être vaincue, et je ne serais pas surpris si cela mettait un terme au conflit. Mais, néanmoins, et même si les Alliés peuvent remporter la victoire, j’affirme que le droit est avec elle et que les nations neutres ne lui rendent pas justice quand elles déclarent qu’elle est l’agresseur et que sa poursuite actuelle du conflit est injustifiée. On me dit que j’en ai assez écrit, et je dois donc m’arrêter, mais ce que j’ai dit était bien fondé.
 
-Bonne nuit, votre ami, Bismarck.<sup id=”a2”>[2](#f2)</sup>
+Bonne nuit, votre ami, Bismarck. <sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> [**Bismark** (1er Avril 1815 - 30 Juillet 1898)- premier chancelier du nouvel Empire allemand de 1871 à 1890](https://fr.wikipedia.org/wiki/Otto_von_Bismarck). Les principaux messages relatifs à la première guerre mondiale sont disponibles par l'intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)
 
 2. <large id="f2"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)
-

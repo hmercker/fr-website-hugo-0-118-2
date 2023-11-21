@@ -7,28 +7,25 @@ draft: False
 hidden: True
 weight:
 ---
-### Écrit sur ses tentatives pour influencer son mari, le président Wilson<sup id="a1">[1](#f1)</sup>
+### Écrit sur ses tentatives pour influencer son mari, le président Wilson <sup id="a1">[1](#f1)</sup>
 
 Madame Wilson - reçu par James Padgett le 8 Février 1917, Washington, USA.
 
 Je suis Mme Wilson.
 
-Je n’écrirai qu’une ligne ou deux. Vous ne me connaissez pas, mais je suis très désireuse d’écrire, car je m’intéresse beaucoup à ce qui se passe actuellement dans notre pays en rapport avec les pays étrangers ; et l’un de ceux qui m’intéressent beaucoup souffre des fardeaux qui lui incombent maintenant. Je suis très proche de lui et j’essaie de l’influencer dans ses pensées et dans sa façon de traiter les grands problèmes qui se posent maintenant à lui, et je crains parfois qu’il ne succombe aux lourdes charges qui pèsent sur lui. Il a aussi autour de lui d’autres esprits qui s’intéressent beaucoup au bien-être du pays, et ce sont les esprits des hommes qui, lorsqu’ils étaient sur terre, étaient des hommes d’État et des dirigeants de notre pays, et qui s’intéressaient à diriger ses destinées. Je ne les nommerai pas, mais je dirai simplement que de Jefferson<sup id="a2">[2](#f2)</sup> à McKinley, ils sont avec celui qui occupe aujourd’hui le fauteuil présidentiel.
+Je n’écrirai qu’une ligne ou deux. Vous ne me connaissez pas, mais je suis très désireuse d’écrire, car je m’intéresse beaucoup à ce qui se passe actuellement dans notre pays en rapport avec les pays étrangers ; et l’un de ceux qui m’intéressent beaucoup souffre des fardeaux qui lui incombent maintenant. Je suis très proche de lui et j’essaie de l’influencer dans ses pensées et dans sa façon de traiter les grands problèmes qui se posent maintenant à lui, et je crains parfois qu’il ne succombe aux lourdes charges qui pèsent sur lui. Il a aussi autour de lui d’autres esprits qui s’intéressent beaucoup au bien-être du pays, et ce sont les esprits des hommes qui, lorsqu’ils étaient sur terre, étaient des hommes d’État et des dirigeants de notre pays, et qui s’intéressaient à diriger ses destinées. Je ne les nommerai pas, mais je dirai simplement que de Jefferson <sup id="a2">[2](#f2)</sup> à McKinley, ils sont avec celui qui occupe aujourd’hui le fauteuil présidentiel.
 
 Cette guerre (référence à la Première Guerre mondiale) est grave non seulement pour les peuples d’Europe, mais aussi pour ceux d’Amérique car, comme je le vois, et comme le disent ces autres esprits, il est impossible pour notre pays de s’en sortir. Les Allemands souhaitent donc – et ils font tout pour y parvenir – la participation des États-Unis au conflit ; et le résultat sera que les États-Unis souffriront beaucoup plus que ce que leurs hommes d’État et leurs financiers envisagent.
 
 J’aimerais pouvoir apporter au Président, de façon claire et incontestable, les conseils que ces esprits voudraient lui faire comprendre ; mais ce pouvoir de communiquer se limite aux impressions qu’ils peuvent lui transmettre par l’exercice du rapport très imparfait de leurs esprits avec le sien, sans le moyen approprié ou nécessaire. Si seulement il pouvait vous avoir avec lui pour recevoir les conseils que ces esprits désirent si ardemment lui donner, cela l’aiderait beaucoup. Nous avons essayé de créer un moyen d’y parvenir, mais cela semble presque impossible.
 
-Mais pour autant que je puisse voir l’avenir, il mènera le pays à une fin judicieuse, même si beaucoup de troubles et de malheurs seront subis, et qu’il ne pourra peut-être pas supporter la tension. J’aimerais pouvoir écrire plus longtemps ce soir, mais mon rapport me quitte, et je dois arrêter. Mais en dépit de ce qui s’est passé – que je suis la seule à connaître – je l’aime toujours, car il est à moi, et un jour il s’en rendra compte. Je vais maintenant conclure. 
+Mais pour autant que je puisse voir l’avenir, il mènera le pays à une fin judicieuse, même si beaucoup de troubles et de malheurs seront subis, et qu’il ne pourra peut-être pas supporter la tension. J’aimerais pouvoir écrire plus longtemps ce soir, mais mon rapport me quitte, et je dois arrêter. Mais en dépit de ce qui s’est passé – que je suis la seule à connaître – je l’aime toujours, car il est à moi, et un jour il s’en rendra compte. Je vais maintenant conclure.
 
-En vous remerciant de votre gentillesse, je suis votre nouvel amie, Mme Woodrow Wilson.<sup id="a3">[3](#f3)</sup>
+En vous remerciant de votre gentillesse, je suis votre nouvel amie, Mme Woodrow Wilson. <sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id="f1"> **Thomas Woodrow Wilson** (28 Décembre 1856 - 3 Février 1924) fut président des États-Unis du 4 Mars 1913 au 4 Mars 1921. Membre du Parti démocrate, il est gouverneur du New Jersey de 1911 à 1913. Vainqueur de l'élection présidentielle de 1912 face à l'ancien président Theodore Roosevelt (Parti progressiste) et au président sortant William Howard Taft (Parti républicain), il est le premier sudiste à devenir président des États-Unis depuis 1849.[↩](#a1) 
+1. <large id="f1"> **Thomas Woodrow Wilson** (28 Décembre 1856 - 3 Février 1924) fut président des États-Unis du 4 Mars 1913 au 4 Mars 1921. Membre du Parti démocrate, il est gouverneur du New Jersey de 1911 à 1913. Vainqueur de l'élection présidentielle de 1912 face à l'ancien président Theodore Roosevelt (Parti progressiste) et au président sortant William Howard Taft (Parti républicain), il est le premier sudiste à devenir président des États-Unis depuis 1849.[↩](#a1)
 
 2. <large id="f2"> **Thomas Jefferson** (1743-1826) fut le troisième président des États-Unis d'Amérique entre 1801 à 1809. Jefferson est un des principaux rédacteurs de la Déclaration d'indépendance américaine de 1776. Jefferson était partisan qu'il fallait laisser le maximum de pouvoirs aux États formant les États-Unis et limiter le pouvoir du gouvernement fédéral. Pendant sa présidence les États-Unis achetèrent la Louisiane à la France.[↩](#a2)
 
 3. <large id="f3"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a3)
-
-
-

@@ -24,4 +24,3 @@ Transmettez mon amour à vos amis et dites-leur de croire et de prier, et surtou
 Je vous souhaite une bonne nuit et je vous donne ma bénédiction.
 
 Votre frère dans le Christ, Luc.
-

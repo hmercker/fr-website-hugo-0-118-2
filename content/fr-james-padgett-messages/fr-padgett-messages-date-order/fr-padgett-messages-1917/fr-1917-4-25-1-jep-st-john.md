@@ -13,13 +13,13 @@ St Jean - reçu par James Padgett le 25 Avril 1917, Washington, USA.
 
 Je suis Saint Jean, Apôtre de Jésus.
 
-*[Question.]*
+*[Question :]*
 
 Eh bien, Il répond aux prières pour les choses matérielles par l’intermédiaire et l’œuvre de Ses anges et de Ses esprits, et ils, dans cette tâche, sont soumis aux limites de la réussite comme je l’ai mentionné ci-dessus. Dieu n’exerce aucun pouvoir arbitraire pour répondre aux prières, mais quand elles lui sont sincèrement offertes, il agit par l’intermédiaire de ses anges pour y répondre, mais il ne le fait pas de Lui-même. Ses anges sont toujours à l’affût et travaillent, et lorsque l’occasion se présente, ils exercent leur influence de la meilleure façon possible pour atteindre les fins désirées.
 
 Comme vous le savez, l’homme a un libre arbitre, et cela détermine très largement l’action des hommes, et de telles actions ne sont jamais arbitrairement contrôlées par aucune puissance divine. Si les prières des hommes au sujet des choses matérielles peuvent être exaucées par le fonctionnement des anges et des esprits, elles le sont ; mais si cette réponse dépend de la volonté des hommes, alors elles ne sont pas reçues par les mortels, si ce n’est dans la mesure où les esprits peuvent influencer cette volonté et amener les hommes à agir conformément à cette influence, laquelle est toujours utilisée pour apporter une réponse aux prières qui, dans leur nature, sont appropriées et méritent de recevoir une réponse.
 
-*[Question.]*
+*[Question :]*
 
 Eh bien, je doute qu’il n’ait jamais répondu à l’une ou l’autre de ces suppliques de la manière arbitraire qui est décrite dans l’Ancien Testament. Dieu ne répond jamais à la prière de cette manière, et les prières des anciens prophètes n’avaient pas plus le pouvoir de susciter une réponse, de la manière indiquée, que celles de l’homme sincère et sérieux de ces jours. Dieu était alors le même qu’Il est maintenant, et Il a travaillé à travers les esprits comme Il le fait maintenant, si ce n’est que maintenant Il a des anges du développement de l’âme dans l’Amour Divin, qu’Il n’avait pas alors, et ces anges accomplissent Sa volonté tout comme le font les esprits. Mais Il ne répond aux prières pour les choses matérielles que d’une manière conforme aux lois qui contrôlent le libre arbitre et les actions des hommes, car elles peuvent être opérées et influencées par le travail des esprits.
 

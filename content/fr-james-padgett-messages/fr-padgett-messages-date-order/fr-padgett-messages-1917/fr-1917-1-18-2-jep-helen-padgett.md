@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Confirme le test fait par le juge Syrick
+### Confirme le test fait par le juge Syrick <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 28 Janvier 1917, Washington, USA.
 
@@ -19,8 +19,7 @@ Je n’écrirai pas grand-chose, car tu n’es pas en bonne condition. Cependant
 
 Mes salutations les plus cordiales au Dr. ( Dr. Leslie Stone) et mon amour pour toi.
 
-Ta vraie et bien-aimée Hélène.<sup id="a1">[1](#f1)</sup>
+Ta vraie et bien-aimée Hélène.
 <small>
 
 1. <large id="f1"> Ce message est publié dans le Volume III page 372 et dans le Volume IV page 306. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)[↩](#a1)
- 

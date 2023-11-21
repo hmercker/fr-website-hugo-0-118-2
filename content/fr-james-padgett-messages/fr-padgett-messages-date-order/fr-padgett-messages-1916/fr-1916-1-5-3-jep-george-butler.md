@@ -47,17 +47,15 @@ Oh, dites-moi ce que cela veut dire ! Est-ce que je rêve ? Êtes-vous réel et 
 
 Comment puis-je vous remercier ? Je suis vaincu et je ne peux plus écrire, mais [je reviendrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-3-15-1-jep-george-butler/). Alors, mon cher ami, je vous souhaite une bonne nuit, car je m’en vais.
 
-Je m’appelle George H Butler. Je suis décédé en 1899.<sup id=”a1”>[1](#f1)</sup> 
-<small>
+Je m’appelle George H Butler. Je suis décédé en 1899.
 
-1. <large id=”f1”> Quatres autres esprits ont décrit leur expérience de l'enfer. Les différents messages de Jules Cesar ont la particularité de nous permettre de comprendre que Jules César a vécu dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 1960 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois :*[↩](#a1)
+**Note :** Quatres autres esprits ont décrit leur expérience de l'enfer. Les différents messages de Jules Cesar ont la particularité de nous permettre de comprendre que Jules César a vécu dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 1960 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jules Cesar | [Jules César écrit que la position terrestre ne détermine pas la demeure spirituelle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-16-2-jep-julius-caesar/) | le 16 Septembre 1915
-Emmanuel swvedenborg | [Swedenborg écrit sur les enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/)  | 17 Décembre 1915
-Hérode | [Corrobore le message de Swedenborg sur les enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-18-1-jep-herodes/) | 18 Décembre 1915
-Jules Cesar | [Jules César cherche l’Amour Divin, la lumière pénètre dans son âme.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) | le 13 Décembre 1916
-Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/)  | 08 Janvier 1917
+Emmanuel swvedenborg | [Swedenborg écrit sur les enfers](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/) | 17 Décembre 1915
+Hérode | [Corrobore le message de Swedenborg sur les enfers](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-18-1-jep-herodes/) | 18 Décembre 1915
+Jules Cesar | [Jules César cherche l’Amour Divin, la lumière pénètre dans son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) | le 13 Décembre 1916
+Nathan Plummer | [Il est difficile d’apprendre, en enfer, sur les choses célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-8-1-jep-nathan-plummer/) | 08 Janvier 1917
 Jules Cesar | [Jules César partage ses expériences après avoir reçu l’aide d’un Esprit Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar) | le 1er Mai 1917
-

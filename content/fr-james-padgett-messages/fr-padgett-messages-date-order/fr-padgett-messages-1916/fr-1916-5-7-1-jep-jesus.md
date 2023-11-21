@@ -25,7 +25,7 @@ Oui, je serai avec elle, je l’aiderai, je la protégerai du mal et j’essaier
 
 Je n’écrirai pas plus ce soir.
 
-*[Question et réponse.]*
+*[Question et réponse :]*
 
 Oui, elle est très médiumnique et je pense qu’il est souhaitable de l’emmener à la séance car cela la convaincra qu’il y a une vérité dans le spiritualisme. Elle commencera alors à penser davantage au sujet, deviendra bientôt complètement convaincue, sera de plus en forte et se sentira nettement mieux.
 

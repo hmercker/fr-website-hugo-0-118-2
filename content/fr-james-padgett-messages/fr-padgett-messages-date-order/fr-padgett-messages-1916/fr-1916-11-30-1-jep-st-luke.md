@@ -11,7 +11,7 @@ weight:
 
 St Luc - reçu par James Padgett le 30 Novembre 1916, Washington, USA.
 
-C’est moi, Saint Luc, du Nouveau Testament. Oui, je veux écrire ce soir quelques lignes sur un sujet qui n’a encore jamais été traité, et je sais que cela vous intéressera. Mon sujet est : *« Quelle est la chose la plus importante dans le monde que les hommes fassent au sujet du grand millénaire proclamé par les prédicateurs avant ou après la venue de Jésus ?  »*
+C’est moi, Saint Luc, du Nouveau Testament. Oui, je veux écrire ce soir quelques lignes sur un sujet qui n’a encore jamais été traité, et je sais que cela vous intéressera. Mon sujet est : *« Quelle est la chose la plus importante dans le monde que les hommes fassent au sujet du grand millénaire proclamé par les prédicateurs avant ou après la venue de Jésus ? »*
 
 Bien sûr, en énonçant la question, je n’ai pas l’intention d’être compris comme consentant à la doctrine que Jésus viendra sur terre sous une forme physique, sur les nuages avec un grand cri, etc., comme beaucoup de prédicateurs enseignent, car cet événement n’arrivera jamais, parce que, comme nous vous l’avons déjà écrit, il est déjà venu sur terre, ou plutôt vers les hommes, de la manière spirituelle que nous avons expliquée. Je n’ai pas non plus l’intention d’embrasser dans la phrase, « la plus grande chose », l’Amour Divin, parce que, bien entendu, c’est aussi la plus grande chose sur toute la terre et dans les cieux ; mais, par cette expression, je veux dire la plus grande chose que les hommes puissent faire, indépendamment de l’aide de l’Amour Divin.
 
@@ -33,15 +33,13 @@ Ils croient ainsi, et dans leur esprit, ils peuvent être honnêtes. Cependant l
 
 Mais ils prétendent en outre que Jésus, par sa grande puissance, et le fait qu’ils croient qu’il reviendra sur terre et établira son royaume, en un clin d’œil, les rendront aptes à devenir des sujets pour son royaume, qualifiés pour juger l’injuste et aider à les chasser de son royaume. Non, cela ne peut jamais être la manière dont le millénium sera établi, et plus tôt les hommes écarteront cette croyance et chercheront la vérité et la vraie voie vers la pureté et la perfection, plus tôt l’espérance et l’attente de l’humanité seront réalisées.
 
-Votre frère en Christ, Luc.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère en Christ, Luc.
 
-1. <large id=”f1”> *Note : Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*.[↩](#a1)
+**Note :** Saint Luc s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saint Luc | [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/) | 05 Septembre 1915 
-Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
-Saint Luc | [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/) | 5 Décembre 1915
-Saint Luc |  [Quels sont les faits qui prouvent l’authenticité de la Bible.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-12-1-jep-st-luke/) | 12 Mars 1917 
-
+Saint Luc | [Luc affirme que l’évangile qui porte son nom n’est pas le même que celui qu’il a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-2-jep-st-luke/) | 05 Septembre 1915
+Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
+Saint Luc | [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/) | 5 Décembre 1915
+Saint Luc | [Quels sont les faits qui prouvent l’authenticité de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-12-1-jep-st-luke/) | 12 Mars 1917

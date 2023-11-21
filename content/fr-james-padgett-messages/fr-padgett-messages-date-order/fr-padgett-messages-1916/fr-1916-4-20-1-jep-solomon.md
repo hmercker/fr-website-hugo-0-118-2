@@ -21,10 +21,7 @@ La prière et la foi de la part des mortels ; et l’Amour – l’Amour Divin �
 
 Je pourrais écrire longtemps, mais je ne le dois pas car vous êtes fatigué. Donc avec mon amour et mes bénédictions, je vais vous dire bonne nuit, et que l’Amour du Père prenne possession de vous.
 
-Votre frère en Christ, Salomon.<sup id=”a1”>[1](#f1)</sup>
+Votre frère en Christ, Salomon. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id="f1"> *Il a été signalé par Joseph Babinsky, que la lecture attentive du message de Salomon indique que son titre ne devrait pas être* **« la plus grande chose »**, *mais* **« la plus grande vérité. »** *Bien que cela puisse sembler insignifiant, je pense que cela est important. L’existence de l’Amour Divin n’est-elle pas* **« la plus grande Vérité ? »**.[↩](#a1)
-
-
-
+1. <large id="f1"> Il a été signalé par Joseph Babinsky, que la lecture attentive du message de Salomon indique que son titre ne devrait pas être *« la plus grande chose »*, mais *« la plus grande vérité. »* Bien que cela puisse sembler insignifiant, je pense que cela est important. L’existence de l’Amour Divin n’est-elle pas *« la plus grande Vérité ? »*.[↩](#a1)

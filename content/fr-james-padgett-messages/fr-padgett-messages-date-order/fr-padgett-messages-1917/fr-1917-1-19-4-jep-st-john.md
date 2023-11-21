@@ -1,13 +1,13 @@
 ---
-title: "Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages."
+title: "Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages"
 menu_title: ""
-description: "Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages."
+description: "Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True
 weight:
 ---
-### Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages <sup id=”a1”>[1](#f1)</sup>.
+### Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages <sup id="a1">[1](#f1)</sup>
 
 Saint Jean - reçu par James Padgett le 19 Janvier 1917, Washington, USA.
 
@@ -45,5 +45,3 @@ Votre frère dans le Christ, Jean.
 <small>
 
 1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été extrait des archives par Geoff Cutler et préparé par Catherine Whiteside en mai 2019.[↩](#a1)
-
-

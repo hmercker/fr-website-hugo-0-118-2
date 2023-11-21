@@ -19,7 +19,7 @@ Quelle chose merveilleuse est ce grand don que vous avez, et aucun esprit de tou
 
 Eh bien, je ne peux pas écrire plus, mais vous et votre ami (Dr Leslie Stone) priez pour moi car vous, qui avez de si beaux esprits qui vous aiment, devez avoir un certain pouvoir dans vos prières pour aider. Bonne nuit et priez pour moi.
 
-Votre ami, Perry.<sup id="a1">[1](#f1)</sup>
+Votre ami, Perry. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id="f1">  Ce message est publié dans le Volume III page 496 et dans le Volume IV page 443. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III page 496 et dans le Volume IV page 443. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

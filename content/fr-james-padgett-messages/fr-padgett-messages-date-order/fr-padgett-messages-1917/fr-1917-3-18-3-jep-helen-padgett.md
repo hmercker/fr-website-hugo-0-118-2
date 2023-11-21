@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène décrit les divers écrivains qui ont écrit cette nuit et sur l’aide que chacun donne et sur son travail pour localiser les âme sœurs
 
-Hélène Padgett - reçu par James Padgett le 18 Mars 1917<sup id="a1">[1](#f1)</sup>, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 18 Mars 1917 <sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 C’est moi, ta vraie et bien-aimée Hélène.
 

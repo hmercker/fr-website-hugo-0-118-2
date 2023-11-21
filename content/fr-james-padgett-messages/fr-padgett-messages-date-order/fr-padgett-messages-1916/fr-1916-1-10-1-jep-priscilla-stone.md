@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### PriscillaStone, mère de Leslie R. Stone, a progressé vers la Première Sphère Céleste<sup id="a1">[1](#f1)</sup>
+### PriscillaStone, mère de Leslie R. Stone, a progressé vers la Première Sphère Céleste <sup id="a1">[1](#f1)</sup>
 
 Priscilla Stone - reçu par James Padgett le 10 Janvier 1916, Washington, USA.
 

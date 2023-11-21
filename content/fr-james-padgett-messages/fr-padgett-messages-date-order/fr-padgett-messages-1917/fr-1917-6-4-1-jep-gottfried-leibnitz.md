@@ -11,7 +11,7 @@ weight:
 
 Gottfried Leibnitz - reçu par James Padgett le 4 Juin 1917, Washington, USA.
 
-Je suis Gottfried Leibnitz.<sup id="a1">[1](#f1)</sup>
+Je suis Gottfried Leibnitz. <sup id="a1">[1](#f1)</sup>
 
 Laissez-moi écrire quelques lignes. Je ne suis pas une de vos connaissances, mais je ne suis pas un étranger dans la mesure où je suis à vos côtés et j’observe les différents esprits qui communiquent avec vous.
 
@@ -37,7 +37,7 @@ Eh bien, je vous ai écrit une longue lettre ce soir, et vous n’êtes peut-êt
 
 Eh bien, vous me surprenez et je peux à peine croire que vous êtes sérieux, car je n’ai jamais entendu parler d’une telle voie ou d’une telle connaissance existant parmi les esprits, et si vous pouvez me montrer cela, je l’étudierai avec toutes les énergies de mon âme. Eh bien, vous me surprenez de plus en plus ; mais je suis prêt à faire ce que vous dites, aussi absurde que cela puisse me paraître, ou quelles que soient les petites perspectives que je puisse voir dans cette étude. Je ferai ce que vous dites.
 
-Eh bien, je vois un bel esprit qui dit qu’il est le professeur Salyards, qu’il a entendu ce que j’ai dit et ce que vous avez dit, et qu’il sera heureux de me montrer la voie pour obtenir à la fois la connaissance et la possession réelle de cette immortalité<sup id="a2">[2](#f2)</sup>. Je vais accepter cette invitation et aller avec lui. Je vous remercie beaucoup de m’avoir écouté et d’avoir exprimé votre désir de m’aider ; et si votre promesse se réalise, soyez assuré que je reviendrai un jour vous le dire.
+Eh bien, je vois un bel esprit qui dit qu’il est le professeur Salyards, qu’il a entendu ce que j’ai dit et ce que vous avez dit, et qu’il sera heureux de me montrer la voie pour obtenir à la fois la connaissance et la possession réelle de cette immortalité <sup id="a2">[2](#f2)</sup>. Je vais accepter cette invitation et aller avec lui. Je vous remercie beaucoup de m’avoir écouté et d’avoir exprimé votre désir de m’aider ; et si votre promesse se réalise, soyez assuré que je reviendrai un jour vous le dire.
 
 Alors, mon ami, je vais vous souhaiter une bonne nuit.
 
@@ -47,6 +47,3 @@ Votre ami, Gottfried Wilhelm Leibnitz.
 1. <large id="f1"> **Gottfried Wilhelm (von) Leibniz** (1er Juillet 1646 – 14 Novembre 1716) était un polymathe et philosophe allemand d’origine lusacienne/sorabe qui occupe une place importante dans l’histoire des mathématiques et de la philosophie. Des chercheurs, y compris Bertrand Russell, croient que Leibniz a développé le calcul indépendamment d’Isaac Newton, et la notation de Leibniz a été largement utilisée depuis sa publication. Ce n’est qu’au XXe siècle que sa Loi de Continuité et sa Loi Transcendantale d’Homogénéité ont trouvé une application mathématique (au moyen d’une analyse non standard). Il est devenu l’un des inventeurs les plus prolifiques dans le domaine des calculatrices mécaniques. Tout en travaillant sur l’ajout de la multiplication automatique et la division à la calculatrice de Pascal, il a été le premier à décrire une calculatrice à roue à aubes en 1685 et a inventé la roue de Leibniz, utilisé dans l’arithmomètre, la première calculatrice mécanique produite en série. Il a également perfectionné le système de numération binaire, qui est à la base de presque tous les ordinateurs numériques. En philosophie, Leibniz est surtout connu pour son optimisme, c’est-à-dire sa conclusion que notre Univers est, dans un sens restreint, le meilleur que Dieu aurait pu créer, une idée qui a souvent été dénigrée par des tiers tels que Voltaire. Leibniz, avec René Descartes et Baruch Spinoza, fut l’un des trois grands défenseurs du rationalisme au XVIIe siècle. Les travaux de Leibniz ont anticipé la logique moderne et la philosophie analytique, mais sa philosophie se réfère également à la tradition scolaire, dans laquelle les conclusions sont produites en appliquant la raison des premiers principes ou des définitions préalables plutôt que des preuves empiriques. (Source : Wikipédia)[↩](#a1)
 
 2. <large id="f2"> Les messages sur l’immortalité transmis par Jésus, ainsi que par [Henry Ward Beecher](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) et [Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) traitent également de la question de l'immortalité. (Jzan Paul Gibsons)[↩](#a2)
-
-
-

@@ -11,7 +11,7 @@ weight:
 
 Sir Walter Raleigh - reçu par James Padgett le 25 Février 1917, Washington, USA.
 
-Je suis Raleigh. Je suis Lord Walter Raleigh, l’Anglais, qui a aimé et a été décapité.<sup id="a1">[1](#f1)</sup>
+Je suis Raleigh. Je suis Lord Walter Raleigh, l’Anglais, qui a aimé et a été décapité. <sup id="a1">[1](#f1)</sup>
 
 Eh bien, j’ai entendu [ce que le dernier esprit a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-25-1-jep-john-calhoun/) et je veux simplement dire que la teneur de son discours est sage et doit être suivie ; mais, comme il le dit, il n’y a pas moyen de le faire connaître aux hommes auxquels il est destiné, et qui seuls peuvent l’appliquer.
 
@@ -32,6 +32,4 @@ Alors, en vous remerciant de votre gentillesse, je vous souhaite une bonne nuit.
 Raleigh.
 <small>
 
-1. <large id="f1"> **Walter Raleigh** (né dans le Devon en 1552 1 et décapité, sous l'accusation de trahison, le 29 Octobre 1618 à la tour de Londres), est un écrivain, poète, courtisan, officier et explorateur anglais. Il a séduit et épousé secrètement une des filles d'honneur de la reine Elisabeth 1er.[↩](#a1) 
-
-
+1. <large id="f1"> **Walter Raleigh** (né dans le Devon en 1552 1 et décapité, sous l'accusation de trahison, le 29 Octobre 1618 à la tour de Londres), est un écrivain, poète, courtisan, officier et explorateur anglais. Il a séduit et épousé secrètement une des filles d'honneur de la reine Elisabeth 1er.[↩](#a1)

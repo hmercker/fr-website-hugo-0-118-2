@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Paul – Quel est le corps réel qui est ressuscité au moment de la mort physique (Suite)<sup id="a1">[1](#f1)</sup>
+### Paul – Quel est le corps réel qui est ressuscité au moment de la mort physique (Suite) <sup id="a1">[1](#f1)</sup>
 
 St Paul - reçu par James Padgett le 5 Octobre 1916, Washington, USA.
 

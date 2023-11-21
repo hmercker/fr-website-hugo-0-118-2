@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### John H. Padgett : Affirmation que la grand-mère de M. Padgett a écrit le message « Qui et qu’est ce que Dieu ? »<sup id=”a1”>[1](#f1)</sup>
+### John H. Padgett : Affirmation que la grand-mère de M. Padgett a écrit le message « Qui et qu’est ce que Dieu ? » <sup id="a1">[1](#f1)</sup>
 
 John H Padgett - reçu par James Padgett le 25 Février 1916, Washington, USA.
 
@@ -26,6 +26,4 @@ Mais je dois arrêter d’écrire sur ce sujet ou tu vas penser que je vais t’
 Avec tout mon amour, je suis ton père aimant, John H. Padgett.
 <small>
 
-1. <large id=”f1”> Ce message est publié dans le Volume 1, deuxième édition française, à la page 72 et dans le volume III à la page 148  sous le titre *« Écrit sur la première prise de conscience des infidèles lorsqu’ils viennent dans le monde des esprits qu’il doit y avoir un Dieu »*. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
-
-
+1. <large id="f1"> Ce message est publié dans le Volume 1, deuxième édition française, à la page 72 et dans le volume III à la page 148  sous le titre *« Écrit sur la première prise de conscience des infidèles lorsqu’ils viennent dans le monde des esprits qu’il doit y avoir un Dieu »*. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

@@ -43,5 +43,3 @@ Votre ami et frère, Jésus.
 <small>
 
 1. <large id="f1"> Ce que Jésus veut dire ici, c’est que le Pasteur Russell dirigera son attention vers ses disciples jusqu’à ce que le dernier ait abandonné ce qu’il leur a enseigné, mais le Pasteur Russell pourra progresser, et même devenir un esprit Céleste, tout comme Martin Luther. Le souvenir de son faux enseignement est ce qui l’amènera à dépenser une grande partie de ses énergies à essayer de défaire ce qu’il a enseigné, mais le souvenir ne sera pas si dur qu’il ne pourra jouir des Cieux vers lesquels il progressera sans aucun doute.[↩](#a1)
-
-

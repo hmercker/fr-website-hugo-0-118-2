@@ -43,12 +43,11 @@ Eh bien, mon cher garçon, j’ai assez écrit pour ce soir et je vais m’arrê
 
 Tu as mon amour et mon influence pour t’aider de toutes les manières, et aussi mes prières au Père pour ton développement spirituel. Alors, avec ma bénédiction, je te souhaite une bonne nuit.
 
-Ta grand-mère bien aimée.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Ta grand-mère bien aimée.
 
-1. <large id=”f1”> *Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*.[↩](#a1)
+**Note :** Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Anne Rollins | [L’importance d’obtenir l’Amour Divin dans l’âme.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-12-2-jep-ann-rollins/) | 12 Décembre 1914
-Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) | 13 Mai 1915
+Anne Rollins | [L’importance d’obtenir l’Amour Divin dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-12-2-jep-ann-rollins/) | 12 Décembre 1914
+Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) | 13 Mai 1915

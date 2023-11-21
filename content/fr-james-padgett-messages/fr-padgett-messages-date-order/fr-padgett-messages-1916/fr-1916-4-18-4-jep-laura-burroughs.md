@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Laura Burroughs écrit qu’elle est si reconnaissante de connaître la vérité<sup id=”a1”>[1](#f1)</sup>.
+### Laura Burroughs écrit qu’elle est si reconnaissante de connaître la vérité <sup id="a1">[1](#f1)</sup>
 
 Laura Burroughs - reçu par James Padgett le 18 Avril 1916, Washington, USA.
 
@@ -29,4 +29,3 @@ Ta cousine qui t’aime, Laura.
 <small>
 
 1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
-

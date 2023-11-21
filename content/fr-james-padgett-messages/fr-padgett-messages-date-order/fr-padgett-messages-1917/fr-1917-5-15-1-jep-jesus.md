@@ -45,7 +45,7 @@ Alors, comme je l’ai dit, cet Amour Divin du Père, lorsqu’il est possédé 
 
 Ensuite, le seul chemin pour entrer dans le Royaume Céleste est la Nouvelle Naissance, et cette naissance n’est apportée aux hommes que par l’afflux et le fonctionnement de cet Amour Divin. Qu’un homme vive ou non cette naissance est sous son entière responsabilité. La question est seulement de savoir comment ou de quelle manière un homme peut obtenir cet Amour Divin et cette Nouvelle Naissance et le Royaume Céleste. Et parce que le chemin est si facile et simple, il se peut que les hommes doutent de la vérité de mon explication et continuent à croire et à mettre tous leurs espoirs dans les doctrines orthodoxes de l’expiation déléguée – le lavage du sang, mes souffrances sur la croix en portant tous les péchés du monde, et ma résurrection des morts – des doctrines aussi nuisibles au salut de l’humanité qu’elles sont sans vérité ou fondement.
 
-Le seul chemin est simplement ceci :  *« Que les hommes croient, avec toute la sincérité de leurs esprits et de leurs âmes, que ce Grand Amour du Père attend d’être accordé à chacun d’eux, et que, lorsqu’ils viennent au Père dans la foi et les aspirations sérieuses, cet amour ne peut pas être retenu d’eux. En plus de cette croyance, les hommes doivent prier avec toute la joie et l’envie de leurs âmes afin d’ouvrir leurs âmes à l’afflux de cet Amour, et afin que puisse venir à eux l’Esprit Saint qui apporte cet Amour dans leurs âmes en une telle abondance que leurs âmes se transformeront en l’Essence même de l’Amour du Père. »*<sup id=”a1”>[1](#f1)</sup>
+Le seul chemin est simplement ceci :  *« Que les hommes croient, avec toute la sincérité de leurs esprits et de leurs âmes, que ce Grand Amour du Père attend d’être accordé à chacun d’eux, et que, lorsqu’ils viennent au Père dans la foi et les aspirations sérieuses, cet amour ne peut pas être retenu d’eux. En plus de cette croyance, les hommes doivent prier avec toute la joie et l’envie de leurs âmes afin d’ouvrir leurs âmes à l’afflux de cet Amour, et afin que puisse venir à eux l’Esprit Saint qui apporte cet Amour dans leurs âmes en une telle abondance que leurs âmes se transformeront en l’Essence même de l’Amour du Père. »* <sup id="a1">[1](#f1)</sup>
 
 L’homme qui croira et priera ne sera jamais déçu, et le chemin vers le royaume sera le sien aussi certainement que le soleil brille, jour après jour, sur les justes et les injustes. Aucun médiateur n’est nécessaire, ni les prières ou les cérémonies des prêtres ou des prédicateurs, car Dieu vient à l’homme lui-même, et écoute ses prières et y répond en envoyant le Consolateur, qui est le messager du Père pour transmettre dans les âmes des hommes ce grand Amour Divin. J’ai donc expliqué le seul chemin vers le Royaume Céleste de Dieu et pour la nature divine dans l’amour; et il n’y a pas d’autre moyen par lequel il est possible d’atteindre ce royaume et la connaissance certaine de l’immortalité.
 
@@ -53,15 +53,14 @@ Alors, j’implore les hommes de méditer sur ces grandes vérités et, en médi
 
 J’ai terminé et j’ai l’impression que vous avez reçu mon message comme je le voulais et je suis ravi. Je n’écrirai pas plus maintenant, et avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id=”f1”> Ce sont les mots contenus dans [la prière.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/).[↩](#a1)
-
-2. <large id=”f2”> *Jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux dans les messaes suivants :.*[↩](#a2)
+**Note :** Jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux dans les messaes suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-27-1-jep-jesus/) | 27 Juin 1916
-Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/) | 05 Mai 1917
+Jésus | [Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-1-jep-jesus/) | 05 Mai 1917
+<small>
 
+1. <large id="f1"> Ce sont les mots contenus dans [la prière.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/).[↩](#a1)

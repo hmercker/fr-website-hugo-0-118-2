@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Un célibataire endurci décide qu’il va essayer de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur<sup id="a1">[1](#f1)</sup>
+### Un célibataire endurci décide qu’il va essayer de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur <sup id="a1">[1](#f1)</sup>
 
 George E Luckett - reçu par James Padgett le 19 Janvier 1917, Washington, USA.
 

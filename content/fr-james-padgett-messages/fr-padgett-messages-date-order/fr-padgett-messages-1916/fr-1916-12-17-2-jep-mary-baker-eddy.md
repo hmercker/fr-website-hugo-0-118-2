@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le témoignage de Mme Eddy Bakker<sup id="a1">[1](#f1)</sup>
+### Le témoignage de Mme Eddy Bakker <sup id="a1">[1](#f1)</sup>
 
 Mme Eddy Baker - reçu par James Padgett le 17 Décembre 1916, Washington, USA.
 
@@ -26,4 +26,4 @@ Bonne nuit.
 Mme Eddy.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume II, deuxième édition française, à la page 202 et dans le volume IV à la page 236. Pour plus de détails,[vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume II, deuxième édition française, à la page 202 et dans le volume IV à la page 236. Pour plus de détails,[vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

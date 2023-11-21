@@ -32,7 +32,7 @@ Mais le problème ici est que la science n’enseigne pas les choses spirituelle
 Eh bien, comme vous laissez entendre que vous êtes fatigué, je vais m’arrêter, et je vais bientôt venir terminer ma communication.
 Oui, et je suis heureux que vous le ressentiez ainsi. Vous avez ici de nombreux esprits qui désirent écrire et certains d’entre eux sont des esprits si élevés et si sages que je sens que leurs écrits vous seront plus utiles que les miens.
 
-Oui, je suis souvent avec elle<sup id="a1">[1](#f1)</sup>, et c’est un esprit merveilleux, remplie d'amour et de sagesse, qui a une connaissance si profonde et si merveilleuse de Dieu et de Son Amour. Je l’adore presque, et je sens que si je ne l’avais pas rencontrée, je ne serais probablement pas là où je suis maintenant. Je vous le dis, je suis reconnaissant d’être venu à vous cette nuit-là.
+Oui, je suis souvent avec elle <sup id="a1">[1](#f1)</sup>, et c’est un esprit merveilleux, remplie d'amour et de sagesse, qui a une connaissance si profonde et si merveilleuse de Dieu et de Son Amour. Je l’adore presque, et je sens que si je ne l’avais pas rencontrée, je ne serais probablement pas là où je suis maintenant. Je vous le dis, je suis reconnaissant d’être venu à vous cette nuit-là.
 
 Oui, je vois votre femme assez fréquemment et elle est un esprit merveilleusement beau et heureux, et elle rend tant d’autres esprits heureux par sa bonté et son aide. C’est aussi un esprit très positif et elle ne laisse rien entraver son travail et sa mission.
 

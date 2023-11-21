@@ -9,7 +9,7 @@ weight:
 ---
 ### Paroles d’encouragement
 
-Hélène Padgett - reçu par James Padgett le 6 Mai 1917<sup id="a1">[1](#f1)</sup>, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 6 Mai 1917 <sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 C’est moi, ta vraie et bien aimée Hélène.
 

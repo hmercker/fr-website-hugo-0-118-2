@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean donne les raisons pour lesquelles des corrections doivent être effectuées dans le Nouveau Testament et que Jacques est le vrai frère de Jésus<sup id="a1">[1](#f1)</sup>
+### Jean donne les raisons pour lesquelles des corrections doivent être effectuées dans le Nouveau Testament et que Jacques est le vrai frère de Jésus <sup id="a1">[1](#f1)</sup>
 
 St Jean - reçu par James Padgett le 28 Août 1916, Washington, USA.
 

@@ -55,8 +55,7 @@ Et oui, si vous pouviez voire les résultats de ces péchés sur la nature spiri
 
 Eh bien, j’ai assez écrit pour ce soir. J’espère que ce que j’ai dit pourra être compris et médité par tous ceux qui pourront le lire ce message. Je ne vais pas vous retenir plus longtemps, et avec mon amour, et la bénédiction de celui qui est maintenant non seulement l’homme parfait mais un possesseur de la Nature Divine du Père et héritier de l’immortalité, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Luc.<sup id=”a1”>[1](#f1)</sup>
+Votre frère en Christ, Luc. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Une clarification concernant ce message a été reçue, de Luc, [le lendemain](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-10-1-jep-st-luke/).*[↩](#a1)
-
+1. <large id="f1"> *Une clarification concernant ce message a été reçue, de Luc, [le lendemain](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-10-1-jep-st-luke/).*[↩](#a1)

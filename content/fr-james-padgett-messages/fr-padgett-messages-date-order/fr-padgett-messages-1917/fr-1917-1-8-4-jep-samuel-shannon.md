@@ -29,7 +29,7 @@ Eh bien, je vais examiner ce que vous suggérez et, comme vous le dites, cela ne
 
 Eh bien, mon ami, je suis heureux d’avoir pu vous écrire ce soir et d’avoir pu exprimer mes pensées amicales, car je suis un amoureux de l’humanité et je souhaite faire tout le bien que je peux à mon prochain. Je dois m’arrêter maintenant, car un esprit qui se dit votre âme-sœur, vient à moi et me dit que j’ai été assez complaisant, et, bien entendu, désireux de m’éloigner d’elle, comme de toutes les autres femmes, je dois partir ; mais vous devez penser à ce que j’ai écrit.
 
-Votre ami, Samuel P. Shannon, un ancien scientiste anglais.<sup id="a1">[1](#f1)</sup>
+Votre ami, Samuel P. Shannon, un ancien scientiste anglais. <sup id="a1">[1](#f1)</sup>
 <small>
 
 1. <large id="f1"> Dans son contexte, cette communication est risible, mais elle illustre un problème sérieux pour la médiumnité en général – le fait qu’il existe des esprits très opiniâtres dont la connaissance est limitée et qui, sans un critère permettant de les mesurer, pourraient être prises au sérieux. Un très bon guide de la pertinence d’un esprit est en fait son humilité couplée à l’amour qu’ils affichent et leur manque de volonté de contrôler ceux qu’ils guident. Dans mon cas Je devient immédiatement méfiant lorsqu’un esprit croit en la réincarnation, mais bien-entendu cela fonctionne pour moi car je suis certain de l’inexactitude de cette croyance. (Geoff Cutler)*.[↩](#a1)

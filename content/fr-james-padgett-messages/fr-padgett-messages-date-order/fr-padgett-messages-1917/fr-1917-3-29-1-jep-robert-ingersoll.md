@@ -11,7 +11,7 @@ weight:
 
 Robert Ingersoll - reçu par James Padgett le 29 Mars 1917, Washington, USA.
 
-C’est moi, Robert G. Ingersoll.<sup id="a1">[1](#f1)</sup>
+C’est moi, Robert G. Ingersoll. <sup id="a1">[1](#f1)</sup>
 
 Je viens en premier parce que je suis plus modeste que les autres esprits qui sont présents, et je vais dire quelques mots et ensuite laisser la place aux autres.
 

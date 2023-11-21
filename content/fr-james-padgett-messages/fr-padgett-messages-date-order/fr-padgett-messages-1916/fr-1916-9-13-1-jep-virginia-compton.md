@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Un esprit qui a égaré les jeunes filles<sup id="a1">[1](#f1)</sup>
+### Un esprit qui a égaré les jeunes filles <sup id="a1">[1](#f1)</sup>
 
 Virginia Compton - reçu par James Padgett le 13 Septembre 1916, Washington, USA.
 
