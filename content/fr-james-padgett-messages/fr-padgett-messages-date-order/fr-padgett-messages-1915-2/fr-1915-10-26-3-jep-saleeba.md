@@ -21,7 +21,7 @@ Je suis si heureuse [d’avoir pu entrer par effraction](/fr-james-padgett-messa
 
 Je n’ai encore trouvé aucune personne de ma race dans ces sphères de l’âme, mais il y en a peut-être quelques-unes. Mais si je peux l’accomplir, il y en aura quelques-unes dans ma sphère très bientôt.
 
-*[Question]*
+*[Question :]*
 
 J’ai oublié beaucoup de choses en rapport avec ma vie terrestre, mais je me souviens de mes parents et de certains de mes associés et de certaines parties de mes croyances religieuses. Et un jour, je vous en parlerai.
 
@@ -33,14 +33,13 @@ Je reviendrai bientôt partager avec vous ce que j’ai promis.
 
 Alors je vous souhaite une bonne nuit.
 
-Votre amie et sœur, Saleeba.<sup id=”a1”>[1](#f1)</sup> 
-<small>
+Votre amie et sœur, Saleeba.
 
-<large id=”f1”> *Saleeba a commenté son expérience de progression par les messages suivants :*.[↩](#a1)
+**Note :** Saleeba a commenté son expérience de progression par les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saleeba | [Un ancien esprit de la sixième sphère recherche de l’aide.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-1-jep-saleeba/)  | 2 Juin 1915
-Saleeba |  [Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-1-jep-saleeba/) | 5 Juillet 1915
-Saleeba | [Saleeba progresse vers les Sphères Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-3-jep-saleeba/)   | 8 Octobre 1915
-Saleeba | [Saleeba partage sa progression dans l’obtention de l’Amour Divin.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/) | 16 Octobre 1915
+Saleeba | [Un ancien esprit de la sixième sphère recherche de l’aide](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-1-jep-saleeba/) | 2 Juin 1915
+Saleeba | [Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-1-jep-saleeba/) | 5 Juillet 1915
+Saleeba | [Saleeba progresse vers les Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-3-jep-saleeba/) | 8 Octobre 1915
+Saleeba | [Saleeba partage sa progression dans l’obtention de l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-16-2-jep-saleeba/) | 16 Octobre 1915

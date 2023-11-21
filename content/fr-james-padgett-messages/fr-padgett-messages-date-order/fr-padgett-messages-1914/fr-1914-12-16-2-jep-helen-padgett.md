@@ -15,7 +15,7 @@ C’est moi, Hélène.
 
 Tu as certainement impressionné [M. Riddle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-16-1-jep-ag-riddle/), car il essaie maintenant de prier comme tu le lui as suggéré. Mais tu ne dois pas laisser ton amour pour lui t’empêcher de sentir que nous voulons tous que tu pries pour nous aussi, car tu sembles avoir une telle foi que nous nous émerveillons de toi.
 
-*Question*
+*[Question :]*
 
 Non, pas cela, mais nous avons aussi besoin de tes prières, alors ne nous oublie pas. Je ne suis pas du tout égoïste en la matière, mais je veux que tu m’aides aussi.
 

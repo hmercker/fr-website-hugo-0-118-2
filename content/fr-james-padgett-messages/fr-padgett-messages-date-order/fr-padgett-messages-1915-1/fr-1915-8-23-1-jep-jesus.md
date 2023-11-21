@@ -27,7 +27,7 @@ Je vais m’arrêter maintenant et vous dire que vous serez bientôt dans l’é
 
 Votre ami et frère, Jésus.
 
-*Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
+**Note :** Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

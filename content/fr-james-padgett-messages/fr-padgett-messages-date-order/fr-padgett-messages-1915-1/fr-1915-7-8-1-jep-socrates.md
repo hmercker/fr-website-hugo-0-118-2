@@ -65,7 +65,7 @@ Je dois arrêter maintenant car j’ai écrit plus que je n’aurais dû le fair
 
 Votre ami et frère, Socrate : le philosophe grec d’autrefois, mais maintenant un Chrétien.
 
-**Note : Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :**
+**Note :** Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -26,7 +26,7 @@ Je suis S.B.S. <sup id=”a1”>[1](#f1)</sup> J’ai vécu dans la ville de New
 
 Votre frère en Christ, S.B.S.
 
-**Note : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes :**
+**Note :** Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

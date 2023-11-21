@@ -39,7 +39,7 @@ Alors, avec tous mes remerciements et mes meilleures salutations, je vous dis bo
 
 Saleeba.
 
-**Note : Saleeba a commenté son expérience de progression par les messages suivants :**
+**Note :** Saleeba a commenté son expérience de progression par les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

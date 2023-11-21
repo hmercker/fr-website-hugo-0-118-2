@@ -51,7 +51,7 @@ Eh bien, j’ai déjà écrit trop longtemps et je dois cesser. Aussi, avec mon 
 
 Votre frère spirituel, Jésus.
 
-**Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :**
+**Note :** Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

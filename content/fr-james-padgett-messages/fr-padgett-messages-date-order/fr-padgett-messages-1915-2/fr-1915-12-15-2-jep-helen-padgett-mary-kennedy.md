@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Dans un autre message commun, Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs<sup id="a1">[1](#f1)</sup>
+### Dans un autre message commun, Hélène et Marie plaisantent au sujet de leur amour pour leurs âmes sœurs <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett & Mary Kennedy - reçu par James Padgett le 15 Décembre 1915, Washington, USA.
 

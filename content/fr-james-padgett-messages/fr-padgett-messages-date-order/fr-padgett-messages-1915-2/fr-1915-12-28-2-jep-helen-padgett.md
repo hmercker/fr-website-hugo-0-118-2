@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’expérience de joie et de grandeur d’Hélène dans la troisième sphère Céleste<sup id="a1">[1](#f1)</sup>
+### L’expérience de joie et de grandeur d’Hélène dans la troisième sphère Céleste <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 28 Décembre 1915, Washington, USA.
 

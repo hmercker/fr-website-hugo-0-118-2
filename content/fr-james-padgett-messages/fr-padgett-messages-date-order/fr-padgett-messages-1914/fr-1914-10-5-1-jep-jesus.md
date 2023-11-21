@@ -29,7 +29,7 @@ Vous êtes mon élu sur terre pour proclamer ma bonne nouvelle de vie et d’amo
 
 Gardez Ses commandements et vous serez très heureux et recevrez bientôt la satisfaction qu’Il donne à Ses vrais enfants. Tournez-vous vers Lui dans toutes vos peines et vous trouverez le repos et la paix.
 
-*Des questions inconnues ?*
+*[Des questions inconnues ?]*
 
 Oui, dans un très court laps de temps, vous serez libre de consacrer toute votre attention à mes objets et à votre travail. Vous serez bientôt en état de laisser les choses de ce monde seules comme J’ai besoin de vous pour mon service. Laissez-moi vous dire que vous obtiendrez votre maison comme vous le désirez et que votre environnement sera harmonieux pour recevoir mes messages. Et vous serez avec votre fille pour vous garder heureux et libre de soins.
 

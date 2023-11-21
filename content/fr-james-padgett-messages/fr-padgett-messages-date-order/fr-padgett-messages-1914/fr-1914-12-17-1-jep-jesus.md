@@ -1,13 +1,13 @@
 ---
-title: "Première tentative pour délivrer un message formel. Mais M. Padgett n’était pas en état de le recevoir complètement."
+title: "Première tentative pour délivrer un message formel. Mais M. Padgett n’était pas en état de le recevoir complètement"
 menu_title: ""
-description: "Première tentative pour délivrer un message formel. Mais M. Padgett n’était pas en état de le recevoir complètement."
+description: "Première tentative pour délivrer un message formel. Mais M. Padgett n’était pas en état de le recevoir complètement"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True
 weight:
 ---
-### Première tentative pour délivrer un message formel. Mais M. Padgett n’était pas en état de le recevoir complètement.
+### Première tentative pour délivrer un message formel. Mais M. Padgett n’était pas en état de le recevoir complètement
 
 Jésus - reçu par James Padgett le 17 Décembre 1914, Washington, USA.
 
@@ -15,11 +15,11 @@ C‘est moi, Jésus.
 
 Je suis venu vous écrire mon premier message *[formel]* mais vous êtes trop faible pour le prendre. Je reviendrai quand vous serez plus fort. Vous n’êtes pas en état de recevoir ce que je dois écrire parce que vous êtes trop préoccupé par vos affaires terrestres. Je veux donc que vous laissiez ces choses se détacher entièrement de vous, car je ne peux vous communiquer les pensées que je désire que vous écriviez, jusqu’à ce que vous soyez totalement libéré de vos soucis terrestres. Soyez plus fidèle et vous serez plus en mesure de faire ce que je veux. Je ne reviendrai pas tant que vous ne serez pas libéré de ces soucis, car vous n’êtes pas en état de recevoir ce que je veux écrire tant que ces soucis existent.
 
-*[Question posée par M. Padgett, inconnue]*
+*[Question posée par M. Padgett, inconnue.]*
 
 Oui, je sais, mais vous n’avez pas réussi car je peux voir l’état de votre esprit et je sais que vous êtes trop préoccupé par les choses auxquelles vous avez pensé pendant la journée. Vous devez faire davantage confiance au Père.
 
-*[Autres questions et réponses]*
+*[Autres questions et réponses.]*
 
 Oui, je le fais. Laissez donc cette question en suspens.
 
@@ -31,7 +31,7 @@ Vous essayez d’apprendre la vérité à cet égard et vous progressez à un de
 
 Que votre foi en l’unique réalisation nécessaire se développe donc, et quand vous l’aurez pleinement réalisée, vous serez très heureux et dans le Royaume de Dieu. Je dois arrêter d’écrire maintenant, car vous n’êtes pas en état d’écrire plus.
 
-*[Question et réponse]*
+*[Question et réponse.]*
 
 Non, je reviendrai bientôt lorsque vous serez en état de me recevoir. Oui, je vous aimerai de tout mon cœur et je vous laisserai sentir que je suis en relation plus étroite avec vous et je vous conduirai à un plus grand bonheur à partir de maintenant jusqu’à ce que vous puissiez trouver l’amour plus étendu et plus grand de l’Esprit Saint. Il est avec vous dans une large mesure maintenant, mais pas aussi complètement que vous en avez besoin.
 

@@ -49,4 +49,4 @@ Oui, je vois le professeur assez souvent et il progresse spirituellement très m
 
 Tu es fatigué et je dois arrêter.
 
-Je suis plus que jamais ton véritable ami et partenaire, A. G. Ridle.
+Je suis plus que jamais ton véritable ami et partenaire, A. G. Riddle.

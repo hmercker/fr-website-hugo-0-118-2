@@ -31,4 +31,4 @@ Je semble avoir perdu le désir d’enquêter et d’écrire au sujet des choses
 
 Je vais donc m’arrêter ce soir.
 
-Votre vieil ami et Prof.., Joseph H. Salyards.
+Votre vieil ami et Prof. Joseph H. Salyards.

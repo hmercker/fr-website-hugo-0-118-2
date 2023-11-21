@@ -35,7 +35,7 @@ Vous serez bientôt en mesure de comprendre ce que je comprends. <sup id="a1">[1
 
 Bonne nuit. Jésus Christ.
 
-**Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :**
+**Note :** Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -51,4 +51,4 @@ Jésus | [La religion du futur sera complète et finale, fondée sur les Vérit�
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
 <small>
 
-1. <large id="f1"> *[Dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.*.[↩](#a1)
+1. <large id="f1"> [Dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), Judas explique que la retranscription du message ci-dessus ne reflète pas exactement ce que jésus a voulu dire.[↩](#a1)

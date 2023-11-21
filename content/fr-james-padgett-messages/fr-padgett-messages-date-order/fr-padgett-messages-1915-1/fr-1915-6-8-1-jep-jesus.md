@@ -41,7 +41,7 @@ Votre ami et frère,
 
 Jésus.
 
-**Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :**
+**Note :** Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

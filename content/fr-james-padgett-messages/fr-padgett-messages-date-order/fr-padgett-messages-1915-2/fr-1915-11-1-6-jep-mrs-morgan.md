@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La mère d’Eugène Morgan écrit<sup id="a1">[1](#f1)</sup>
+### La mère d’Eugène Morgan écrit <sup id="a1">[1](#f1)</sup>
 
 Mme Morgan - reçu par James Padgett le 1 Novembre 1915, Washington, USA.
 

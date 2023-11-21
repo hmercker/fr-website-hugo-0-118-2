@@ -19,7 +19,7 @@ J’aimerais pouvoir vous dire à quel point vous êtes un homme privilégié, m
 
 Je suis votre frère et ami, Saint Thomas le sceptique.
 
-*[M. Padgett a posé une question]*
+*[M. Padgett a posé une question :]*
 
 Parce que je n’ai pas cru lorsqu’on m’a dit que le Maître était ressuscité d’entre les morts.
 

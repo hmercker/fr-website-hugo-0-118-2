@@ -49,7 +49,7 @@ Je dois donc dire que je te suis redevable de m’avoir mis en contact avec un t
 
 J’avais l’intention d’écrire sur un autre sujet ce soir, mais comme je pensais que tu serais intéressé de connaître le résultat de notre entretien, j’ai conclu de te le dire plutôt que d’écrire sur l’autre sujet. Je n’écrirai donc pas plus, car d’autres esprits attendent d’écrire. Alors, mon cher garçon et partenaire, je suis ton ami et frère aimant, comme toujours.
 
-A. G. Ridle.
+A. G. Riddle.
 <small>
 
 1. <large id="f1"> **Gamaliel l’Ancien, ou Rabbi Gamaliel Ier**, était une autorité de premier plan au sein du Sanhédrin au milieu du premier siècle. Petit-fils du grand maître Juif Hillel l’Ancien, il est mort vingt ans avant la destruction du deuxième temple de Jérusalem. Il a eu un fils, qu’il a appelé Siméon, du nom de son père, et une fille, dont la fille (c’est-à-dire la petite-fille de Gamaliel) a épousé un prêtre nommé Simon ben Nathanael. Le nom Gamaliel est la forme grecque du nom hébreu qui signifie récompense de Dieu. Dans la tradition Chrétienne, Gamaliel est célébré comme un Pharisien docteur en droit juif, qui fut le maître de l’apôtre Paul ; l’auteur du livre des Actes des Apôtres dépeint Gamaliel avec beaucoup de respect. (Source : Wikipedia) (G.J.C.)[↩](#a1)

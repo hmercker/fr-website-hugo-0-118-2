@@ -29,4 +29,4 @@ Je vous souhaite donc bonne nuit et bonne chance. Je suis votre ami maintenant, 
 
 Jules César.
 
-*Note : Jules César [est revenu un an plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) pour confirmer qu’il est maintenant sorti des enfers.*
+**Note :** Jules César [est revenu un an plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) pour confirmer qu’il est maintenant sorti des enfers.

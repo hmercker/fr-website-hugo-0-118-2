@@ -15,4 +15,4 @@ C’est moi Hélène, tu es trop aimé du Maître pour être malheureux. Alors l
 
 Hélène.
 
-*Note : La date indiquée ici repose sur l’ordre des messages comme publié dans le Volume 2. Il est donc supposé avoir la même date que le message précédent dans ce volume d’Anne Rollins.*
+**Note :** La date indiquée ici repose sur l’ordre des messages comme publié dans le Volume 2. Il est donc supposé avoir la même date que le message précédent dans ce volume d’Anne Rollins.

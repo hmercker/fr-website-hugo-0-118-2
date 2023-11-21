@@ -36,4 +36,4 @@ Je reviendrai un jour ou l’autre, et en attendant, je vous assure que vous ave
 Napoléon, le premier, et en tant que grand empereur, le dernier.<sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id="f1"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1) 
+1. <large id="f1"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)

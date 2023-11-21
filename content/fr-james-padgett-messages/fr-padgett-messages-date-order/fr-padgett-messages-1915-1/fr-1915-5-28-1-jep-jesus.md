@@ -43,7 +43,7 @@ Quand la Bible parle de ces hommes des temps anciens qui étaient des prophètes
 
 Comme je l’ai dit, ma mort ou sacrifice par le sang, comme il est souligné dans les croyances et le culte des églises, n’a pas, dans le moindre degré, contribué à la restauration de cette grande faveur de Dieu à l’homme. Ils furent simplement les résultats des conditions des croyances des hommes de la nation Juive qui ne toléreraient pas mes déclarations de vérité. Ma mort, etc., n’a pas apaisé une quelconque colère de Dieu envers les hommes ; mais, en raison de Son Grand Amour envers Ses créatures, Il accordé ce don, ou privilège de l’âme, que l’homme avait perdu par la désobéissance d’Adam.
 
-*[Question]*
+*[Question :]*
 
 C’est la désobéissance dans la croyance qu’il n’était pas dépendant de Dieu pour la qualité de l’âme ou la potentialité qui rend possible pour lui de prendre part à la nature Divine de Dieu. L’arbre de la connaissance du bien et du mal représentait seulement la connaissance que Dieu s’est réservée à lui-même de l’existence de ce qui, si connue par Adam, l’aurait soumis aux tentations qui détruiraient cette qualité d’âme dont j’ai parlé. Et lorsqu’Adam a mangé du fruit de cet arbre – c’est à dire quand il a désobéi à Dieu et a cherché la connaissance de ces choses qui le soumettaient aux tentations qui pourraient lui causer de cesser d’être de toute bonté – Dieu a supprimé la potentialité pour Adam de devenir un avec lui et immortel. Ce fut une punition directe pour la désobéissance, et le résultat fut que l’homme fut laissé simple homme, comme un mortel ou un esprit.
 
@@ -73,7 +73,7 @@ Je dois arrêter maintenant,- et vous donner ma bénédiction et la bénédictio
 
 Votre ami et frère, Jésus.
 
-**Note : Il y a plusieurs autres messages sur le thème de l'immortalité :**
+**Note :** Il y a plusieurs autres messages sur le thème de l'immortalité :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

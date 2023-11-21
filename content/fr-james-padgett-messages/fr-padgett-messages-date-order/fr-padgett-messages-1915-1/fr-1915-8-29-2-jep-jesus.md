@@ -35,7 +35,7 @@ Faites donc ce que je dis, et surtout ayez foi dans le Père et ayez confiance e
 
 Alors, avec tout mon amour, je suis votre ami et Frère, Jésus.
 
-**Note : Jésus s’est également exprimé sur le sujet de la prière dans les messages suivants :**
+**Note :** Jésus s’est également exprimé sur le sujet de la prière dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

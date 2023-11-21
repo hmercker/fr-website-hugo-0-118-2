@@ -27,7 +27,7 @@ Je n’écrirai pas plus ce soir.
 
 Alors avec mon amour et mes pensées les plus aimables, je suis, votre sœur en Christ, Saleeba.
 
-**Note : Saleeba a commenté son expérience de progression par les messages suivants :**
+**Note :** Saleeba a commenté son expérience de progression par les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

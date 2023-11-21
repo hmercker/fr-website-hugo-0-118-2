@@ -21,21 +21,19 @@ Je sais combien il est difficile pour le mental de concevoir, même faiblement, 
 
 Bien sûr, les hommes ne comprendront pas cette vérité tant qu’ils dépendront de leur simple intellect pour la comprendre, et pour eux cela ne signifie peut-être pas grand-chose ; mais c’est de la plus grande importance pour l’humanité, tant dans leur vie sur terre que dans le monde des esprits. « Tu es le Dieu qui me voit  » n’est pas une simple généralité dénuée de sens que les hommes répètent et ne comprennent pas, car Dieu voit tout acte de l’homme ; et comme je l’ai dit sur terre, pas même un moineau ne tombe sans que mon Père le sache, et les cheveux de votre tête sont tous numérotés. Ainsi, si les hommes apprenaient seulement la grande importance de cette grande vérité, ils feraient plus attention à la manière dont ils vivent leur vie.
 
-*[Je ne suis pas déconcerté par l’interruption]*
+*[Je ne suis pas déconcerté par l’interruption :]*
 
 Comme je le disais, les hommes doivent se rendre compte que Dieu connaît non seulement leurs actes, mais aussi leurs pensées, et qu’il leur faudra rendre compte de toute pensée oisive, et qu’il leur faudra payer les pénalités que ses lois imposent. Donc, si seulement les hommes se rendaient compte de ce fait, que Dieu est capable de voir et de savoir ce que sont leurs vies sur terre, ils réfléchiraient à deux fois avant d’accomplir certains actes, en présumant que personne d’autre qu’eux-mêmes ne les connaissent. Je suis très heureux que le professeur vous ait écrit sur ce sujet cette nuit, car il est très important, dans notre plan, de révéler les vérités de Dieu et ses attributs.
 
-Très bientôt, je vous écrirai un autre message, un message qui sera très important pour l’humanité. Je reviendrai bientôt, et je partagerai certaines choses que vous devez connaître. Alors, avec tout mon amour et mes bénédictions, je suis, votre propre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Très bientôt, je vous écrirai un autre message, un message qui sera très important pour l’humanité. Je reviendrai bientôt, et je partagerai certaines choses que vous devez connaître. Alors, avec tout mon amour et mes bénédictions, je suis, votre propre frère et ami, Jésus.
 
-1. <large id=”f1”> *Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu ?". Ils peuvent être lus par les liens suivants :*[↩](#a1)
+**Note :** Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu ?". Ils peuvent être lus par les liens suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Professeur salyards |  [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/\fr-1915-11-21-1-jep-joseph-salyards/) | 21 Novembre 1915
+Professeur salyards | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/\fr-1915-11-21-1-jep-joseph-salyards/) | 21 Novembre 1915
 Jésus | [La personalité de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/) | 22 Novembre 1915
 Luc | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/) | 22 Novembre 1915
-Anne Rollins | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-[padgett]-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/) |  18 Février 1916 
+Anne Rollins | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-[padgett]-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/) |  18 Février 1916
 Anne Rollins | [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/) | 25 Février 1916
 Jésus | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/) | 25 Mai 1917
-

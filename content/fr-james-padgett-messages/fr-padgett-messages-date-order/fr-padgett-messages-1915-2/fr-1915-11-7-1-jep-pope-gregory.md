@@ -11,7 +11,7 @@ weight:
 
 Le pape Grégoire - reçu par James Padgett le 7 Novembre 1915, Washington, USA.
 
-Je suis, Grégoire.<sup id="a1">[1](#f1)</sup>
+Je suis, Grégoire. <sup id="a1">[1](#f1)</sup>
 
 Je fus le grand pape de Rome qui a tant fait pour établir l’Église Romane sur une base solide et pour étendre ses pouvoirs et son influence à travers le monde.
 

@@ -39,7 +39,7 @@ Bien sûr, ces esprits peuvent aussi recevoir ce plus grand développement de l�
 
 Je sais qu’il peut être un peu difficile pour toi de comprendre cette question telle que j’ai essayé de l’expliquer, mais ce que j’ai dit est vrai. Au jour de la séparation, ces esprits se rendront compte de ce fait, mais il sera alors trop tard pour remédier à leur négligence ou manque du désir de l’âme pour le développement de l’âme. Celui-ci ne vient que par l’afflux de l’Amour Divin dans l’âme en abondance suffisante, et qui est nécessaire pour leur permettre de devenir des habitants du Royaume Céleste.
 
-*[Question]*
+*[Question :]*
 
 Eh bien, quand un esprit entre dans le monde des esprits, son état de développement mental, moral ou spirituel détermine où il doit d’abord vivre. Dans la grande majorité des cas, le premier foyer de l’esprit est le plan terrestre, lequel comporte un certain nombre de plans, respectivement plus hauts ou plus bas que les autres. Ainsi, lorsque l’esprit se trouve dans le plan terrestre, il découvre aussi que sa condition n’est pas très différente de ce qu’elle était sur terre. Les mêmes idées de bien et de mal, de croyances, d’affections et de désirs s’acquièrent.
 

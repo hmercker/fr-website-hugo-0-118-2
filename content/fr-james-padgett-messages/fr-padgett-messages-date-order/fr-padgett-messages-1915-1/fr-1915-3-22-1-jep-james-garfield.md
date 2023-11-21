@@ -25,7 +25,7 @@ Vous avez peut-être raison, j’ai peut-être tort. Je vais interroger Riddle s
 
 J’en ai rencontré quelques-uns (les membres du groupe de M. Padgett), et ils sont tous très beaux et heureux, surtout votre femme. C’est un esprit merveilleusement beau et tellement aimable et généreux. Je lui ai parlé plusieurs fois, et elle m’a parlé du merveilleux Amour du Père, comme elle l’appelle ; mais je pensais qu’elle n’était qu’une enthousiaste et une croyante en une doctrine que les jeunes peuvent facilement croire, et faire de leur foi une réalité.
 
-*[Question et réponse]*
+*[Question et réponse :]*
 
 Non, mais je le ferai. Je vais demander une entrevue avec votre grand-mère, et je n’ai aucun doute qu’elle me ‘accordera. Je vais l’écouter, comme vous dites.
 

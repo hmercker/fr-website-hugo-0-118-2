@@ -59,7 +59,7 @@ Donc merci pour votre patience, je vais arrêter maintenant. J’espère, cepend
 
 Très cordialement, Henry Ward Beecher.
 
-**Note : Il y a plusieurs autres messages communiqués respctivement par Jésus, Gottfried Leibnitz et St Luc sur l’immortalité :**
+**Note :** Il y a plusieurs autres messages communiqués respctivement par Jésus, Gottfried Leibnitz et St Luc sur l’immortalité :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

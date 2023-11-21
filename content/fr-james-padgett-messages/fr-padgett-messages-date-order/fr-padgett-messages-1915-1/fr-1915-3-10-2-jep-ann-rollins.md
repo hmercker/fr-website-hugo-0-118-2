@@ -29,7 +29,7 @@ Nous sommes engagés dans l’étude des choses qui se rapportent davantage aux 
 
 Oui, nous avons, toutes et tous, nos bibliothèques et nos maisons, comme Hélène te l’a dit, mais, bien sûr, il y a une grande différence entre ces maisons, en fonction de la quantité d’Amour que l’esprit a dans son âme. Je vis maintenant dans une maison si belle que je ne pourrais pas, dans le court laps de temps de mon écriture ce soir, te la décrire ; mais [bientôt je le ferai en détail](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/), et alors tu pourras réaliser ce que c’est une maison.
 
-*[Commentaire de M. Padgett]*
+*[Commentaire de M. Padgett :]*
 
 Eh bien, ne crois pas tout ce que tu as lu dans le livre que tu viens de lire bien qu’il est dit avoir été écrit par des esprits, parce que, même s’il en est ainsi, l’information donnée dépend de la condition, de la connaissance et de la croyance de ces esprits. Certains peuvent dire la vérité exacte telle qu’ils la conçoivent, mais ce n’est peut-être pas la vérité.
 
@@ -52,7 +52,7 @@ Alors, avec tout mon amour, je suis ta propre grand-mère aimante.
 
 Anne Rollins.
 
-**Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :**
+**Note :** Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

@@ -21,14 +21,13 @@ Oui, c’est ce que je veux, et vous semblez comprendre exactement ce qui est n�
 
 Je n’écrirai pas plus, mais je vous souhaiterai une bonne nuit.
 
-Votre sœur en Christ, Saleeba.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre sœur en Christ, Saleeba.
 
-1. <large id=”f1”> *Saleeba a commenté son expérience de progression par les messages suivants :*.[↩](#a1)
+**Note :** Saleeba a commenté son expérience de progression par les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saleeba | [Un ancien esprit de la sixième sphère recherche de l’aide.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-1-jep-saleeba/)  | 2 Juin 1915
-Saleeba |  [Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-1-jep-saleeba/) | 5 Juillet 1915
-Saleeba | [Saleeba progresse vers les Sphères Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-3-jep-saleeba/)   | 8 Octobre 1915
-Saleeba | [Saleeba est descendue vers la troisième sphère pour développer son âme.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-26-3-jep-saleeba/)   | 26 Octobre 1915
+Saleeba | [Un ancien esprit de la sixième sphère recherche de l’aide](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-1-jep-saleeba/) | 2 Juin 1915
+Saleeba | [Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-1-jep-saleeba/) | 5 Juillet 1915
+Saleeba | [Saleeba progresse vers les Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-3-jep-saleeba/) | 8 Octobre 1915
+Saleeba | [Saleeba est descendue vers la troisième sphère pour développer son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-26-3-jep-saleeba/) | 26 Octobre 1915

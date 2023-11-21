@@ -19,7 +19,7 @@ Eh bien, j’ai entendu ce que le [Maître](/fr-james-padgett-messages/fr-padget
 
 Éliminez donc votre mental ces fausses doctrines et recevez les vérités que le Maître écrira de façon parfaitement impartiale, libre de toute idée préconçue.
 
-*[La réponse à la question de M. Padgett est la suivante]*
+*[La réponse à la question de M. Padgett est la suivante :]*
 
 Je voulais dire que beaucoup d’esprits essaieraient de communiquer avec l’homme et tenteraient d’enseigner de fausses doctrines sur Jésus et sa mission.
 
@@ -40,22 +40,20 @@ C’était une partie importante des services de nos réunions, et une partie qu
 En ce temps-là, guérir les malades et faire des choses semblables étaient une partie très importante de notre travail en tant que chrétiens. Nous croyions ce que Jésus nous avait dit sur la terre, et nous avons développé notre foi et accompli beaucoup d’œuvres, que les gens, qui ne croyaient pas comme nous, ont pensé être des miracles. Pour nous, la guérison des malades et le fait de faire ces autres choses étaient tout aussi naturels que de manger et de dormir. Je vous dis que notre foi était alors une certitude. Nous possédions la substance dont Paul parle, et nous nous efforcions de faire les choses comme nous efforcions de respirer et d’être capables de faire du bien matériel à nos frères.
 
 Mais, après quelques siècles, lorsque les hommes sont venus à l’église pour d’autres raisons que celle de recevoir la Nouvelle Naissance et de faire la volonté du Père, la foi, comme celle dont je vous parle, est morte, et le pouvoir de faire ces choses a été enlevé aux hommes, et l’église est devenue une congrégation d’hommes ayant le simple culte verbal.
+
 Et tout au long des siècles depuis lors jusqu’à aujourd’hui, cette puissance n’a pas été avec les hommes, sauf ici et là où un vrai croyant avec une foi telle que celle que nous avions est apparu, et a fait des choses merveilleuses.
 
 Alors je dis, ne laissez pas ce que la Bible peut dire à propos de Jésus étant Dieu et ayant ces autres qualités en référence au salut des hommes, vous déranger dans vos croyances en ce que le Maître peut vous écrire.
 
 Je n’écrirai plus ce soir, mais je vous dirai bonne nuit.
 
-Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère en Christ, Jean.
 
-1. <large id=”f1”> *Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*.[↩](#a1)
+**Note :** Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saint Jean | [Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/)   | 07 Septembre 1915
-Saint Jean |  [Il est important que l'homme cherche et trouve la vérité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-12-1-jep-st-john/)   | 12 Mai 1916
-Saint Jean | [Qu’est ce qu’un homme qui n’est satisfait avec aucune église doit faire.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-19-1-jep-st-john/) | 19 Octobre 1916
-Saint Jean | [Les hommes ou les prophètes ne peuvent pas dire ce qui va se passer dans les siècles à venir – cela ne peut être connu que par le Père.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/\fr-1918-3-10-1-jep-st-john/)   | 10 Mars 1918
-
-
+Saint Jean | [Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/) | 07 Septembre 1915
+Saint Jean | [Il est important que l'homme cherche et trouve la vérité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-12-1-jep-st-john/) | 12 Mai 1916
+Saint Jean | [Qu’est ce qu’un homme qui n’est satisfait avec aucune église doit faire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-19-1-jep-st-john/) | 19 Octobre 1916
+Saint Jean | [Les hommes ou les prophètes ne peuvent pas dire ce qui va se passer dans les siècles à venir – cela ne peut être connu que par le Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/\fr-1918-3-10-1-jep-st-john/) | 10 Mars 1918

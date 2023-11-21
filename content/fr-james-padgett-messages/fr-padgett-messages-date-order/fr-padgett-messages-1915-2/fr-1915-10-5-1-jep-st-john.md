@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean – sur l’importance de la prière afin que l’âme se développe et que le travail suive<sup id="a1">[1](#f1)</sup>
+### Jean – sur l’importance de la prière afin que l’âme se développe et que le travail suive <sup id="a1">[1](#f1)</sup>
 
 St Jean - reçu par James Padgett le 5 Octobre 1915, Washington, USA.
 
 C’est moi, Jean, l’apôtre de Jésus.
 
-Je suis l’apôtre, et vous n’avez pas besoin de me juger comme votre ami l’a dit, car aucun esprit ne peut se faire passer pour moi quand je suis présent. Vous devez donc me croire et essayer de recevoir ce que je peux écrire ce soir, dans la foi, et vous découvrirez que vous en tirerez profit. Je suis venu principalement pour vous dire que j’ai écouté la conversation entre vous deux<sup id="a2">[2](#f2)</sup> et la lecture du Sermon sur la Montagne qui nous a été donné par le Maître dans les jours d’il y a longtemps, comme vous diriez.
+Je suis l’apôtre, et vous n’avez pas besoin de me juger comme votre ami l’a dit, car aucun esprit ne peut se faire passer pour moi quand je suis présent. Vous devez donc me croire et essayer de recevoir ce que je peux écrire ce soir, dans la foi, et vous découvrirez que vous en tirerez profit. Je suis venu principalement pour vous dire que j’ai écouté la conversation entre vous deux <sup id="a2">[2](#f2)</sup> et la lecture du Sermon sur la Montagne qui nous a été donné par le Maître dans les jours d’il y a longtemps, comme vous diriez.
 
 Quand ce sermon a été prononcé, nous n’étions pas dans un état de grand développement spirituel, et nous n’avons pas compris sa signification intérieure, et quant à sa signification littérale, nous pensions qu’il n’était pas destiné aux affaires pratiques de la vie. Les gens, je le sais, pensent qu’à cette époque, nous étions très développés spirituellement et avions une compréhension des grandes vérités enseignées par le Maître, qui étaient supérieures à ce que les hommes ont maintenant, mais je vous dis que c’est une erreur. Nous étions des hommes relativement ignorants, des pêcheurs par occupation, et nous n’avions aucune éducation au-dessus du travailleur ordinaire de l’époque, et, lorsque Jésus nous a appelés à devenir ses apôtres, nous avons été aussi surpris et hésitants que vous l’avez été lorsque la mission similaire vous a été déclarée.
 

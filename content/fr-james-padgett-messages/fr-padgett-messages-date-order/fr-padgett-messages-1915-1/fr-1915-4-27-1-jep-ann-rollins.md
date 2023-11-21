@@ -29,7 +29,7 @@ Eh bien, je ne dois pas écrire plus ce soir car tu n’es pas en état d’écr
 
 Anne Rollins.
 
-**Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :**
+**Note :** Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

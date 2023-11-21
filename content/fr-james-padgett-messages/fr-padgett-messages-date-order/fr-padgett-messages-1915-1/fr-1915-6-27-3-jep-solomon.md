@@ -23,7 +23,7 @@ J’aimerais écrire davantage, mais vous êtes fatigué. Alors je vous souhaite
 
 Salomon le sage.
 
-**Note : Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :**
+**Note :** Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

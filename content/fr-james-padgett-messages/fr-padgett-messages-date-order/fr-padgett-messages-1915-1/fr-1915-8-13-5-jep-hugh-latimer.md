@@ -29,7 +29,7 @@ Mon cher frère, je dois m’arrêter maintenant, mais je reviendrai un jour pou
 
 Bien à vous, dans l’Amour, Hugh Latimer.
 
-**Note : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère spiituelle ou les Cieux Célestes.:**
+**Note :** Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère spiituelle ou les Cieux Célestes :
 
 **Auteur** | **Ttre du message** | **Date du message**
 ---|---|---

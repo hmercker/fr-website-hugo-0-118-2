@@ -9,7 +9,7 @@ weight:
 ---
 ### R.G Ingersoll était présent lorsque Jésus a écrit et montré sa gloire. Il n’est plus agnostique mais un croyant le plus repentant
 
-Robert Ingersoll<sup id="a1">[1](#f1)</sup> - reçu par James Padgett le 27 Septembre 1915, Washington, USA.
+Robert Ingersoll <sup id="a1">[1](#f1)</sup> - reçu par James Padgett le 27 Septembre 1915, Washington, USA.
 
 Je dois dire un mot, car mon cœur est tellement rempli de regrets, de remords, et de souvenirs de mes terribles erreurs sur terre, que je dois libérer mon âme de ses fardeaux dans la mesure où une confession permet de le faire.
 

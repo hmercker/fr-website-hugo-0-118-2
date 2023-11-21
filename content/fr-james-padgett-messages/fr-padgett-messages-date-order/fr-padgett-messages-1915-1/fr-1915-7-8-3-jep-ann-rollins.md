@@ -59,7 +59,7 @@ Je dois m’arrêter maintenant et, comme j’ai écrit depuis longtemps, tu doi
 
 Ta grand-mère aimante.
 
-**Note : Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :**
+**Note :** Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

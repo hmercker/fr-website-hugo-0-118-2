@@ -41,7 +41,7 @@ Je n’écrirai plus ce soir. Avec ma bénédiction et mon amour.
 
 Jésus.
 
-**Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :**
+**Note :** Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

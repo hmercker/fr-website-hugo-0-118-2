@@ -21,7 +21,7 @@ J’ai vécu à une époque où nous n’avions pas le privilège d’obtenir ce
 
 J’ai eu beaucoup d’expériences en enseignant aux enfants Hébreux qu’il n’y avait qu’un seul Dieu, mais, à cette époque, ma conception de Dieu n’était pas ce qu’elle est aujourd’hui. Je le considérais alors davantage comme un Dieu de colère et de jalousie que comme un Dieu d’Amour et de miséricorde.
 
-*[Question]*
+*[Question :]*
 
 Dans ma lutte avec les magiciens des Pharaons Égyptiens, j’ai reçu l’aide du monde des esprits et des pouvoirs inhabituels m’ont été donnés comme je n’en avais jamais eu auparavant et jamais eu par la suite ; mais c’était dans le but d’amener le roi à laisser le peuple de Dieu, comme nous nous appelions, quitter l’Égypte. Quand cela fut accompli, je n’ai plus jamais possédé ces pouvoirs et je n’en ai plus jamais eu l’occasion.
 
@@ -31,16 +31,14 @@ Ce pouvoir existe toujours, et si l’occasion se présente à nouveau, il sera 
 
 Je ne peux pas vous expliquer maintenant de quelle manière ces commandements ont été donnés par Dieu, car vous ne me comprendriez pas si j’essayais. Mais il suffit de dire que les anges supérieurs ont une telle perception de l’âme qu’ils peuvent recevoir et comprendre ces instructions du Père. Tout ceci est, je le sais, étrange pour vous, mais c’est la vérité, et même si vous ne le comprenez pas, vous ne devez pas douter qu’il y a une relation si étroite entre Dieu et Ses esprits Célestes qu’ils savent quelle est la volonté du Père. Je suis dans une Sphère Céleste et je suis très élevé, mais pas autant que les apôtres. Mais je suis assez élevé pour avoir la conviction de ce que je vous écris de ma propre connaissance. Je n’écrirai pas plus ce soir, mais je reviendrai un jour ou l’autre pour vous instruire sur les lois qui s’appliquent dans nos Sphères Célestes.
 
-Donc, avec tout mon amour, je dirai que je le suis, votre frère en Christ, Aaron le Prophète des temps anciens.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Donc, avec tout mon amour, je dirai que je le suis, votre frère en Christ, Aaron le Prophète des temps anciens.
 
-1. <large id=”f1”> *Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :*.[↩](#a1)
+**Note :** Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Salomon | [La position de Salomon dans les Sphères Célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-3-jep-solomon/) | 27 Juin 1915
-Socrate | [Socrate écrit sur son expérience de progression.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) | 08 Juillet 1915 
-Samuel  | [Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/) |   5 Août 1915
-Sarah   |[Sarah est maintenant Chrétienne.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah/)  |  23 Octobre 1915
-Platon  | [Platon, le disciple de Socrate est maintenant Chrétien.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/)  | 11 Novembre 1915
-
+Salomon | [La position de Salomon dans les Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-3-jep-solomon/) | 27 Juin 1915
+Socrate | [Socrate écrit sur son expérience de progression](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) | 08 Juillet 1915
+Samuel | [Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/) | 5 Août 1915
+Sarah | [Sarah est maintenant Chrétienne](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah/) |  23 Octobre 1915
+Platon | [Platon, le disciple de Socrate est maintenant Chrétien](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/) | 11 Novembre 1915

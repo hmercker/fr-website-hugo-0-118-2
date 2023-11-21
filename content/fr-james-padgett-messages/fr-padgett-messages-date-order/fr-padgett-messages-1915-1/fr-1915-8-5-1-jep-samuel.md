@@ -41,7 +41,7 @@ Eh bien, je dois arrêter. Alors, en vous remerciant pour votre amabilité, je v
 
 Samuel.
 
-**Note : Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :**
+**Note :** Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

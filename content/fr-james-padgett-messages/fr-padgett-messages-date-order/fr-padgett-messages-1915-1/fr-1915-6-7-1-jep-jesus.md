@@ -59,7 +59,7 @@ Eh bien, je pense que vous êtes trop somnolent maintenant pour continuer, et vo
 
 Votre frère et ami, Jésus.
 
-**Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :**
+**Note :** Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

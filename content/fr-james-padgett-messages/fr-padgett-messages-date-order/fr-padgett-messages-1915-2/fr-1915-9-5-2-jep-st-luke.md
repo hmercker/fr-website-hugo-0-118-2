@@ -25,16 +25,13 @@ Je sais qu’un grand nombre de membres des diverses Églises croient à cette d
 
 Parfois, au cours de mes messages futurs, je signalerai les erreurs de mon Évangile au point de vous montrer les nombreux ajouts et les mauvaises interprétations qui y ont été faites. Je vais arrêter maintenant.
 
-Votre frère en Christ, St. Luc.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère en Christ, St. Luc.
 
-1. <large id=”f1”> *Luc s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*.[↩](#a1)
+**Note :** Luc s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
-Saint Luc | [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/) | 5 Décembre 1915
-Saint Luc | [Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-30-1-jep-st-luke/) | 30 Novembre 1916
-Saint Luc |  [Quels sont les faits qui prouvent l’authenticité de la Bible.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-12-1-jep-st-luke/) | 12 Mars 1917 
-
-
+Saint Luc | [Saint Luc de la Bible n’a jamais dit que Jésus est venu sur la Terre comme le seul fils engendré, ce n’est pas vrai](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-17-2-jep-luke/) | 17 Septembre 1915
+Saint Luc | [Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-1-jep-st-luke/) | 5 Décembre 1915
+Saint Luc | [Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-30-1-jep-st-luke/) | 30 Novembre 1916
+Saint Luc | [Quels sont les faits qui prouvent l’authenticité de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-12-1-jep-st-luke/) | 12 Mars 1917

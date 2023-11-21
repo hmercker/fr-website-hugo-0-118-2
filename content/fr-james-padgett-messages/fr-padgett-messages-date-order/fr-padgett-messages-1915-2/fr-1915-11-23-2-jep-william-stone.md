@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le père de l’éditeur déclare qu’il fait des efforts sérieux afin d’atteindre la maison de sa femme et être avec elle par la prière au Père pour Son Amour<sup id="a1">[1](#f1)</sup>
+### Le père de l’éditeur déclare qu’il fait des efforts sérieux afin d’atteindre la maison de sa femme et être avec elle par la prière au Père pour Son Amourb<sup id="a1">[1](#f1)</sup>
 
 William Stone - reçu par James Padgett le 23 Novembre 1915, Washington, USA.
 
@@ -24,4 +24,4 @@ Aussi Leslie croie ce que nous te disons, accorde ta confiance à Dieu et tu ser
 Ton père aimant, William Stone.
 <small>
 
-1. <large id="f1"> Ce message est aussi publié dans le Volume I des messages, 1ère édition française, à la page 320 et dans le volume IV, page 47.. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
+1. <large id="f1"> Ce message est aussi publié dans le Volume I des messages, 1ère édition française, à la page 320 et dans le volume IV, page 47. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

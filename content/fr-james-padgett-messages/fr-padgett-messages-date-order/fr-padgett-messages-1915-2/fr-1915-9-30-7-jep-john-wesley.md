@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’affirmation de John Wesley<sup id="a1">[1](#f1)</sup>
+### L’affirmation de John Wesley <sup id="a1">[1](#f1)</sup>
 
 John Wesley - reçu par James Padgett le 30 Septembre 1915, Washington, USA.
 

@@ -25,9 +25,9 @@ Je lis ses lettres, qu’il écrit la nuit, et pour chaque expression d’amour 
 
 Je ne dois pas abuser plus longtemps de votre indulgence, mais je veux seulement dire que j’aime mon cher Leslie de tout mon cœur et de toute mon âme, et je l’aimerai jusqu’à ce que le temps et l’éternité ne seront plus. Oh, comme j’aimerais qu’il puisse me voir face à face et entendre ma voix lui dire mon grand amour, qu’il est à moi et que je suis à lui.
 
-Très aimable ami, je vous remercie et cède la place à votre femme pour qu’elle reprenne ses fonctions.<sup id="a1">[1](#f1)</sup>
+Très aimable ami, je vous remercie et cède la place à votre femme pour qu’elle reprenne ses fonctions. <sup id="a1">[1](#f1)</sup>
 
-*[Mme Padgett continue]*
+*[Mme Padgett continue :]*
 
 Chéri, n’est-elle pas une âme-sœur aimante ?
 

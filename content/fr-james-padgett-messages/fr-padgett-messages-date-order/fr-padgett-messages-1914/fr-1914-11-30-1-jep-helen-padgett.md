@@ -63,8 +63,7 @@ Elle dit que tu dois essayer de te mettre en condition pour que le Maître puiss
 
 Nous devons terminer cette cession d’écriture automatique car tu es fatigué tout comme moi je le suis également.
 
-N’oublie pas de m’aimer et prie pour ressentir toujours plus l’Amour de Dieu et l’illumination spirituelle, Hélène.<sup id=”a1”>[1](#f1)</sup>
+N’oublie pas de m’aimer et prie pour ressentir toujours plus l’Amour de Dieu et l’illumination spirituelle, Hélène. <sup id=”a1”>[1](#f1)</sup>
 <small>
 
-<large id=”f1”> *Dans un message communiqué le [08 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-8-1-jep-st-john/) Jean décrit également la 3ème sphère spirituelle*.[↩](#a1)
- 
+<large id=”f1”> Dans un message communiqué le [08 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-8-1-jep-st-john/) Jean décrit également la 3ème sphère spirituelle.[↩](#a1)

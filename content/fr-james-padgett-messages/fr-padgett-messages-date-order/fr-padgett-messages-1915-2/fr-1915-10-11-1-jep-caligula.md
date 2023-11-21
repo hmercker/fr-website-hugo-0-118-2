@@ -11,7 +11,7 @@ weight:
 
 Caligula - reçu par James Padgett le 11 Octobre 1915, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-caligula.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-caligula.jpg)
 
 Je suis Caligula.
 
@@ -45,7 +45,7 @@ Oui, c’était Célestia.
 
 Et quel nom approprié ! Mon ami, vous devez aussi remercier Dieu pour sa bonté envers vous, car j’ai vu votre âme-sœur et elle est un très bel esprit.
 
-Ainsi, avec l’amour d’un frère en Christ, je suis vottre ami, Caligula<sup id=”a1”>[1](#f1)</sup> l’Empereur Romain qui était, et le Chrétien qui est.
+Ainsi, avec l’amour d’un frère en Christ, je suis vottre ami, Caligula <sup id="a1">[1](#f1)</sup> l’Empereur Romain qui était, et le Chrétien qui est.
 <small>
 
-1.  <large id=”f1”> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-16-1-jep-nero/), a également témoigné que son âme-sœur l'avait aidé à sortir des enfers.[↩](#a1)
+1. <large id="f1"> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-16-1-jep-nero/), a également témoigné que son âme-sœur l'avait aidé à sortir des enfers.[↩](#a1)

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète<sup id="a1">[1](#f1)</sup>
+### Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 19 Septembre 1915, Washington, USA.
 
@@ -23,17 +23,16 @@ Oui, je sais que c’est ce que tous les orthodoxes croient, mais cela n’en fa
 
 Ainsi, avec l’assurance que je suis avec vous très souvent, et que je vous guiderai dans les voies de la vérité, je vais m’arrêter.
 
-Votre frère et ami, Jésus.<sup id=”a2”>[2](#f2)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id="f1"> Ce message est publié dans le Volume II, première édition française, à la page 226 et dans le volume III à la page 240. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
-
-2. <large id="f2"> *Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a2)
+**Note :** Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-4-jep-jesus/)| 05 Septembre 1915
-Jésus | [Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-1-jep-jesus/)  | 12 Septembre 1915 
-Jésus |  [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-6-1-jep-jesus/) | 06 Mai 1917
-Jésus | [La Vérité Divine doit être déclarée à toute l'humanité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-2-1-jep-jesus/) | 02 Mai 1920
+Jésus | [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-4-jep-jesus/) | 05 Septembre 1915
+Jésus | [Jésus dénonce la croyance qu’il soit Dieu ou que son sang lave les péchés des hommes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-1-jep-jesus/) | 12 Septembre 1915
+Jésus | [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-6-1-jep-jesus/) | 06 Mai 1917
+Jésus | [La Vérité Divine doit être déclarée à toute l'humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-2-1-jep-jesus/) | 02 Mai 1920
+<small>
 
+1. <large id="f1"> Ce message est publié dans le Volume II, première édition française, à la page 226 et dans le volume III à la page 240. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

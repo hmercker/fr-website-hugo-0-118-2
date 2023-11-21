@@ -14,7 +14,7 @@ Jésus - reçu par James Padgett le 3 Août 1915, Washington, USA.
 C’est moi, Jésus.
 
 Mes vérités sont claires et mes enseignements peuvent être compris par les simples. Toute religion qui exige l’exercice des facultés mentales dans une mesure plus grande que ce qui est requis dans les affaires ordinaires de la vie, ne peut être une vraie religion ; parce que Dieu a conçu que tous ses enfants comprendront Ses vérités sans la nécessité d’avoir un mental très développé.
-]
+
 Celui qui court peut comprendre mes enseignements et il n’aura pas besoin de l’aide d’un prêtre ou d’un pasteur. Mes mots se suffiront à eux-mêmes. Ne vous préoccupez-pas de savoir si seules les personnes développées mentalement peuvent comprendre ce que j’écris – les vérités s’adressent à tous. Alors avec tout mon amour, je suis, votre frère et ami, Jésus.
 
 *Note :* L’expression « celui qui court peut comprendre mes enseignements » est curieuse. Il y a deux écoles de pensée à ce sujet. La première est qu’il s’agit d’une référence à une phrase biblique trouvée dans Habacuc :

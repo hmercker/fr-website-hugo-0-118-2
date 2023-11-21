@@ -27,10 +27,9 @@ Il n’y a qu’un seul Dieu. Jésus et l'Esprit Saint ne sont que les forces do
 
 Permets-moi de m’arrêter maintenant car je suis fatiguée.
 
-Ta grand-mère. *(Anne Rollins)* <sup id="a1">[1](#f1)</sup>
-<small>
+Ta grand-mère. *(Anne Rollins)*
 
-1. <large id="f1"> Plusieurs autre messages relatifs au sujet de l’Esprit Saint ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :
+**Note :** Plusieurs autre messages relatifs au sujet de l’Esprit Saint ont été communiqués par Anne Rollins, jésus, Luc et Jean. Ils sont listés ci-dessous :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

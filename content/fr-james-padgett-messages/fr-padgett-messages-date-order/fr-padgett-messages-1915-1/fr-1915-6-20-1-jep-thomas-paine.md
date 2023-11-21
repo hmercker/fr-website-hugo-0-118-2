@@ -27,7 +27,7 @@ Je suis dans la première sphère Céleste et mon nom est Thomas Paine <sup id="
 
 Donc, mon cher frère, je vais vous dire bonne nuit et que Dieu soit avec vous, Thomas Paine.
 
-**Note : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes. :**
+**Note :** Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes. :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

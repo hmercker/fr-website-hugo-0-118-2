@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean-Baptiste adresse également des paroles encourageantes à M. Padgett pour l’aider à accroître sa foi<sup id="a1">[1](#f1)</sup>
+### Jean-Baptiste adresse également des paroles encourageantes à M. Padgett pour l’aider à accroître sa foi <sup id="a1">[1](#f1)</sup>
 
 Jean le Baptiste - reçu par James Padgett le 30 Septembre 1915, Washington, USA.
 

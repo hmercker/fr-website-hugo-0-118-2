@@ -18,4 +18,3 @@ Oui, et tu sais que je t’aime. Tu as certainement essayé de conduire [les deu
 Tu es fatigué, mon chéri, avec tout mon amour et beaucoup de baisers, je suis ta bien-aimée et ton épouse.
 
 Hélène.
-

@@ -25,9 +25,7 @@ Je ne m’étendrai pas sur cette vérité qui été expliquée par ceux qui m�
 
 Je n’écrirai pas plus cette nuit, mais je vous dirai, continuez à chercher ce grand développement de votre âme, et vous ne serez pas déçus d’arriver à la réalisation que Dieu est notre Père du Maître, (ou le Père de notre Maître) le Père proche, personnel et aimant.
 
-Avec tout mon amour, je vous souhaite une bonne nuit, votre frère en Christ, Étienne.<sup id=”a1”>[1](#f1)</sup>
+Avec tout mon amour, je vous souhaite une bonne nuit, votre frère en Christ, Étienne. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> Dans le texte anglais, il est écrit « day of accounting ». La traduction « jour du jugement » a simplement été utilisé afin d’établir un lien avec les anciennes croyances. Comme il a été dit dans d’autres textes, il n’y a pas de jour du jugement. Cependant, au soir de notre vie, lors de notre arrivée dans le monde des esprits, nous devrons rendre des comptes sur ce que fut notre vie (Se reporter au message [de John B. Comez du 22 décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-1-jep-john-b-comeys/)).*[↩](#a1)
-
-
+1. <large id="f1"> Dans le texte anglais, il est écrit « day of accounting ». La traduction « jour du jugement » a simplement été utilisé afin d’établir un lien avec les anciennes croyances. Comme il a été dit dans d’autres textes, il n’y a pas de jour du jugement. Cependant, au soir de notre vie, lors de notre arrivée dans le monde des esprits, nous devrons rendre des comptes sur ce que fut notre vie (Se reporter au message [de John B. Comez du 22 décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-1-jep-john-b-comeys/)).*[↩](#a1)

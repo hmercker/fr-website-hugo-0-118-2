@@ -29,7 +29,7 @@ Bien sûr, ce n’est seulement que l’esprit qui a eu lui-même cet éveil, qu
 
 Elle l’a à un degré qui lui permet presque de rejoindre ta mère, et je pense que, dans très peu de temps, elle va nous quitter et s’élever vers la sphère supérieure, et qu’elle va nous manquer beaucoup.
 
-Oui, il *(M. A.G. Riddle<sup id="a1">[1](#f1)</sup>)* est de plus en plus en état de recevoir cet amour et de croire en ce que lui dit ta mère. C’est elle qui essaie de lui montrer le chemin, plus que quiconque. Il semble avoir une grande confiance en elle et en son amour.
+Oui, il *(M. A.G. Riddle <sup id="a1">[1](#f1)</sup>)* est de plus en plus en état de recevoir cet amour et de croire en ce que lui dit ta mère. C’est elle qui essaie de lui montrer le chemin, plus que quiconque. Il semble avoir une grande confiance en elle et en son amour.
 
 Il progresse également très rapidement, et j’espère qu’il sera bientôt avec moi dans cette sphère. Tu vois donc que nous progressons tous bien et tes prières nous aident beaucoup.
 

@@ -45,7 +45,7 @@ Parfois, les hommes n’essaient pas de tirer tous les avantages de cette épreu
 
 Bien cher fils, j’ai beaucoup écrit et je dois m’arrêter maintenant bien que j’aimerais t’écrire beaucoup plus longtemps. Alors, avec tout mon amour, je terminerai et signerai ta grand-mère aimante, Anne Rollins.
 
-*Note : Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*
+**Note :** Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

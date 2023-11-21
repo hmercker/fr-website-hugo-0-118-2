@@ -53,5 +53,3 @@ Alors bonne nuit, ta vraie et bien-aimée, Hélène.
 <small>
 
 1. <large id="f1"> Il semblerait que Jésus ait changé d’avis, car l’histoire racontée par Linda Green dans *« Love Without End »* est convaincante, et sa peinture correspond à [la description que nous avons de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/).[↩](#a1)
-
-

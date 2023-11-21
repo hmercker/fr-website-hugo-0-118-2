@@ -44,7 +44,7 @@ Comme il est tard, je dois arrêter d’écrire, et avec tout mon amour et mes b
 
 Votre ami et votre frère, Jésus.
 
-**Note : Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :**
+**Note :** Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

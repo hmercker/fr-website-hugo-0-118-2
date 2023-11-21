@@ -27,7 +27,7 @@ Eh bien, Jésus est l’esprit dirigeant dans notre Royaume et Son pouvoir est s
 
 Oui, il en a beaucoup avec lui dans les Sphères Célestes, mais ils sont tous subordonnés à lui et lui obéissent, mais il est difficile de vous faire comprendre cela. Cette obéissance est le résultat de l’amour, et le mot ne transmet pas le sens exact voulu.
 
-*[Question]*
+*[Question :]*
 
 Eh bien, c’est une demande que nous avons faite dans notre désir de devenir importants, mais nous n’avons pas compris alors ce que serait Son Royaume. Nous sommes égaux ici à condition d’avoir la même quantité d’Amour – l’Amour Divin, qui seul détermine notre place et notre position.
 
@@ -42,7 +42,7 @@ Je vous souhaite une bonne nuit.
 
 St. Jean.
 
-**Note : St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :**
+**Note :** St Jean s’est exprimé, au sujet de l’Amour Divin, dans deux autres messages :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

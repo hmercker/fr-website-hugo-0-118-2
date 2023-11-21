@@ -45,7 +45,7 @@ Avec mon amour et mes bénédictions je termine pour cette fois. <sup id="a2">[2
 
 Jésus.
 
-**Note : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :**
+**Note :** Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

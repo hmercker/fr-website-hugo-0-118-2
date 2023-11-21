@@ -31,7 +31,7 @@ Alors croyez en mon amour et en mon désir pour votre succès.
 
 Votre frère en Christ, Jésus.
 
-**Note : Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :**
+**Note :** Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
