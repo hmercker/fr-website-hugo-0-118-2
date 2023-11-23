@@ -13,7 +13,7 @@ John Padgett - reçu par James Padgett le 24 Septembre 1914, Washington, USA.
 
 C’est moi, ton père.
 
-*Question : qui vient d’écrire ?*
+*[Question : qui vient d’écrire ?]*
 
 [Jésus, celui de la Bible.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/)
 

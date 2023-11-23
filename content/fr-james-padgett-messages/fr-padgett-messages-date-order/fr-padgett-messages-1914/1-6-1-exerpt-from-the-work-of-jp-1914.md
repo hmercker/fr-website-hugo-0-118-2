@@ -32,7 +32,7 @@ Tournez-vous vers le Père dans la prière et il enlèvera de votre âme tout ce
 
 Je sens que Dieu remplit mon âme de Son amour. Je crois qu'il est mon Père et que je suis Son enfant. Il est tout près de moi et l'Esprit Saint entre de plus en plus dans mon âme. J'ai commencé à avoir davantage foi en Son amour et en Sa grâce et je crois qu'Il n'attend que de remplir mon âme de Son amour, comme tu me l'as dit. Je suis si heureuse de pouvoir réaliser qu'Il est mon propre vrai père d'amour. Il est maintenant tellement avec moi que je sais que je suis née de nouveau, ......, si seulement j'y croyais et si je laissais Son Esprit Saint entrer dans mon âme. Lorsque tvous ommencerez à apprendre la véritable signification de l'Amour de Dieu, vous réaliserez que toute notre félicité et tout notre amour antérieurs ne sont que l'ombre de ce qu'est le véritable amour et la félicité dont nous pouvons jouir lorsque l'Esprit Saint a pris pleinement possession de nos âmes et nous fait sentir que l'amour et les soins du Père sont les seules choses dont nous avons besoin pour notre véritable félicité et notre amour.
 
-*[Hélène Padgett 16 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1914/fr-1914-11-16-1-jep-helen-padgett/)*
+*[Hélène Padgett 16 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-16-1-jep-helen-padgett/)*
 
 #### TVous pouvez déjà progresser sur terre
 

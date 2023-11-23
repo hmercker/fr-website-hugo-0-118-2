@@ -31,7 +31,7 @@ Tu sembles m’aider davantage, car tu es en quelque sorte plus proche de moi et
 
 Je prie tout le temps, et maintenant je prierai avec plus de compréhension, ou plutôt avec la conviction qu’il n’est pas nécessaire pour moi de comprendre le processus d’obtention de cet amour, mais qu’il est à moi si seulement je crois qu’il est.
 
-Oui, je l’espère, et si je suis si béni, tu le sauras dès que tu me donneras l’occasion d’écrire ; et tu le sauras en termes clairs, car lorsque je serai rempli de ce bonheur que je vois chez les autres membres du groupe, [tu m’entendras le clamer](/fr-james-padgett-messages\fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-20-1-jep-ag-riddle/) comme tu m’as entendu plaider lors de mes interventions devant un jury – seulement cela sera tout simplement dans mon âme et pas uniquement un fait mental.
+Oui, je l’espère, et si je suis si béni, tu le sauras dès que tu me donneras l’occasion d’écrire ; et tu le sauras en termes clairs, car lorsque je serai rempli de ce bonheur que je vois chez les autres membres du groupe, [tu m’entendras le clamer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-20-1-jep-ag-riddle/) comme tu m’as entendu plaider lors de mes interventions devant un jury – seulement cela sera tout simplement dans mon âme et pas uniquement un fait mental.
 
 Je les vois (Wm. R. & Bert) assez fréquemment et ils sont encore dans un état d’obscurité spirituelle comme je te l’ai déjà dit – mais j’essaie de leur dire le peu que j’ai appris de toi et des autres mentionnés, mais ils ne semblent pas être intéressés par les sujets spirituels donc je ne sais pas quoi faire.
 

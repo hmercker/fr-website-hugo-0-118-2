@@ -15,7 +15,7 @@ C’est moi, ta grand-mère.
 
 Oui, je suis là et je veux te dire que tu ne dois pas te laisser décourager par ce que je t’ai dit hier soir car j’essayais seulement de te faire savoir que tu ne dois pas oublier de prier Dieu pour Sa bénédiction. Tu n’étais pas en état de comprendre ce que j’ai écrit. Tu étais seulement dans le doute quant à ce que tu devais faire pour ressentir l’influence de ce que j’exprimais.
 
-*Question et réponse :*
+*[Question et réponse :]*
 
 Oui, c’est vrai, et tu ne dois pas l’adorer ainsi. Non seulement ils se sont trompés sur ce point particulier, mais ils n’ont pas compris que Jésus ne veut pas être adoré de cette façon. Ils peuvent le suivre dans ses enseignements et son exemple, mais ils ne doivent adorer que Dieu. Tu peux les aider à voir la Vérité et tu devrais essayer de le faire.
 

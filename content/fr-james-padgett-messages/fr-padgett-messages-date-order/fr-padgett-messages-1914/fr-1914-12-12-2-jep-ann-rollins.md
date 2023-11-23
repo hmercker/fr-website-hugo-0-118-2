@@ -53,4 +53,4 @@ Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour 
 Anne Rollins | [La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/) | le 1er Juin 1916
 <small>
 
-1. <large id="f1"> Dans un message postérieur, il est dit que Mme Padgett a atteint la 3ème sphère céleste. (Dr. Stone).[↩](#a1)
+1. <large id="f1"> Dans un message postérieur, il est dit que Mme Padgett a atteint la 3ème sphère céleste (Dr. Stone).[↩](#a1)

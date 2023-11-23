@@ -15,7 +15,7 @@ C’est moi, ton père.
 
 Je suis très heureux et je suis heureux que tu sembles l’être également.
 
-*Question et réponse :*
+*[Question et réponse :]*
 
 Oui, à cause de l’expérience que tu as vécue l’autre soir en aimant Hélène et elle de t’aimer. Tu étais certainement rempli d’amour et tu dois être parfaitement heureux d’avoir eu une telle démonstration d’amour et la réalisation de la présence réelle de ta femme, car je te dis qu’elle était avec toi et était tellement remplie de son amour pour toi, que nous nous sommes tous étonnés de son amour. Elle est un esprit qui semble n’avoir aucune limite à son amour pour toi ; peu d’esprits semblent avoir autant d’amour qu’elle en a pour toi. Tu dois donc te considérer comme un homme béni d’avoir une telle femme et une telle âme-sœur.
 
@@ -84,4 +84,4 @@ Oui, tu as certainement causé à ce gentilhomme des difficultés à s’éloign
 Ton père, John H. Padgett.
 <small>
 
-1. <large id="f1"> L’avocat associé de M. James Padgett. (Geoff  Cutler)[↩](#a1)
+1. <large id="f1"> L’avocat associé de M. James Padgett. (Geoff Cutler)[↩](#a1)

@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 25 Décembre 1914, Washington, USA
 
 C’est moi, ta vraie et bien-aimée Hélène.
 
-En cette veille de Noël<sup id="a1">[1](#f1)</sup>, nous nous réjouissons que le peuple croie que Jésus est ressuscité des morts. Il est maintenant dans la demeure la plus élevée, attendant la fin de l’adoration de son peuple, car il n’aime pas l’adoration. Il veut que le peuple adore Dieu et Dieu seul. Il n’est pas très heureux quand il est adoré, car il dit qu’il n’est qu’un fils de son Père et qu’il ne doit pas être adoré comme Dieu. Il ne se croit pas digne d’une telle adoration et il ne s’en réjouit pas. Tu dois donc l’aimer et ne pas l’adorer, car il ne t’aimera pas autant qu’il le fait maintenant lorsque tu le fais.
+En cette veille de Noël <sup id="a1">[1](#f1)</sup>, nous nous réjouissons que le peuple croie que Jésus est ressuscité des morts. Il est maintenant dans la demeure la plus élevée, attendant la fin de l’adoration de son peuple, car il n’aime pas l’adoration. Il veut que le peuple adore Dieu et Dieu seul. Il n’est pas très heureux quand il est adoré, car il dit qu’il n’est qu’un fils de son Père et qu’il ne doit pas être adoré comme Dieu. Il ne se croit pas digne d’une telle adoration et il ne s’en réjouit pas. Tu dois donc l’aimer et ne pas l’adorer, car il ne t’aimera pas autant qu’il le fait maintenant lorsque tu le fais.
 
 Ce que je te dis est vrai, car il l’a dit lui-même ; et tu dois le croire.
 

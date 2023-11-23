@@ -27,7 +27,7 @@ Oui, je sais, mais ils passeront bientôt et alors tu réaliseras ce que c’est
 
 Oui, tu peux.
 
-*[ci sans doute une question a été posée sur l’âme-sœur du professeur Salyards.]*
+*[Ci sans doute une question a été posée sur l’âme-sœur du professeur Salyards.]*
 
 Il n’a jamais essayé comme je suppose, car, s’il l’avait fait, il l’aurait trouvée. Le fait est qu’il n’a pas pensé aux âmes sœurs jusqu’à ce qu’il soit davantage en contact avec nous et je suppose qu’il n’a pas suffisamment pris en considération la question. Je ne sais pas, tous les esprits ne trouvent pas leurs âmes sœurs en même temps. Certains d’entre eux ne l’ont pas fait pendant de longues années, selon ce qui m’a été dit.
 

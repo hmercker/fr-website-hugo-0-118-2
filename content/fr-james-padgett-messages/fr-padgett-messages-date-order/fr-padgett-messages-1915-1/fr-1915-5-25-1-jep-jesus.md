@@ -51,7 +51,7 @@ Alors, permettez-moi d'exhorter tous les hommes à chercher le chemin droit et �
 
 Je vais maintenant m'arrêter, et je terminerai en disant, avec tout l’amour et les connaissances que je possède : Que les hommes cherchent ce grand Amour Divin et, dans la foi, ils le trouveront et seront pour toujours Uns avec le Père, immortels comme Il est Immortel et ils seront heureux au-delà de toute conception.
 
-Donc, je dirai avec tout mon amour et bénédictions, et avec les bénédictions du Père, « cherchez et vous trouverez ».
+Donc, je dirai avec tout mon amour et bénédictions, et avec les bénédictions du Père, *« cherchez et vous trouverez ».*
 
 Bonne nuit. Votre frère aimant et ami,
 

@@ -50,4 +50,4 @@ Sois un vrai disciple de Christ et tu n’auras besoin d’aucune autre connaiss
 Bonne nuit, avec tout mon amour et beaucoup de baisers. Hélène <sup id="a1">[1](#f1)</sup>.
 <small>
 
-1. <large id="f1"> [Dans ce message de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.*[↩](#a1)
+1. <large id="f1"> [Dans ce message de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-9-1-hr-judas/), il est expliqué qu’il soit probable que cette communication ne soit pas exactement ce qu’aurait dit Hélène.[↩](#a1)
