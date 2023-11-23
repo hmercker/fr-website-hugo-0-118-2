@@ -30,7 +30,7 @@ La source des choses ne peut jamais être les choses elles-mêmes, même si les 
 
 Chaque homme a son propre esprit et sa propre âme, et c'est de l'état de cette âme que dépend le bonheur ou le malheur de l'homme ; et il n'est le frère d'autres hommes que parce qu'il est une créature de Dieu et qu'il a été créé à son image, et non parce qu'il est une partie de l'esprit universel qui, selon l'Ecclésiaste, imprègne tout et existe partout. Et Dieu est le Père parce que ces enfants sont Ses créatures, les objets de Sa création, et individuellement, chacun travaille à sa propre destinée. Comme nous te l'avons déjà dit, certains de ces enfants resteront toujours les enfants simplement créés, tandis que d'autres participeront à Son Amour Divin et deviendront une partie de Sa divinité et des habitants des sphères Célestes.
 
-*[Jésus - 7 Avril 1919](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-7-1-jep-jesus/)*
+*[Jésus - 7 Avril 1919](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-7-1-jep-jesus/)*
 
 #### Sur le thème – Doutes
 

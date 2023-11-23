@@ -40,7 +40,7 @@ Vos prières, mon cher frère, ont été exaucées, car ce qui brille et flamboi
 
 Vous devez donc prier longtemps et longuement, et votre expérience de ce soir vous a donné un avant-goût de ce qui vous attend. Il n'y a rien dans le monde qui puisse prendre la place de cet Amour dans sa puissance pour vous attirer et vous mettre en relation avec le Père. Toutes les croyances et fois dans n'importe quelle autre chose ne suffiront pas. Le sacrifice et la douleur à cause du péché, les souffrances par procuration et les médiateurs, ne permettront pas la transformation, parce que c'est seulement une conjonction entre cet Amour Divin et votre âme qui est capable de vous amener dans cette relation au Père, et de vous procurez la conscience résultante que vous avez partagée, et que vous possédez, dans une certaine mesure, sa nature Divine dans l'Amour.
 
-*[Jésus — 6 janvier 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order\fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/)*
+*[Jésus — 6 janvier 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/)*
 
 #### Face à face
 
@@ -94,7 +94,7 @@ Le jugement est réel, et les hommes doivent y faire face, et le manque de croya
 
 Cependant, il existe un chemin par lequel les hommes peuvent transformer le jugement de la mort en jugement de la vie et la disharmonie en harmonie – la souffrance en bonheur – et le jugement lui-même en une chose désirable. Ailleurs, nous avons parlé de ce chemin ouvert à tous les hommes, et je n’essayerai pas de le décrire ici.
 
-*[Jésus - 25 Février 1918](/fr-james-padgett-messages/fr-padgett-messages-date-orde/fr-padgett-messages-1918/fr-1918-2-25-1-jep-jesus)*
+*[Jésus - 25 Février 1918](/fr-james-padgett-messages/fr-padgett-messages-date-orde/fr-padgett-messages-1918/fr-1918-2-25-1-jep-jesus/)*
 
 #### Christ peut être en vous
 
@@ -162,7 +162,7 @@ Et maintenant, dans cette génération, alors que les hommes pensent par eux-mê
 
 Ceci, dis-je, est la condition de beaucoup de gens aujourd'hui, et donc le terrain est en friche pour la plantation et le développement des vérités qui vous sont révélées.
 
-*[John Wesley - 15 Novembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-15-1-jep-john-wesley/)
+*[John Wesley - 15 Novembre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-15-1-jep-john-wesley/)*
 
 #### Amour de l’âme sœur
 

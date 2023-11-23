@@ -25,7 +25,7 @@ Je vous aime comme mon cher frère et disciple, et je ne vous abandonnerai pas e
 
 Donc, avec tout mon amour, je suis votre frère et votre ami, Jésus.
 
-***Note :** Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
+**Note :** Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
