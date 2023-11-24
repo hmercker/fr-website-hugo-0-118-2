@@ -11,7 +11,7 @@ weight:
 
 Joseph - reçu par James Padgett le 16 Mars 1916, Washington, USA.
 
-C’est moi, [Joseph d’Arimathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph). <sup id="a1">[1](#f1)</sup>
+C’est moi, Joseph d’Arimathie. <sup id="a1">[1](#f1)</sup>
 
 Je désire simplement écrire quelques lignes pour vous faire savoir que j’ai vraiment existé comme un mortel, et que je suis le même homme qui a étendu le corps de Jésus dans le tombeau où personne n’y avait été placé.
 

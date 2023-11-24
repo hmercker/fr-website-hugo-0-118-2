@@ -27,7 +27,7 @@ Comme je le disais, les hommes doivent se rendre compte que Dieu connaît non se
 
 Très bientôt, je vous écrirai un autre message, un message qui sera très important pour l’humanité. Je reviendrai bientôt, et je partagerai certaines choses que vous devez connaître. Alors, avec tout mon amour et mes bénédictions, je suis, votre propre frère et ami, Jésus.
 
-**Note :** Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu ?". Ils peuvent être lus par les liens suivants :
+**Note :** Plusieurs autres messages ont été écrits sur ce thème *« Qui et qu'est-ce que Dieu ? »*. Ils peuvent être lus par les liens suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

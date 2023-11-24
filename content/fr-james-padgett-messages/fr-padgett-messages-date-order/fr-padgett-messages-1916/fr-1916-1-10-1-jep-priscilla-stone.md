@@ -24,4 +24,4 @@ Alors, avec tout mon amour, je vous souhaiterai une bonne nuit et, en vous remer
 Sa mère, Priscilla Stone.
 <small>
 
-1. <large id="f1"> Ce message est un autre message curieux, en ce sens qu’il semble très remarquable, mais il n’apparaît pas dans [la tablette (le journal quotidien de James Padgett)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1916/), mais il est clairement daté dans le volume IV. Même si Hélène a une entrée pour cette date, aucune mention n’est faite de cette communication. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Ce message est un autre message curieux, en ce sens qu’il semble très remarquable, mais il n’apparaît pas dans [la tablette (le journal quotidien de James Padgett)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/), mais il est clairement daté dans le volume IV. Même si Hélène a une entrée pour cette date, aucune mention n’est faite de cette communication. (G.J.C.)[↩](#a1)

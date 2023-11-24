@@ -32,4 +32,4 @@ Alors avec tout mon amour pour lui et l’amour de ma sœur pour toi, j’arrêt
 Sa propre vraie, Mary.
 <small>
 
-1. <large id="f1"> Ce message d'Hélène Padgett n'a pas été publié. Il apparaît seulement dans le journal quotidien de James Padgett. Pour l'année 1915, ce journal peut-être consulté [par ce lien](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1915/).[↩](#a1)
+1. <large id="f1"> Ce message d'Hélène Padgett n'a pas été publié. Il apparaît seulement dans le journal quotidien de James Padgett. Pour l'année 1915, ce journal peut-être consulté [via ce lien](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/) et [ce lien](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/).[↩](#a1)

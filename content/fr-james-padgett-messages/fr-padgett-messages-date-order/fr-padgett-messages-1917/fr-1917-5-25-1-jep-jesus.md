@@ -19,7 +19,7 @@ Vous êtes en meilleure condition ce soir quant à votre développement et perce
 
 Eh bien, vous vous rappelez que, dans les premiers stades de nos écrits, je vous ai communiqué mes connaissances et conceptions *[La personalité de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/)*, et que, récemment, je vous ai informé que je désirais réécrire le message parce que votre condition, pour recevoir ces vérités, est maintenant bien meilleure qu’elle ne l’était lorsque j’ai écrit le message ; et donc, ce soir, je prendrai plus complètement possession de votre cerveau et je contrôlerai mieux votre main que je n’ai pu le faire au moment mentionné.
 
-*La question qui se pose est : Qui et qu’est ce que Dieu ?*
+*[La question qui se pose est : Qui et qu’est ce que Dieu ?]*
 
 En examinant cette question, vous devez réaliser qu’il n’est pas très facile à décrire, en langage que les mortels peuvent comprendre, l’Essence et les Attributs de Dieu, et que je sens mes limitations lorsque je m’efforce de vous donner une description satisfaisante du seul et vrai Dieu ; non pas à cause d’une absence de connaissance ou de conception de ma part, mais simplement parce que vous n’avez pas le développement d’âme nécessaire pour me permettre de former la relation nécessaire avec vous, afin que, par le biais de votre cerveau, puisse être exprimée l’exacte vérité quant à l’identité du Père.
 

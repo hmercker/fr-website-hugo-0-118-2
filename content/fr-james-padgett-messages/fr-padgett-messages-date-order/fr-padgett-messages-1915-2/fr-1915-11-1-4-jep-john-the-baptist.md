@@ -11,7 +11,7 @@ weight:
 
 Jean le Baptiste - reçu par James Padgett le 1 Novembre 1915, Washington, USA.
 
-Je suis, Lar – – – – -.
+Je suis, Lar...
 
 Je suis, Jean le Baptiste.
 

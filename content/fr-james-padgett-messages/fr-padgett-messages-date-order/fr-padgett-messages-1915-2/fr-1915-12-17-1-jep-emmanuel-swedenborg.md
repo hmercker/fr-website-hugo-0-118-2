@@ -50,7 +50,6 @@ Comme je l’ai écrit longuement, je vais m’arrêter, et dire que je suis un 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jules Cesar | [Jules César écrit que la position terrestre ne détermine pas la demeure spirituelle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-16-2-jep-julius-caesar/) | le 16 Septembre 1915
-Emmanuel swvedenborg | [Swedenborg écrit sur les enfers](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/) | 17 Décembre 1915
 Hérode | [Corrobore le message de Swedenborg sur les enfers](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-18-1-jep-herodes/) | 18 Décembre 1915
 Georges Butler | [Un esprit décrit son expérience dans l’un des enfers](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/) | 5 Janvier 1916
 Jules Cesar | [Jules César cherche l’Amour Divin, la lumière pénètre dans son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-1-jep-julius-caesar/) | le 13 Décembre 1916
