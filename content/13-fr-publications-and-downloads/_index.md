@@ -1,7 +1,7 @@
 ---
 title: "Publications et téléchargements"
 menu_title: "Publications et téléchargements"
-description: ""
+description: "Publications et téléchargements"
 date: 2020-07-03 02:18:11+11:00
 draft: False
 hidden: False
