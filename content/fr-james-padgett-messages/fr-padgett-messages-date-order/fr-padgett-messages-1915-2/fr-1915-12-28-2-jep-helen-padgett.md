@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’expérience de joie et de grandeur d’Hélène dans la troisième sphère céleste <sup id="a1">[1](#f1)</sup>
+### L’expérience de joie et de grandeur d’Hélène dans la troisième sphère Céleste <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 28 Décembre 1915, Washington, USA.
 
@@ -32,4 +32,4 @@ Je n’écrirai pas plus, mais je dirai que je suis à toi maintenant et pour to
 Ta vraie et affectueuse, Hélène.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le volume II et le volume III.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume II, première édition française, à la page 312 et dans le volume III à la page 154. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).#[↩](#a1)

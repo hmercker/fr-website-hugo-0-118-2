@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 29 Décembre 1918, Washington, USA
 
 C’est moi, ta vraie et bien-aimée Hélène.
 
-Eh bien, mon cher, je suis heureux que tu ais eu le message de Jean, car je vois que tu es impatient de recevoir une explication détaillée de la vérité de la seconde venue du Maître afin que, non seulement toi, mais le monde qui lit ces messages puisse comprendre. Jean viendra bientôt – tout dépend de toi.
+Eh bien, mon cher, je suis heureux que tu ais eu le message de Jean, car je vois que tu es impatient de recevoir [une explication détaillée de la vérité de la seconde venue du Maître](/5-fr-the-key-points-of-jesus-messages/5-12-fr-the-second-coming-of-jesus/) afin que, non seulement toi, mais le monde qui lit ces messages puisse comprendre. Jean viendra bientôt – tout dépend de toi.
 
 Eh bien, notre Bébé était si heureuse qu’elle ait pu t’écrire et te dire combien elle t’aime, comme elle est heureuse et avec quelle rapidité elle progresse. Elle était un peu déçue de ne pas pouvoir écrire, mais comme elle comprend la raison et elle a accepté, elle a dit qu’elle attendrait. Elle progresse très vite et devient si belle que l’amour remplit son âme. Tu dois penser à elle et l’aimer très fort.
 

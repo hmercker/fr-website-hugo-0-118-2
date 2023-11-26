@@ -24,4 +24,4 @@ Je vois que tu te sens mieux et soulagé, et j’en suis très heureuse. Bébé 
 Ton véritable amour Hélène.
 <small>
 
-1. <large id="f1"> Il s’agit d’une référence à Helenita, appelée Nita ou Bébé, qui est la fille de James et Hélène Padgett. Elle est décédée inopinément le 20 juin 1918. Comme elle est née le 8 novembre, en 1892, elle n’avait que 26 ans. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Il s’agit d’une référence à Helenita, appelée Nita ou Bébé, qui est la fille de James et Hélène Padgett. Elle est décédée inopinément le 20 Juin 1918. Comme elle est née le 8 novembre, en 1892, elle n’avait que 26 ans. (Geoff Cuttler)[↩](#a1)

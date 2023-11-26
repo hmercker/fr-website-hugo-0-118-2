@@ -104,6 +104,6 @@ Alors, pour débuter l’argumentation, quelle est la seule façon raisonnable d
 
 Mais comme l'homme ne sait pas ce que Dieu désire plus que tout pour Sa création, à savoir être élevé de la pure condition humaine par l'action de son Amour Divin, pour ne faire qu'un avec Lui et être l'héritier de son immortalité, il prie généralement pour des choses matérielles, qui sont plutôt secondaires pour le Père. Même si Dieu ne rejette pas ces demandes comme étant insignifiantes, c'est en premier lieu son merveilleux amour dont il gratifie Ses enfants. S'il s'agit avant tout de satisfaire la demande de biens mondains, Il laisse cela à Ses anges Divins, qui se précipitent vers les hommes sur terre et profitent de chaque occasion qui se présente pour donner au mortel ce qu'il a demandé.
 
-[Jésus - 19 Septembre 1920](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/)*
+*[Jésus - 19 Septembre 1920](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/)*
 
 [Retour au menu principal](/fr-james-padgett-messages/1-6-fr-excerpt-from-the-work-of-james-padgett/)

@@ -11,7 +11,7 @@ weight:
 
 Emmanuel Swedenborg - reçu par James Padgett le 23 Décembre 1917, Washington, USA.
 
-C’est moi, Swedenborg.
+C’est moi, Swedenborg. <sup id="a1">[1](#f1)</sup>
 
 J’ai entendu les messages que vous venez de recevoir et je désire vous faire comprendre la nécessité et l’importance de vous efforcer de suivre les conseils qui y sont donnés, car si vous ne parvenez pas à accomplir maintenant le travail dans lequel vous êtes engagés, vos regrets, lorsque vous viendrez dans le monde des esprits, seront si grands qu’il vous sera presque impossible de vous en débarrasser, même si vous progressez vers les sphères de l’âme où l’Amour est si abondant.
 
@@ -26,3 +26,6 @@ Je suis votre ami, votre frère et votre collaborateur pour faire connaître ces
 Je n’en écrirai pas plus maintenant. Que le Père vous bénisse de Son Amour.
 
 Votre frère dans le Christ, Swedenborg.
+<small>
+
+1. <large id="f1"> Les précédents messages, publiés, de Swedenborg datent du [17 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-17-1-jep-emmanuel-swedenborg/) et du [8 Avril 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-4-8-1-jep-emmanuel-swedenborg/).[↩](#a1)

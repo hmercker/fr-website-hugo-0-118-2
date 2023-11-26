@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Lamlestia(un esprit ancien) parle de réincarnation et de théosophie
+### Lamlestia (un esprit ancien) parle de réincarnation et de théosophie
 
 Lamlestia - reçu par James Padgett le 17 Décembre 1916, Washington, USA.
 

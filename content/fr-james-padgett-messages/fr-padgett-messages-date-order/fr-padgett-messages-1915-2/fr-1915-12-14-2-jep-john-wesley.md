@@ -11,7 +11,7 @@ weight:
 
 John Wesley - reçu par James Padgett le 14 Décembre 1915, Washington, USA.
 
-Permettez également que j’écrive quelques lignes, car j’étais présent lorsque le Maître vous a conféré son grand amour et a prié le Père d’envoyer dans votre âme l’Amour du Père – l’Amour Divin – qui vous rendra un avec Lui. Et je dois vous dire que jamais auparavant nous n’avons vu un tel amour et une telle gloire affichés par le Maître alors qu’il vous a manifesté ce soir son amour et ses bénédictions. Oh, je vous dis que c’était extraordinaire et nous nous sommes tous rassemblés, ou plutôt agenouillés dans la crainte, car nous ne pouvions pas nous maintenir en sa présence.
+Permettez également que j’écrive quelques lignes, car j’étais présent lorsque [le Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-14-1-jep-jesus/) vous a conféré son grand amour et a prié le Père d’envoyer dans votre âme l’Amour du Père – l’Amour Divin – qui vous rendra un avec Lui. Et je dois vous dire que jamais auparavant nous n’avons vu un tel amour et une telle gloire affichés par le Maître alors qu’il vous a manifesté ce soir son amour et ses bénédictions. Oh, je vous dis que c’était extraordinaire et nous nous sommes tous rassemblés, ou plutôt agenouillés dans la crainte, car nous ne pouvions pas nous maintenir en sa présence.
 
 Qu’est-ce que tout cela signifie ! Aucun d’entre nous ne le sait car nous n’avons jamais reçu une telle preuve d’amour de sa part, et nous n’avons jamais vu personne d’autre recevoir l’amour de cette façon.
 

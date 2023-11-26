@@ -9,7 +9,7 @@ weight:
 ---
 ### Mariages civils, le divorce, l’adultère, le contrôle des naissances et l’avortement <sup id="a1">[1](#f1)</sup>
 
-Jésus - reçu par Dr Samuels le 1 Avril 1961, Washington, DC, USA.
+Jésus - reçu par Dr Samuels le 1er Avril 1961, Washington, DC, USA.
 
 C’est moi, Jésus.
 
@@ -19,7 +19,7 @@ Parce que le mariage entre âmes sœurs continue dans le monde de l’esprit et 
 
 Le mariage a toujours été, grâce à la connaissance intuitive, un événement de la plus grande importance, la cause de la solennité et de la joie, un événement saint pour l’homme et pour Dieu. Il serait absurde de penser que seul le Catholicisme reconnaît la sainteté de cette institution, comme il le prétend pompeusement, parce que le Catholicisme continue ici simplement les saintes traditions de la foi Hébraïque dans lesquelles mes propres parents, Myriam (Marie) et Joseph, se sont mariés, avec toute la couleur, l’apparat et l’amour qui accompagnaient l’ancien rite Hébreu. Le mariage n’a jamais été un sacrement institué soit par moi ou par l’Église Catholique tel que défini par le Conseil de Trente <sup id="a2">[2](#f2)</sup>, mais simplement une réaffirmation des principes Hébreux, de l’amour mutuel et de la compréhension qui remontent au temps d’Abraham et Sarah, modèles d’amour, de piété et de dévotion et fut tout autant un «sacrement» que ceux célébrés en conformité avec l’idée du sacrement formulée par le Concile de Trente.
 
-**En premier lieu**, l’Église de la Nouvelle Naissance reconnaît comme valide tous les mariages légaux effectués par d’autres églises ou par les autorités civiles. Les personnes qui ont accepté mes enseignements comme contenant la vérité, si elles se sont mariées par l’intermédiaire d’une quelconque Église ou d’une manière seulement civile, sont légalement mariées aux yeux de l’Église de la Nouvelle Naissance. Le baptême, ou l’absence de celui-ci, comme je l’ai présenté ailleurs, n’a rien à voir avec le mariage, et la distinction de la part des Catholiques entre un mariage de couples non-baptisés et ceux unis dans le «Sacrement» du mariage en lien avec le baptême antérieur est simplement une institution humaine et sans fondement en regard des lois, de la volonté ou de l’intention de Dieu.
+**Premièrement**, l’Église de la Nouvelle Naissance reconnaît comme valide tous les mariages légaux effectués par d’autres églises ou par les autorités civiles. Les personnes qui ont accepté mes enseignements comme contenant la vérité, si elles se sont mariées par l’intermédiaire d’une quelconque Église ou d’une manière seulement civile, sont légalement mariées aux yeux de l’Église de la Nouvelle Naissance. Le baptême, ou l’absence de celui-ci, comme je l’ai présenté ailleurs, n’a rien à voir avec le mariage, et la distinction de la part des Catholiques entre un mariage de couples non-baptisés et ceux unis dans le «Sacrement» du mariage en lien avec le baptême antérieur est simplement une institution humaine et sans fondement en regard des lois, de la volonté ou de l’intention de Dieu.
 
 **Deuxièmement**, la Nouvelle Naissance affirme que le mariage est monogame, qu’il est limité à l’union d’une femme et d’un homme. Les anciens Hébreux pratiquaient les mariages multiples, mais, dans le temps, cette pratique est progressivement tombée en disgrâce, et, durant ma vie sur la terre, cette coutume fut condamnée par Hillel. (Pirke 11:8, «Le plus de femmes, le plus de sorcellerie»).
 

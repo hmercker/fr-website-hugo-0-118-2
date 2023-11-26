@@ -42,4 +42,4 @@ Je n’écrirai pas plus cette nuit, mais lorsque j’aurai rassemblé mes pens�
 Eh bien, en vous remerciant pour votre amabilité et pour avoir une telle grand-mère, et pour un tel Jésus, je suis, votre ami, R. G. Ingersoll.
 <small>
 
-1. <large id="f1"> Robert Green « Bob » Ingersoll (11 août 1833 – 21 juillet 1899) fut un avocat américain, un vétéran de la guerre civile, un leader politique et orateur aux États-Unis pendant l’âge d’or de la libre pensée. Il s’est distingué par son large éventail de culture et sa défense de l’agnosticisme. On l’a surnommé « Le Grand Agnostique ». (Source : Wikipedia.)[↩](#a1)
+1. <large id="f1"> **Robert Green « Bob » Ingersoll** (11 Août 1833 – 21 Juillet 1899) fut un avocat américain, un vétéran de la guerre civile, un leader politique et orateur aux États-Unis pendant l’âge d’or de la libre pensée. Il s’est distingué par son large éventail de culture et sa défense de l’agnosticisme. On l’a surnommé « Le Grand Agnostique ». (Source : Wikipedia.)[↩](#a1)

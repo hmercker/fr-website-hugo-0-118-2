@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 10 Mars 1915, Washington, USA.
 
 C’est moi, Hélène.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-fairy-tale-house.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-fairy-tale-house.jpg)
 
 Eh bien, je suis très heureuse, et tu es plus heureux et tu te sens mieux.
 
@@ -36,13 +36,14 @@ Nous ne buvons pas réellement l’eau, car nous n’avons pas les organes inter
 Nous avons souvent nos « thés », comme pourraient le dire, sur terre, les femmes branchées, et beaucoup de nos amis spirituels assistent et aident à rendre les rassemblements agréables et heureux. Bien sûr, les esprits masculins y assistent, car je dois te dire que dans cette vie il n’ y a pas de clubs ou d’entreprises qui gardent les sexes séparés, comme dans votre vie. Je veux dire que les deux sexes sont plus ensemble, et jouissent de la société de l’autre à un degré beaucoup plus grand que dans la vie terrestre. Bien sûr, je ne veux pas dire que ces esprits ont tous trouvé leur âme-sœur, car ce n’est pas vrai ; mais chacun apprécie la compagnie des autres, en tant qu’amis et esprits ayant des désirs et des aspirations similaires. Mes compagnons sont très semblables dans leur amour pour le Père, dans le développement de leurs âmes et dans leurs pensées et désirs spirituels. Nous discutons de nombreuses questions relatives à l’âme et à son progrès, à l’Amour du Père et à l’amour des esprits et des mortels. Bien que nous soyons joyeux et heureux au-delà de toute comparaison, nous ne nous livrons pas à des frivolités ou des pensées qui n’ont pas tendance à nous élever vers des choses supérieures.
 
 Nous avons la musique et la danse, mais notre danse est différente de la vôtre. Nous nous exerçons simplement dans des mouvements gracieux et artistiques, sans aucun contact des corps spirituels, ni en nous embrassant les uns des autres. Bien sûr, nous nous tenons par la main lorsque nous dansons, mais aucune familiarité, comme vous diriez, n’est permise.
+
 Eh bien, j’ai une chambre pour me reposer, où après avoir travaillé longtemps et si, dans une certaine mesure, je me sens fatiguée, je peux m’allonger sur ces divans dont je te parle. Nous ne dormons pas, mais parfois nous nous retrouvons dans un état rêveur qui nous donne beaucoup de fraîcheur et de vigueur. Je me repose maintenant d’un dur labeur que j’ai accompli sur le plan terrestre. Je veux dire que lorsque je ne t’écris pas, je me repose.
 
 J’essaie maintenant d’aider certains des esprits qui sont récemment venus de ta ville et qui étaient tes connaissances sur terre. Je t’en parlerai lorsque je t’écrirai la prochaine fois.
 
 Je suis fatiguée maintenant et je dois arrêter.
 
-Alors avec tout mon amour, je suis ta vraie et bien aimée, Hélène.<sup id=”a1”>[1](#f1)</sup>
+Alors avec tout mon amour, je suis ta vraie et bien aimée, Hélène. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> Le [28 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-2-jep-helen-padgett/) Hélène a décrit sa maison dans la troisième sphère Céleste.[↩](#a1)
+1. <large id="f1"> Le [28 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-2-jep-helen-padgett/) Hélène a décrit sa maison dans la troisième sphère Céleste.[↩](#a1)

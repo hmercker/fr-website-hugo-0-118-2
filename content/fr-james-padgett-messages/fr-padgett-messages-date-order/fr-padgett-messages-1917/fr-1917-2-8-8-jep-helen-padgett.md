@@ -21,4 +21,7 @@ Cela peut te paraître surprenant, mais cela ne devrait pas l’être car, dans 
 
 Tu as reçu divers messages ce soir, et tu dois maintenant arrêter, car tu es fatigué. Alors, avec tout mon amour, je vais conclure.
 
-Ta vraie et bien-aimée Hélène.
+Ta vraie et bien-aimée Hélène. <sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes le cadeau de ce monde
 
-Marie - reçu par Amada Reza le 2 Avril 2000, Aptos, Californie, USA.
+Marie - reçu par Amada Réza le 2 Avril 2000, Aptos, Californie, USA.
 
 *[Cher Père/Mère céleste, je prie pour un afflux de Ton Amour Divin – puisse cet amour élever mes pensées et mes désirs vers les choses spirituelles. Je sais que Tu nous aimes et que Tu veux partager Ton Amour par l’intermédiaire de Tes anges les plus élevés. Dieu, si c’est Ta volonté, je demande à être un canal pour Ta vérité et les pensées des anges. S’il Te plaît, protège-nous de l’influence des esprits inférieurs pendant notre période de vulnérabilité et préserve-moi du danger. Je T’aime, Dieu, et je veux Te servir de la meilleure façon possible. Amen.]*
 

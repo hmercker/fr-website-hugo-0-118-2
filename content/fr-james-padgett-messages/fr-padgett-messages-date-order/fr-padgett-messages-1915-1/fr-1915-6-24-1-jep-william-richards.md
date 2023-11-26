@@ -21,8 +21,7 @@ Mais depuis lors, j’ai découvert de nombreuses réalités qui me montrent que
 
 Bien sûr, je dois trouver ce bonheur si je le peux, et si vous pouvez m’aider de quelque façon que ce soit à le trouver, je vous en serai très reconnaissant.
 
-Je suis dans l’obscurité la plupart du temps et je souffre aussi, mais à d’autres moments, peu fréquents, j’ai un peu de lumière et un peu de bonheur ; mais les premières conditions sont celles qui sont principalement les miennes.
-Je vis dans ce que nous appelons le plan terrestre et j’ai le privilège de pouvoir errer au-dessus de ce plan avec certaines restrictions. Je ne peux pas aller dans ce que l’on pourrait appeler les niveaux supérieurs de ce plan, je ne peux aller que dans mon propre plan et dans les plans inférieurs, et je le fais parfois.
+Je suis dans l’obscurité la plupart du temps et je souffre aussi, mais à d’autres moments, peu fréquents, j’ai un peu de lumière et un peu de bonheur ; mais les premières conditions sont celles qui sont principalement les miennes. Je vis dans ce que nous appelons le plan terrestre et j’ai le privilège de pouvoir errer au-dessus de ce plan avec certaines restrictions. Je ne peux pas aller dans ce que l’on pourrait appeler les niveaux supérieurs de ce plan, je ne peux aller que dans mon propre plan et dans les plans inférieurs, et je le fais parfois.
 
 Je rencontre beaucoup d’esprits qui sont dans une très grande condition d’obscurité et de torture, et leurs lieux doivent être les enfers de la Bible mais sans les feux ni les démons, comme les hommes le croient. Je ne vois jamais de diables, mais les esprits eux-mêmes, et certains d’entre eux sont les seuls diables qui sont nécessaires pour créer un enfer.
 
@@ -32,6 +31,6 @@ Je m’appelais William S. Richards. J’ai vécu à Germantown, en Pennsylvanie
 
 J’attends donc vos conseils.
 
-Je l’ai appelé et il dit qu’il me montrera le chemin et que je dois l’accompagner. C’est ce que je dirai,
+Je l’ai appelé et il dit qu’il me montrera le chemin et que je dois l’accompagner. Je vuus dirai donc,
 
 Bonne nuit, William S. Richards.

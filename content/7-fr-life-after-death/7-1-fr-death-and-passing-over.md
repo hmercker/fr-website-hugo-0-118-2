@@ -11,9 +11,9 @@ weight: 350
 
 ### Où va l’âme après la mort
 
-Cette section traite de la mort et de la période initiale d'orientation qui s'ensuit.
+Cette section traite de la mort et de la période initiale d'orientation qui s'ensuit. Voici un résumé des principaux thèmes d'un vaste sujet dans un article intitulé [Sortir d'ici - Que se passe-t-il après la mort ?](/7-fr-life-after-death/7-1-2-fr-getting-the-hell-out-of-here/).
 
-[Jean le décrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-29-2-jep-st-john/) comme suit dans un message :
+[Jean l'a décrit lors d'un message communiqué le 29 Mai 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-29-2-jep-st-john/) comme suit dans un message :
 
 > Lorsque l’esprit quitte le corps, il y a rupture de la corde d’argent, comme on l’appelle, et toute connexion entre l’esprit et le corps est ainsi coupée pour l’éternité. Cet esprit ne peut jamais plus entrer dans ce corps, et aucun autre esprit ne le peut, bien que, je le sais, certains spiritualistes affirment qu’un autre esprit peut habiter le corps rejeté. Mais tout cela est faux, car aucun esprit ne pénètre jamais dans le corps qui a autrefois été la demeure d’un autre esprit, et, par conséquent, les affirmations de certains sages de l’Orient qu’une telle chose puisse être possible, n’a en fait aucun fondement.
 <br>
@@ -38,9 +38,9 @@ Cette section traite de la mort et de la période initiale d'orientation qui s'e
 <br>
 > Vient alors un moment où chaque âme doit rester seule et, dans sa faiblesse ou sa force, réaliser qu’aucune autre âme ne peut porter son chagrin, prendre ses fardeaux ou entrer dans ses souffrances, Et ainsi se réalise l’énonciation que chaque âme est son propre gardien et seule responsable de sa propre condition.
 
-### Qu'est-ce qui se passe après la mort ?
+### Que se passe-t-il après la mort ?
 
-En guise d'introduction, nous te conseillons de lire [le résumé du Dr Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/). La majorité de ces messages ignorent la triste condition que l'on appelle « earthbound (lié à la terre) ». Ces messages proviennent d'esprits plus avancés que ceux qui finissent dans le plan terrestre sombre et sont appelés « earthbound (esprits liés à la terre) ».
+En guise d'introduction, nous vous conseillons de lire [le résumé du Dr Stone](/7-fr-life-after-death/7-1-1-fr-important-truths-that-everyone-should-know/). La majorité de ces messages ignorent la triste condition que l'on appelle « earthbound (lié à la terre) ». Ces messages proviennent d'esprits plus avancés que ceux qui finissent dans le plan terrestre sombre et sont appelés « earthbound (esprits liés à la terre) ».
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

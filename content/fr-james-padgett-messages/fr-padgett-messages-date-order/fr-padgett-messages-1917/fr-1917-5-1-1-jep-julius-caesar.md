@@ -37,6 +37,7 @@ Et je tiens à ajouter que si je n’étais pas venu à vous, par curiosité plu
 
 Je suis un autre César maintenant. Je n’écrirai pas plus ce soir, mais comme je vous l’ai déjà dit, je reviendrai un jour prochain vous écrire une lettre sur certaines de mes expériences sur terre et dans le monde des esprits durant les premières années de ma vie d’esprit. Alors, en espérant que vous prierez pour moi et que vous m’accorderez vos bonnes pensées, je vous souhaite une bonne nuit.
 
-Votre véritable ami, César (Jules).
+Votre véritable ami, César (Jules). <sup id=”a1”>[1](#f1)</sup>
+<small>
 
-*Note : Le sens de cette déclaration est que Jules César était encore dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 2060 ans – jusqu’à la date de sa première communication. Mais, une fois qu’il eut appris à en [sortir en priant pour l’Amour Divin](*****************), il en est sorti assez rapidement – environ 19 mois.*
+<large id=”f1”> Le sens de cette déclaration est que Jules César était encore dans les enfers depuis le moment de sa mort en mars 44 avant J.-C. – il y a environ 1960 ans – jusqu’à la date [de sa première communication](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-16-2-jep-julius-caesar/). Mais, une fois qu’il eut appris à en sortir en priant pour l’Amour Divin, il en est sorti assez rapidement – environ 19 mois.[↩](#a1)

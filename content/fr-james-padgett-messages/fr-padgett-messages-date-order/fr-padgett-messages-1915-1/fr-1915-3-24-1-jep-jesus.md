@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus admet que son pouvoir est limité en certaines choses et ne connaît pas toujours la réponse sans aller au Père, la Source de toute connaissance <sup id="a1">[1](#f1)</sup>
+### Jésus admet que son pouvoir est limité en certaines choses et ne connaît pas toujours la réponse sans aller au Père, la Source de toute connaissance
 
 Jésus - reçu par James Padgett le 24 Mars 1915, Washington, USA.
 
@@ -30,9 +30,6 @@ Oui, je l’ai fait, et c’était l’une des premières fois que je communiqua
 
 Eh bien, comme je vous ai écrit un long message et comme vous voulez entendre certains membres de votre groupe, je vais conclure.
 
-Oui, il (M. Crowell34) a réalisé la Nouvelle Naissance et l’enseigne aux esprits. Il semble très impatient d’écrire un peu plus à travers vous, et il le fera dès que j’aurai dit à votre groupe qu’il est en état de ne pas interférer avec leur rapport. Alors, lorsqu’il viendra, écoutez-le, et vous apprendrez beaucoup de vérités qu’il a apprises depuis qu’il est venu ici.
+Oui, il, [M. Crowell](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-17-2-jep-eugen-crowell/), a réalisé la Nouvelle Naissance et l’enseigne aux esprits. Il semble très impatient d’écrire un peu plus à travers vous, et il le fera dès que j’aurai dit à votre groupe qu’il est en état de ne pas interférer avec leur rapport. Alors, lorsqu’il viendra, écoutez-le, et vous apprendrez beaucoup de vérités qu’il a apprises depuis qu’il est venu ici.
 
 Avec mon amour le plus sincère et mes meilleurs vœux et bénédictions, je suis votre propre frère spirituel et ami, Jésus.
-<small>
-
-1. <large id="f1"> Voir le message de M. Crowells, du 17 Mars 1915, dans le volume IV, 2ème édition, page 283. (G.J.C.)[↩](#a1)

@@ -33,4 +33,4 @@ En vous remerciant, je vous souhaite une bonne nuit.
 Priscilla Stone, Mère du Dr Stone.
 <small>
 
-1. <large id="f1"> Le Dr Stone a écrit : Que son frère Harold a survécu à la bataille bien qu’il ait été blessé, et qu’il est retourné chez lui et dans sa famille à Toronto, au Canada, où il a vécu jusqu’à l’âge de 80 ans.[↩](#a1)
+1. <large id="f1"> Le Dr Stone a écrit que son frère Harold a survécu à la bataille bien qu’il ait été blessé, et qu’il est retourné chez lui et dans sa famille à Toronto, au Canada, où il a vécu jusqu’à l’âge de 80 ans.[↩](#a1)

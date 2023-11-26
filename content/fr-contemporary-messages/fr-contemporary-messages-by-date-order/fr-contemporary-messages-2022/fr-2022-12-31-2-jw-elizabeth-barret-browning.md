@@ -11,6 +11,8 @@ weight:
 
 Elizabeth Barret Browning <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 31 Décembre 2022, Nashville, TN, USA.
 
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-elizabeth-barrett-browning.jpg)
+
 Je suis votre sœur dans le Christ. Je suis Elizabeth Barrett Browning. Je veux que vous sachiez que c’était moi dans le livre <sup id="a2">[2](#f2)</sup> que vous lisez par l’âme la plus merveilleuse, Robert James Lees et son Aphraar. Je n’ai pas pu m’empêcher de venir ici par l’intermédiaire de mon frère et de lui faire savoir que c’était moi. Et je suis heureuse que vous ayez pris le temps de confirmer ce qu’il a reçu.
 
 Je suis un esprit depuis un grand nombre d’années et comme vous le savez peut-être, j’ai été activement impliquée dans les questions sociales, en particulier l’esclavage et son abolition, mais aussi la conquête des droits de la femme. Je me suis adonnée au spiritisme, ce qui m’a permis de clarifier mes écrits, en particulier ceux qui portaient sur Dieu, Sa grâce et le monde à venir.

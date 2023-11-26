@@ -24,6 +24,6 @@ Eh bien, je ne sais pas si nous pourrons le faire venir et le faire oui ou non �
 Ta vraie et affectueuse Hélène.
 <small>
 
-1. <large id="f1"> Sphère la plus élevée des esprits qui ont développé leur amour naturel à l’état pur, mais ne possèdent pas l’Amour Divin. (J.P.G.)[↩](#a1)
+1. <large id="f1"> Sphère la plus élevée des esprits qui ont développé leur amour naturel à l’état pur, mais ne possèdent pas l’Amour Divin. (Jean Paul Gibsons)[↩](#a1)
 
-2. <large id="f2"> James Padgett n’a reçu aucun message du « Bouddha », bien que [certains médiums contemporains](**************) aient prétendu avoir reçu un tel message. (G.J.C.)[↩](#a2)
+2. <large id="f2"> James Padgett n’a reçu aucun message du « Bouddha », bien que certains médiums contemporains aient prétendu avoir reçu un tel message. Se reporter aux messages [du 7 Novembre 2005](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-1-fab-buddha/) et du [17 Novembre 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-17-1-fab-the-buddha/). (Geoff Cuttler)[↩](#a2)

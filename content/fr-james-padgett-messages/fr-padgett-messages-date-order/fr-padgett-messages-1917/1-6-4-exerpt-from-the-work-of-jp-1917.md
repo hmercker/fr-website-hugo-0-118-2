@@ -70,7 +70,7 @@ Alors que j'avançais de sphère en sphère, mon bonheur et mon amour pour elle 
 
 Oui, vous ne saisissez pas tout le sens des vérités ou de ce que vous lisez au moment où vous le faites. Vous passez en revue les écrits et vous vous faites une idée générale, puis en peu de temps, le souvenir de ces mêmes écrits vous quitte. Je vous conseille de lire plus lentement et de réfléchir à ce que vous lisez et de faire en sorte que cela trouve un logement dans votre mental. Vous feriez mieux de consacrer toute une soirée à la lecture d’une page et d’en saisir tout le sens plutôt que de lire une douzaine de pages de la manière superficielle dont je parle. Votre mémoire peut être améliorée afin que vous n’ayez aucune difficulté à vous souvenir de ce que vous avez pu lire. Essayez le plan dont je vous parle et, en peu de temps, vous vous rendrez compte des résultats. Prenez l’habitude, dans toutes vos lectures, de lire lentement et de saisir et digérer ce que vous lisez.
 
-*[Jean - 19 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-19-4-jep-st-john/)
+*[Jean - 19 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-19-4-jep-st-john/)*
 
 #### Un membre du Haut Conseil explique pourquoi Jésus a été condamné
 
@@ -172,7 +172,7 @@ L'âme, cette âme importante qui ne peut être nourrie que par ses propres perc
 
 Mais voici ce que je veux dire maintenant : à un moment donné, il apprendra la vérité et le chemin, et ses croyances s'accorderont avec les aspirations de son âme, et les chaînes des croyances erronées de son mental se détacheront et tomberont de lui, et alors il se rendra compte qu'il est un vrai fils du Père, qui a le privilège de participer sans limites au Grand Amour, alors qu'il progresse sur son chemin ultérieur vers les sphères Célestes Divines.
 
-*[Élie - 1er Avril 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-4-1-1-jep-elia/)*
+*[Élie - 1er Avril 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-4-1-1-jep-elias/)*
 
 #### La nécessité de la foi et de la prière
 
@@ -296,7 +296,7 @@ Un moment de vrai désir ressenti par l’âme est plus efficace que des heures 
 
 Seule l’âme peut appeler à l’âme, et l’amour ne répond que lorsque cette âme appelle. Les simples désirs du mental, si je peux ainsi m’exprimer, n’affectent en rien l’âme, et comme le mental ne peut opérer que sur le mental, l’âme ne peut être activée quand le mental seul est en opération. Par conséquent, vous verrez que toute adoration « mécanique » n’effectuera pas le travail de l’Amour ou ne mettra pas en opération l’œuvre de l’Esprit.
 
-*[Jean - 11 Juillet 1917](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-11-1-jep-st-john/)*
+*[Jean - 11 Juillet 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-11-1-jep-st-john/)*
 
 #### La plus grande création de Dieu et la plus profondément déchue
 

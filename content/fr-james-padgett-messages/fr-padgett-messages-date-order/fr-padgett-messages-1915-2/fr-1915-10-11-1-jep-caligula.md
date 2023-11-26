@@ -11,7 +11,7 @@ weight:
 
 Caligula - reçu par James Padgett le 11 Octobre 1915, Washington, USA.
 
-![](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/Caligula.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-caligula.jpg)
 
 Je suis Caligula.
 
@@ -25,8 +25,7 @@ Elle s’est souvent entretenue avec moi et, finalement, elle m’a dit que son 
 
 J’ai vu qu’elle était belle, pure et aimante, que je n’étais pas une âme-sœur convenable pour elle et que je devais essayer de devenir une âme-sœur convenable pour pouvoir être avec elle. En outre, quand elle m’a parlé de son amour pour moi et du fait que nous étions nécessaires au bonheur de l’autre, j’avais un désir merveilleux d’être avec elle et de jouir de son amour, et ce désir m’a si vite possédé que j’ai commencé à me demander comment je pourrais obtenir ce grand amour, ou commencer à l’obtenir. Elle m’a alors expliqué comment l’amour du Maître pourrait me montrer la voie et quelle puissance il avait pour aider des esprits comme moi à sortir de l’obscurité et de la torture et à connaître la lumière et le bonheur.
 
-Et ainsi j’ai progressé dans mes aspirations et mes désirs, jusqu’à ce qu’enfin, mon esprit a semblé avoir le pouvoir de sortir des ténèbres et de rencontrer d’autres esprits qui n’étaient pas aussi sombres et infernaux que je ne l’étais.
-Elle est souvent venue vers moi et m’a appris à prier, et j’ai prié, demandé pardon et demandé de recevoir un peu de cet Amour Divin dont elle m’avait parlé.
+Et ainsi j’ai progressé dans mes aspirations et mes désirs, jusqu’à ce qu’enfin, mon esprit a semblé avoir le pouvoir de sortir des ténèbres et de rencontrer d’autres esprits qui n’étaient pas aussi sombres et infernaux que je ne l’étais. Elle est souvent venue vers moi et m’a appris à prier, et j’ai prié, demandé pardon et demandé de recevoir un peu de cet Amour Divin dont elle m’avait parlé.
 
 Enfin, alors que je priais et espérais cet Amour et cette délivrance, le Maître est venu vers moi, et il était un esprit d’amour si merveilleux, le plus beau et le plus aimant et pourtant le plus humble que j’aie jamais vu, et il se mit à me parler de ce merveilleux amour du Père. il m’a dit que les seules choses nécessaires étaient de prier le Père, d’avoir la foi et de me repentir en toute sincérité de mes grands péchés. Que si je le faisais, l’Amour viendrait à moi et, lorsqu’il viendrait dans mon âme, tous les péchés et les souvenirs de mes péchés, me quitteraient afin que je puisse progresser vers une sphère supérieure, où étaient lumière et amour.
 
@@ -34,11 +33,9 @@ Je ne pouvais pas résister à son influence, et je ne voulais pas car mon âme 
 
 Il m’a dit que les seules choses nécessaires étaient de prier le Père, d’avoir la foi et de me repentir en toute sincérité de mes grands péchés. Que si je le faisais, l’Amour viendrait à moi, et comme il venait dans mon âme tous les péchés et les souvenirs de mes péchés me quitteraient afin que je puisse progresser vers une sphère supérieure, où étaient lumière et amour.
 
-Je ne pouvais pas résister à son influence, et je ne le voulais pas car mon âme sœur était avec moi dans son amour, avec des yeux suppliants et des regards anxieux, et j’ai commencé à avoir cette foi, et à prier avec toute la gravité de mon âme ; et, enfin, la lumière est venue à moi et l’amour est entré dans mon âme ; et quel esprit heureux je suis devenu, et a remercié Dieu pour sa grâce. Mon âme sœur se réjouissait avec moi et nous étions si heureux dans nos amours et dans le grand amour du Père.
-
 J’ai alors, jusqu’à présent, toujours progressé. Je suis dans les Sphères Célestes, où l’amour est le principe directeur et où seuls ceux qui possèdent cet Amour Divin peuvent vivre, et où Jésus est notre Prince et frère aîné. Caligula, l’Empereur, est maintenant un humble disciple du Nazaréen méprisé, et heureux dans son humilité et de suivre un sauveur si aimant.
 
-Mon âme sœur est avec moi, et chaque fois que je la regarde et que je pense que j’ai été la cause de ses souffrances et de sa mort sur terre, toute mon âme va vers elle dans de grands courants d’amour et elle le sait, et cela fait partie de ma grande repentance. Ainsi, vous voyez, même si un homme a pu être le plus vil des pécheurs sur terre, la miséricorde du Père est si grande que Son amour n’est jamais détourné, ou Sa miséricorde jamais refusée.
+Mon âme-sœur est avec moi, et chaque fois que je la regarde et que je pense que j’ai été la cause de ses souffrances et de sa mort sur terre, toute mon âme va vers elle dans de grands courants d’amour et elle le sait, et cela fait partie de ma grande repentance. Ainsi, vous voyez, même si un homme a pu être le plus vil des pécheurs sur terre, la miséricorde du Père est si grande que Son amour n’est jamais détourné, ou Sa miséricorde jamais refusée.
 
 Je vous dis que l’Amour – l’Amour du Père – est la plus grande chose dans tout l’univers, tout comme est l’amour pur et saint de l’âme sœur qui possède dans son âme le grand Amour du Père.
 
@@ -46,9 +43,9 @@ Je ne dois pas écrire plus ce soir, mais en passant, j’ai vu la lumière bril
 
 Oui, c’était Célestia.
 
-Et quel nom approprié ! Mon ami, tu dois aussi remercier Dieu pour sa bonté envers toi, car j’ai vu ton âme sœur et elle est un très bel esprit.
+Et quel nom approprié ! Mon ami, vous devez aussi remercier Dieu pour sa bonté envers vous, car j’ai vu votre âme-sœur et elle est un très bel esprit.
 
-Ainsi, avec l’amour d’un frère en Christ, je suis ton ami, Caligula<sup id=”a1”>[1](#f1)</sup> l’Empereur Romain qui était, et le Chrétien qui est.
+Ainsi, avec l’amour d’un frère en Christ, je suis vottre ami, Caligula <sup id="a1">[1](#f1)</sup> l’Empereur Romain qui était, et le Chrétien qui est.
 <small>
 
-1.  <large id=”f1”> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917\fr-1917-1-16-1-jep-nero/), a également témoigné que son âme sœur l'avait aidé à sortir des enfers.[↩](#a1)
+1. <large id="f1"> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-16-1-jep-nero/), a également témoigné que son âme-sœur l'avait aidé à sortir des enfers.[↩](#a1)

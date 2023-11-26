@@ -21,7 +21,7 @@ Laisse-moi te dire que tu es très proche de lui, et il veut que tu fasses exact
 
 Maintenant, nous devons nous arrêter car tu n’es pas, actuellement, dans une bonne condition pour écrire plus.
 
-Ta propre vraie et bien-aimée épouse, Hélène.
+Ta vraie et bien-aimée épouse, Hélène.
 <small>
 
-1. <large id="f1"> Bien que ce message dise en fait *« veille de Noël »*, il est enregistré sur la tablette (Journal quotidien) comme étant du 25. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Bien que ce message dise en fait *« veille de Noël »*, il est enregistré sur la tablette (Journal quotidien) comme étant du 25. (Geoff Cutler)[↩](#a1)

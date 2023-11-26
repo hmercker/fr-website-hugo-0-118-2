@@ -15,7 +15,7 @@ Jésus - reçu par FAB le 21 Septembre 2010, Berkeley, Californie, USA.
 
 C’est moi, Jésus.
 
-Permets-moi de transmettre un message sur un sujet qui vous a laissé perplexe, à savoir la comparaison entre la négativité héritée et le concept de péché originel. Vous avez eu l’impression que c’était vraiment la même chose. Ce n’est pas le cas. Le péché originel enseigne que la pureté et la bonté originelles de l’humanité ont été altérées de façon permanente par le péché des premiers parents, et que la seule façon pour l’humanité de retrouver son statut élevé est de croire au sacrifice expiatoire de Jésus sur la croix.
+Permettez-moi de transmettre un message sur un sujet qui vous a laissé perplexe, à savoir la comparaison entre la négativité héritée et le concept de péché originel. Vous avez eu l’impression que c’était vraiment la même chose. Ce n’est pas le cas. Le péché originel enseigne que la pureté et la bonté originelles de l’humanité ont été altérées de façon permanente par le péché des premiers parents, et que la seule façon pour l’humanité de retrouver son statut élevé est de croire au sacrifice expiatoire de Jésus sur la croix.
 
 Le fait que les nourrissons absorbent les négativités des ancêtres et des adultes vivants n’est que cela, sans identification avec le comportement des premiers parents. Il transmet simplement cette négativité à leur âme. En outre, chaque personne a la capacité et le pouvoir d’inverser cette négativité, sans aucune croyance en la croix, et sans aucune référence aux premiers parents.
 

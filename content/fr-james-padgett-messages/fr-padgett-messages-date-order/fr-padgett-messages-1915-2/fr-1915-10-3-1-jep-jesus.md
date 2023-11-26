@@ -38,4 +38,4 @@ Alors, avec mon amour et mes bénédictions pour vous deux et ma paix que le mon
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> L’orateur était M. Herrick. Bien que le titre laisse entendre qu’il s’agissait d’un service religieux, le texte suggère que c’était une réunion spiritualiste. (G.J.C.)[↩](#a1)
+1. <large id="f1"> L’orateur était M. Herrick. Bien que le titre laisse entendre qu’il s’agissait d’un service religieux, le texte suggère que c’était une réunion spiritualiste. (Geoff Cutler)[↩](#a1)

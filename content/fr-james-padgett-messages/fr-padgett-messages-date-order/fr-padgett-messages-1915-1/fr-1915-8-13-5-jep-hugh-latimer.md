@@ -28,8 +28,15 @@ Bien sûr, la mort du martyr éveillera parfois des qualités d’âme ou des co
 Mon cher frère, je dois m’arrêter maintenant, mais je reviendrai un jour pour vous écrire.
 
 Bien à vous, dans l’Amour, Hugh Latimer.
+
+**Note :** Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère spiituelle ou les Cieux Célestes :
+
+**Auteur** | **Ttre du message** | **Date du message**
+---|---|---
+Thomas Paine | [L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/) | 20 Juin 1915
+George Whitefield | [A changé ses fausses croyances qu’il a enseignées sur la terre et est maintenant dans le Ciel Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/) | 08 Août 1915
+Samuel B. Soulthard | [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
+Lafayette | [Relate son changement d’attitude envers les allemands](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) | 23 Avril 1916
 <small>
 
-1. <large id="f1"> Hugh Latimer (v. 1487 – 16 octobre 1555) était membre du Clare College de Cambridge et évêque de Worcester avant la Réforme, puis aumônier de l’Église d’Angleterre du roi Édouard VI. En 1555, sous la reine Marie Tudor, il fut brûlé sur le bûcher, devenant ainsi l’un des trois martyrs de l’anglicanisme d’Oxford. (Source : Wikipédia.)[↩](#a1)
-
-*Note :  Quatre autres esprits [Thomas Paine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/),[George Whitefield](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/),[Samuel B. Soulthard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) et [Lafayette](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.*
+1. <large id="f1"> **Hugh Latimer** (v. 1487 – 16 Octobre 1555) était membre du Clare College de Cambridge et évêque de Worcester avant la Réforme, puis aumônier de l’Église d’Angleterre du roi Édouard VI. En 1555, sous la reine Marie Tudor, il fut brûlé sur le bûcher, devenant ainsi l’un des trois martyrs de l’anglicanisme d’Oxford. (Source : Wikipédia.)[↩](#a1)

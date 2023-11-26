@@ -11,13 +11,15 @@ weight:
 
 Hugh Taggart - reçu par James Padgett le 22 Juillet 1915, Washington, USA.
 
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-spiritualite-27.jpg)
+
 Je suis aussi ici, Hugh Taggart.
 
 Comme Mackey l’a dit, je vous suis reconnaissant pour ce que vous avez fait pour moi, et pour la grande lumière qui m’est venue grâce à vos conseils, aux enseignements et à l’aide de votre groupe, et surtout pour la profonde sympathie et l’amour fraternel de votre belle épouse. Padgett, je veux vous dire que les choses les plus heureuses de toute ma vie ont été votre connaissance et les merveilleux résultats qui en ont découlé. Je me demande parfois comment tout cela a pu se produire.
 
 Lorsque j’étais sur terre, et qu’alors je savais que vous croyiez au spiritualisme, je n’ai jamais réalisé ce que votre foi et votre expérience signifiaient pour vous, et quelle grande aide ce serait pour moi, lorsque le moment serait venu pour moi de devenir un esprit.
 
-Je n’oublierai jamais notre premier argument après que je sois devenu un esprit sur cette grande question de savoir comment je pourrais être sauvé de mon horrible condition de souffrance et d’obscurité, et avec quel sérieux vous avez maintenu la position que vous avez prise et essayé de me montrer qu’il y avait un moyen par lequel je pouvais obtenir lumière, bonheur et être soulagé de mes tourments. Mackey et moi en parlons souvent, et nous nous émerveillons que vous ayez pu avoir une telle connaissance de ces questions spirituelles et une telle foi pour maintenir la vérité sur leur existence. Mais vous aviez raison et votre foi n’était pas déplacée.
+Je n’oublierai jamais notre [premier argument](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-12-3-jep-helen-padgett/) après que je sois devenu un esprit sur cette grande question de savoir comment je pourrais être sauvé de mon horrible condition de souffrance et d’obscurité, et avec quel sérieux vous avez maintenu la position que vous avez prise et essayé de me montrer qu’il y avait un moyen par lequel je pouvais obtenir lumière, bonheur et être soulagé de mes tourments. Mackey et moi en parlons souvent, et nous nous émerveillons que vous ayez pu avoir une telle connaissance de ces questions spirituelles et une telle foi pour maintenir la vérité sur leur existence. Mais vous aviez raison et votre foi n’était pas déplacée.
 
 Mon vieil ami, je vous remercie encore une fois, et que Dieu vous bénisse ! Je suis maintenant dans une condition de lumière et je souffre très peu et je réalise dans une grande mesure que l’Amour du Père existe et qu’il peut être mien.
 Je prie et ma foi devient de plus en plus forte. La grande preuve pour moi, en dehors de ce que je vois dans la condition des autres esprits qui prétendent avoir cet amour, est mon propre changement dans le bonheur de l’âme et dans le désir de progresser vers les sphères supérieures, que votre groupe me dit exister, et que je peux y trouver ma demeure si je prie davantage le Père et laisse ma foi grandir.

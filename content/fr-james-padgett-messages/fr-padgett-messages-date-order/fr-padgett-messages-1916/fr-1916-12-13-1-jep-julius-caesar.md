@@ -33,10 +33,11 @@ Je fus considéré sur terre comme un homme doté d’un esprit brillant et d’
 
 J’ai pensé que j’écrirais ceci ce soir, car je sais que vous êtes intéressé par mon avancement et, d’ailleurs, cela me fait beaucoup de bien de vous le dire. Je prie et désire ardemment, et ces esprits prient avec moi ; cependant et bien que jusqu’à présent, je n’ai pas encore beaucoup de cet Amour en mon âme, j’en ai assez pour savoir – je dis savoir – qu’il est réel et qu’il rend l’âme dure et incrédule ouverte à l’afflux en plus grande abondance de son essence divine. Le Père est bon, et je Lui fais confiance ; et avec toutes les possibilités de mon âme, je désire ardemment qu’elle se remplisse de cet Amour et qu’elle se débarrasse de tous ces doutes centenaires et de cette dureté du cœur et des incrédulités.
 
-Je connais le chemin et maintenant je ne retomberai jamais dans l’état d’esprit qui fut le mien pendant tant de siècles ; et je peux dire que César a vu la lumière du phare de l’espoir et le grand soleil de la connaissance que ces faits que les esprits aimants me disent sont vrais. Je dois m’arrêter maintenant, cependant, au fur et à mesure que je progresserai, j’aimerais venir vous décrire mes progrès. Je vous souhaite une bonne nuit, et je signerai moi-même.
+Je connais le chemin et maintenant je ne retomberai jamais dans l’état d’esprit qui fut le mien pendant tant de siècles ; et je peux dire que César a vu la lumière du phare de l’espoir et le grand soleil de la connaissance que ces faits que les esprits aimants me disent sont vrais. Je dois m’arrêter maintenant, cependant, au fur et à mesure que je progresserai, j’aimerais venir vous décrire mes progrès. <sup id="a1">[1](#f1)</sup> Je vous souhaite une bonne nuit, et je signerai moi-même.
 
-Votre ami et bienveillant, Jules César.<sup id=”a1”>[1](#f1)</sup>.
+Votre ami et bienveillant, Jules César. <sup id="a2">[2](#f2)</sup>.
 <small>
 
-1. <large id=”f1”> [Quelques mois plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/), Jules César est venu partager ses expériences après avoir reçu l'aide d'un esprit Divin.[↩](#a1)
-Note : Q
+1. <large id="f1"> [Quelques mois plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/), Jules César est venu partager ses expériences après avoir reçu l'aide d'un esprit Divin.[↩](#a1)
+
+2. <large id="f2"> Jules César était en enfer depuis sa mort en 44 avant J.-C jusqu'à sa sortie en 1916. Il a donc passé 1960 ans en enfer, mais il ne lui a fallu que 12 mois de prières pour que l'Amour Divin le libère et qu'il puisse entrer dans la lumière - la zone grise probablement - laquelle est la zone juste au-dessus des enfers.[↩](#a2)

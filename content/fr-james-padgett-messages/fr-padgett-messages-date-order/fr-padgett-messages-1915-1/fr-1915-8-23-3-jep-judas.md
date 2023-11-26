@@ -21,6 +21,7 @@ Je ne l’ai jamais trahi pour l’argent que j’ai reçu, car il ne suffisait 
 
 Alors bonne nuit.
 
-Judas.
+Judas. <sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : En 2002, un autre médium a reçu plus de détails sur ce qui a motivé Judas à trahir Jésus. [Vous pouvez lire ceci ici](******). L’argent n’avait rien à voir avec ses motivations.*
+<large id="f1"> En 2002, un autre médium a reçu plus de détails sur ce qui a motivé Judas à trahir Jésus. [Vous pouvez lire ceci ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-16-1-hr-judas/). L’argent n’avait rien à voir avec ses motivations.[↩](#a1)

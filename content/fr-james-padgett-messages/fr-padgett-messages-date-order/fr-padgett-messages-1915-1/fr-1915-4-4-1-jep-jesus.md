@@ -27,7 +27,7 @@ Je reviendrai bientôt vers vous pour terminer mon dernier message et, lorsqu’
 
 Non seulement vous sentirez, en vous même, le grand profit de cette grande vérité de la Nouvelle Naissance, mais vous conduirez beaucoup d’autres à embrasser la vérité et à recevoir les bénéfices que le Père a préparés pour tous ceux qui veulent L’aimer et recevoir Son Amour.
 
-Ainsi mon cher frère et disciple, continuer à vous efforcer d’apprendre ces vérités, et à enseigner aux autres le chemin de mes vérités et leur propre rédemption.
+Ainsi mon cher frère et disciple, continuez à vous efforcer d’apprendre ces vérités, et à enseigner aux autres le chemin de mes vérités et leur propre rédemption.
 
 Je serai très souvent avec vous, parce que je dépends de vous pour recevoir et répandre mon Évangile de la Vérité ; et quand vous aurez fait cela, l’humanité se détournera de sa religion formelle et embrassera la manière vraie et seule pour son salut. Une nouvelle église surgira, et l’Amour du Père, en attente d’être accordé sur tous les hommes, sera la pierre d’angle de son établissement.
 

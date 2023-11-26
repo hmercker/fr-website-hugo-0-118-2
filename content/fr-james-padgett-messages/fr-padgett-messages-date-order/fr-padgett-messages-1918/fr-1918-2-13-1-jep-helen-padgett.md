@@ -7,8 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène parle des fausses croyances de M. Colburn Bonne nuit, mon cher mari. Ta vraie et bien-aimée, Hélène.
-<sup id="a1">[1](#f1)</sup>
+### Hélène parle des fausses croyances de M. Colburn Bonne nuit, mon cher mari. Ta vraie et bien-aimée, Hélène.<sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 13 Février 1918, Washington, USA.
 
@@ -23,4 +22,4 @@ J’ai entendu ce que le père et la sœur du docteur ont écrit et il doit teni
 Aime-moi et prie le Père et croie toutes les réalités que nous t’avons dites et tu ne seras pas déçu.
 <small>
 
-1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été diffusé par la F.C.N.B. dans sa lettre d’information de l’hiver 2014.[↩](#a1)
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été diffusé par la F.C.N.B. (Fédération des Eglises de la Nouvelle Naissance) dans sa lettre d’information de l’hiver 2014. Pour plus d'informations sur les deux principales églises liées à la diffusion des messages de James Padgett, consulter [ce lien.](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/)[↩](#a1)

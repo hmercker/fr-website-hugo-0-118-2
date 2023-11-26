@@ -19,11 +19,11 @@ Bien sûr, s’il considère un instant ma position et le fait que pendant de lo
 
 J’aimerais beaucoup lui parler à nouveau et lui poser quelques questions concernant la position qu’il a prise, et ce non pas dans un but de controverse, mais pour connaître ses explications sur certaines des réalités qu’il a affirmées. Donc, s’il me tolère pendant quelque temps, je lui en serai très reconnaissant.
 
-*[]Écrit maintenant par l’intermédiaire de M. Morgan.]*
+*Écrit maintenant par l’intermédiaire de M. Morgan.*
 
 Je voudrais vous poser une question, à savoir comment avez-vous pris connaissance des réalités que vous avez affirmées être les grandes vérités qu’il faut comprendre pour obtenir le salut ?
 
-*[M. Morgan a permis au père Williams de visualiser un esprit brillant.]*
+*M. Morgan a permis au père Williams de visualiser un esprit brillant.*
 
 Je l’ai vu.
 

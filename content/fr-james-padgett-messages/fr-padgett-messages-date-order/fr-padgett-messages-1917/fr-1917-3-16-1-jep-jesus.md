@@ -28,4 +28,4 @@ Alors, avec mon amour, je vous souhaite une bonne nuit.
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> Cela faisait référence aux messages officiels comme ceux que M. Padgett avait obtenus. (J.P.G.)[↩](#a1)
+1. <large id="f1"> Cela faisait référence aux messages officiels comme ceux que M. Padgett avait obtenus. (Jean Paul Gibsons)[↩](#a1)

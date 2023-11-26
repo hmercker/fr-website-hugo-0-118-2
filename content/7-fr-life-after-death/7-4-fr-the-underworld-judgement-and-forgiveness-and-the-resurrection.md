@@ -17,6 +17,8 @@ Un résumé "Getting the Hell out of here (Sortir de l'Enfer) qui reprend des é
 
 Le « Paul et Albert » de George Vale Owen en format pdf est également inclus dans Outlands of Heaven (Les Contrées du Ciel) Volume 5 of Life Beyond the Veil (La vie au-delà du voile) par le révérend George Vale Owen.
 
+<a name="the-hells"></a>
+
 #### Les Enfers
 
 **Auteur** | **Titre du message** | **Date du message**  
@@ -98,7 +100,7 @@ Paul de Tarse | [La résurrection que Jésus a enseignée sans laquelle notre fo
 St Paul | [Paul – Quel est le corps réel qui est ressuscité au moment de la mort physique](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-4-1-jep-st-paul/) | 4 Octobre 1916
 St Paul | [Paul – suite du message précédent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-5-1-jep-st-paul/) | 5 Octobre 1916
 
-#### Esprits terrestres et Esprits Sombres dans le plan astral
+#### Esprits terrestres et Esprits Sombres dans le [plan astral](/7-fr-life-after-death/7-1-3-fr-astral-plan/)
 
 Bien que les messages reçus par James Padgett n'abordent pas ce sujet dans une large mesure, il est vrai que les mortels peuvent être sérieusement affectés par des entités résidant dans le plan astral, également appelé plan terrestre. Il peut s'agir d'esprits terrestres ou d'esprits des ténèbres. Les esprits liés à la terre sont ceux qui, pour une raison ou une autre, sont restés sur le plan terrestre après la mort. Les raisons sont variées, mais dans tous les cas, un manque de développement spirituel est un facteur majeur. Certains sont simplement confus et effrayés, et presque tous ne réalisent pas qu'ils sont morts. Certains sont attachés aux possessions matérielles et essaient de rester autour d'elles. Ces esprits terrestres peuvent habiter une maison et être qualifiés de "fantômes" ou de poltergeists lorsqu'ils sont gênants. Plus insidieux sont ceux qui "s'attachent" à un mortel. Cela affecte toujours le mortel, et ces effets peuvent être à la fois physiques et mentaux. Il existe cependant aussi des coquilles astrales, qui ne contiennent plus d'âme, et ne sont qu'un paquet d'énergie résiduel. Ces entités ne répondent pas lorsqu'on leur adresse la parole et continuent à suivre un schéma très répétitif, car elles n'ont aucune sensibilité. Elles aussi sont parfois considérées comme des fantômes.
 

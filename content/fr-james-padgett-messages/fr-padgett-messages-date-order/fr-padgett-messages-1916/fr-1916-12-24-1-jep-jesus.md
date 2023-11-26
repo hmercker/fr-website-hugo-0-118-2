@@ -1,4 +1,4 @@
-[---
+---
 title: "Ce que les hommes peuvent faire pour supprimer la guerre et le mal des âmes des hommes. Jésus n’est jamais venu apporter une épée, mais apporter la paix par ses enseignements"
 menu_title: ""
 description: "Ce que les hommes peuvent faire pour supprimer la guerre et le mal des âmes des hommes. Jésus n’est jamais venu apporter une épée, mais apporter la paix par ses enseignements"
@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par James Padgett le 24 Décembre 1916, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-beach.jpeg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-beach.jpeg)
 
 C’est moi, Jésus.
 
@@ -41,11 +41,9 @@ Mais Dieu est toujours disposé à que ces mauvais résultats n’aient aucune e
 
 Dieu n’interviendra pas de sa propre initiative pour permettre qu’un côté ou l’autre, de ceux qui sont engagés dans ce carnage et cette effusion de sang, ne devienne victorieux. La Loi de la compensation doit s’exécuter et les dirigeants des nations respectives doivent récolter ce qu’ils ont semé, et, dans ce processus de moisson, l’innocent doit souffrir parce que selon les conditions, la loi ne peut pas s’accomplir à moins que tous, dans le cadre de son fonctionnement, ressentent sa mise en œuvre. Cependant le Père, la multitude de Ses anges et les esprits des hommes sont employés à mettre un terme à cette terrible catastrophe. Vous avez longuement écrit, et il est tard, je vais donc reporter la suite de ce sujet à un autre moment. Croyez que je suis avec vous, que je vous aime et que je vous soutiendrai dans vos désirs de faire mon travail.
 
-Votre frère et ami, Jésus.<sup id="a2">[2](#f2)</sup>
+Votre frère et ami, Jésus. <sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Ce sermon du Dr. Mitchell était intitulé : « Le grand paradoxe – Jésus Prince de la paix et fauteur de troubles »[↩](#a1)
+1. <large id="f1"> Ce sermon du Dr. Mitchell était intitulé : *« Le grand paradoxe – Jésus Prince de la paix et fauteur de troubles »*[↩](#a1)
 
-2. <large id=”f2”> Luc s’est également exprimé sur le sujet de la guerre le [27 Février 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-27-1-jep-st-luke/).[↩](#a2)
-
-
+2. <large id="f2"> Luc s’est également exprimé sur le sujet de la guerre le [27 Février 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-27-1-jep-st-luke/). Les différents messages relatifs à la première guerre mondiale peuvent être lus par l'intermédiaire de [ce lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)

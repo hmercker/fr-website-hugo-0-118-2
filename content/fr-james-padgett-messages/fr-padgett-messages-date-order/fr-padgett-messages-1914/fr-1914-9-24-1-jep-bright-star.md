@@ -27,7 +27,7 @@ Oui, vous devez venir bientôt et je vous parlerai et vous saurez que je suis la
 
 *[Question de M. Padgett : Qui a écrit samedi soir ?]*
 
-Votre père, votre mère, votre grand-mère, votre grand-mère et votre femme, ainsi que Jésus vous ont écrit. Oui, il le fera si vous l’appelez, il vous enseignera les vérités de la Bible et de sa propre connaissance. C’est le plus grand de tous les professeurs. C’est un bel esprit et il vous aime, vous et toute l’humanité. Soyez un vrai adepte de ses enseignements et vous deviendrez un homme très spirituel. C’est le seul que vous pouvez suivre. Oui, et il m’enseigne, ainsi que nous tous qui avons l’amour de Dieu dans nos cœurs.
+Votre père, votre mère, votre grand-mère, votre grand-mère et votre femme, ainsi que Jésus vous ont écrit. Oui, il le fera si vous l’appelez, il vous enseignera les vérités de la Bible et de sa propre connaissance. C’est le plus grand de tous les professeurs. C’est un bel esprit et il vous aime, vous et toute l’humanité. Soyez un vrai adepte de ses enseignements et vous deviendrez un homme très spirituel. C’est le seul que vous pouvez suivre. Oui, et il m’enseigne, ainsi que nous tous qui avons l’Amour de Dieu dans nos cœurs.
 
 *[Question : Êtes-vous des Indiens sur le plan terrestre ?]*
 
@@ -51,8 +51,8 @@ Oui, je le connais. C’est un homme très bon et il est doué du pouvoir de la 
 
 *[Question : Les personnes présentes à la séance n’ont-elles pas seulement pensé à elle d’une manière matérielle ?]*
 
-Oui, c’est ainsi qu’ils pensaient de moi, mais je suis plus que ça. J’ai un côté spirituel dans mon être aussi bien que le côté qu’ils connaissent. Vous pouvez cependant voir le côté spirituel, car vous êtes une personne spirituelle et vous ne vous contentez pas de simples phénomènes et, avec vous, j’aime parler de choses spirituelles.
+Oui, c’est ainsi qu’ils le pensaient de moi, mais je suis plus que ça. J’ai un côté spirituel dans mon être aussi bien que le côté qu’ils connaissent. Vous pouvez cependant voir le côté spirituel, car vous êtes une personne spirituelle et vous ne vous contentez pas de simples phénomènes et, avec vous, j’aime parler de choses spirituelles.
 
 Laissez-moi aller maintenant. Bonne nuit. Bright Star.
 
-*Note : Le style de ce message correspond à un des premiers messages, bien que sa date ne corresponde peut-être pas exactement à celle indiquée dans le journal quotidien comme étant la date la plus ancienne enregistrée au regard de Bright Star.*
+**Note :** Le style de ce message correspond à un des premiers messages, bien que sa date ne corresponde peut-être pas exactement à celle indiquée dans le journal quotidien comme étant la date la plus ancienne enregistrée au regard de Bright Star.

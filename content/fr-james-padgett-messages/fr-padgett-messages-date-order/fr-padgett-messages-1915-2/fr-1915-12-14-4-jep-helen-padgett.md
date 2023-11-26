@@ -15,7 +15,7 @@ Je suis ton Hélène.
 
 Eh bien, mon cher Ned, je peux à peine écrire, car je suis tellement impressionnée par ce qui s’est passé ce soir que j’ai presque perdu ma capacité d’écrire.
 
-Mais, mon chéri, je dois te dire que tu es très cher au Maître et, à un très grand degré, un enfant de l’Amour du Père.
+Mais, mon chéri, je dois te dire que tu es très cher [au Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-14-1-jep-jesus/) et, à un très grand degré, un enfant de l’Amour du Père.
 
 Un tel amour, je ne l’avais jamais vu auparavant et je ne m’attendais pas à le voir, surtout accordé à toi qui m’est si cher.
 

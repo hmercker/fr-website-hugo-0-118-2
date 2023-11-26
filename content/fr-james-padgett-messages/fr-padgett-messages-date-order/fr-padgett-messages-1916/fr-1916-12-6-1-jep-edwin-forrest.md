@@ -13,7 +13,7 @@ Edwin Forrest - reçu par James Padgett le 6 Décembre 1916, Washington, USA.
 
 Je suis Edwin Forrest.
 
-Je veux simplement dire un mot. Je sais qu’il est tard, mais j’ai écouté tes lectures et ta conversation de ce soir, et j’ai été très intéressé, car tu as lu et dit beaucoup de réalités dont je n’avais pas connaissance. J’ai été particulièrement intéressée par la prière que tu dis avoir été écrite par Jésus. J’ai essayé de la mémoriser, car je crois que si elle peut t’être utile, elle me sera aussi utile. J’ai tellement besoin d’aide, bien que je ne sois pas dans l’horrible état d’obscurité et de souffrance dans lequel j’étais lorsque je t’ai écrit pour la première fois.
+Je veux simplement dire un mot. Je sais qu’il est tard, mais j’ai écouté tes lectures et ta conversation de ce soir, et j’ai été très intéressé, car tu as lu et dit beaucoup de réalités dont je n’avais pas connaissance. J’ai été particulièrement intéressée par [la prière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/) que tu dis avoir été écrite par Jésus. J’ai essayé de la mémoriser, car je crois que si elle peut t’être utile, elle me sera aussi utile. J’ai tellement besoin d’aide, bien que je ne sois pas dans l’horrible état d’obscurité et de souffrance dans lequel j’étais lorsque je t’ai écrit pour la première fois.
 
 Je trouve merveilleux que ces esprits brillants et élevés viennent à toi et écrivent les messages que tu reçois. Je suis souvent présent lorsque tu écris et je peux comprendre ce que tu reçois cependant, aussi étrange que cela puisse te paraître, je ne peux pas voir ces esprits à moins qu’ils ne se révèlent spécialement à moi.
 

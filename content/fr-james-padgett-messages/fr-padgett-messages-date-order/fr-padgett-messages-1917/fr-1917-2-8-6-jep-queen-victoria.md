@@ -19,4 +19,7 @@ Oh, cette guerre est horrible, et la fleur de mon peuple est coupée comme tant 
 
 J’ai prié pour tous ceux qui sont engagés dans cette guerre et pour, avec d’autres esprits, endiguer la vague de haine et les sentiments de conquête et de vengeance qui les habitent aujourd’hui. Je crois que la fin est en vue maintenant et que les Allemands chercheront bientôt la paix, que les nations déposeront les armes, et que le bon sens et le sang froid régneront à nouveau. Je ne peux pas écrire davantage ce soir, et je me contenterai de dire que nous prions tous le Père pour que sa miséricorde soit déversée sur ces hommes malheureux et égarés. En vous remerciant, je vous souhaite donc une bonne nuit.
 
-Je vous remercie, Victoria.
+Je vous remercie, Victoria. <sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)

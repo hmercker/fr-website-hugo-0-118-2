@@ -19,7 +19,7 @@ Je suis tellement heureuse que tu sois en si bonne condition ce soir et que ton 
 
 J’étais avec toi chez M. Morgan et tu lui as fait beaucoup de bien par ta conversation et l’influence que tu as exercée sur lui car je dois te dire qu’il y avait beaucoup d’esprits élevés qui se sont intéressés et ont influencé vos pensées sur des choses spirituelles. La musique à l’église était très inspirante et j’ai apprécié tes pensées d’Amour pour le Père et le Maître ainsi que pour moi-même.
 
-*[Une question a été posée.]*
+*[Une question a été posée :]*
 
 Elles étaient présentes aussi, ta mère et ta grand-mère, et elles étaient heureuses de voir que tes pensées étaient tournées vers les choses supérieures de la vie et elles t’impressionnaient par leurs pensées aimantes et essayaient de te faire réaliser leur présence.
 

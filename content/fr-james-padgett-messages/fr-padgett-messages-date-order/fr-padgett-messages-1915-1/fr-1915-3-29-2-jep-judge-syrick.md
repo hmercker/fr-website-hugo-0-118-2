@@ -25,4 +25,4 @@ Eh bien, je ne connais personne à qui je préférerais qu’il appartienne plut
 Donc, avec mes meilleures salutations et mes meilleurs vœux, je suis votre véritable ami, Frank D. Syrick.
 <small>
 
-1. <large id="f1"> Ce message est un composite de deux, publié dans le Volume III à la page 294 et le Volume IV à la page 239.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III à la page 373 et le Volume IV à la page 294. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

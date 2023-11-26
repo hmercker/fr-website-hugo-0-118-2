@@ -15,7 +15,7 @@ C’est moi, Hélène.
 
 Tu es trop nerveux pour écrire. Tu dois te coucher tôt et te reposer. Tu es mon cher Ned, et je t’aime de tout mon cœur, alors ne pense pas que tu n’es pas aimé de moi, de ton père, de ta mère et de ta grand-mère. Nous t’aimons tous.
 
-*Question et réponse :*
+*[Question et réponse :]*
 
 Oui, je l’ai fait. Et il (Jésus) dit qu’il attend que tu sois en état d’écrire. Il t’écrira comme il l’a dit et tu devras bientôt être en état de le recevoir. Tu l’obtiendras par la prière, comme me l’a dit ta grand-mère qui est ici. Elle dit que tu dois croire plus profondément aux promesses du Maître et tu recevras le don de l’Esprit. Elle dit que tu es trop occupé par tes affaires pour laisser l’Esprit entrer dans ton âme, dans toute sa vérité et son amour. Elle dit que tu ne dois pas laisser les pensées concernant ton avenir t’empêcher de prier Dieu et de l’aimer comme nous allons prendre soin de toi.
 
@@ -27,7 +27,8 @@ Oui, il (le prédicateur) a tout faux et tu n’en tireras aucun bénéfice. Il 
 
 Oui, crois seulement davantage et tu recevras bientôt le don de l’esprit dans toute sa plénitude. Oui, tu le feras et ceux avec qui tu seras en contact le seront aussi. Donne au Seigneur tout ton cœur et toute ton âme et tu réaliseras bientôt la différence dans ta vie. Oui, elle le fait, elle est souvent avec toi et prie Dieu de te bénir.
 
-Elle dit, qu’elle est prête à assister une fois à une telle séance, mais qu’elle n’est pas bénéfique en général, car elle n’aide pas le développement spirituel de la personne, mais convainc seulement l’homme que l’esprit est un être vivant et peut revenir sur terre et se montrer sous une forme qui peut être matérialisée.
+Elle dit qu’elle est prête à assister une fois à une telle séance, mais qu’elle n’est pas bénéfique en général, car elle n’aide pas le développement spirituel de la personne, mais convainc seulement l’homme que l’esprit est un être vivant et peut revenir sur terre et se montrer sous une forme qui peut être matérialisée.
+
 La phase d’écriture est la plus satisfaisante car elle permet de préserver ce qui est dit et de communiquer d’une manière plus étendue et plus édifiante.
 
 Elle (Mme Kates) exprime son point de vue. Aucun esprit ne parle à travers elle. Elle voit les formes et les scènes qu’elle décrit et elle entend les voix des esprits qui lui parlent et elle ne fait que répéter ce qu’elle entend. Elle ne fait que répéter le langage qu’elle entend.

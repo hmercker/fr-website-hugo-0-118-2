@@ -9,9 +9,9 @@ weight:
 ---
 ### Très intéressé par le travail et l’importance pour l’humanité de connaître la Vérité <sup id="a1">[1](#f1)</sup>
 
-Cornelius - reçu par James Padgett le 7 Février 1917, Washington, USA.
+Corneille - reçu par James Padgett le 7 Février 1917, Washington, USA.
 
-C’est moi, Cornelius (le Centurion).
+C’est moi, Corneille (Cornelius le Centurion).
 
 Je veux seulement écrire quelques lignes ce soir. Je m’intéresse tellement à vous et à votre travail que je sens que je devrais vous donner quelques encouragements pour vous faire savoir qu’il y a ici, ce soir, beaucoup d’esprits qui sont présents, qui vous aiment beaucoup et qui désirent que vous receviez leurs messages d’amour et de vérité.
 
@@ -20,7 +20,8 @@ Comme je vous l’ai dit, je suis dans les Sphères Célestes. Je sais ce qu’e
 Je sais que les doctrines Chrétiennes contenues dans la Bible, et enseignées par de nombreux prédicateurs et prêtres, sont les seules doctrines dont les Chrétiens ont la connaissance et sont, par conséquent, acceptées par eux comme étant les révélations inspirées de Dieu et la vérité de ce qu’Il est, et de ce que l’homme doit faire pour obtenir le salut. Et ces gens reposent solidement dans ces croyances, et dans l’assurance que la voie biblique est la seule voie de salut. Se reposant sur ces croyances, le monde ne voit pas la nécessité d’obtenir la seule chose qui les rendrait en accord avec Dieu et en ferait des habitants de Son ciel.
 
 Je vous écris simplement pour vous montrer qu’il est de la plus haute importance que les vérités de la voie du salut soient révélées à toute l’humanité. Je ne pense pas avoir quelque chose de plus à dire ce soir, et donc je vais vous quitter. Avec tout mon amour, je suis
-Votre frère en Christ, Cornelius.
+
+Votre frère en Christ, Corneille.
 <small>
 
-1. <large id="f1"> Ce message est aussi publié dans le Volume III, page 287. Pour plus de détails, consultez cette page.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume 1, première édition française, à la page 274 et dans le volume II à la page 459. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

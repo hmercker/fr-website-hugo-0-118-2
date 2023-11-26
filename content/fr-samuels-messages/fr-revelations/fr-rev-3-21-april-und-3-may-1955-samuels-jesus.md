@@ -1,13 +1,13 @@
 ---
-title: " 3ème Révélation : L’amour divin est un privilège, un Don du Père"
+title: " 3ème Révélation : L’Amour Divin est un privilège, un Don du Père"
 menu_title: ""
-description: " 3ème Révélation : L’amour divin est un privilège, un Don du Père"
+description: " 3ème Révélation : L’Amour Divin est un privilège, un Don du Père"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True
 weight:
 ---
-###  3ème Révélation : L’amour divin est un privilège, un Don du Père
+###  3ème Révélation : L’Amour Divin est un privilège, un Don du Père
 
 Jésus - reçu par Dr Samuels le 21 Avril et 3 Mai 1955, Washington, USA.
 
@@ -29,7 +29,7 @@ Il y a de bons et mauvais esprits, dans les différentes sphères qui sont attir
 
 Le retrait de l’Amour Divin, à un certain moment dans le futur, indique que c’est simplement un privilège accordé à l’humanité par un Père aimant et que cela ne veut pas dire que l’Amour Divin sera retiré de l’humanité pour l’éternité. En fait c’est quelque chose qui n’a pas encore été révélé aux Cieux Célestes, mais, connaissant le Père comme je le connais, je ne peux pas imaginer que Dieu, dans sa Grande Bonté et Miséricorde, n’ait pas un plan de salut qui permettra à toutes Ses âmes créées de demander l’Union avec lui, même si, au moment de leur incarnation, le don de l’immortalité leur a été retiré.
 
-Car tout comme les âmes des hommes ont eu l’occasion d’embrasser le privilège d’obtenir l’Amour en tant qu’esprits, ce privilège leur a été refusé dans la chair avant l’heure de ma venue, on ne peut donc pas définitivement affirmer qu’à une date ultérieure, en un temps voulu par Dieu, le privilège ne sera pas en quelque sorte restauré après le deuxième retrait. Et même si les Cieux Célestes seront remplis et ses portes fermées après le deuxième retrait, cela ne signifie pas qu’il ne sera pas créé un autre Ciel Céleste dans les royaumes de Dieu, car, comme je l’ai dit durant ma vie sur la terre, « Dans la maison de mon Père il y a plusieurs demeures », et les possibilités d’actes de bonté et de bienveillance de Dieu sont proportionnées à Ses voies infinies de contrôler Son univers et les créatures qu’il contient. Dieu étant Amour, Miséricorde et Sagesse, ne donnera pas à l’homme, ses enfants, une pierre quand ils demanderont du pain, ni un serpent quand ils demanderont des poissons.
+Car tout comme les âmes des hommes ont eu l’occasion d’embrasser le privilège d’obtenir l’Amour en tant qu’esprits, ce privilège leur a été refusé dans la chair avant l’heure de ma venue, on ne peut donc pas définitivement affirmer qu’à une date ultérieure, en un temps voulu par Dieu, le privilège ne sera pas en quelque sorte restauré après le deuxième retrait. Et même si les Cieux Célestes seront remplis et ses portes fermées après le deuxième retrait, cela ne signifie pas qu’il ne sera pas créé un autre Ciel Céleste dans les royaumes de Dieu, car, comme je l’ai dit durant ma vie sur la terre, *[Dans la maison de mon Père il y a plusieurs demeures](https://saintebible.com/john/14-2.htm)*, et les possibilités d’actes de bonté et de bienveillance de Dieu sont proportionnées à Ses voies infinies de contrôler Son univers et les créatures qu’il contient. [Dieu étant Amour, Miséricorde et Sagesse, ne donnera pas à l’homme, ses enfants, une pierre quand ils demanderont du pain, ni un serpent quand ils demanderont des poissons](https://saintebible.com/matthew/7-8.htm).
 
 Pour l’instant, je vais vous dire bonne nuit et affirmer que je suis votre frère et ami.
 

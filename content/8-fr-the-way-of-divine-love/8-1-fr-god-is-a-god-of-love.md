@@ -15,7 +15,8 @@ Jusqu’à la venue de Jésus Dieu était perçue comme une divinité qu’il fa
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Jésus | [22ème Révélation : Comment les écrits d’Osée ont aidé Jésus à comprendre la nouvelle alliance entre Dieu et l’humanité](/fr-samuels-messages/fr-revelations/fr-rev-22-1955-1-27-samuels-jesus/) | 27 Janvier 1955
-Jésus | [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père dans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) | 3 Mars 1915
-Samuel | [Son enseignement et expérience lors de vie terrestre. N’a pas obtenu l’Amour Divin avant la venue de Jésus à la terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-21-2-jep-samuel/) | 21 Juillet 1915
-George Whitefield | [A changé ses fausses croyances qu’il a enseignées sur la terre et est maintenant dans le Ciel Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/) | 8 Août 1915
+Jésus | [22ème Révélation : Comment les écrits d’Osée ont aidé Jésus à comprendre la nouvelle alliance entre Dieu et l’humanité.](/fr-samuels-messages/fr-revelations/fr-rev-22-1955-1-27-samuels-jesus/) | 27 Janvier 1955
+Jésus | [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père dans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) | 3 Mars 1915
+Samuel | [Son enseignement et expérience lors de vie terrestre. N’a pas obtenu l’Amour Divin avant la venue de Jésus à la terre.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-21-2-jep-samuel/) | 21 Juillet 1915
+George Whitefield | [A changé ses fausses croyances qu’il a enseignées sur la terre et est maintenant dans le Ciel Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/) | 8 Août 1915
+Hélène Padgett | [Hélène informe M. Padgett que sa lecture sur les anciens prophètes n’a eu que peu d’effet sur son âme.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-30-1-jep-helen-padgett/) | 30 Octobre 1917

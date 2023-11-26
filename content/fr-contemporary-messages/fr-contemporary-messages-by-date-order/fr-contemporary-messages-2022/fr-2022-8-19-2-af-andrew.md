@@ -1,0 +1,26 @@
+---
+title: "Cherchez la réalité de Dieu"
+menu_title: ""
+description: "Cherchez la réalité de Dieu"
+date: 2023-09-01 06:00:01+00:43
+draft: False
+hidden: True
+weight:
+---
+### Cherchez la réalité de Dieu
+
+André - reçu par Al Fike le 19 Août 2022, Gibsons, Colombie-Britannique, Canada.
+
+Bien-aimés, je suis André. Notre frère bien-aimé, Jésus, vient bénir chacun d’entre vous et il a été très actif avec votre autre cercle qui s’est réuni et qui est maintenant dissous. Les anges ont été occupés avec beaucoup d’entre vous ces derniers jours et semaines, continuant à vous assister dans votre voyage et vos préparations, vos prières, vos réveils. C’est à vous d’en être conscients, mes frères et sœurs bien-aimés, d’être conscients de la présence des anges. Car ils sont présents, mais c’est à vous de le savoir, d’être conscients, d’être à l’écoute, d’embrasser leur présence et de les attirer près de vous avec votre amour.
+
+Âmes bien-aimées, il y a tant de choses dont vous devez être conscientes. Il y a une réalité complètement différente qui fonctionne autour de vous et autour de cette Terre et dont beaucoup ne sont pas conscients. En vous, vous avez tendance à discréditer vos perceptions et vos sentiments au point de ne pas vous donner la permission de vraiment voir, sentir, entendre. Au fur et à mesure que vous grandirez dans l’Amour du Père, vous prendrez conscience de ces choses. Car l’intention de Dieu pour chacun d’entre vous est que vos yeux s’ouvrent, que vos perceptions soient claires et lumineuses et qu’elles soient les plus élevées. Dieu continue à vous protéger pendant que vous avancez. Dieu continue de vous bénir de tant de façons, car son Amour est disponible à tout moment lorsque vous demandez qu’il entre en vous, que ce don coule en vous.
+
+Combien de fois priez-vous sincèrement, âmes bien-aimées ? Combien de fois vous harmonisez-vous avec ces réalités, ces préoccupations de l’esprit et de votre voyage spirituel ? Combien de fois permettez-vous à Dieu d’entrer dans votre conscience ? Ce sont en effet vos désirs, vos perceptions et vos choix qui ouvrent les portes qui amènent les idées dans votre moi conscient. Êtes-vous capables de libérer les choses en vous qui sont suspectes et douteuses et très liées au plan terrestre, afin de vous élever, de choisir que Dieu vous élève, d’être en alignement et en communion avec les anges des Cieux Célestes ? Tout cela est à votre disposition à tout moment. C’est à vous de vous accorder, de vous éveiller à ces réalités, d’être conscients de tout ce qui vous entoure et des nombreux niveaux de réalité qui vous entourent.
+
+Puissiez-vous voir, savoir et ressentir, entendre la vérité, sentir la puissance de l’Amour de Dieu couler en vous, être conscients de vos anges amis, vous déplacer dans le flux de la Volonté et de l’Amour de Dieu. Ces choses viennent à vous, âmes bien-aimées, à condition que vous en soyez conscients et que vous invitiez et recherchiez ce qu’il y a de plus élevé. Cherchez à ce que l’Amour de Dieu continue à couler dans vos âmes. Cherchez à libérer ces conditions qui ne sont pas de l’amour. Tant de choses viennent avec votre choix, en exerçant le pouvoir, le vrai pouvoir de votre libre arbitre, en mettant de côté les influences et l’obscurité de la condition terrestre et en vous alignant sur la lumière. Pouvez-vous le faire, âmes bien-aimées, le faire dans la joie, le faire dans le désir profond, le faire dans la conception, le faire dans l’amour, le faire dans un effort concerté et cohérent ?
+
+Faites tout ce que vous pouvez pour vous éveiller aux voies de la lumière, de la vérité et de l’amour. Ces voies, votre âme y aspire. Votre esprit continue d’évaluer, d’accepter et de s’orienter vers ces voies, afin que vous puissiez vraiment être dans la réalité de Dieu, la vérité de Son Amour, la vérité de tous les aspects et de toutes les bénédictions qui sont en alignement avec Sa Volonté. Ils viennent à vous à votre demande. Lorsque vous demandez, pensez à ces choses qui sont d’un calibre supérieur et d’une nature supérieure. Pensez à prier et, ce faisant, à vous ouvrir aux désirs de votre âme. Pensez à servir les autres dans l’amour, à marcher dans la vérité de Son amour. De cette manière, vous ouvrez les portes, vous apportez les bénédictions et vous vous retrouvez sur le chemin du véritable éveil de l’âme, de la libération et de la lumière.
+
+Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Considérez ce qui vous est offert. Considérez qu’il vous est tant donné. C’est à vous d’accepter, d’embrasser, d’avoir une profonde gratitude et une grande joie pour ce que Dieu vous apporte, ce que l’amour vous donne, et tout ce que vous pouvez faire à mesure que vos dons s’ouvrent, que les facultés de votre âme s’éveillent, tout ce que vous pouvez faire à la gloire de l’amour, à la gloire de Dieu, à la gloire de la Vérité.
+
+Que Dieu vous bénisse, mes amis, je suis André. Je viens vous élever et vous dire que votre frère, Jésus, s’approche pour bénir chacun d’entre vous. Ouvrez-vous à ses bénédictions. Ouvrez-vous aux bénédictions de Dieu, et connaissez la joie et la liberté qui viennent dans ce beau temps de prière. Que Dieu vous bénisse. André vous aime tous. Que Dieu vous bénisse.

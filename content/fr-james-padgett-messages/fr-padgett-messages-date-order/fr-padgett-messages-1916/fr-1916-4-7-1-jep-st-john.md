@@ -39,4 +39,4 @@ Je viendrai bientôt vous écrire un message sur certaines de ces vérités vita
 
 Je n’écrirai pas plus cette nuit.
 
-Votre frère en Christ, Jean. 
+Votre frère en Christ, Jean.

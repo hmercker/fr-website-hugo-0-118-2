@@ -17,12 +17,12 @@ Mes vérités sont claires et mes enseignements peuvent être compris par les si
 
 Celui qui court peut comprendre mes enseignements et il n’aura pas besoin de l’aide d’un prêtre ou d’un pasteur. Mes mots se suffiront à eux-mêmes. Ne vous préoccupez-pas de savoir si seules les personnes développées mentalement peuvent comprendre ce que j’écris – les vérités s’adressent à tous. Alors avec tout mon amour, je suis, votre frère et ami, Jésus.
 
-*Note :* L’expression « celui qui court peut comprendre mes enseignements » est curieuse. Il y a deux écoles de pensée à ce sujet. La première est qu’il s’agit d’une référence à une phrase biblique trouvée dans Habacuc :
+**Note :** L’expression *« celui qui court peut comprendre mes enseignements »* est curieuse. Il y a deux écoles de pensée à ce sujet. La première est qu’il s’agit d’une référence à une phrase biblique trouvée dans Habacuc :
 
-> L’Éternel me dit : Écris la vision en grandes lettres claires sur une tablette, afin qu’il puisse courir avec celui qui la lit » (Habacuc 2:2).
+> L’Éternel me dit : Écris la vision en grandes lettres claires sur une tablette, afin qu’il puisse courir avec celui qui la lit - [Habacuc 2:2](https://saintebible.com/habakkuk/2-2.htm)
 
 Parfois cité à tort comme *« afin que celui qui court puisse lire »*. Souvent (avant la traduction corrigée) interprétée comme : *« Écris-le en grosses lettres pour que tous ceux qui passent puissent le lire. »* Mais actuellement bien compris comme (la façon dont je le rendrais) : *« …afin que celui qui le lit puisse s’en servir. »* La traduction de la Bible en Français Courant (BFC) interprète ce vers comme ci-dessous indiqué :
 
-> Et l’Éternel me dit : Écris ce que je te fais connaître. Écris-le clairement sur des tablettes, pour qu’on le lise facilement. (Bible en français courant)
+> Et l’Éternel me dit : Écris ce que je te fais connaître. Écris-le clairement sur des tablettes, pour qu’on le lise facilement - [Bible en français courant](https://lire.la-bible.net/76/detail-traduction/chapitres/verset/Habacuc/2/2/TOB)
 
 L’autre point de vue est qu’il s’agit simplement d’une erreur d’interprétation de l’écriture automatique. Et que le mot doit être « prie ». Comme illustration de cette recherche de la simplicité, Il y a un message de Jean qui  nous invite à aller au plus profond de nous même et à prier afin de découvrir ce qui est ou ce qui n’est pas vrai ainsi qu’un message de Luc qui au nom de la simplicité rejette la conception théologique Chrétienne du mystère de la trinité.

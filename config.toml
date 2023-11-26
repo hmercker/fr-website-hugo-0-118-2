@@ -32,7 +32,7 @@ delimiter = ""
 [params]
   [params.homepage_meta_tags]
     meta_description = ""
-    meta_og_title = "Un voyage spirituel"
+    meta_og_title = "Un Voyage Spirituel"
     meta_og_type = "article"
     meta_og_url = "https:///www.lanouvelleverite.fr/"
     meta_og_image = "https:///www.lanouvelleverite.fr/images/social.png"

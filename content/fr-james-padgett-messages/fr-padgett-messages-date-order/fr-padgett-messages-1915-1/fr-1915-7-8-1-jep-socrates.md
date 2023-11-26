@@ -11,15 +11,17 @@ weight:
 
 Socrate - reçu par James Padgett le 8 Juillet 1915, Washington, USA.
 
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-socrate.webp)
+
 C’est moi, Socrate, le Grec.
 
 J’ai su que vous pensiez à moi et j’ai été attiré par votre pensée. Si un tel esprit est en rapport avec vous ou a une qualité d’âme similaire ; l’état d’âme est une attraction puissante.
 
-J’ai été avec vous antérieurement et il y a une relation qui se développe de par vos qualités d’âme. Je crois maintenant à la doctrine chrétienne de l’immortalité de l’âme et dans les enseignements de Jésus sur la façon d’obtenir l’Amour Divin du Père, comme vous le faites, et, par conséquent, nos qualités d’âme sont similaires.
+J’ai été avec vous antérieurement et il y a une relation qui se développe de par vos qualités d’âme. Je crois maintenant à la doctrine Chrétienne de l’immortalité de l’âme et dans les enseignements de Jésus sur la façon d’obtenir l’Amour Divin du Père, comme vous le faites, et, par conséquent, nos qualités d’âme sont similaires.
 
 Je suis maintenant un adepte du Maître et je crois en sa mission Divine sur terre, bien qu’il ne soit pas venu sur terre au temps où je vivais. Après mon passage dans le monde des esprits, j’ai réalisé ma croyance dans la continuité de la vie après la mort et j’ai vécu dans le monde des esprits de très nombreuses années après la venue de Jésus avant que j’apprenne et croit en sa plus grande vérité de l’immortalité.
 
-Bien sûr, quand j’enseignais j’avais seulement l’espoir, qui était presque une certitude, que je continuerais à vivre pour l’éternité, mais je n’avais aucun autre fondement que la croyance aux déductions de mes raisonnements ainsi que les observations des rouages de la nature.
+Bien sûr, lorsque j’enseignais j’avais seulement l’espoir, qui était presque une certitude, que je continuerais à vivre pour l’éternité, mais je n’avais aucun autre fondement que la croyance aux déductions de mes raisonnements ainsi que les observations des rouages de la nature.
 
 J’avais entendu parler des visites des esprits des défunts, mais je n’avais jamais eu aucune expérience personnelle dans cette direction, mais je croyais facilement en cela.
 
@@ -55,15 +57,23 @@ Eh bien, il n’est pas nécessaire de vous parler plus en détail de mon expér
 
 J’ai rencontré Jésus et je n’avais aucune idée qu’il puisse y avoir un esprit aussi glorieux, magnifique et aimant. Il était si gracieux et semblait tellement intéressé par mon bien-être et le progrès dans les vérités qu’il enseignait.
 
-Pouvez-vous vous étonner que je sois devenu un chrétien et un de ses disciples ? Par la suite, j’ai appris ce qu’est la Vraie Immortalité et que je fais partie de cette Immortalité. Je vois à quel point ma conception et mon enseignement de l’immortalité étaient limités. Seul cet Amour Divin peut donner aux Esprits l’Immortalité, et rien de moins n’est que l’ombre d’un espoir, tel que je l’avais.
+Pouvez-vous vous étonner que je sois devenu un Chrétien et un de ses disciples ? Par la suite, j’ai appris ce qu’est la Vraie Immortalité et que je fais partie de cette Immortalité. Je vois à quel point ma conception et mon enseignement de l’immortalité étaient limités. Seul cet Amour Divin peut donner aux Esprits l’Immortalité, et rien de moins n’est que l’ombre d’un espoir, tel que je l’avais.
 
 Je suis maintenant dans une sphère qui n’est pas numérotée; mais est très élevée dans les Cieux Célestes, et non loin de quelques-unes des sphères où vivent les disciples du Maître. Je progresse toujours, et c’est la beauté et la gloire du développement de l’âme – où il n’y a pas de limite – alors que mon développement intellectuel était limité.
 
-Je dois arrêter maintenant car j’ai écrit plus que je n’aurais dû le faire. Mais je reviendrai vers vous prochainement pour vous parler de certaines des vérités que j’ai apprises.
+Je dois arrêter maintenant car j’ai écrit plus que je n’aurais dû le faire. Mais je reviendrai vers vous prochainement pour vous parler de certaines des vérités que j’ai apprises. <sup id="a1">[1](#f1)</sup>
 
 Votre ami et frère, Socrate : le philosophe grec d’autrefois, mais maintenant un Chrétien.
 
-[Un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) a été reçu de Socrate.
+**Note :** Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :
 
-*Note :  Cinq autres personnalités historiques [Salomon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--6-27-3-jep-solomon/), [Samuel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/), [Aaron](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-1-jep-aaron/), [Sarah](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah.md), [Platon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/) partagent également leur progression vers les Cieux Célestes.*
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Salomon | [La position de Salomon dans les Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-3-jep-solomon/) | 27 Juin 1915
+Samuel | [Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/) | 5 Août 1915
+Aaron | [Aaron partage son expérience et ce qu’il sait maintenant de l’immortalité depuis que Jésus est venu et a enseigné comment l’obtenir](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-1-jep-aaron/) | 23 Octobre 1915
+Sarah | [Sarah est maintenant Chrétienne](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah/) | 23 Octobre 1915
+Platon | [Platon, le disciple de Socrate est maintenant Chrétien](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/) | 11 Novembre 1915
+<small>
 
+1. <large id="f1"> [Un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) a été reçu de Socrate.[↩](#a1)

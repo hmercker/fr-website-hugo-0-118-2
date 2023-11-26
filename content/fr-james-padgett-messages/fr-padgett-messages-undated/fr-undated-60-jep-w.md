@@ -44,4 +44,4 @@ Alors, avec tout mon amour, je vous dis bonne nuit.
 W____.
 <small>
 
-1. <large id="f1"> Ce message est également publiés dans le volume IV des messages reçus par James Padgett.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le volume II à la page 56 et dans le volume IV des messages reçus par James Padgett à la page 313. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

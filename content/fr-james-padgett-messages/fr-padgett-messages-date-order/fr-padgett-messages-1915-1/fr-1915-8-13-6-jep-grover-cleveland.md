@@ -33,8 +33,7 @@ Bien entendu, la plupart d’entre nous savent ce que la Bible enseigne à ce su
 
 Eh bien, comme vous le dites, il semble étrange que nous ayons une telle croyance, mais laissez-moi vous dire que lorsque le mortel devient un esprit, il trouve que toute l’importance de sa vie terrestre, de sa conception de soi et de son indépendance le quitte. Il réalise alors qu’il est une personne très insignifiante, que son indépendance est un mythe et qu’il est la créature la moins puissante dans l’univers entier. Telle est mon expérience et, n’ayant rien sur quoi je puisse m’appuyer comme fondement fixe de la vérité, je retourne naturellement à mes croyances d’enfance et elles deviennent partie intégrante de mon existence.
 
-J’ai rencontré des esprits qui prétendaient que je pouvais bénéficier d’une rédemption et qu’il m’était possible de ma condition actuelle, cependant je n’ai pas pensé qu’ils en savaient plus que moi et donc je n’y ai jamais prêté grande attention.
-Mais, comme vous me le rappelez, Jésus est allé dans les enfers pour prêcher aux âmes perdues et emprisonnées, et il n’y serait pas allé s’il n’avait pas pu les aider par sa prédication. Je n’y avais jamais pensé auparavant, et je vais y penser maintenant et essayer d’y trouver une certaine consolation.
+J’ai rencontré des esprits qui prétendaient que je pouvais bénéficier d’une rédemption et qu’il m’était possible de ma condition actuelle, cependant je n’ai pas pensé qu’ils en savaient plus que moi et donc je n’y ai jamais prêté grande attention. Mais, comme vous me le rappelez, Jésus est allé dans les enfers pour prêcher aux âmes perdues et emprisonnées, et il n’y serait pas allé s’il n’avait pas pu les aider par sa prédication. Je n’y avais jamais pensé auparavant, et je vais y penser maintenant et essayer d’y trouver une certaine consolation.
 
 Vous dites aussi que vous savez qu’il y a autant de probation, pour moi, dans ma condition actuelle, qu’il y en avait sur terre. Comment le savez-vous ? Bien sûr, vous pouvez spéculer, mais cela ne me satisfera pas, car je peux aussi spéculer. Je veux des faits. Connaissez-vous des esprits qui étaient dans ma condition et qui ont été soulagés de leurs ténèbres et de leurs souffrances ? Si vous pouvez me le prouver, je commencerai à espérer.
 
@@ -44,4 +43,7 @@ J’irai avec votre grand-mère, et je reviendrai vers vous, et si je trouve le 
 
 Je vous souhaite une bonne nuit.
 
-Votre ami, Grover Cleveland.
+Votre ami, Grover Cleveland. <sup id=”a1”>[1](#f1)</sup>
+<small>
+
+<large id=”f1”> **Stephen Grover Cleveland, dit Grover Cleveland** (18 Mars 1837 - 24 Juin 1908). est un homme d'État américain, 22e et 24e président des États-Unis. Il est le seul président, à ce jour, à avoir été élu pour deux mandats non consécutifs de 1885 à 1889 et de 1893 à 1897 et est donc le seul à être compté deux fois dans le décompte des présidents.Son second mandat coïncide avec la panique de 1893, une sévère dépression que Cleveland est incapable d'inverser. Elle affaiblit considérablement le Parti démocrate qui est balayé par le Parti républicain en 1894 et en 1896 ; le résultat est un réalignement politique qui ouvre alors la voie à l'Ère progressiste. Son biographe Allan Nevins écrit : « Grover Cleveland n'était pas doué de qualités extraordinaires. Il possédait de l'honnêteté, du courage, de la fermeté, de l'indépendance et du bon sens. Mais il les possédait à un degré plus élevé que d'autres ». (Source : Wikipédia)..[↩](#a1)

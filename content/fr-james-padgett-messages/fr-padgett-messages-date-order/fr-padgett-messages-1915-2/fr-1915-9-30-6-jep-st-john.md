@@ -26,4 +26,4 @@ Je vais m’arrêter maintenant et dire que vous avez mon amour et mes bénédic
 Votre frère en Christ, Jean.
 <small>
 
-1. <large id="f1"> Ce message est également publié, doublement, dans le volume III.[↩](#a1)
+1. <large id="f1"> Ce message est également publié  dans le volume II, deuxième édition française, à la page 192 et dans le volume III à la  page 421. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

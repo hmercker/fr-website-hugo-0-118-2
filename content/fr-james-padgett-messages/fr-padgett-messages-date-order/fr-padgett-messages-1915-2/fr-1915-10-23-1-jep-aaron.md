@@ -11,7 +11,7 @@ weight:
 
 Aaron - reçu par James Padgett le 23 Octobre 1915, Washington, USA.
 
-Je suis l’esprit d’Aaron, le prophète de l’Ancien Testament et le frère de Moïse, comme il est écrit. Je veux simplement dire que j’ai lu avec vous le message de l’esprit d’Henry Ward Beecher. C’est une merveilleuse description de ce qu’est l’immortalité, et comment elle fut donnée pour la première fois à l’humanité après la chute des premiers parents.
+Je suis l’esprit d’Aaron, le prophète de l’Ancien Testament et le frère de Moïse, comme il est écrit. Je veux simplement dire que j’ai lu avec vous le message de l’esprit [d’Henry Ward Beecher](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/). C’est une merveilleuse description de ce qu’est l’immortalité, et comment elle fut donnée pour la première fois à l’humanité après la chute des premiers parents.
 
 Je sais que ce qu’il a écrit est vrai, car j’ai expérimenté le manque de cet Amour Divin pendant des milliers d’années avant la venue de Jésus et le renouveau de cet Amour Divin, qui est la seule chose dans tout l’univers de Dieu qui peut apporter à l’homme l’immortalité.
 
@@ -21,7 +21,7 @@ J’ai vécu à une époque où nous n’avions pas le privilège d’obtenir ce
 
 J’ai eu beaucoup d’expériences en enseignant aux enfants Hébreux qu’il n’y avait qu’un seul Dieu, mais, à cette époque, ma conception de Dieu n’était pas ce qu’elle est aujourd’hui. Je le considérais alors davantage comme un Dieu de colère et de jalousie que comme un Dieu d’Amour et de miséricorde.
 
-*[Question]*
+*[Question :]*
 
 Dans ma lutte avec les magiciens des Pharaons Égyptiens, j’ai reçu l’aide du monde des esprits et des pouvoirs inhabituels m’ont été donnés comme je n’en avais jamais eu auparavant et jamais eu par la suite ; mais c’était dans le but d’amener le roi à laisser le peuple de Dieu, comme nous nous appelions, quitter l’Égypte. Quand cela fut accompli, je n’ai plus jamais possédé ces pouvoirs et je n’en ai plus jamais eu l’occasion.
 
@@ -33,4 +33,12 @@ Je ne peux pas vous expliquer maintenant de quelle manière ces commandements on
 
 Donc, avec tout mon amour, je dirai que je le suis, votre frère en Christ, Aaron le Prophète des temps anciens.
 
-*Note :  Cinq autres personnalités historiques [Salomon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915--6-27-3-jep-solomon/), [Socrate](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/), [Samuel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/), [Sarah](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah.md), [Platon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/) partagent également leur progression vers les Cieux Célestes.*
+**Note :** Diverses personnalités historiques  partagent également leur progression vers les Cieux Célestes :
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Salomon | [La position de Salomon dans les Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-27-3-jep-solomon/) | 27 Juin 1915
+Socrate | [Socrate écrit sur son expérience de progression](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) | 08 Juillet 1915
+Samuel | [Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/) | 5 Août 1915
+Sarah | [Sarah est maintenant Chrétienne](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-23-2-jep-sarah/) |  23 Octobre 1915
+Platon | [Platon, le disciple de Socrate est maintenant Chrétien](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-11-1-jep-platon/) | 11 Novembre 1915

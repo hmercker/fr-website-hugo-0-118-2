@@ -35,4 +35,4 @@ Alors, en vous remerciant de votre gentillesse, je vous souhaite une bonne nuit.
 
 Votre ami, John G. Carlisle.
 
-*Note : Cet esprit s’est de nouveau manifesté environ 18 mois plus tard. [Le message peut-être lu quelques plus loin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-9-29-1-jep-john-carlisle/).*
+**Note :** Cet esprit s’est de nouveau manifesté environ 18 mois plus tard [le 29 Septembre 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-9-29-1-jep-john-carlisle/).

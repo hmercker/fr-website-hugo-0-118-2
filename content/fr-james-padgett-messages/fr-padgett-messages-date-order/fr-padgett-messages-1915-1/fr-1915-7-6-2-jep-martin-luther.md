@@ -19,7 +19,7 @@ Je suis un esprit dans l’amour avec les efforts que vous et votre équipe font
 
 J’enseigne encore les mortels chaque fois qu’il est possible de le faire. Mais je constate que ma tâche est difficile, parce qu’il y a tellement peu de médiums qui sont capables de recevoir les vérités des choses plus élevées de la vie, et les impressions que j’exerce sur des mortels par mes suggestions ne sont pas très encourageantes pour eux ou pour moi. Les impressions sont reçues et parfois comprises mais très souvent elles n’ont aucun effet.
 
-Si nous pouvions avoir plus de médiums écrivains, tels que vous-même, qui sont intéressés par ces vérités plus élevées, et qui croiraient que nous pourrions leur communiquer de telles vérités, le salut de l’humanité serait beaucoup plus rapide. Mais comme Jésus a dit, la moisson est mûre mais les ouvriers peu nombreux.
+Si nous pouvions avoir plus de médiums écrivains, tels que vous-même, qui sont intéressés par ces vérités plus élevées, et qui croiraient que nous pourrions leur communiquer de telles vérités, le salut de l’humanité serait beaucoup plus rapide. Mais comme Jésus a dit, [la moisson est mûre mais les ouvriers peu nombreux](https://saintebible.com/matthew/9-37.htm).
 
 Vous avez une mission, qui doit considérablement être enviée, je veux dire dans le meilleur sens, parce que vous, par l’exercice de vos fonctions, devenez le médium entre le Maître et l’homme. Et je veux vous dire qu’une telle mission est glorieuse, vous apportera des bénédictions incalculables parce que vous avez maintenant, et bénéficierez de plus en plus du pouvoir grandissant des influences du monde élevé des esprits et des anges.
 

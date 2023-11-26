@@ -11,7 +11,7 @@ weight:
 
 Flavius Josèphe - reçu par James Padgett le 3 Juin 1916, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-forteresse-massada.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-forteresse-massada.jpg)
 
 Je suis Flavius Josèphe.
 

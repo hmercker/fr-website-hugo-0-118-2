@@ -26,4 +26,4 @@ Alors avec mon amour, je vous souhaite une bonne nuit.
 Jean.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume III (deuxième partie) et dans le Volume IV (deuxième partie).[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III (deuxième partie) page 404 et dans le Volume IV (deuxième partie) page 230. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

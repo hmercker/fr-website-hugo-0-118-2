@@ -40,4 +40,4 @@ Avec mon amour et mes prières pour les bénédictions du Père sur vous, je sui
 
 1. <large id="f1"> Révérend J.L.Gordon, pasteur de la Congregational Church, 10th and Y Street, Washington D.C.[↩](#a1)
 
-2. <large id="f2"> « Raymond, ou La vie et la mort », publié en 1916. Écrit par Sir Oliver Lodge (1851-1940), physicien de renommée mondiale, sur la mort de son fils Raymond, mort au combat à Ypres en 1915. Le livre est divisé en deux parties, mais, à chaque étape, chaque chapitre contient des références croisées claires qu’il a obtenues sur la continuation de la vie après la mort.[↩](#a2)
+2. <large id="f2"> « **Raymond, or Life and Death (Raymond, ou La vie et la mort)** », publié en 1916. Écrit par Sir Oliver Lodge (1851-1940), physicien de renommée mondiale, sur la mort de son fils Raymond, mort au combat à Ypres en 1915. Le livre est divisé en deux parties, mais, à chaque étape, chaque chapitre contient des références croisées claires qu’il a obtenues sur la continuation de la vie après la mort. Ce livre est disponible à la vente sur Amazon.[↩](#a2)

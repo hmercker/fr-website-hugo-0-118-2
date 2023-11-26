@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Bouddha est très heureux <sup id="a1">[1](#f1)</sup>
 
-Buddha - reçu par FAB le 7 Novembre 2005, Santa Cruz, Californie, USA.
+Bouddha - reçu par FAB le 7 Novembre 2005, Santa Cruz, Californie, USA.
 
 Je suis le Bouddha.
 

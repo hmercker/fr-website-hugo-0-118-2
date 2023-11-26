@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 21 Mai 1918, Washington, USA.
 
 C’est moi, Hélène.
 
-Eh bien, mon cher, je vois que tu as beaucoup profité de la lecture des messages ce soir, et je suis si heureuse que tu les aies lus de la manière dont tu l’as fait. Les vérités que tu lis en référence au monde des esprits dans le livre du Dr Peebles, sont très belles et aussi édifiantes et utiles dans la mesure où elles affectent les conditions des âmes des hommes, mais, comme tu le sais, elles n’atteignent pas le point vital, ni ne parlent de la grande vérité qui est nécessaire aux hommes de connaître afin d’obtenir la condition de l’Ange Divin et un foyer dans les Cieux Célestes.
+Eh bien, mon cher, je vois que tu as beaucoup profité de la lecture des messages ce soir <sup id="a1">[1](#f1)</sup>, et je suis si heureuse que tu les aies lus de la manière dont tu l’as fait. Les vérités que tu lis en référence au monde des esprits dans le livre du Dr Peebles, sont très belles et aussi édifiantes et utiles dans la mesure où elles affectent les conditions des âmes des hommes, mais, comme tu le sais, elles n’atteignent pas le point vital, ni ne parlent de la grande vérité qui est nécessaire aux hommes de connaître afin d’obtenir la condition de l’Ange Divin et un foyer dans les Cieux Célestes.
 
 Bien sûr, l’écrivain, ou n’importe lequel de ceux qu’il cite, ne pouvait parler de cette vérité supérieure, car ils n’ont pas compris la même chose et ils ne pouvaient comprendre que les grands enseignements moraux de Jésus. Mais ces enseignements sont également d’une grande importance pour l’humanité, car leur compréhension et leur observance, en pensée et en actes, conduiront certainement l’homme à une purification de son âme et à une vie en communion avec le Père, selon la perfection des hommes dans sa création. Comme nous te l’avons écrit, la grande majorité des hommes ne vivront dans la grande éternité que comme des hommes parfaits, jouissant du bonheur que cette condition leur apporte, et il est donc très important qu’on leur enseigne cette vérité mortelle.
 
@@ -23,8 +23,11 @@ Eh bien, tu comprends tout cela, et je n’en dirai pas plus sur le sujet ; mais
 
 Tu connais le chemin, le seul chemin, et tu dois suivre ce chemin. Prie le Père avec tous les désirs de ton âme, et médite davantage sur les choses spirituelles, telles que les vérités que le Maître et les autres t’ont révélées. Je sais que tu désires recevoir les messages, mais tu n’es pas disposé, comme il semble, à faire l’effort d’entrer dans la condition d’âme, qui ne viendra pas de l’existence du simple désir de recevoir les messages.
 
-Eh bien, je n’ai pas écrit plus tôt dans la soirée car tu n’étais pas seulement pas en condition, et je pensais que si tu n’avais pas de mes nouvelles, tu pourrais peut-être lire certains des messages et ainsi avoir une meilleure condition d’âme pour recevoir mon message, comme tu as fait. Il est trop tard pour écrire davantage ce soir, mais j’ai bon espoir de pouvoir le faire très bientôt. Chéri, prie le Père et laisse ta foi grandir, et pense davantage à ces vérités, et à ce qu’elles signifient. Je n’écrirai pas plus maintenant, et je dirai seulement, aime-moi de tout ton cœur et pense davantage à moi, et tu seras beaucoup plus heureux.
+Eh bien, je n’ai pas écrit plus tôt dans la soirée car tu n’étais pas en condition, et je pensais que si tu n’avais pas de mes nouvelles, tu pourrais peut-être lire certains des messages et ainsi avoir une meilleure condition d’âme pour recevoir mon message, comme tu as fait. Il est trop tard pour écrire davantage ce soir, mais j’ai bon espoir de pouvoir le faire très bientôt. Chéri, prie le Père et laisse ta foi grandir, et pense davantage à ces vérités, et à ce qu’elles signifient. Je n’écrirai pas plus maintenant, et je dirai seulement, aime-moi de tout ton cœur et pense davantage à moi, et tu seras beaucoup plus heureux.
 
 Bonne nuit, mon cher mari.
 
 Ta vraie et bien-aimée, Hélène.
+<small>
+
+1. <large id="f1"> Il est fait référence à des messages indiqués sur la [tablette (journal quotidien de  James Padgett)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1918/) dont la transcription a été perdue.[↩](#a1)

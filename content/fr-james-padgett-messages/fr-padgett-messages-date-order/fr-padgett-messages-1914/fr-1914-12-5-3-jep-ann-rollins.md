@@ -13,7 +13,7 @@ Anne Rollins - reçu par James Padgett le 5 Décembre 1914, Washington, USA.
 
 C’est moi, ta grand-mère.
 
-Tu ne dois pas être si découragé. Prie Dieu et il te bénira. Essaie de ne pas laisser les choses matérielles t’empêcher d’aimer Dieu. Tu ne fais pas ce qu’il faut en pensant autant aux problèmes de la vie sur terre. Aie confiance en Dieu. Il s’occupera de toi et tu n’auras pas à t’inquiéter de ces choses qui vont bientôt passer. Tourne davantage tes pensées vers Dieu et crois davantage en Son amour et en Son attention, et il t’aidera plus que tu ne peux comprendre.
+Tu ne dois pas être si découragé. Prie Dieu et Il te bénira. Essaie de ne pas laisser les choses matérielles t’empêcher d’aimer Dieu. Tu ne fais pas ce qu’il faut en pensant autant aux problèmes de la vie sur terre. Aie confiance en Dieu. Il s’occupera de toi et tu n’auras pas à t’inquiéter de ces choses qui vont bientôt passer. Tourne davantage tes pensées vers Dieu et crois davantage en Son amour et en Son attention, et il t’aidera plus que tu ne peux comprendre.
 
 Oui, même en ce qui les concerne. Il n’est pas si faible que Son Amour ne puisse t’aider dans ces choses. Sois lui fidèle comme à toi-même et tu ne manqueras de rien qui soit pour ton bien. Je sais, car mon expérience de la vie m’a prouvé que je dis la vérité.
 

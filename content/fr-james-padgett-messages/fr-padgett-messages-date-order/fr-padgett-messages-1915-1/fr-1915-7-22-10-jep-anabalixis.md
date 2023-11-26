@@ -20,4 +20,4 @@ Alors bonne nuit.
 Anabalixis.
 <small>
 
-1. <large id="f1"> Bien que cet esprit ne soit jamais revenu, deux autres ont discuté de l’Atlantide. L’un d’eux est Sebastobel et l’autre est Jayemas, les deux messages sont dans ce volume. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Bien que cet esprit ne soit jamais revenu, deux autres ont discuté de l’Atlantide. L’un d’eux est [Sebastobel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-24-3-jep-sebastobel/) et l’autre est [Jayemas](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-7-1-jep-jayemas/), les deux messages sont dans ce volume. (Geoff Cutler)[↩](#a1)

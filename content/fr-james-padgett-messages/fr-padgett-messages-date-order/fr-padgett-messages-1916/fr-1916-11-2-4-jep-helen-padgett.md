@@ -13,6 +13,6 @@ Hélène Padgett - reçu par James Padgett le 2 Novembre 1916, Washington, USA.
 
 C’est moi, ta propre Hélène, vraie et aimante.
 
-Quel merveilleux message, tu as reçu du Maître, et comme il était sérieux alors qu’il t’écrivait. La gloire de sa physionomie était aveuglante même pour nous, et l’amour qui semblait posséder son être  vrai était au-delà de notre conception. Il était vraiment le fils bien-aimé du Père, et les esprits présents ont été baignés dans son amour à tel point qu’ils semblaient prendre part à sa gloire. Oh, mon cher, ce fut tellement merveilleux !
+Quel merveilleux message, tu as reçu [du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-2-1-jep-jesus/), et comme il était sérieux alors qu’il t’écrivait. La gloire de sa physionomie était aveuglante même pour nous, et l’amour qui semblait posséder son être  vrai était au-delà de notre conception. Il était vraiment le fils bien-aimé du Père, et les esprits présents ont été baignés dans son amour à tel point qu’ils semblaient prendre part à sa gloire. Oh, mon cher, ce fut tellement merveilleux !
 
 Ta vraie et aimante Hélène.

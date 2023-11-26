@@ -26,4 +26,4 @@ Je n’écrirai plus maintenant, mais je vous souhaite une bonne nuit.
 Votre frère en Christ, St. Clément.
 <small>
 
-1. <large id="f1"> St Clément, tel qu’il était connu par les premiers Chrétiens, a prédit en 1915 qu’une église du Christ serait organisée, ce qui est maintenant une réalité, et connue comme l’Église de la Nouvelle Naissance sous la direction de Jésus le Christ. (J.P.G.)[↩](#a1)
+1. <large id="f1"> **St Clément**, tel qu’il était connu par les premiers Chrétiens, a prédit en 1915 qu’une église du Christ serait organisée, ce qui est maintenant une réalité, et connue comme l’Église de la Nouvelle Naissance sous la direction de Jésus le Christ. (Jean Paul Gibsons)[↩](#a1)

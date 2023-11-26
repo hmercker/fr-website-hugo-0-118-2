@@ -56,3 +56,10 @@ Je vais arrêter, car j’ai longuement écrit.
 Donc, mon cher frère, je vais vous dire bonne nuit.
 
 Votre frère en Christ, Paul.
+
+**Note :** Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Saint Paul | [La résurrection qui est commune à chacun, qu’il soit saint ou pécheur](/fr-James-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-16-2-jep-paul-of-tarsus/) | 16 janvier 1916
+Saint Paul | [Quel est le corps réel qui est ressuscité au moment de la mort physique](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-4-1-jep-st-paul/) | 04 Octobre 1916

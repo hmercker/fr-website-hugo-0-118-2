@@ -36,4 +36,4 @@ Je n’écrirai plus ce soir.
 Ton père qui t’aime, John H. Padgett.
 <small>
 
-1. <large id="f1"> Cette situation se produit dans le plan astral et est appelée obsession. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Cette situation se produit dans [le plan astral](/7-fr-life-after-death/7-1-3-fr-astral-plan/) et est appelée obsession. (Geoff Cutler)[↩](#a1)

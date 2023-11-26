@@ -23,7 +23,7 @@ Depuis longtemps j’ai voulu écrire, mais les conditions n’ont pas été tel
 
 Lorsque le Dr. sera avec vous, lisez-lui ce message et dites-lui que je suis, ainsi que les esprits Célestes, souvent avec lui, et notre amour est toujours avec lui.
 
-Washington <sup id="a3">[3](#f3)</sup> est un esprit merveilleux et est le deuxième après Samuel en tant qu’organisateur.
+Georges Washington <sup id="a3">[3](#f3)</sup> est un esprit merveilleux et est le deuxième après Samuel en tant qu’organisateur.
 
 Permettez-moi de dire, en tant qu’esprit des Cieux Célestes, que pour tous les hommes en dehors de ces cieux, vous êtes comme le porte-parole du Maître, le plus transcendant en ce qui concerne la position, car aucun roi, chef des nations ou des peuples n’est votre égal.
 
@@ -36,4 +36,4 @@ James E. Padgett.
 
 2. <large id="f2"> Le terme « Céleste » est utilisé dans tous les messages de Padgett pour indiquer que l’esprit a dépassé la septième sphère d’Esprit la plus haute, qui est la septième, et est entré dans les royaumes éternels. (G.J.C.)[↩](#a2)
 
-3. <large id="f3"> Washington faisait partie du groupe d’Eugène Morgan. (John Paul Gibsons)[↩](#a3)
+3. <large id="f3"> Georges Washington faisait partie du groupe d’Eugène Morgan. (John Paul Gibsons)[↩](#a3)

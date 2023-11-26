@@ -15,15 +15,15 @@ C’est moi, Jésus.
 
 Je vois que votre travail vous a empêché de recevoir mon message ce soir, et bien que je sois désolé, je ne me plains pas, car vous devez faire votre travail, et donc être le plus rapidement en condition de commencer l’effort à accumuler pour obtenir la position que vous désirez, et qui est si nécessaire à notre travail *[Il est clair qu’il manque des mots cruciaux ici.]*. Vous êtes, spirituellement, mieux ce soir, notre rapport est très complet, et je pourrais facilement écrire mon message, mais vous êtes physiquement fatigué, et je ne pense pas qu’il soit sage d’essayer d’écrire, alors je vais reporter notre écriture à demain soir, quand, je l’espère, vous serez plus disponible.
 
-*[Commentaire.]*
+*[Commentaire :]*
 
 Oui, c’est l’idée correcte, et je m’efforcerai de rendre le message aussi complet et lucide que possible. Je sais ce que vous ressentez en référence à la question, et que vous désirez recevoir le message de la meilleure forme possible, et je sais que vous le ferez. Vous ne devez pas penser que je ne suis pas disposé à patienter chaque fois que vous êtes retenu par vos obligations professionnelles, ou que je ne suis pas avec vous même si nous ne pouvons pas écrire, car je suis avec vous très souvent, comme je l’ai dit, pour essayer d’aider. Vous devez donc rester courageux, me faire confiance, et avoir foi en mes promesses. Je n’écrirai pas plus maintenant, et je dirai que vous avez mon amour et mes bénédictions.
 
-*[Question.]*
+*[Question :]*
 
 Eh bien, à ce sujet, je sais que dans un avenir pas très éloigné, vous pourrez me voir comme vous le dites, car je suis désireux que vous le fassiez. Vous avez le pouvoir de la clairvoyance, mais il n’est pas souhaitable qu’il se développe en ce moment, en vous, car nous voulons que tout votre pouvoir soit centré sur la réception des messages. Cependant, un soir, alors que vous prierez et que je serai avec vous, ce pouvoir vous sera donné et vous me verrez alors comme je suis, priant avec vous. Je sens que cela peut renforcer votre foi et vous rapprocher de moi, et je désire que vous me voyiez réellement tel que je suis <sup id="a1">[1](#f1)</sup>. Eh bien, disons bonne nuit et arrêtons-nous.
 
-*[Question.]*
+*[Question :]*
 
 Oui, je comprends, mais si je devais venir vous écrire d’une manière digne, comme vous pensez peut-être qu’un esprit élevé devrait écrire, vous ne ressentiriez pas ma proximité que je veux tant que vous ressentiez, et, de plus vous ne comprendriez peut-être pas ce que je veux communiquer. Il vous est impossible de vous adapter à mon état, par conséquent, je dois donc m’adapter au vôtre. Je veux que vous vous rapprochiez le plus possible de moi, et pour que cela soit possible, je dois devenir aussi *[presque autant]* humain que vous l’êtes ; sinon le rapport ne pourrait pas exister entre nous, et je vous paraîtrais comme un être très nébuleux dont vous ne pourriez pas comprendre ni sentir l’influence. Non, je suis très humain quand je m’adresse à vous.
 
@@ -45,9 +45,9 @@ Aussi, vous devez comprendre que l’apparence du corps spirituel indique et dé
 
 Eh bien, j’ai écrit plus que je ne l’avais prévu, mais comme vous vouliez avoir une idée de ce que j’ai écrit, j’ai conclu (essayé) de tenter de vous expliquer ces choses, bien que je sache que mon explication ne vous a pas permis de comprendre pleinement ce que j’ai essayé de vous faire connaître. Mais nous devons arrêter maintenant. Alors avec mon amour, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.<sup id=”a2”>[2](#f2)</sup>
+Votre frère et ami, Jésus. <sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> M. Padgett m’a dit plus tard que Jésus s’était révélé et qu’il l’avait vu, en clairvoyance, alors que M. P. priait pour recevoir plus de l’Amour Divin. (Dr Stone.)[↩](#a1)
+1. <large id="f1"> M. Padgett m’a dit plus tard que Jésus s’était révélé et qu’il l’avait vu, en clairvoyance, alors qu'il priait pour recevoir plus de l’Amour Divin. (Dr Stone.)[↩](#a1)
 
-2. <large id=”f1”> Ce message précise et complète le message communiqué par Jean le [23 Novembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-23-1-jep-st-john/).[↩](#a1)
+2. <large id="f2"> Ce message précise et complète le message communiqué par Jean le [23 Novembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-23-1-jep-st-john/).[↩](#a2)

@@ -29,7 +29,7 @@ Alice progresse. Elle prie et croit qu’elle sera bientôt dans la troisième s
 
 Il dit que tu n’as pas besoin de demander à son père, car il t’aime trop pour se sentir offensé. Tu dois l’aimer davantage et croire davantage en lui et il te communiquera un message qui te satisfera.
 
-Elle est ici et te dit que tu es très gentil de penser à elle et de l’aimer, qu’elle te rend ton amour et espère que très bientôt nous pourrons tous parler comme tu le souhaites. Elle essaie maintenant de créer les conditions qui nous permettront de réussir.
+Elle est ici et te dit que tu es très aimable de penser à elle et de l’aimer, qu’elle te rend ton amour et espère que très bientôt nous pourrons tous parler comme tu le souhaites. Elle essaie maintenant de créer les conditions qui nous permettront de réussir.
 
 Je vais m’arrêter et te souhaiter une bonne nuit.
 

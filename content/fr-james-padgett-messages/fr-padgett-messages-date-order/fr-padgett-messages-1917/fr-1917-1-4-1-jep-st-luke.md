@@ -1,13 +1,13 @@
 ---
-title: "Luc: Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
+title: "Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
 menu_title: ""
-description: "Luc: Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
+description: "Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True
 weight:
 ---
-### Luc: Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité
+### Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité
 
 St Luc - reçu par James Padgett le 4 Janvier 1917, Washington, USA.
 
@@ -16,9 +16,9 @@ C’est moi, Luc.
 Je veux écrire, ce soir, quelques lignes sur un sujet que je désire faire connaître, à vous et aux autres, car je sais qu’il intéressera tous ceux qui pourront le lire. Le sujet est l’affirmation selon laquelle nul homme ne peut atteindre la condition de perfection si ses croyances ne sont pas en accord avec la vérité. Cette perfection, vous comprendrez, est la perfection que l’homme possédait avant sa chute, c’est-à-dire la perfection de sa création.
 Il a été affirmé par beaucoup que les croyances d’un homme ne comptent pas beaucoup dans la détermination de sa condition d’âme et d’esprit, et que seuls ses actes et actions et les qualités de son cœur déterminent cette condition ; mais cette affirmation est fausse. A moins que ces actes et actions et qualités du cœur soient le résultat de croyances en accord avec la vérité, il ne peut y avoir de perfection.
 
-La croyance est le moteur des actes de l’homme et le résultat de ses pensées ; et les pensées sont des choses qui engendrent les réalités de la conscience de l’homme, et comme il le pense dans son cœur, ainsi il est. *« Thinketh in his heart »* signifie, ou exprime l’idée, que les pensées issues de son esprit (ou mental), qui est la seule partie de l’homme qui a le pouvoir ou la faculté de penser, sont suggérées par, ou découlent des désirs et appétits de la partie émotionnelle de l’homme.
+La croyance est le moteur des actes de l’homme et le résultat de ses pensées ; et les pensées sont des choses qui engendrent les réalités de la conscience de l’homme, et comme il le pense dans son cœur, ainsi il est. [Pense dans Son coeur](https://saintebible.com/proverbs/23-7.htm) signifie, ou exprime l’idée, que les pensées issues de son esprit (ou mental), qui est la seule partie de l’homme qui a le pouvoir ou la faculté de penser, sont suggérées par, ou découlent des désirs et appétits de la partie émotionnelle de l’homme.
 
-Aucune pensée ne naît d’elle-même, bien qu’elle puisse sembler être une création spontanée, mais elle est le résultat d’une perception spirituelle ou physique, c’est-à-dire de la perception des qualités spirituelles ou des organes sensuels de la constitution physique de l’homme. Et la croyance est le résultat de la pensée et de cet organe qui cause les actes ou le manque d’actes de l’homme, et donc, le seul guide ou chemin montré à l’homme dans le progrès du développement de son âme dans son amour naturel, ou de l’esprit dans l’état de perfection dont je parle.
+Aucune pensée ne naît d'elle-même, bien qu'elle puisse sembler être une création spontanée, mais elle est le résultat d'une perception spirituelle ou physique, c'est-à-dire de la perception des qualités spirituelles ou des organes sensuels de la constitution physique de l'homme. Et la croyance est le résultat de la pensée et de cet organe qui cause les actes ou le manque d'actes de l'homme, et donc, le seul guide ou chemin montré à l'homme dans le progrès du développement de son âme dans son amour naturel, ou de l'esprit dans l'état de perfection dont je parle. <sup id="a1">[1](#f1)</sup>
 
 Or, la croyance ne crée pas la vérité ou ne change pas la vérité, car elle est absolue et immuable ; et la vérité ne crée pas la croyance à moins que cette vérité ne soit comprise par les pensées qui en émanent. Ainsi, il est évident qu’à moins que la croyance, si erronée, ne change pour devenir en accord avec la vérité, l’homme, le possesseur de la croyance, ne peut jamais devenir parfait, la perfection ne peut exister que lorsqu’un homme est dans une condition complète d’harmonie avec la vérité. La croyance étant l’effet des opérations du mental, à moins que ces opérations ne soient en harmonie avec la vérité, la croyance ne peut pas permettre le développement de l’homme qui est possédé et contrôlé par cette croyance, en l’homme parfait, parce que chaque cause a un effet, et cet effet doit être, nécessairement et seulement, le résultat naturel et inévitable de cette cause.
 
@@ -33,3 +33,6 @@ C’est pourquoi, moi qui sais, je vous dis que les plans terrestres du monde de
 J’ai assez écrit et, en terminant, je dirai à tous les hommes : sachez et réalisez que la croyance d’un homme est un élément vital et déterminant dans son progrès vers l’homme parfait. J’ai apprécié d’avoir pu vous écrire ce soir, et je reviendrai bientôt. Gardez votre foi et votre courage et vous réaliserez vos promesses. Bonne nuit et que Dieu vous bénisse.
 
 Votre frère en Christ, Luc.
+<small>
+
+1. <large id="f1"> Une explication détailée des pensées et formes de pensées est disponible par [l'intermédiaire de ce sujet](/7-fr-life-after-death/7-1-4-fr-thoughts-and-thought-forms/).[↩](#a1)

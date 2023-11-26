@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé <sup id="a1">[1](#f1)</sup>
+### Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé
 
 St Jean - reçu par James Padgett le 15 Mars 1917, Washington, USA.
 
 C’est moi, Jean.
 
-J’étais avec vous ce soir à la séance spirite et j’ai entendu ce que le médium <sup id="a2">[2](#f2)</sup> a dit, et j’ai vu que, lorsqu’elle délivrait les divers messages, elle était dictée par des esprits d’un très faible niveau de développement, et qu’ils aimaient beaucoup la tromperie qu’ils pratiquaient sur le médium et sur les auditeurs.
+J’étais avec vous ce soir à la séance spirite et j’ai entendu ce que le médium <sup id="a1">[1](#1)</sup> a dit, et j’ai vu que, lorsqu’elle délivrait les divers messages, elle était dictée par des esprits d’un très faible niveau de développement, et qu’ils aimaient beaucoup la tromperie qu’ils pratiquaient sur le médium et sur les auditeurs.
 
 Ces esprits ne sont pas du genre de ceux avec qui vous devriez être associés. Votre groupe était présent et a empêché qu’aucun de ces esprits ne communique avec vous, vous affecte par son influence. Cependant cela ne vous fait aucun bien de vous mêler avec ces esprits.
 
@@ -25,8 +25,7 @@ Quand elle a essayé de vous parler de votre niveau et votre volonté de dévelo
 
 Les esprits qui, selon elle, sont venus à vous n’étaient pas vos grands-parents, car vous devez savoir qu’aucun des membres de votre groupe spirituel ne s’est manifesté, et ceux qu’elle a vus et qui ont dit s’intéresser à vous, étaient certains des esprits qui l’accompagnaient très souvent, essayant de tromper les gens.
 
-Le médium a le pouvoir de voir et d’entendre, dans une certaine mesure, les choses du monde spirituel, et est généralement honnête dans ses tentatives de transmettre ce qu’elle reçoit, mais, parfois, elle exerce ses propres pensées et elle fabrique le message qu’elle délivre.
-Il est dommage que de tels faits existent, mais c’est une vérité et cela continuera aussi longtemps que ces esprits médiocres auront la possibilité de se manifester.
+Le médium a le pouvoir de voir et d’entendre, dans une certaine mesure, les choses du monde spirituel, et est généralement honnête dans ses tentatives de transmettre ce qu’elle reçoit, mais, parfois, elle exerce ses propres pensées et elle fabrique le message qu’elle délivre. Il est dommage que de tels faits existent, mais c’est une vérité et cela continuera aussi longtemps que ces esprits médiocres auront la possibilité de se manifester.
 
 Et je dirai encore que si le Dr Stone avait autour de lui un certain nombre de ses amis spirituels, ils ne se sont pas manifestés, et les Indiens que le médium décrit n’étaient en aucun cas liés au Docteur. Bien sûr, à ces séances, il y a toujours un certain nombre d’Indiens présents qui prennent plaisir à se manifester au médium, mais, ce soir, aucun de ces Indiens ne faisait partie des guides ou du groupe du Docteur, et il ne doit pas croire qu’il a autour de lui ces Indiens hurlants, car il n’y a rien de commun entre lui et de tels esprits, et il est bien trop protégé pour que ces esprits forment un rapport avec lui.
 
@@ -50,25 +49,21 @@ Non, nous sommes souvent en liaison étroite avec vous et nous ne serions pas de
 
 Mais un jour notre travail, aussi bien sur la terre que dans les sphères spirituelles, cessera, et nos maisons dans les Cieux Célestes seront nos seuls lieux de travail et d’amour. Le Royaume s’achèvera, les portes du Royaume Céleste se fermeront et les armées angéliques séparées de l’homme spirituel et parfait. Tel est le décret.
 
-Et comme le Père veut que tous les hommes deviennent un avec lui dans Sa Divinité d’Amour, nous devons travailler jusqu’à ce qu’arrive le jour de la grande finalisation du Royaume, les esprits qui n’auront pas alors l’habit de noces <sup id="a3">[3](#f3)</sup> devront subir le châtiment de la seconde mort <sup id="a4">[4](#f4)</sup>.
+Et comme le Père veut que tous les hommes deviennent un avec lui dans Sa Divinité d’Amour, nous devons travailler jusqu’à ce qu’arrive le jour de la grande finalisation du Royaume, les esprits qui n’auront pas alors [l’habit de noces](https://saintebible.com/matthew/22-12.htm) devront subir le châtiment de la seconde mort <sup id="a2">[2](#f2)</sup>.
 
-Et lorsque Jésus a dit : *« Il faut que je fasse, tandis qu’il est jour, les œuvres de celui qui m’a envoyé; la nuit vient, où personne ne peut travailler. »*, il voulait dire que tant que le Royaume est ouvert à l’entrée des hommes, nous devons travailler, car lorsque ses portes seront fermées le travail des ouvriers angéliques cessera et les hommes et les esprits seront laissés pour l’éternité dans les sphères spirituelles.
+Et lorsque Jésus a dit : [Il faut que je fasse, tandis qu’il est jour, les œuvres de celui qui m’a envoyé; la nuit vient, où personne ne peut travailler.](https://saintebible.com/john/9-4.htm), il voulait dire que tant que le Royaume est ouvert à l’entrée des hommes, nous devons travailler, car lorsque ses portes seront fermées le travail des ouvriers angéliques cessera et les hommes et les esprits seront laissés pour l’éternité dans les sphères spirituelles.
 
-Et donc nous travaillons et vous devez travailler jusqu’au moment de la (grande) séparation , et comme le Maître l’a dit, le grain et l’ivraie <sup id="a5">[5](#f5)</sup> doivent pouvoir grandir ensemble jusqu’à la grande époque de la récolte, et il en est ainsi de l’âme munie seulement de l’amour naturel et de celle possédant l’Amour Divin, qui sont autorisées à se mélanger ensemble jusqu’à ce que la moisson de la récolte ait lieu. Et d’ici là, nous devons nous mélanger, travailler et prier sans cesse.
+Et donc nous travaillons et vous devez travailler jusqu’au moment de la (grande) séparation , et comme le Maître l’a dit, [le grain et l’ivraie](https://saintebible.com/matthew/13-30.htm) doivent pouvoir grandir ensemble jusqu’à la grande époque de la récolte, et il en est ainsi de l’âme munie seulement de l’amour naturel et de celle possédant l’Amour Divin, qui sont autorisées à se mélanger ensemble jusqu’à ce que la moisson de la récolte ait lieu. Et d’ici là, nous devons nous mélanger, travailler et prier sans cesse.
 
 Eh bien, mon frère, j’ai assez écrit pour ce soir et je vais m’arrêter, mais ne vous méprenez pas sur ce que j’ai dit en ce qui concerne les médiums des séances de spiritisme. Ils ont un travail à faire, et ils doivent le faire et ne pas être découragés. Vous avez un travail à faire, et vous devez le faire de la manière dont nous l’avons souligné et le travail que vous pouvez faire, ils ne le peuvent pas, et, par conséquent, vous devez faire le travail qui vous a été assigné et seulement celui-ci.
 
 Avec mon amour et les bénédictions du Père, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Jean.
+Votre frère en Christ, Jean. <sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id="f1"> Ce message a également été publié dans le Volume I.[↩](#a1)
+1. <large id="f1"> Ce message a été reçu par M. Padgett, après que M. Padgett et le Dr Stone aient assisté à une séance du Dr. Bruen dans cette ville. (Geoff Cutler)[↩](#a1)
 
-2. <large id="f2"> Ce message a été reçu par M. Padgett, après que M. Padgett et le Dr Stone aient assisté à une séance du Dr. Bruen dans cette ville. (G.J.C.).[↩](#a2)
+2. <large id="f2"> **Seconde mort** : la perte et la mort du privilège d’obtenir l’Amour Divin que les âmes doivent posséder afin de pouvoir entrer das le Royaume des Cieux avant que ce dernier ne ferme. Voir le [message d’Anne Rollins du 1er Juin 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/)»(Geoff Cutler).[↩](#a2)
 
-3. <large id="f3"> Lire Mathieu 22:11 (G.J.C.).[↩](#a3)
-
-4. <large id="f4"> Seconde mort : la perte et la mort du privilège d’obtenir l’Amour Divin que les âmes doivent posséder afin de pouvoir entrer das le Royaume des Cieux avant que ce dernier ne ferme. Lire, un peu plus loin, le message d’Anne Rollins du 1er Juin 1916 « La nécessité d’obtenir l’Amour Divin » (G.J.C.).[↩](#a4)
-
-5. <large id="f5"> Lire Mathieu13:30. (G.J.C.).[↩](#a5)
+3. <large id="f3"> Ce message a également été publié dans le Volume 2, 1ère édition française, page 218 et dans le Volume IV  page 16. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a3)

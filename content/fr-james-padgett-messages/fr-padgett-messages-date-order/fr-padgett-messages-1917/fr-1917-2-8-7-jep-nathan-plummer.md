@@ -24,5 +24,3 @@ Votre vieil ami, Nathan Plummer.
 *Plummer fut tellement surpris de voir ce grand changement dans l’apparence de Forrest. En écrivant à Padgett, Plummer savait quel grand pécheur était Forrest sur terre. Il réalisa alors que si Forrest avait pu sortir des enfers, il y avait sans aucun doute de l’espoir, et cela poussa Plummer à rechercher par une prière sincère l’Amour Divin et Plummer le fit, ce qui lui permit de passer de la condition sombre à une sphère plus lumineuse.*
 
 *Comme ce message a été écrit il y a 47 ans, je ne doute pas que Plummer et Forrest doivent maintenant se trouver au-dessus de la septième sphère dans les Cieux Célestes, où ces Esprits Célestes cherchent et obtiennent l’Amour Divin dans une progression accrue de plus en plus proche de la fontaine du Père avec la conscience de la certitude de l’Immortalité. (Dr. L. R. Stone).*
-
-

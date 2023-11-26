@@ -29,6 +29,7 @@ En tant qu’hommes réfléchis, convaincus des fausses prétentions et des supe
 
 Je suis désolé que vous ne vous sentiez pas en condition de recevoir davantage pour le moment, mais il vaut mieux reporter la suite du message. Je viendrai bientôt terminer ce que je désire écrire.
 
-Ainsi, avec mon amour et mes meilleurs vœux, je suis votre frère dans le Christ, Luther.
+Ainsi, avec mon amour et mes meilleurs vœux, je suis votre frère dans le Christ, Luther. <sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Luther a écrit qu’à son époque, les membres de l’église étaient entièrement dépendants du clergé pour toute information concernant le contenu de la Bible. L’Église de la Nouvelle Naissance est doublement bénie avec ces écrits qui ont été reçus par l’intermédiaire de M. James E. Padgett qui possédait suffisamment d’Amour Divin pour permettre à Jésus de Nazareth et de nombreux autres esprits Célestes de commenter les erreurs présentes dans l’Ancien et le Nouveau Testaments. (J.P.G.)*
+1. <large id="f1"> Luther a écrit qu’à son époque, les membres de l’église étaient entièrement dépendants du clergé pour toute information concernant le contenu de la Bible. L’Église de la Nouvelle Naissance est doublement bénie avec ces écrits qui ont été reçus par l’intermédiaire de M. James E. Padgett qui possédait suffisamment d’Amour Divin pour permettre à Jésus de Nazareth et de nombreux autres esprits Célestes de commenter les erreurs présentes dans l’Ancien et le Nouveau Testaments. (Jean Paul Gibson).[↩](#a1)

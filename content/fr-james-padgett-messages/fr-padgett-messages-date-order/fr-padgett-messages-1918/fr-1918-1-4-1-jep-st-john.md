@@ -55,9 +55,9 @@ Ainsi, voyez-vous, la communication et le rapport dépendent de la condition des
 
 Le Maître est ici ce soir et a entendu ma communication et s’unit à moi en disant : ayez la foi et cherchez de toute votre âme cet Amour. Croyez que je suis votre ami ange particulier.
 
-Votre frère en Christ, Jean.
+Votre frère en Christ, Jean. <sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Principe des correspondances entre le monde spirituel et le monde matériel. Pour Swedenborg, le monde spirituel et monde naturel s’interpénètrent au point que toute frontière entre les deux est fluide et incertaine (Cf article de Wikipedia sur Swedenborg).[↩](#a1)
+1. <large id="f1"> [Principe des correspondances entre le monde spirituel et le monde matériel](https://www.arbredor.com/ebooks/Representations.pdf). Pour Swedenborg, le monde spirituel et monde naturel s’interpénètrent au point que toute frontière entre les deux est fluide et incertaine (Cf article de Wikipedia sur Swedenborg).[↩](#a1)
 
-Note : Jean continuera et terminera ce message [le 22 Octobre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/).
+2. <large id="f2"> Jean continuera et terminera ce message [le 22 Octobre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/).[↩](#a2)

@@ -11,6 +11,8 @@ weight:
 
 Grace Stanhope - reçu par James Padgett le 21 Décembre 1917, Washington, USA.
 
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-2017-grace_stanhope.jpg)
+
 La mort est venue dans la chambre nuptiale. Elle est venue voir la jeune mère alors qu’elle sentait pour la première fois le souffle de son nouveau-né. Et c’est ainsi que la mort est venue à moi alors que je n’étais qu’une jeune mariée et que je vivais dans l’attente d’un être nouvel être aimé qui ferait partie de ma chair – et je suis décédée au moment même de la venue de mon bébé. Lorsque la vie est venue à lui, la mort est venue à moi, et nous nous sommes regrettés au moment même où j’ai entendu son premier cri.
 
 Lorsque je suis venue à la vie dans le monde des esprits, j’étais amère et je pensais que Dieu était tellement cruel et impitoyable de me séparer ainsi de mon bébé. J’étais si malheureuse, et je voulais mourir à nouveau.

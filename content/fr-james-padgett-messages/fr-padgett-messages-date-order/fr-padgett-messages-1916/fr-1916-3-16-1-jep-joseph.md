@@ -11,7 +11,7 @@ weight:
 
 Joseph - reçu par James Padgett le 16 Mars 1916, Washington, USA.
 
-C’est moi, [Joseph d’Arimathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph). <sup id="a1">[1](#f1)</sup>
+C’est moi, Joseph d’Arimathie. <sup id="a1">[1](#f1)</sup>
 
 Je désire simplement écrire quelques lignes pour vous faire savoir que j’ai vraiment existé comme un mortel, et que je suis le même homme qui a étendu le corps de Jésus dans le tombeau où personne n’y avait été placé.
 
@@ -38,16 +38,14 @@ Je veux aussi dire qu’il vous a écrit ses messages de vérité, et qu’il é
 Mon frère, je vais m’arrêter maintenant, et en partant, je vous dis, que vous avez mon amour et mes bénédictions.
 
 Votre frère en Christ, Joseph.
+
+**Note :** Liens vers d'autres messages relatifs à la crucifixion de Jésus :
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+St Luc | [Explique la dématérialisation du corps terrestre de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-24-1-jep-st-luke/) | 24 Octobre 1915
+Elohiam | [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/) | 22 Janvier 1917
+Hélène Padgett | [Que s’est-il réellement passé lors de la crucifixion de Jésus ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) | 27 Mars 1921
 <small>
 
-1. <large id="f1"> Beaucoup d’années plus tard, [Joseph a admis être le père de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph), un rôle qu’il se sent quelque peu embarrassé d’avoir, car il n’avait pas cru en son fils jusqu’à sa mort. Cela a également été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000\fr-2000-2-9-1-ar-joseph/).[↩](#a1)
-
-Note 2 : Liens vers d'autres messages relatifs à la crucifixion de jésus :
-
-24 Octobre 1915 : [St Luc explique la dématérialisation du corps terrestre de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915\fr-1915-10-31-1-jep-luke/).
-
-22 Janvier 1917 : [Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-22-2-jep-elohiam/).
-
-27 Mars 1921 : [Que s’est-il réellement passé lors de la crucifixion de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) ?
-
-
+1. <large id="f1"> Beaucoup d’années plus tard, [Joseph a admis être le père de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph), un rôle qu’il se sent quelque peu embarrassé d’avoir, car il n’avait pas cru en son fils jusqu’à sa mort. Cela a également été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/).[↩](#a1)

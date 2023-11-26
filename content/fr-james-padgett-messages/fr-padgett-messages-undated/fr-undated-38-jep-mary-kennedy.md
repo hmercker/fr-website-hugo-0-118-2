@@ -13,8 +13,7 @@ Mary Kennedy - reçu par James Padgett, Washington, USA.
 
 C’est moi, Mary.
 
-Laissez-moi vous dire une seule chose – Hélène dit que je peux, et je le veux bien sûr, et je ne vais pas faire intrusion très longtemps.
-Vous savez que je n’ai pas l’occasion d’écrire aussi souvent qu’Hélène, bien que j’aie autant envie de le faire qu’elle, aussi, lorsque l’occasion se présente, je ne suis pas aussi modeste que je devrais l’être et j’en profite.
+Laissez-moi vous dire une seule chose – Hélène dit que je peux, et je le veux bien sûr, et je ne vais pas faire intrusion très longtemps. Vous savez que je n’ai pas l’occasion d’écrire aussi souvent qu’Hélène, bien que j’aie autant envie de le faire qu’elle, aussi, lorsque l’occasion se présente, je ne suis pas aussi modeste que je devrais l’être et j’en profite.
 
 Mais je sais que vous compatissez avec moi, car vous pouvez voir combien cela me fait du bien, et je crois que cela fait aussi du bien au Docteur.
 
@@ -34,4 +33,4 @@ Alors, donnez-lui mon amour, et souvenez-vous que je suis votre sœur dans l’a
 
 Bonne nuit, Mary.
 
-*C’est une lettre merveilleusement belle, qui me procure tant de bonheur et de joie. Leslie R. Stone*
+*C’est une lettre merveilleusement belle, qui me procure tant de bonheur et de joie. (Leslie R. Stone)*

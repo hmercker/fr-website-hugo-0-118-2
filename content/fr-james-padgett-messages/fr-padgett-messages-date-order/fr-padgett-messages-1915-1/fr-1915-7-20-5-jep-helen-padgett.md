@@ -21,4 +21,4 @@ Eh bien, nous aurons une soirée entre nous puisque j’essaie aussi d’échang
 
 Alors bonne nuit.
 
-Avec tout mon amour et beaucoup de baisers, je suis ta propre vraie et bien-aimée, Hélène.
+Avec tout mon amour et beaucoup de baisers, je suis ta vraie et bien-aimée, Hélène.

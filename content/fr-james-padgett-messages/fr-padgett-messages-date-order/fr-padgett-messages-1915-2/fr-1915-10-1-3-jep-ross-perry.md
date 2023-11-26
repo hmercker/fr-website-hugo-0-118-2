@@ -28,6 +28,7 @@ Mais je réalise maintenant que je dois continuer à exister et à souffrir pend
 Eh bien, je vais vous le dire. Comme vous le savez peut-être, j’étais, comme je le pensais, une sorte de philosophe sur terre, et pour moi la vie était une chose à retenir ou à différer, selon que je pensais qu’elle avait servi, ou non, son but. Et lorsque j’ai eu le sentiment que je ne pouvais plus apporter aucun bien particulier au monde ou à ceux qui étaient près de moi, j’ai pensé qu’il n’y avait aucune raison pour que je continue cette vie qui était, dans un certain sens, monotone. En outre, je sentais que j’étais arrivé au sommet de mes pouvoirs mentaux, et qu’ils étaient en déclin ; et la pensée que je devais diminuer ce que j’avais tant cherché à cultiver et à montrer à mes connaissances, me fit croire que j’avais accompli l’objet de ma création, et que je deviendrais peu à peu, non seulement un fardeau, mais une personne à regarder avec une sorte de pitié qui me rendrait malheureux.
 
 Que les autres me montrent du doigt et me disent : *« Voici le pauvre Perry qui était un homme si brillant et si capable, et qui n’est plus, intellectuellement, qu’une épave de lui-même. N’est-il pas dommage qu’un tel homme se retrouve dans l’état dans lequel il se trouve ? »*
+
 Ce sont quelques-unes des pensées qui m’ont traversé l’esprit ; et, en outre, comme je vous l’ai dit, je pensais que la mort était la fin de tout, et que dans la tombe je ne saurais rien, et je dormirais dans l’oubli total.
 
 Ces pensées, je m’en suis nourri peu de temps avant de décider de mourir, et plus je pensais que j’étais grand, plus ma condition devenait grande, et plus ce que j’avais dit s’avérait vrai. Juste avant de tirer le coup fatal, j’ai pensé intensément à toutes ces choses, et j’ai vu que ce que je supposais être la fin de tout était la vraie solution de la décrépitude de la vie et de la décrépitude mentale aussi bien que physique. Et lorsque je me suis préparé à commettre l’acte, je n’ai jamais été aussi calme de toute ma vie. Je n’ai pas eu besoin de courage car la conviction de l’exactitude de mes conclusions était si forte que la question du courage ne faisait pas partie de l’équation.
@@ -50,7 +51,7 @@ Je lui demanderai de me parler de sa conversion et je l’écouterai attentiveme
 
 Dites-moi, quel genre d’homme êtes-vous pour savoir toutes ces choses ? Je ne vous comprends pas. Sur terre, je vous considérais simplement comme les autres, mais maintenant je découvre que vous savez des choses, que je n’aurais jamais pensé qu’un mortel puisse savoir.
 
-*[Questions et réponses]*
+*[Questions et réponses :]*
 
 Eh bien je vais d’étonnement en étonnement avec ce tout que vous dites pour m’aider et me conduire à la lumière. Oui, c’est ce que je veux, la lumière. Attendez seulement jusqu’à ce que j’ai eu ces expériences que vous me promettez, et je viendrai à vous et je vous écrirai une lettre que vous allez vous lasser de recevoir. Je dois arrêter maintenant, car vous devez être fatigué et je le suis.
 
@@ -59,4 +60,4 @@ C’est pourquoi, mon cher ami, permettez-moi de vous dire que je vous remercie 
 Votre ami, R. Ross Perry.
 <small>
 
-1. <large id="f1"> Il semble que cela se soit produit le 28 juillet 1915, mais que ce message n’ait pas été publié.[↩](#a1)
+1. <large id="f1"> Il semble que cela se soit produit [le 28 Juillet 1915](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1915/), mais que ce message n’ait pas été publié.[↩](#a1)

@@ -9,13 +9,13 @@ weight:
 ---
 ### Francis Bacon explique la différence entre les éléments spirituels et les éléments matériels
 
-Francis Bacon - reçu par James Padgett le 1 Décembre 1918, Washington, USA.
+Francis Bacon - reçu par James Padgett le 1er Décembre 1918, Washington, USA.
 
 C’est moi, Francis Bacon.
 
 Permettez-moi d’écrire un court message en référence à notre monde spirituel et à l’une des lois qui s’y trouvent.
 
-Il vous a été dit, il y a quelques nuits, que ce qui est matériel en soi reste toujours matériel, bien que la combinaison dans les formes et les apparences puisse changer, et même que les éléments matériels peuvent cesser d’être perceptibles pour les facultés ou les sens de l’homme ; et cette affirmation de fait est vraie et sans exception.
+Il vous a été dit, [il y a quelques nuits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-20-1-jep-francis-bacon/), que ce qui est matériel en soi reste toujours matériel, bien que la combinaison dans les formes et les apparences puisse changer, et même que les éléments matériels peuvent cesser d’être perceptibles pour les facultés ou les sens de l’homme ; et cette affirmation de fait est vraie et sans exception.
 
 La matière de l’univers est unique et non diverse et, ce que vous pouvez sentir comme étant matériel, fait partie de la même grande matière universelle de l’existence et peut, à des moments différents, et sous certaines conditions, s’intégrer au matériel invisible tout en restant aussi réelle qu’elle l’était lorsque vous pouviez la sentir comme étant une réalité. L’existence de la matière n’est pas déterminée par l’exigence selon laquelle les hommes doivent pouvoir en connaître l’existence par l’exercice d’une partie, ou de la totalité, des perceptions des organes humains utilisés pour comprendre ce qu’ils appellent la matière de la nature. Que les hommes soient capables ou non de connaître ce qui est vraiment matériel n’affecte pas l’existence du matériel, car sa réalité est indépendante de la perception que les hommes en ont.
 
@@ -25,6 +25,6 @@ Or, il y a beaucoup de choses matérielles dans le monde invisible qui n’ont j
 
 La matière a sa place et son existence dans toutes les sphères du monde des esprits et elle est utilisée par les esprits dans leur travail et leur vie, tout comme elle existe réellement dans le monde naturel et est utilisée par les hommes pour leur bien-être et leur bonheur. Et, lorsque les habitants du monde des esprits l’utilisent dans le but et de manière à rendre la matière invisible perceptible aux sens des hommes, ils ne devraient pas considérer ces phénomènes comme irréels ou non acceptables simplement parce qu’ils sont produits sans être en harmonie avec les lois matérielles ou en accord avec les lois matérielles comme ils les comprennent.
 
-Je continuerai plus tard.
+[Je continuerai plus tard](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-1-6-1-jep-francis-bacon/).
 
 Votre ami, Francis Bacon.

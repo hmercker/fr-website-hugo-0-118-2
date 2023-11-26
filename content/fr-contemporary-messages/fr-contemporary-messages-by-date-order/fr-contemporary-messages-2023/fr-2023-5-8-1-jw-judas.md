@@ -1,0 +1,22 @@
+---
+title: "L'âme est intemporelle"
+menu_title: ""
+description: "L'âme est intemporelle"
+date: 2023-09-01 06:00:01+00:19
+draft: False
+hidden: True
+weight:
+---
+### L'âme est intemporelle
+
+Judas - reçu par Jimbeau Walsh le 8 Mai 2023, Nashville, TN, USA.
+
+Je suis votre frère et ami, un disciple du maître et une âme rachetée. Je suis Judas. J’ai fait comprendre à mon cher frère aujourd’hui que je souhaitais parler du temps et de sa pertinence, ou peut-être devrais-je dire de sa non-pertinence. Dans le monde physique où vous habitez tous, le temps peut être d’une grande importance. Être comme on dit « à l’heure », être à l’heure, jouer de la musique à l’heure, grandir à l’heure, être au travail à l’heure, etc. Et il est également intégré à la condition humaine un grand sens de l’auto-préservation, de sorte que lorsqu’il est menacé ou défié de manière physique, on a tendance à rechercher une protection, à rechercher une guérison ou peut-être même à se défendre contre une agression. C’est endémique à la condition humaine, mais il faut aussi tenir compte de ceci : très souvent, lorsque des personnes d’un âge avancé sont interrogées sur ce que cela fait d’être âgé, peut-être ce que cela fait d’être dans un corps quelque peu diminué par des années de étant sur terre, et assez étonnamment et assez souvent, leur réponse est : « Je ne me sens pas plus vieux que lorsque j’étais dans la vingtaine ou à mon apogée dans la trentaine ou à l’adolescence, même si je ressens les douleurs d’un corps vieillissant ». Ce que je souhaite souligner ici, c’est que l’âme est intemporelle. Et tout comme les enfants qui sont très présents dans leur âme n’ont pas ou très peu de sens du temps, à mesure que l’on vieillit, l’âme commence à imprégner la condition humaine et un sentiment d’éternité pour ceux qui sont sur le chemin spirituel, apparaît.
+
+Pour ceux qui sont liés au monde matériel de toutes les manières, la mort semble être quelque chose de très négatif, quelque chose à éviter, quelque chose à craindre. Et cela s’accompagne souvent d’un état, si je puis dire, de terreur, de grande peur. Et donc vous avez reçu toutes ces informations sur la vie dans le monde des esprits, sur les nombreuses demeures dans le royaume du Père, et sur les enfers aussi, sachez que chaque âme, peu importe où elle passe, sera finalement purifiée dans le l’amour naturel, dans l’intégralité de la condition de leur âme à la naissance, dans un sens de pureté, dans un état de pureté. Et ceux d’entre vous sur ce beau chemin de l’Amour Divin, où vos âmes tendent la main pour se connecter à l’éternité, à l’endroit au-delà du temps où il n’y a que ce moment, il y a un sentiment de calme avec l’Amour de Dieu, parce que l’âme s’est connectée avec son Créateur dans un bonheur intemporel.
+
+Les humains se demandent souvent combien de temps durera leur vie, combien de temps survivront-ils sur terre, et pourtant beaucoup ne considèrent pas la vie au-delà et plus encore, l’immortalité. Une fois que l’âme commence à ressentir l’intemporalité, la paix, l’amour et la joie de la liberté au-delà du temps, cette âme est capable de progresser et d’avoir vraiment un sens de l’éternité même en vivant sur terre au milieu du temps et des horaires, et toutes les choses de la condition humaine. Alors, nous vous le disons encore et encore, priez pour que vous soyez en harmonie avec l’amour de Dieu. Ne craignez pas l’intemporalité, car c’est comme Paul l’a écrit aux Philippiens : « Dans la paix de Dieu, qui surpasse toute intelligence, vos cœurs demeureront en Christ ».
+
+La prière, dans un sens, c’est se tenir nu, l’âme mise à nue devant son Créateur, en disant simplement : « Cher Dieu, apporte Ton essence dans mon âme, afin que je puisse ressentir cette union avec Toi, afin que je puisse marcher sur ce pont vers l’éternité, afin que je puisse vraiment ressentir l’Amour Divin et le porter lors de ma marche sur terre et dans l’esprit ».
+
+Je remercie mon frère d’être ouvert à un message un peu long de ma part, car il aime la simplicité et j’essaie toujours de condenser tout ce dont je veux parler. Enfin, puis-je dire que l’ouverture à l’Amour de Dieu est la grande simplicité au-dessus de l’esprit, sans aucun doute, car lorsque vous vous tenez nu devant votre Créateur, vous recevrez la robe du ciel. Que Dieu vous bénisse avec un grand afflux de son Amour Divin. Je suis votre frère en Christ, Judas autrefois de Kerioth, maintenant habitant des Cieux Célestes. Allez en paix.  Allez en paix.

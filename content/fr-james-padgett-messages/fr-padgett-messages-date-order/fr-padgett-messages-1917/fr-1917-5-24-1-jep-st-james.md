@@ -13,7 +13,7 @@ St Jacques - reçu par James Padgett le 24 Mai 1917, Washington, USA.
 
 C’est moi, Jacques, je suis venu écrire sur le sujet : *« Les faiblesses de l’esprit humain et les qualités morales. »*
 
-Je vous ai entendu lire le message du Maître, et je crois qu’en lui, vous trouverez beaucoup de vérité sur laquelle réfléchir, et je désire compléter un peu ce qui y a été dit. Et ici, je veux ajouter que, bien que ce message vous ait été destiné personnellement, la vérité et les conseils qui y sont donnés peuvent s’appliquer à tout mortel, et les bons résultats suivront, peu importe qui est ce mortel.
+Je vous ai entendu lire [le message du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-23-1-jep-jesus/), et je crois qu’en lui, vous trouverez beaucoup de vérité sur laquelle réfléchir, et je désire compléter un peu ce qui y a été dit. Et ici, je veux ajouter que, bien que ce message vous ait été destiné personnellement, la vérité et les conseils qui y sont donnés peuvent s’appliquer à tout mortel, et les bons résultats suivront, peu importe qui est ce mortel.
 
 Comme vous le savez, je suis dans le monde des esprits depuis de très nombreux siècles, comme vous concevez le temps, et j’ai été, pendant cette longue période, très proche des mortels dans toutes les parties de la terre et de toutes les nationalités et croyances, et dans mon expérience avec ces mortels, j’ai observé la nature et les tentations et les diverses manières dont les mortels ont été assaillis par ces tentations, ainsi que leurs efforts pour surmonter celles-ci, ainsi que leurs réussites et leurs échecs.
 

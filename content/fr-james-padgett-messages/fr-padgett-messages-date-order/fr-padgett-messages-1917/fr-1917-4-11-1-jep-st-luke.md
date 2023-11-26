@@ -9,7 +9,7 @@ weight:
 ---
 ### A propos de sa sélection par le Père pour l’œuvre <sup id="a1">[1](#f1)</sup>
 
-St Luc - reçu par James Padgett le 11 Avril 1917, Washington, USA.
+Saintt Luc - reçu par James Padgett le 11 Avril 1917, Washington, USA.
 
 Je suis avec vous et je désire vous dire que vous recevez l’amour que vous recherchez en grande abondance alors que vous priez pour le recevoir. J’étais avec vous hier soir et j’ai écrit comme vous l’avez entendu. Vous devez croire que vous avez été choisi pour faire le travail du Père et je vous dis que vous accomplirez vos tâches d’une manière qui sera conforme à nos désirs et attentes.
 

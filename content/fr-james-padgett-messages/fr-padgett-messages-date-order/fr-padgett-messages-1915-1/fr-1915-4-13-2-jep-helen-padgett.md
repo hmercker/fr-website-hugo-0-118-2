@@ -15,7 +15,7 @@ C’est moi, Hélène.
 
 Oui, je serais là quoi qu’il arrive.
 
-Eh bien, tu as reçu un beau discours de la part du professeur, et ce fut un discours merveilleux. Je suis heureuse qu’il t’ait écrit sur le sujet, car cela dissipe de nombreux doutes que toi ou tes amis peuvent avoir. Il n’a pas encore fini, mais il t’a a vu fatigué et il s’est arrêté.
+Eh bien, tu as reçu un beau discours [de la part du professeur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-13-1-jep-joseph-salyards/), et ce fut un discours merveilleux. Je suis heureuse qu’il t’ait écrit sur le sujet, car cela dissipe de nombreux doutes que toi ou tes amis peuvent avoir. Il n’a pas encore fini, mais il t’a a vu fatigué et il s’est arrêté.
 
 *[Mon cerveau était fatigué…]*
 

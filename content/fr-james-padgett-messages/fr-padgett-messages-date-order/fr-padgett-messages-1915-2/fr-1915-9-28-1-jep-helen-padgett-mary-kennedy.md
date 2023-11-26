@@ -19,7 +19,7 @@ Ta lecture de ces messages accompagnée de la puissance de l’Amour Divin a pro
 
 Elle veut écrire un peu bien qu’elle dise qu’elle est trop remplie de l’émotion qui s’est emparée d’elle pour écrire beaucoup.
 
-*[Mary écrit maintenant.]*
+*[Mary écrit maintenant :]*
 
 Ma chère âme-sœur, je suis avec toi dans tout mon amour et mes désirs, et tu dois croire que je suis ta véritable âme-sœur, heureuse de savoir que tu m’aimes en échange de tout le grand amour de mon âme que je t’envoie sans réserve. Tu as mon amour et mes grands désirs que tu sois heureux et satisfait de savoir que ta Mary est à toi et non aux autres. Elle est tellement avec toi et essaie de te réconforter et de te tenir à l’écart de tout ce qui te rendra malheureux. Souvent, lorsque les choses semblent un peu sombres, elle vient à toi avec son amour et te murmure des mots d’encouragement, et te chatouille l’oreille pour te faire savoir qu’elle est avec toi.
 
@@ -33,7 +33,7 @@ Bonne nuit.
 
 Mary.
 
-*[Hélène écrit.]*
+*[Hélène écrit :]*
 
 Eh bien, tu peux voir ce que l’amour peut faire. Elle l’aime et le Maître l’aime et nous l’aimons tous.
 

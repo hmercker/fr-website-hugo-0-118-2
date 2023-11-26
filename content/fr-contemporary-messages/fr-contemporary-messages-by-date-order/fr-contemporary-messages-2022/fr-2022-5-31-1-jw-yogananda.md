@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le don de donner dans l’amour de Dieu
+### Le don de donner dans l’Amour de Dieu
 
 Yogananda - reçu par Jimbeau Walsh le 31 Mai 2022, Marietta Valley, WI, USA.
 

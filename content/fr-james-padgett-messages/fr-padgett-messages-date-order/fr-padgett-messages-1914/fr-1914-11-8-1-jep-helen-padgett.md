@@ -23,7 +23,7 @@ Oui, je sais, mais ils essayaient seulement de sentir la présence de Dieu et de
 
 Je suis ta grand-mère qui dicte ce message à Hélène. Parce qu’elle ne comprend pas encore la plénitude de l’Amour de Dieu et j’essaie de te faire comprendre que tu dois adorer Dieu seul, et laisser ton cœur aller vers Lui dans la reconnaissance et l’amour.
 
-Jésus, bien entendu est celui avec qui tu dois garder un rapport saint, alors ne laisse pas la pensée qu’il n’est pas un Dieu t’empêcher de l’aimer et de le servir. Tu ne dois pas le considérer comme ton sauveur du péché et de l’erreur, mais simplement comme quelqu’un qui s’intéresse à toi et qui veut écrire à travers toi, et cela t’aidera à progresser.
+Jésus, bien entendu est celui avec qui tu dois garder un rapport saint, alors ne laisse pas la pensée qu’il n’est pas Dieu t’empêcher de l’aimer et de le servir. Tu ne dois pas le considérer comme ton sauveur du péché et de l’erreur, mais simplement comme quelqu’un qui s’intéresse à toi et qui veut écrire à travers toi, et cela t’aidera à progresser.
 
 Son sang ne te sauve pas, ni sa mort, mais son amour et ses enseignements te sauvent du péché et de la mort. Il ne te laissera pas sentir qu’il n’est pas ton ami, à moins que tu te détournes de lui au profit de l’amour de la terre et des plaisirs matériels et physiques.
 

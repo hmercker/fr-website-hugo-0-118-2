@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement
 
-Jésus - reçu par Amada Reza le 30 Juillet 2000, Aptos, Californie, USA.
+Jésus - reçu par Amada Réza le 30 Juillet 2000, Aptos, Californie, USA.
 
 *[Cher Dieu, je prie pour être un instrument de Ton Amour, et que si les Anges du Ciel Céleste désirent nous transmettre des paroles d’amour, qu’ils me trouvent en bonne condition pour le faire. Je Vous aime, cher Père, et je prie pour que Votre Amour me comble, m’élève dans la foi et l’aspiration à la vérité spirituelle. Je vous aime, chers anges, pour votre amour et votre don désintéressés. Je vous prie de me protéger de toute influence inférieure – j’ai la foi que Dieu peut me protéger. Je vous remercie pour ce don. Amen]*
 

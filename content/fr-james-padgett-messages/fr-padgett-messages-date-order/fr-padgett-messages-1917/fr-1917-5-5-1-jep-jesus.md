@@ -35,7 +35,7 @@ Afin d’établir ces deux royaumes du non-divin, l’homme doit respecter cette
 
 Le respect de la loi morale permettra aux hommes d’accomplir ce but. L’amour avec lequel l’homme a été doté, comme l’homme parfait, lui permet, lorsqu’il devient purifié et plus harmonieux, d’aimer Dieu et son prochain comme lui-même, car cet amour naturel est celui qui, dans sa perfection et sa nature, est universel et, dans son exercice, chaque homme est frère de son voisin.
 
-Les qualités progressives de cet amour que tout homme peut obtenir, ont véritablement et merveilleusement été exprimées par Pierre dans l’une de ses épîtres tel qu’elle figure dans la Bible (Pierre II, chapitre 1, versets 5, 6, 7) et si les hommes cherchent ces étapes successives en acquérant le développement purifiant de cet amour, ils obtiendront le grand objet recherché. Comme je l’ai écrit, la Bible contient beaucoup de mes enseignements qui, s’ils sont suivis, vont conduire à cette fin, et permettront aux hommes de réaliser le Royaume de Dieu sur la terre.
+Les qualités progressives de cet amour que tout homme peut obtenir, ont véritablement et merveilleusement été exprimées par Pierre dans l’une de ses épîtres tel qu’elle figure dans la Bible [Pierre II, chapitre 1, versets 5, 6, 7](https://saintebible.com/2_peter/1-5.htm) et si les hommes cherchent ces étapes successives en acquérant le développement purifiant de cet amour, ils obtiendront le grand objet recherché. Comme je l’ai écrit, la Bible contient beaucoup de mes enseignements qui, s’ils sont suivis, vont conduire à cette fin, et permettront aux hommes de réaliser le Royaume de Dieu sur la terre.
 
 A ce sujet, je voudrais corriger une croyance erronée ou une idée qui a longtemps prévalu parmi l’humanité, et qui, dans ses résultats, a retardé la venue du Royaume sur la terre. Je veux faire comprendre que, Dieu, de sa propre initiative et en dépit des désirs et des œuvres des âmes des hommes, n’établira pas ce Royaume. Sa création repose sur les hommes eux mêmes, et, jusqu’à ce qu’eux mêmes et leurs amours deviennent harmonieux avec la volonté de Dieu, ce Royaume ne sera jamais établi.
 
@@ -79,5 +79,9 @@ N’oubliez pas que mes promesses seront accomplies, vous devez avoir la foi. Je
 
 Bonne nuit et que Dieu vous bénisse, votre frère et ami, Jésus.
 
-*Note : Le [27 Juin 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-21-jep-jesus/) et Le [15 Mai 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-27-1-jep-jesus/), jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux.*
+**Note :** Jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux dans les messages suivants :
 
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-21-jep-jesus/) | 27 Juin 1916
+Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/)) | 15 Mai 1917

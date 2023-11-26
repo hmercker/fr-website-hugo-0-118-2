@@ -1,13 +1,13 @@
 ---
-title: "loi de compensation"
+title: "La loi de compensation"
 menu_title: ""
-description: "loi de compensation"
+description: "La loi de compensation"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True
 weight:
 ---
-### loi de compensation <sup id="a1">[1](#f1)</sup>
+### La loi de compensation <sup id="a1">[1](#f1)</sup>
 
 John Bunyan - reçu par James Padgett le 9 Janvier 1917, Washington, USA.
 
@@ -22,4 +22,4 @@ La Loi de l’Amour Divin est la plus grande loi et supplante toutes les autres 
 Votre frère en Christ, John Bunyan.
 <small>
 
-1. <large id="f1"> Ce message est aussi publié dans le Volume III à la page 363. Pour plus de détails, consultez cette page.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume 1, deuxième édition française, à la page 343 et dans le volUme III  à la page 461. . Pour plus de détails [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

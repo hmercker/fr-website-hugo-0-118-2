@@ -25,13 +25,13 @@ Maintenant laissez-moi, en tant qu’esprit et en tant qu’homme qui a travaill
 
 La prière est la cause de la puissance donnée aux hommes, elle leur permettra de faire toutes les grandes œuvres qui seront source de récompense pour celui qui les fait, de bonheur et d’avantage pour celui qui les reçoit.
 
-Ainsi, vous voyez que les résultats ne peuvent jamais être aussi grands que la cause, car la cause, dans ce cas-ci, non seulement donne aux hommes cette capacité de travailler, mais aussi leur permet d’aimer et de développer leur âme et d’inspirer toutes les bonnes et vraies pensées. Les œuvres sont souhaitables et, dans certains cas, nécessaires, mais la prière est absolument indispensable. Que vous et votre ami <sup id="a2">[2](#f2)</sup> compreniez et ne doutez jamais que, sans la prière, les œuvres des hommes ne seraient pas disponibles pour accomplir le grand bien que l’homme accomplit déjà aujourd’hui pour son frère.
+Ainsi, vous voyez que les résultats ne peuvent jamais être aussi grands que la cause, car la cause, dans ce cas-ci, non seulement donne aux hommes cette capacité de travailler, mais aussi leur permet d’aimer et de développer leur âme et d’inspirer toutes les bonnes et vraies pensées. Les œuvres sont souhaitables et, dans certains cas, nécessaires, mais la prière est absolument indispensable. Vous et votre ami <sup id="a2">[2](#f2)</sup> devez comprendre et ne jamais douter que, sans la prière, les œuvres des hommes ne seraient pas disponibles pour accomplir le grand bien que l’homme accomplit déjà aujourd’hui pour son frère.
 
 Priez, et les œuvres suivront. Travaillez, et vous pourrez faire le bien, mais l’âme n’en profitera pas, car Dieu est un Dieu qui répond à la prière, par les ministères de ses anges et par l’influence de son Esprit Saint, qui travaille sur la partie intérieure ou réelle de l’homme.
 
 Je vais arrêter maintenant. Ainsi, avec mon amour pour vous deux, je suis votre frère en Christ, Jean.
 <small>
 
-1. <large id="f1"> Ce message est également publié dans le volume le volume IV des messages reçus par James Padgett.[↩](#a1)
+1. <large id="f1"> Ce message est également publié dans le volume II, deuxièmee édition française, à la page 134 et dans le volume IV des messages reçus par James Padgett à la page 412. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
 
 2. <large id="f2"> Dr Leslie R. Stone était présent.[↩](#a2)

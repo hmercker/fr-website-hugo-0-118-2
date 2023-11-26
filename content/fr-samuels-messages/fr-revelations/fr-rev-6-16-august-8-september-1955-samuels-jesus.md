@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 16 Août et 8 Septembre 1955, Washington, USA.
 
 C’est moi, Jésus.
 
-Je suis ici pour vous écrire sur le sujet : Qui étaient les anges présumés avoir existé avant la création de l’homme ?
+Je suis ici pour vous écrire sur le sujet : "Qui étaient les anges présumés avoir existé avant la création de l’homme" ?
 
 Comme vous le savez, l’homme a été créé par Dieu à partir des éléments de l’univers et dans l’homme fut implanté l’âme, ou l’homme réel ou spirituel, ce qui le distinguait des autres créatures de Dieu. Et avec cette âme, Dieu a donné à l’homme la possibilité d’obtenir la nature propre de Dieu, à travers les désirs de l’homme pour l’Union avec lui. La fierté et le désir de maîtriser l’environnement, qui, pensait-il, pourrait lui assurer l’immortalité, a conduit au retrait de l’Amour Divin et la potentialité pour l’homme de devenir un avec Dieu a été perdu jusqu’à ce que j’apparaisse en Palestine et prêche l’immortalité aux Juifs.
 
@@ -41,7 +41,7 @@ En d’autres termes, l’homme possède une double série d’émotions et l’
 
 À travers la prière, les pensées et les aspirations de l’âme, la nature spirituelle, chez l’homme, peut être développée afin de dominer la personnalité, et il agira en accord avec les sentiments et les émotions de son âme. Si, toutefois, les émotions animales peuvent dominer les émotions spirituelles de l’homme et transgresser les lois de Dieu à leur sujet, l’âme devient incrustée avec ces excroissances funestes, ou, devrais-je dire, l’âme est contaminée par eux. Lorsque le mortel achève sa vie et que l’esprit pénètre dans le monde des esprits, l’âme doit alors subir une période de souffrance durant laquelle les éléments contaminants acquis durant la vie terrestre sont éliminés de l’âme afin que l’âme retrouve sa pureté primitive.
 
-Cette purification de l’âme obéit les préceptes de la loi Divine de l’indemnité, parce qu’aucune telle âme n’est admise dans les cieux spirituels de Dieu. Le paradis des Hébreux ne peut être atteint sans une telle purification, et pourtant le temps consommé, comme vous le diriez, par ce processus de purification dépend de l’âme elle-même. Dès qu’elle prend conscience de sa condition et des circonstances dans le monde des esprits, principalement de sa propre volonté, mais aussi avec l’aide des autres, elle va réaliser les progrès nécessaires. Toutes les âmes dans le monde spirituel seront finalement purifiées.
+Cette purification de l’âme obéit les préceptes de la loi Divine de l’indemnité  (loi de compensation), parce qu’aucune telle âme n’est admise dans les cieux spirituels de Dieu. Le paradis des Hébreux ne peut être atteint sans une telle purification, et pourtant le temps consommé, comme vous le diriez, par ce processus de purification dépend de l’âme elle-même. Dès qu’elle prend conscience de sa condition et des circonstances dans le monde des esprits, principalement de sa propre volonté, mais aussi avec l’aide des autres, elle va réaliser les progrès nécessaires. Toutes les âmes dans le monde spirituel seront finalement purifiées.
 
 Il s’agissait de la condition de l’homme avant l’effusion du don de l’Amour Divin, que j’ai mis en évidence durant le temps de mon ministère public en Palestine. Car aucune personne, avant ma venue avec ce cadeau, pouvait atteindre l’Union avec le Père Céleste et la transformation de son âme en une âme Divine, par le déversement de l’Amour Divin dans son âme par la prière fervente au Père pour cet Amour, l’Essence du Père et introduite dans l’âme de l’homme par le ministère de son Esprit Saint.
 

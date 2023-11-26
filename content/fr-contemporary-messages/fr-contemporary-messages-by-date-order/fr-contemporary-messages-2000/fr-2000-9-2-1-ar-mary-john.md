@@ -9,7 +9,7 @@ weight:
 ---
 ### Encouragement donné à W___
 
-Marie et Jean - reçu par Amada Reza le 2 Septembre 2000, Aptos, Californie, USA.
+Marie et Jean - reçu par Amada Réza le 2 Septembre 2000, Aptos, Californie, USA.
 
 *[Cher Dieu, je prie pour que Ton Amour afflue dans mon âme et je Te demande de m’aider à activer cet Amour afin qu’il puisse élever mon esprit et mon âme pour entrer en relation avec Tes anges. W__ veut savoir qui est son protecteur spécial, et par cette connaissance que la prière qu’il T’adresse afin de recevoir Ton Amour soit renforcée. Si c’est Ta volonté, cher Dieu, je prie pour avoir la foi en la puissance de Ton Amour pour nous apporter la vérité. Je prie pour être protégé de tout esprit qui souhaite interférer avec notre amour l’un pour l’autre. Je T’aime, Père Céleste, et je Te remercie. Amen.]*
 

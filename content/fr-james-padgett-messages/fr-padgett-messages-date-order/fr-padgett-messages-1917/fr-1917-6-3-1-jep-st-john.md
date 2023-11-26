@@ -13,7 +13,7 @@ St Jean - reçu par James Padgett le 3 Juin 1917, Washington, USA.
 
 C’est moi, Jean.
 
-Je viens écrire quelques lignes sur la présentation que vous avez vu ce soir de ce qui était censé être des portraits du Maître. Eh bien, les présentations étaient très intéressantes et montraient les conceptions différentes, et diverses, des artistes au cours des siècles de ce à quoi ressemblait le Maître. Cependant, je dois dire qu’aucune d’elles n’est une image correcte de lui tel qu’il était sur terre ou tel qu’il apparut après sa résurrection des morts ou tel qu’il se manifesta aux disciples et à tous ses semblables.
+Je viens écrire quelques lignes sur la présentation que vous avez vue ce soir de ce qui était censé être des portraits du Maître. Eh bien, les présentations étaient très intéressantes et montraient les conceptions différentes, et diverses, des artistes au cours des siècles de ce à quoi ressemblait le Maître. Cependant, je dois dire qu’aucune d’elles n’est une image correcte de lui tel qu’il était sur terre ou tel qu’il apparut après sa résurrection des morts ou tel qu’il se manifesta aux disciples et à tous ses semblables.
 
 Je comprends comment le prédicateur, et beaucoup d’autres qui étaient présents à l’église ce soir, aiment Jésus, et j’apprécie la croyance qu’en regardant certains des portraits, ils peuvent se faire une idée de son apparence, mais j’aurais vraiment souhaité que son aspect ce puisse avoir été dépeint dans certaines des illustrations. Cependant, comme je le disais, aucune d’entre elles ne ressemblait, de quelque façon que ce soit, au Maître que j’ai connu et côtoyé, et qui a été vu après sa résurrection de la tombe. Aucune d’elles ne présentait la grande lumière spirituelle qui brillait de son visage, même quand il souffrait sur la croix, et aucun d’eux ne donnait un aperçu, même faible, de la beauté spirituelle qui était la sienne quand il côtoyait et aidait les pécheurs ainsi que ses amis et disciples.
 
@@ -35,6 +35,7 @@ Que tous les mortels aiment donc Jésus avec la ferveur et la plénitude de leur
 
 J’ai assez écrit pour ce soir. Je reviendrai bientôt pour vous écrire un message formel. Souvenez-vous de ce que je t’ai dit il y a quelques nuits, croyez, ayez confiance, et vous ne serez pas déçu. Avec mon amour et les bénédictions du Père, je vous souhaiterai une bonne nuit.
 
-Votre frère en Christ, Jean.
+Votre frère en Christ, Jean. <sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Des portraits des différents disciples de Jésus sont disponibles [ici](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/). Nous recommandons [ce portrait de Jésus](http://www.lovewithoutend.com). Une bonne description de Jésus est donnée [dans ce message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) par Anne Rollins et elle est très semblable à la description ci-dessus.*
+1. <large id="f1"> Des portraits des différents disciples de Jésus sont disponibles [ici](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/). Nous recommandons [ce portrait de Jésus](http://www.lovewithoutend.com). Une bonne description de Jésus est donnée [dans ce message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) par Anne Rollins et elle est très semblable à la description ci-dessus.[↩](#a1)

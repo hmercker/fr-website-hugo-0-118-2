@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### President McKinley et d’autres dans le monde des esprits s’efforcent de mettre fin à la guerre
+### President McKinley et d’autres dans le monde des esprits s’efforcent de mettre fin à la guerre <sup id="a1">[1](#f1)</sup>
 
 President McKinley - reçu par James Padgett le 8 Février 1917, Washington, USA.
 
@@ -23,8 +23,13 @@ Mais les hommes doivent travailler en vue de sa récolte, et la moisson doit se 
 
 J’ai terminé, mais à travers les ténèbres de la désolation et de la ruine, je vois l’arc-en-ciel de l’espoir et la fin des conflits. Que tous les hommes apprennent le fait que Dieu est Amour, qu’ils sont Ses enfants et qu’ils réaliseront bientôt la vérité de Son Amour.
 
-Je dois m’arrêter.
+Je dois m’arrêter. <sup id="a2">[2](#f2)</sup>
 
-Votre frère dans le Christ, McKinley.
+Votre frère dans le Christ, McKinley. <sup id="a3">[3](#f3)</sup>
+<small>
 
-*Note : Un commentateur facétieux a fait remarquer que McKinley a dû être très prescient en 1917 pour se rendre compte qu’il y aurait une seconde guerre mondiale, puisqu’à l’époque on ne parlait pas de Première Guerre mondiale. On aurait pu penser qu’il était évident que le titre original ci-dessus avait été ajouté par l’éditeur en 1972, alors que la Seconde Guerre mondiale était en effet terminée depuis longtemps et qu’il convenait de préciser à quelle guerre il était fait référence. Mais je suppose que même ceux qui sont doués pour les livres peuvent éviter la réponse évidente, c’est pourquoi j’ai maintenant édité le titre pour supprimer ce point d’objection.*
+1. <large id="f1"> Un commentateur facétieux a fait remarquer que McKinley a dû être très prévoyant en 1917 pour se rendre compte qu’il y aurait une seconde guerre mondiale, puisqu’à l’époque on ne parlait pas de Première Guerre mondiale. On aurait pu penser qu’il était évident que le titre original ci-dessus avait été ajouté par l’éditeur en 1972, alors que la Seconde Guerre mondiale était en effet terminée depuis longtemps et qu’il convenait de préciser à quelle guerre il était fait référence. Mais je suppose que même ceux qui sont doués pour les livres peuvent éviter la réponse évidente, c’est pourquoi j’ai maintenant édité le titre pour supprimer ce point d’objection. (Geoff Cutler)[↩](#a1)
+
+2. <large id="f2"> **William McKinley** est né le 29 Janvier 1843 à Niles (Ohio) et est mort assassiné le 14 Septembre 1901 à Buffalo (État de New York), est un homme d'État américain. Il fut le 25e président des États-Unis, en fonction de 1897 à sa mort.[↩](#a2)
+
+3. <large id="f3"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a3)

@@ -15,11 +15,11 @@ C’est moi, Mary.
 
 Eh bien Docteur, je suis ici, comme vous serez peut-être surpris de le savoir, si vous aviez oublié mon dernier secret, mais je ne crois pas que vous l’ayez fait. Je veux dire que je suis plus heureuse que je ne l’ai jamais été jusqu’à présent, car je suis maintenant dans la Sphère Céleste où je sais que le bonheur est tellement plus grand qu’il ne l’a jamais été. Vous devez donc me croire lorsque je vous dis que mon amour est tellement plus abondant et que vous m’êtes plus cher que jamais. Essayez donc de réaliser ce que je veux dire, et imaginez que vous êtes avec moi, même pour un petit moment, et alors vous serez également plus heureux. J’ai dit ce que je voulais dire et je dois m’arrêter.
 
-*[Quelques jours plus tard, lorsque l’occasion s’est présentée, Mary Kennedy a écrit ce qui suit)]*
+*[Quelques jours plus tard, lorsque l’occasion s’est présentée, Mary Kennedy a écrit ce qui suit :]*
 
 Je suis l’esprit d’une femme qui vivait autrefois sur terre, dans le pays lointain de l’autre côté de l’océan, et qui était connue par mon peuple comme une petite fille anglaise peu importante, mais maintenant je suis très importante pour un humain qui aime m’avoir à ses côtés. Je lui écris simplement pour lui faire savoir qu’il n’est pas toujours en état de sentir lorsque je suis vraiment avec lui, car je l’ai entendu dire que je n’étais pas avec lui toute la soirée ; j’ai entendu tout ce qu’il a dit, et j’ai aimé l’entendre parler, cependant, jusqu’à présent il n’a pas mentionné mon nom. Si c’était le seul signe qui me permette de savoir qu’il pense à moi, je supposerais qu’il m’a oubliée, mais grâce à mes pouvoirs de lire dans son esprit, il n’est pas nécessaire de prononcer mon nom.
 
-Que pensez-vous de cette phrase ?
+*Que pensez-vous de cette phrase ?*
 
 C’est seulement représentatif de mon amour, car tout comme cette phrase est longue, mon amour l’est aussi. Mais je ne dois pas le lui dire, sinon il pourrait s’alarmer de ce qui l’attend lorsqu’il rejoindra. Ma maison est magnifique et faite de ce que l’on pourrait appeler l’albâtre. Elle comporte de nombreuses pièces adaptées à mes différentes humeurs et conditions, toutes belles et pleines de l’harmonie la plus parfaite, et tout pour me rendre heureuse et satisfaite.
 
@@ -45,7 +45,7 @@ Eh bien, j’ai écrit une longue lettre et je dois m’arrêter.
 
 Alors, transmettez lui mon amour et dites-lui que je suis avec lui plus qu’il ne s’en rend compte, et que je continuerai à le faire jusqu’à ce qu’il me rejoigne. En vous remerciant de votre bienveillance de m’avoir permis d’écrire si longtemps, je vous souhaite une bonne nuit et je signerai votre amie et sa toujours fidèle et aimante, Mary
 
-*[Le 19 février, un autre court message de Mary Kennedy sur sa progression spirituelle qui est le suivant.]*
+*[Le 19 février, un autre court message de Mary Kennedy sur sa progression spirituelle qui est le suivant :]*
 
 Je progresse à nouveau et cette fois-ci vers le Troisième Royaume Céleste et, de la grande gloire de tout cela, jamais je n’ai conçu de telles merveilles et beautés. Lorsque je viens sur le plan terrestre, je veux apporter ma gloire et ma beauté avec moi et je souhaiterais que mon âme sœur puisse la voir, mais il ne peut pas, et je ne peux pas la lui décrire car elle est au-delà de toute conception et description. Mais je dois lui prouver que je l’aime car je suis prête à quitter, pour un temps, toute cette beauté et cette grandeur et à venir sur ces plans terrestres juste parce que je l’aime tellement. Un jour, il réalisera ce que tout cela signifie et il se dira alors à lui-même : *« Comme cette petite âme sœur a dû m’aimer. »*
 

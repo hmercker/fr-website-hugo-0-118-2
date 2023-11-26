@@ -25,7 +25,7 @@ Jusqu’à ce que les vérités, que moi et les autres esprits vous révélons, 
 
 J’approuve les efforts de ce prédicateur pour amener les hommes à la réalisation de leur relation à Dieu, même s’il a beaucoup de croyances erronées, et dit beaucoup de choses contraires à la vérité, et non en accord avec la vraie relation de l’homme à Dieu.
 
-Je vous écrirai bientôt sur cette question du jugement, et ce qu’il signifie et la variété de ses opérations. Ce soir, je n’écrirai pas plus longtemps, car je pense qu’il vaut mieux ne pas trop vous solliciter lors de cette conjonction renouvelée du rapport avec votre condition. J’ai été avec vous très souvent ces derniers temps, et j’ai essayé de vous influencer par mon amour et mes suggestions, et je dois vous dire que vous avez beaucoup progressé dans le développement de votre âme et la proximité de l’amour du Père.
+[Je vous écrirai bientôt](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-2-25-1-jep-jesus/) sur cette question du jugement, et ce qu’il signifie et la variété de ses opérations. Ce soir, je n’écrirai pas plus longtemps, car je pense qu’il vaut mieux ne pas trop vous solliciter lors de cette conjonction renouvelée du rapport avec votre condition. J’ai été avec vous très souvent ces derniers temps, et j’ai essayé de vous influencer par mon amour et mes suggestions, et je dois vous dire que vous avez beaucoup progressé dans le développement de votre âme et la proximité de l’amour du Père.
 
 Continuez à méditer sur ces choses spirituelles, et priez le Père, et vous réaliserez une grande progression dans la possession de cet Amour et dans votre condition qui nous permettra d’entrer en relation plus intime avec vous.
 
@@ -36,4 +36,4 @@ Je dois m’arrêter maintenant, cependant, avant de le faire, je veux vous assu
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume II et dans le Volume III.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume II page 403 et dans le Volume III page 403. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages).[↩](#a1)

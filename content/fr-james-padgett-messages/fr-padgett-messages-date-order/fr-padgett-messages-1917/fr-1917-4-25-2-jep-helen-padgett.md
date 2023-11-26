@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 25 Avril 1917, Washington, USA.
 
 C’est moi, ta vraie et bien-aimée Hélène.
 
-Eh bien, mon cher, je suis heureux que Jean t’ait écrit comme il l’a fait, car cela te donnera un aperçu de certains principes concernant le pouvoir des esprits à aider les mortels, que tu n’avais peut-être pas compris auparavant. Ce qu’il a dit est vrai, et je suis heureux qu’il ait écrit.
+Eh bien, mon cher, je suis heureuse que [Jean t’ait écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-4-25-1-jep-st-john/) comme il l’a fait, car cela te donnera un aperçu de certains principes concernant le pouvoir des esprits à aider les mortels, que tu n’avais peut-être pas compris auparavant. Ce qu’il a dit est vrai, et je suis heureux qu’il ait écrit.
 
 Il est, peut-être, un peu décevant d’apprendre que les esprits n’ont pas le pouvoir de tout faire, comme les mortels peuvent le supposer, cependant je ne veux pas que tu sous-estimes leurs pouvoirs, car ils ont de grands pouvoirs, même pour les choses matérielles. Bien sûr, ils ne peuvent pas déplacer une maison, ou faire en sorte que les richesses d’un mortel lui soient enlevées et mises à disposition d’un autre, mais ils peuvent utiliser, et utilisent une grande influence, sur les mortels pour les amener à faire des choses physiques que les esprits ne peuvent pas directement faire.
 
@@ -21,4 +21,4 @@ Tes prières ne sont pas futiles, même en ce qui concerne ces choses matériell
 
 Nous pouvons voir certaines choses avant qu’elles n’aient une existence dans le monde physique, et nous pouvons t’en parler. Et lorsque nous croyons que certaines choses se produiront, nous te le disons, cependant lorsqu’elles ne se produisent pas, nous sommes tout autant déçus que toi.
 
-Ta propre vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.

@@ -13,9 +13,9 @@ St Luc - reçu par James Padgett le 9 Avril 1916, Washington, USA.
 
 C’est moi Luc.
 
-Je désire ce soir vous entretenir un court instant sur le texte: *« Les péchés des parents sont transmis aux enfants jusqu’à la troisième et la quatrième génération. (Exode 20:5) »*
+Je désire ce soir vous entretenir un court instant sur le texte: [*Les péchés des parents sont transmis aux enfants jusqu’à la troisième et la quatrième génération.*](https://saintebible.com/exodus/20-5.htm)
 
-Je sais que, généralement, l’explication donnée pour ce texte est que les péchés matériels ou plutôt que les péchés qui se traduisent par un préjudice physique important, ou par la maladie, sont transmis aux enfants et, dans une très large mesure, cela est vrai. Mais cette explication n’est pas en accord avec le vrai sens de la déclaration.
+Je sais que, généralement, l’explication donnée pour ce texte est que les péchés matériels ou plutôt que les péchés qui se traduisent par un préjudice physique important, ou par la maladie, sont transmis aux enfants et, dans une très large mesure, cela est vrai. Mais cette explication n’est pas en accord avec le vai sens de la déclaration.
 
 L’homme est non seulement un être matériel ou physique, mais est plus largement un être spirituel, ayant une âme et un esprit qui ne cessent d’exister, et qui sont tout autant une partie de lui durant sa vie terrestre, que lorsqu’il devient un esprit, c’est à dire après avoir quitté les habits de chair et de sang.
 
@@ -43,18 +43,19 @@ Je sais qu’il est souvent dit que c’est injuste et non conforme à la justic
 
 Comme ce sont les premiers parents qui ont créé ces maux, comme je vous l’ai expliqué et de la manière dont je vous l’ai indiqué, leurs péchés, par l’influence qu’ils ont sur la nature spirituelle au moment de la conception et de la naissance, se sont, en quelque sorte, matérialisés à travers les désirs spirituels, les tendances et les inclinaisons vers ce qui est mauvais (malade), et cette influence demeure avec l’enfant pendant des années après sa naissance, selon que l’enfant et les parents sont plus ou moins étroitement associés dans leur vie terrestre. Et comme chaque génération successive est responsable de cette matérialisation de son influence et des tendances pécheresses sur les générations suivantes, vous pouvez facilement voir comment les hommes, tous les hommes, sont devenus sujets aux péchés, aux maux et aux peines qui sont apparus dans le monde par les premiers parents.
 
-Dieu n’est pas l’auteur des péchés et de leurs effets néfastes sur les enfants de l’homme, Il déclare que leur existence est contraire à l’harmonie de Sa création et doit être éliminée avant que l’homme puisse entrer dans cette harmonie et communion avec lui. Et comme il a donné à l’homme le grand pouvoir du libre arbitre, sans aucune restriction dans son application, si ce n’est dans la limite de la compréhension de l’homme de l’harmonie des opérations des lois de Dieu qui peuvent l’influencer dans l’exercice de ce grand pouvoir; et comme l’homme, dans l’exercice erroné de ce pouvoir, a permis l’existence de ces mauvaises choses et du péché, ainsi l’homme, alors qu’il perçoit ce plan de l’harmonie de Dieu, doit exercer sa volonté de telle manière à se libérer lui-même de ces choses qui ne font pas partie de la création de Dieu et qui sont en désaccord avec ses plans pour la création et la préservation d’un univers parfait, et dont l’homme est sa création plus élevée.
+Dieu n’est pas l’auteur des péchés et de leurs effets néfastes sur les enfants de l’homme, Il déclare que leur existence est contraire à l’harmonie de Sa création et doit être éliminée avant que l’homme puisse entrer dans cette harmonie et communion avec lui. Et comme il a donné à l’homme le grand pouvoir du libre arbitre, sans aucune restriction dans son application, si ce n’est dans la lim««ite de la compréhension de l’homme de l’harmonie des opérations des lois de Dieu qui peuvent l’influencer dans l’exercice de ce grand pouvoir; et comme l’homme, dans l’exercice erroné de ce pouvoir, a permis l’existence de ces mauvaises choses et du péché, ainsi l’homme, alors qu’il perçoit ce plan de l’harmonie de Dieu, doit exercer sa volonté de telle manière à se libérer lui-même de ces choses qui ne font pas partie de la création de Dieu et qui sont en désaccord avec ses plans pour la création et la préservation d’un univers parfait, et dont l’homme est sa création plus élevée.
 
 Dieu ne change jamais. Ses lois ne changent jamais. Seul l’homme a dévié de la perfection de sa création; et l’homme doit changer avant qu’il n’atteigne de nouveau la perfection.
 
 Maintenant, de tout cela il ne faut pas en déduire que l’homme est abandonné à ses propres efforts pour parvenir à cette grande restauration, parce que ce n’est pas vrai, parce que les instruments de Dieu sont en permanence à l’œuvre et exercent une influence sur l’homme pour qu’il retrouve son état originel et devienne ultimement l’homme parfait. (Je ne fais pas référence ici aux chantiers du grand Amour Divin lequel, lorsque l’homme le possède à un degré suffisant, rend l’homme plus que parfait.)
 
-Ainsi la phrase « les péchés des parents sont transmis aux enfants jusqu’à la troisième et quatrième génération », signifie que les tendances et les inclinaisons vers ce qui est mal (sont créées) non pas par Dieu, mais, uniquement et exclusivement, par l’homme lui-même.
+Ainsi la phrase *« les péchés des parents sont transmis aux enfants jusqu’à la troisième et quatrième génération »*, signifie que les tendances et les inclinaisons vers ce qui est mal (sont créées) non pas par Dieu, mais, uniquement et exclusivement, par l’homme lui-même.
 
 Et oui, si vous pouviez voire les résultats de ces péchés sur la nature spirituelle de vos enfants, comme vous les voyez souvent sur leurs corps matériels, vous hésiteriez à pécher et vous penseriez que la grande tache sur le bonheur et le salut de l’humanité pourrait être supprimée et les progrès vers « l’homme parfait » seraient accélérés et assurés.
 
 Eh bien, j’ai assez écrit pour ce soir. J’espère que ce que j’ai dit pourra être compris et médité par tous ceux qui pourront le lire ce message. Je ne vais pas vous retenir plus longtemps, et avec mon amour, et la bénédiction de celui qui est maintenant non seulement l’homme parfait mais un possesseur de la Nature Divine du Père et héritier de l’immortalité, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Luc.
+Votre frère en Christ, Luc. <sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Une clarification concernant ce message a été reçue, de Luc, [le lendemain](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-10-1-jep-st-luke/).*
+1. <large id="f1"> Une clarification concernant ce message a été reçue, de Luc, [le lendemain](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-10-1-jep-st-luke/).[↩](#a1)

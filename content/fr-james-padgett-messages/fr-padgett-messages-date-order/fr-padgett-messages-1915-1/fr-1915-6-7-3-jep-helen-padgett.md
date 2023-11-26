@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène explique comment Saleeba contrôlerait et parlerait à travers Padgett
+### Hélène explique comment Saleeba contrôlerait et parlerait à travers Padgett <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 7 Juin 1915, Washington, USA.
 
@@ -15,9 +15,11 @@ Je vois que tu vas interrompre mon écriture mais je sais que tu m’aimes quand
 
 Je n’écrirai donc pas plus, à moins que tu n’aies une question à me poser.
 
-Eh bien, lorsque tu étais sous contrôle, tu étais dans un état tel que, si la musique avait continué et que tu avais été dans le cabinet, tu aurais vécu une expérience merveilleuse. L’Égyptienne te contrôlait et elle est très puissante et elle aurait parlé à travers toi <sup id="a1">[1](#f1)</sup> et annoncé elle-même et le fait qu’elle cherche maintenant la vérité de l’Amour de Dieu.
+Eh bien, lorsque tu étais sous contrôle, tu étais dans un état tel que, si la musique avait continué et que tu avais été dans le cabinet, tu aurais vécu une expérience merveilleuse. L’Égyptienne te contrôlait et elle est très puissante et elle aurait parlé à travers toi <sup id="a1">[2](#f2)</sup> et annoncé elle-même et le fait qu’elle cherche maintenant la vérité de l’Amour de Dieu.
 
 Elle viendra te bientôt et tu écriras à nouveau car elle semble penser beaucoup à toi. Elle a la beauté que son développement lui a donnée et rien de plus.Tu ne dois pas penser que parce qu’elle a pu être une belle mortelle, elle est un bel esprit. Tu la verras un jour. Ta vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id="f1"> Il s’agirait d’une voix directe utilisant l’ectoplasme, car elle aurait recours à un appareil pour exclure la lumière. Ce message a été extrait des archives par Geoff Cutler en mai 2019.[↩](#a1)
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
+
+2. <large id="f2"> Il s’agirait d’une voix directe utilisant l’ectoplasme, car elle aurait recours à un appareil pour exclure la lumière. Ce message a été extrait des archives par Geoff Cuttler en mai 2019.[↩](#a2)

@@ -38,7 +38,9 @@ Dans cette guerre, je pense que les Allemands et leurs Alliés ne seront pas vic
 
 Je n’écrirai pas plus ce soir, mais au fur et à mesure de ma progression, des conseils reçus de la part des esprits supérieurs, je reviendrai vers vous pour vous faire part de mes progrès.
 
-Avec mon amour et ma gratitude, je signerai, votre frère en Christ, Grover Cleveland.
+Avec mon amour et ma gratitude, je signerai, votre frère en Christ, Grover Cleveland. <sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Stephen Grover Cleveland (18 Mars 1837 – 24 Juin 1908) fut le 22ème et le 24ème président des États-Unis. Il a remporté le vote populaire pour le poste de président à trois reprises – en 1884, 1888 et 1892 – et a été l’un des deux démocrates (avec Woodrow Wilson) à occuper la présidence pendant la période de domination politique républicaine, de 1861 à 1933. Il est le seul président de l’histoire américaine à avoir exercé des mandats non consécutifs. Le seul président à avoir remporté plus de fois le vote populaire a été Franklin Roosevelt. (Source : Wikipédia)[↩](#a1)
+1. <large id="f1"> **Stephen Grover Cleveland** (18 Mars 1837 – 24 Juin 1908) fut le 22ème et le 24ème président des États-Unis. Il a remporté le vote populaire pour le poste de président à trois reprises – en 1884, 1888 et 1892 – et a été l’un des deux démocrates (avec Woodrow Wilson) à occuper la présidence pendant la période de domination politique républicaine, de 1861 à 1933. Il est le seul président, jusqu'à ce jour, de l’histoire américaine à avoir exercé des mandats non consécutifs. Le seul président à avoir remporté plus de fois le vote populaire a été Franklin Roosevelt. (Source : Wikipédia)[↩](#a1)
+
+2. <large id="f2"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a2)

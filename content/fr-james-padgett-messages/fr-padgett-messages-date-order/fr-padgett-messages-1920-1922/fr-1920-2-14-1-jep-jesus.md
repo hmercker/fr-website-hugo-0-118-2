@@ -24,16 +24,15 @@ Je viendrai bientôt et je m’efforcerai d’écrire un message officiel ; en a
 Alors mon frère, bonne nuit, et que le Père vous bénisse de ses plus grandes bénédictions.
 
 Votre frère et ami, Jésus.
+
+**Note :** Concernant l'incarnation de l'âme Jésus a communiqué les autres messages suivants :
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-2-1-jep-jesus/) | 02 Mars 1916
+Jésus | [L’âme – ce qu’elle est et ce qu’elle n’est pas](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/) | 02 Mars 1917
+Jésus | [Incarnation de L’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-15-1-jep-jesus/) | 15 Février 1920
+Jésus | [Commentaire sur un prédicateur, individualisation et incarnation de l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-3-21-2-jep-jesus/)| 21 Mars 1920
 <small>
 
 1. <large id="f1"> Ce message, très tardif dans la série  des messages reçus, indique que James Padgett n’a jamais reçu de nombreux messages planifiés.[↩](#a1)
-
-*Note : Concernant l'incarnation de l'âme Jésus a communiqué les autres messages suivants :*
-
-•	le 02 Mars 1916 : [Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-2-1-jep-jesus/).
-
-•	le 02 Mars 1917 : [L’âme – ce qu’elle est et ce qu’elle n’est pas](//fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/).
-
-•	le 15 Février 1920 : [Incarnation de L’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-15-1-jep-jesus/).
-
-•	le 21 Mars 1920 : [Commentaire sur un prédicateur, individualisation et incarnation de l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-3-21-2-jep-jesus/).

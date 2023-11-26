@@ -13,7 +13,7 @@ Jésus - reçu par James Padgett le 12 Mars 1916, Washington, USA.
 
 C’est moi, Jésus.
 
-Je vais prochainement vous communiquer la prière, avec elle vous recevrez une illumination spirituelle sur sa signification et cela vous rapprochera du Père et de Son Amour.
+Je vais prochainement vous communiquer [la prière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-1-jep-jesus/), avec elle vous recevrez une illumination spirituelle sur sa signification et cela vous rapprochera du Père et de Son Amour.
 
 (Se réfère maintenant à M. Morgan.) Oui, je lui parle parfois, et il entend ma voix, et ne se trompe pas ; mais il ne doit pas penser que toutes les perceptions qu’il a sont celles des esprits, car ce n’est pas vrai. En progressant dans le développement de la clair-audience, il pourra distinguer ce qui lui vient des esprits et ce provient de son propre mental. Il ne doit pas se décourager ou laisser le doute entrer dans son âme, car sa foi doit être celle de l’âme et non celle du simple mental.
 

@@ -1,0 +1,32 @@
+---
+title: "Ceci est une entreprise guidée par Dieu"
+menu_title: ""
+description: "Ceci est une entreprise guidée par Dieu"
+date: 2023-09-01 06:00:01+00:59
+draft: False
+hidden: True
+weight:
+---
+### Ceci est une entreprise guidée par Dieu
+
+Professeur Salyards - reçu par Al Fike le 17 Novembre 2022, Gibsons, Colombie-Britannique, Canada.
+
+Je suis un peu surpris, c’est votre professeur Salyards. Je vois que lorsque vous arrivez à ce lieu de décision, vous retombez souvent dans les méthodes anciennes et éprouvées de déduction et d’intellectualisme. Je connais bien l’intellectualisme car j’ai été professeur d’université et enseignant. J’en connais les limites et j’en connais les avantages.
+
+Je vous le dis, mes amis, lorsque vous venez de prendre des décisions comme celle-ci qui est très certainement guidée par Dieu, comptez sur vos conseils, le sens de votre âme, pas celui de votre esprit, bien que vous ayez certainement besoin de votre esprit pour réaliser les impressions et l’inspiration que vous recevez. Pourtant, vous ne pouvez pas danser éternellement autour de ce qui est juste et de ce que vous pensez être juste en termes de décision à prendre. Vous êtes testé, n’est-ce pas, sur la façon dont vous pouvez aborder ces choses qui sont en effet importantes mais qui ne sont pas tant une décision commerciale qu’une décision spirituelle. Dans le domaine de la spiritualité, n’allez-vous pas à Dieu, ne demandez-vous pas de conseils ? Si vous demandez sincèrement, même collectivement, la puissance de votre demande apportera les résultats, les informations dont vous avez besoin.
+
+Je sais que vous êtes ouvert d’esprit. Je sais que vous comprenez les concepts dont je parle, mais je vois de l’hésitation et un manque de confiance dans ce processus qui vous est proposé. N’avons-nous pas dit au tout début que ce serait une approche différente pour formuler et diriger cette organisation ? Il s’agit d’une entreprise guidée par Dieu et qu’en tant que telle, vous devez être en alignement, être fidèle à cet alignement avec Dieu et fidèle à votre propre âme. Ne perdez pas votre temps en spéculations inutiles, mais demandez les informations dont vous avez besoin. Je n’ai aucun doute que non seulement un mais beaucoup d’entre vous recevront les mêmes conseils et pourront confirmer ces conseils les uns avec les autres.
+
+Mes amis, ne cherchez pas la solution logique et consciente. Cherchez cet endroit qui appartient à l’âme, ces sentiments et perceptions qui viennent avec cela, car dans les temps à venir, vous serez appelé à plusieurs reprises à prendre des décisions de cette manière, à suivre votre instinct comme vous le dites plutôt que votre tête, de suivre la Volonté de Dieu plutôt que la vôtre. Pour vous exprimer conformément à la vérité que vous connaissez et à la manière dont cette vérité peut s’exprimer dans votre vie, dans vos efforts, vos entreprises, en tout. Cela exige la foi, exige la prière, exige toutes ces choses qui sont de Dieu et ces choses que vous savez sont de Dieu.
+
+Vous ne rassemblez pas des gens pour leur vendre un produit ou pour leur donner une leçon ou toute autre entreprise humaine. Le but est de célébrer la vérité de l’Amour de Dieu, que ce soit deux d’entre vous célébrant ensemble ou deux cents. Cela n’a pas d’importance. Ce qui compte, c’est l’intention, le but et la concentration. N’ajoutez pas trop de spéculation et d’inquiétude autour de cette question. Sachez que c’est la Volonté de Dieu, que tout se déroulera en conséquence et que ceux qui sont censés être dans ce cercle de célébration, de lumière et d’amour viendront sans aucun doute. Peu importe où se trouve cet endroit où vous célébrez, ils viendront car ils ressentiront dans leur âme un grand sens et le désir d’en faire partie.
+
+Par conséquent, je ne m’inquiéterais pas outre mesure du lieu. Je serais plus préoccupé par la raison pour laquelle vous vous réunissez, les motivations qui vous amènent à entretenir ces pensées et désirs de vous réunir. C’est la communauté, mes amis, que vous cherchez à construire. La communauté vient avec amour, avec reconnaissance et même flexibilité de pensée afin que vous en incluiez et en embrassiez beaucoup.
+
+Puissiez-vous être en harmonie avec tout ce qui est d’amour, tout ce qui engendre l’amour, fait grandir l’amour, exprime l’amour. De cette façon, la voie et les moyens de se réunir seront évidents et clairs. Je vous encourage à vous demander si vous êtes en conflit, si vous êtes en désaccord même si je suis sûr que ces éléments ne sont pas graves ou difficiles à surmonter. Si vous ressentez une ambivalence, alors allez vers Dieu, allez vers votre Père céleste et demandez à Dieu quel est son désir, son intention, son but de se réunir en ce moment. Vous trouverez votre chemin de manière claire, succincte, ciblée.
+
+Ces choses viendront parce que vous avez utilisé les lois qui apporteront les bonnes réponses, les bons résultats, ce qui est en harmonie avec la Volonté de Dieu. Je vous encourage dans vos pensées et vos spéculations à simplifier et à agir avec foi, clarté et intention de prière. De cette façon, tout se réunira comme il se doit et le sera. Je n’en doute pas. Comme je l’ai dit, je trouve amusant que vous tourniez souvent en rond dans votre esprit. Ce n’est pas productif. Avancez et prenez votre décision. Si c’est la mauvaise décision, vous le saurez bien assez tôt. Si c’est la bonne décision, alors vous aurez fait un pas en avant et permis à la prochaine étape d’avoir lieu, rapidement et efficacement.
+
+Puissiez-vous être bénis et inspirés dans vos efforts. Puissiez-vous toujours connaître la Volonté de Dieu. Puissiez-vous vraiment en venir à reconnaître le but de vos efforts ensemble et soyez en alignement avec lui. De cette manière, de nombreuses choses merveilleuses se produiront et il y aura un grand flux de buts, de bénédictions, de joie, d’expériences, de nombreuses âmes que vous contacterez et toucherez, les instruments de Dieu, les canaux de lumière et d’amour.
+
+Que Dieu vous bénisse, mes amis. Je suis votre professeur Salyards. Je suis heureux d’être avec vous dans vos efforts, comme beaucoup de ceux qui sont à vos côtés, qui continuent de servir avec amour. Nous sommes donc ensemble, cherchant la Volonté de Dieu, pour être dans le courant de cette Volonté et de cet Amour où tout est en harmonie. Tout se déroulera en harmonie avec son dessein et son plan. Que Dieu vous bénisse, mes amis. Mon amour est toujours avec toi. Que Dieu vous bénisse.

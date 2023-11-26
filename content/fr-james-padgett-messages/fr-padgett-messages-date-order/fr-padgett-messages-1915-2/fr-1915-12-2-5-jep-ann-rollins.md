@@ -1,13 +1,13 @@
 ---
-title: "Ann Rollins affirmant que le Maître a écrit avec une telle puissance et gloire"
+title: "Anne Rollins affirmant que le Maître a écrit avec une telle puissance et gloire"
 menu_title: ""
-description: "Ann Rollins affirmant que le Maître a écrit avec une telle puissance et gloire"
+description: "Anne Rollins affirmant que le Maître a écrit avec une telle puissance et gloire"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True
 weight:
 ---
-### Ann Rollins affirmant que le Maître a écrit avec une telle puissance et gloire
+### Anne Rollins affirmant que le Maître a écrit avec une telle puissance et gloire
 
 Anne Rollins - reçu par James Padgett le 2 Décembre 1915, Washington, USA.
 
@@ -17,6 +17,6 @@ Mon cher fils. Je sens que je dois t’écrire juste une ligne, parce que je veu
 
 Il était glorieux et, avec son grand amour, il y avait tellement gloire, que, de ce fait, nous avons tous été subjugué par ces influences de sorte que nous avons pu seulement écouter dans l’adoration.
 
-Fais moi confiance quand je dis que tu dois croire, parce que jamais un message a été donné avec plus d’autorité.. Je sais que c’est difficile pour toi de concevoir ce que je veux dire, mais un jour tu sauras.
+Fais moi confiance quand je dis que tu dois croire, parce que jamais un message a été donné avec plus d’autorité. Je sais que c’est difficile pour toi de concevoir ce que je veux dire, mais un jour tu sauras.
 
-Ta propre grand-mère adorée, Ann Rollins.
+Ta propre grand-mère adorée, Anne Rollins.

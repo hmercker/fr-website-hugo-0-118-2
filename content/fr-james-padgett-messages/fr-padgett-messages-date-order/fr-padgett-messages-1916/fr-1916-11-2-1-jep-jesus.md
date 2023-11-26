@@ -33,4 +33,7 @@ La mort physique en vue de l’éternité n’est pas un grand moment, et même 
 
 Je vois votre ami avec vous et je dois lui dire que je suis avec lui très souvent, que je suis heureux qu’il soit passé de la mort à la vie, et que le champ de bataille sur lequel il a mené le combat de l’âme est plus grand, et plus terrible dans ses aspects et ses preuves de carnage et de destruction, que le champ de bataille qui détruit maintenant les corps physiques de tant d’hommes. Je veux dire que le monde entier est le champ de bataille des combats de l’âme, et si les hommes pouvaient seulement en voir les résultats, comme ils voient les résultats de la guerre qui secouent maintenant la terre entière, ils comprendraient que la grande guerre n’est pas celle qui entraîne tant d’âmes mortes à entrer dans le monde spirituel. Donnez-lui mon amour et mes bénédictions. Je viendrai bientôt pour vous écrire un message de vérité. Avec tout mon amour et bénédictions, je suis
 
-Votre frère et ami, Jésus.
+Votre frère et ami, Jésus. <sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a1)

@@ -13,13 +13,13 @@ Jésus - reçu par James Padgett le 8 Juin 1915, Washington, USA.
 
 C’est moi, Jésus.
 
-Je vais [continuer ma lettre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/), au sujet de ma naissance et ma mission, que j’ai commencée la nuit dernière.
+Je vais [continuer mon message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/), au sujet de ma naissance et ma mission, que j’ai commencée la nuit dernière.
 
-Quand je fus convaincu d’avoir été choisi, par mon Père, pour accomplir Son travail de déclaration au monde de l’existence de Son grand cadeau de l’Amour Divin qui était dans sa nature, et qui constituait le principe prédominant de cette nature, j’ai commencé mon ministère et j’ai continué à travailler pour la rédemption de l’humanité, sur la terre, jusqu’à ma mort sur la Croix. Je n’étais alors pas aussi parfait que je ne le suis maintenant, et ma connaissance des vérités du Père n’était pas aussi grande qu’elle ne l’est maintenant.
+Lorsque je fus convaincu d’avoir été choisi, par mon Père, pour accomplir Son travail de déclaration au monde de l’existence de Son grand cadeau de l’Amour Divin qui était dans sa nature, et qui constituait le principe prédominant de cette nature, j’ai commencé mon ministère et j’ai continué à travailler pour la rédemption de l’humanité, sur la terre, jusqu’à ma mort sur la Croix. Je n’étais alors pas aussi parfait que je ne le suis maintenant, et ma connaissance des vérités du Père n’était pas aussi grande qu’elle ne l’est maintenant.
 
 Cependant, laissez les hommes savoir que ce que j’ai enseigné était vrai, même si je n’enseignais pas toute la vérité, et ils apprendront que je suis le vrai fils de mon Père et le messager spécial par qui ces grandes vérités devaient être enseignées à l’humanité.
 
-Je n’étais pas, lorsque j’étais sur la terre, aussi rempli de l’amour du Père que je ne le suis maintenant, et je n’avais pas le pouvoir de permettre aux hommes de sentir que cet amour est la seule chose qui va les réconcilier avec le Père et les rendre un avec lui, comme je l’ai maintenant. Les hommes doivent donc croire que je leur communique les vérités réelles qui leur montreront le chemin de l’amour du Père et de leur propre salut.
+Je n’étais pas, lorsque j’étais sur la terre, aussi rempli de l’Amour du Père que je ne le suis maintenant, et je n’avais pas le pouvoir de permettre aux hommes de sentir que cet Amour est la seule chose qui va les réconcilier avec le Père et les rendre un avec lui, comme je l’ai maintenant. Les hommes doivent donc croire que je leur communique les vérités réelles qui leur montreront le chemin de l’Amour du Père et de leur propre salut.
 
 Vous désirez savoir comment ce fut possible pour les rois mages de venir vers moi, avec leurs offrandes et l’adoration, si je n’avais pas été spécialement créé par Dieu pour devenir son fils et représentant sur terre.
 
@@ -41,20 +41,13 @@ Votre ami et frère,
 
 Jésus.
 
-*Note : Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*
+**Note :** Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
 
-Le 24 Mai Juin 1915 : [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/).
-
-Le 07 Juin 1915 : [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/).
-
-le 29 Juin 1915 : [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/).
-
-le 20 Mai 1918 : [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/).
-
-le 25 Mai 1955 : [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/).
-
-le 14 Juin 1955 : [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/).
-
-
-
-
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/). | 24 Mai 1915
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/) | 07 Juin 1915
+Jésus | [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/) | 29 Juin 1915
+Jésus | [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/)  | 20 Mai 1918
+Jésus | [4ème Révélation : Jésus annonce Sa Messianité.](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/)  | 25 Mai 1955
+Jésus | [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie.](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/)  | 14 Juin 1955

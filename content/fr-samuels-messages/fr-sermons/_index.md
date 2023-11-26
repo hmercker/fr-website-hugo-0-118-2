@@ -11,25 +11,25 @@ weight: 110
 
 ![title](/fr-samuels-messages/fr-sermons/fr-paysage-de-montagne12.jpg.webp)
 
-### Les Sermons peuvent être regroupés autour de 5 thèmes principaux qui évoquent la transformation de l’âme humaine en une âme divine par la prière au Père pour son amour :
+### Les Sermons peuvent être regroupés autour de 5 thèmes principaux qui évoquent la transformation de l’âme humaine en une âme divine par la prière au Père pour son amour
 
-#### 1°) Le Nouveau Cœur dans l’Ancien Testament :
+#### 1°) Le Nouveau Cœur dans l’Ancien Testament
 
 Cette transformation de l’âme humaine dans une âme divine par la prière au Père pour son Amour était, et est, le Nouveau Cœur, que les écrivains et les prophètes ont prédit dans l’Ancien Testament, et qui fut accompli par la venue de Jésus. Et cela signifiait que l’homme lui-même ne pouvait pas se purifier par ses propres moyens, mais qu’il pourrait le faire avec l’aide de Dieu.
 
-#### 2°) La voie vers l’immortalité :
+#### 2°) La voie vers l’immortalité
 
 Seul l’Amour de Dieu, effusé dans l’âme humaine à travers l’Esprit Saint en réponse au sérieux de la prière, peut susciter une transformation. Le Christianisme aujourd’hui, place son ultime confiance dans les Dix Commandements de Moïse pour la purification de l’âme humaine, mais il ne met pas en avant la puissance du Nouveau Cœur et la puissance de la prière au Père pour Son Amour. Aucun sang, qu’il s’agisse de celui de l’homme ou de celui de l’animal, n’a un effet rédempteur sur le péché de l’humanité, tel que cela est enseigné dans certaines églises. En conséquence le rite Chrétien de la messe, ou transsubstantiation, n’est pas une cérémonie voulue par Dieu. Jésus réaffirme également qu’il ne faut pas voir dans la vie du prophète Jérémie, et dans les souffrances qu’il a endurées en essayant d’amener les gens à une compréhension de leur situation désastreuse, une préfiguration de sa propre souffrance et surtout de sa crucifixion.
 
-#### 3°) L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin :
+#### 3°) L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin
 
 L’amour humain, qui a été implanté dans l’humanité par Dieu, fut l’ancêtre de ce sublime amour que le Père tient disponible pour ceux de ses enfants qui le demandent dans la prière fervente. On remarque cette évolution avec l’histoire d’Abraham, d’Esaü et de Jacob, de Joseph et de ses frères, de Naomi et sa belle-fille Ruth, du Roi David
 
-#### 4°) La très grande noblesse de cœur et patience de David (13 Sermons consacrés à David et à ses psaumes).
+#### 4°) La très grande noblesse de cœur et patience de David (13 Sermons consacrés à David et à ses psaumes)
 
 David a été désigné comme un homme en recherche du Propre Cœur de Dieu. Ce fut précisément à cause de cette qualité de cœur, qu’il a pu, la plupart du temps, faire face aux conditions brutales qui régnaient alors.
 
-#### 5°) L’Étude de l’Amour de Dieu révélé par les prophètes :
+#### 5°) L’Étude de l’Amour de Dieu révélé par les prophètes
 
 La prise de conscience de l’Amour de Dieu pour Joseph, Ruth et le Roi David s’est poursuivie à travers les prophètes. Bien qu’Amos fût le premier prophète, ce fut l’étude d’Osée, qui souffrait des infidélités de son épouse Gomer, qui a permis à Jésus de réaliser que l’Amour de Dieu différait de l’amour humain et qu’il pourrait être possédé par l’homme.
 
@@ -37,10 +37,11 @@ Cette étude s’est poursuivie à travers les autres prophètes tels qu’Amos,
 
 Cette étude des prophètes s’est poursuivie avec Baruch, Habacuc, Ezéchiel. Ezéchiel considérait qu’il revivait, à travers son mariage, l’union spirituelle entre Dieu et Juda. Et, compte tenu de la disparition, le même jour, de son épouse bien-aimée et la destruction de Jérusalem, il a été frappé par la pensée que, comme porte-parole de Dieu, la mort de sa femme était symbolique de la perte de l’Épouse de Dieu – Jérusalem. Après avoir présenté le second Isaïe et le troisième Isaïe, cette série de sermons se termine avec la présentation d’Aggée et Zacharie qui se sont prononcés pour la reconstruction du Temple.
 
-[Version PDF](https://lanouvellenaissance.files.wordpress.com/2017/08/sermons-de-jc3a9sus-au-dr-samuels.pdf)
+[Version PDF](/fr-samuels-messages/fr-sermons/fr-sermons-dr-samuels.pdf)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
+L’Église de la Fondation de la Divine Vérité | [Préface aux Sermons](/fr-samuels-messages/fr-sermons/fr-ser-introduction/) | 10 Juillet 2017
 Jésus | [1er Sermon – la voie vers l’immortalité](/fr-samuels-messages/fr-sermons/fr-ser-1-1957-7-16-samuels-jesus/) | 16 Juillet 1957
 Jésus | [2ème Sermon – l’échec du Christianisme à prêcher l’Amour du Père](/fr-samuels-messages/fr-sermons/fr-ser-2-1957-8-24-samuels-jesus/) | 24 Août 1957
 Jésus | [3ème Sermon – L’absence de la Vraie Grâce de Dieu dans le Christianisme aujourd’hui](/fr-samuels-messages/fr-sermons/fr-ser-3-1957-8-25-samuels-jesus/) | 25 Août 1957
@@ -51,7 +52,7 @@ Jésus | [7ème Sermon – Le rite Chrétien appelé Messe](/fr-samuels-messages
 Jésus | [8ème Sermon – Jérémie, le serviteur souffrant](/fr-samuels-messages/fr-sermons/fr-ser-8-1957-12-19-samuels-jesus/) | 19 Décembre 1957
 Jésus | [9ème Sermon – Le Nouveau Cœur dans l’Ancien Testament](/fr-samuels-messages/fr-sermons/fr-ser-9-1958-1-25-samuels-jesus/) | 25 Janvier 1958
 Jésus | [10ème Sermon – L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin](/fr-samuels-messages/fr-sermons/fr-ser-10-1958-2-18-samuels-jesus/) | 18 Février 1958
-Jésus | [11ème Sermon – L’amour Divin du Père préfiguré par les expériences de Joseph](/fr-samuels-messages/fr-sermons/fr-ser-11-1958-4-4-samuels-jesus/) | 4 Avril 1958
+Jésus | [11ème Sermon – L’Amour Divin du Père préfiguré par les expériences de Joseph](/fr-samuels-messages/fr-sermons/fr-ser-11-1958-4-4-samuels-jesus/) | 4 Avril 1958
 Jésus | [12ème Sermon – La confiance de Ruth dans l’Amour du Père](/fr-samuels-messages/fr-sermons/fr-ser-12-1958-4-10-samuels-jesus/) | 10 Avril 1958
 Jésus | [13ème Sermon – La gentillesse abondante du roi David](/fr-samuels-messages/fr-sermons/fr-ser-13-1958-7-21-samuels-jesus/) | 21 Juillet 1958
 Jésus | [14ème Sermon – La foi inébranlable de David dans le Père](/fr-samuels-messages/fr-sermons/fr-ser-14-1958-7-22-samuels-jesus/) | 22 Juillet 1958

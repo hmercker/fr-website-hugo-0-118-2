@@ -11,7 +11,7 @@ weight:
 
 Vespasien - reçu par James Padgett le 22 Juillet 1915, Washington, USA.
 
-Je fus un esprit qui, sur terre, a été connu comme l’homme qui a conquis et détruit Jérusalem. Je suis Vespasien, Empereur Romain.
+Je fus un esprit qui, sur terre, adut connu comme l’homme qui a conquis et détruit Jérusalem. Je suis Vespasien, Empereur Romain.
 
 Avant ma mort, je suis devenu Chrétien, cependant je ne l’ai jamais été plus que de nom. Je n’ai rien su des vraies doctrines du Christianisme, ni de l’Amour que les premiers Chrétiens professaient posséder, comme cet Amour était enseigné par Jésus. Mon adhésion au Christianisme fut une question d’opportunisme politique et ne fut pas le résultat d’une foi établie dans les vérités de cette religion. Mais depuis que je suis devenu un esprit, je suis devenu un vrai Chrétien, et je suis maintenant un adepte des vérités du Maître et je crois en elles. Je vis dans les sphères Célestes, je suis un esprit racheté et j’ai le bonheur que cette condition assure. Vous ne devez pas penser que parce que j’ai été Empereur de la grande nation Romaine, je suis une personne plus importante que ceux qui ont eu une importance moindre sur terre. Ce fait n’entre pas dans la détermination de la place que nous occuperons dans les Sphères Célestes. Seul le développement de l’âme détermine cette question.
 

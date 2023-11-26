@@ -33,7 +33,7 @@ Son existence et présence pouvait être sentie par toute autre âme qui venait 
 
 Et le fait que j’ai juste présenté, illustre, et, en quelque sorte, décrit l’Être dont ces âmes ont été créées à son image. Nous connaissons et pouvons détecter l’existence et la présence du Père, et, cependant, même avec nos yeux spirituels nous ne pouvons pas Le voir. Lorsque nous avons notre âme développée par l’Essence Divine de Son Amour, nous dirons que nous le percevons avec notre perception de l’âme, parce que vous n’avez pas de mots dans votre langue pour partager cette compréhension et rien dans la nature créée, dont vous ayez connaissance et avec laquelle nous pourrions établir une comparaison. Mais c’est une vérité ; parce que la perception de la vision de l’âme pour son possesseur est tout aussi réelle, et si j’ose dire, objective, comme l’est la vision de la vue mortelle pour les mortels.
 
-On peut se demander, en considérant cette question de la création de l’âme, « est-ce que  toutes les âmes qui se sont incarnées, ou qui sont en attente d’incarnation, ont été créées en même temps, ou est-ce que leur création est toujours en cours ? »  Je sais que le monde des esprits contient beaucoup d’âmes, comme je l’ai décrit, qui sont en attente de leur foyer temporaire et de l’accession à l’individualité dans la forme humaine, mais quant à savoir si cette création est terminée, et si, à un certain moment, la reproduction des hommes incorporant ces âmes, cessera, je ne le sais pas, et le Père ne me l’a jamais révélée, ni aux autres de Ses anges qui sont proches de Lui dans Sa Divinité et Substance.
+Nous devosns nous demander, en considérant cette question de la création de l’âme, *« est-ce que  toutes les âmes qui se sont incarnées, ou qui sont en attente d’incarnation, ont été créées en même temps, ou est-ce que leur création est toujours en cours ? »*  Je sais que le monde des esprits contient beaucoup d’âmes, comme je l’ai décrit, qui sont en attente de leur foyer temporaire et de l’accession à l’individualité dans la forme humaine, mais quant à savoir si cette création est terminée, et si, à un certain moment, la reproduction des hommes incorporant ces âmes, cessera, je ne le sais pas, et le Père ne me l’a jamais révélée, ni aux autres de Ses anges qui sont proches de Lui dans Sa Divinité et Substance.
 
 Le Père ne m’a pas révélé toutes les vérités, les rouages et les objets de Ses lois créatives et il ne m’a donné, non plus, toute sa puissance, sagesse et omniscience comme certains peuvent peut-être le croire en se basant sur certaines des déclarations de la Bible. Je suis un esprit progressif, et, comme j’ai grandi dans l’amour, la connaissance et la sagesse lorsque j »étais sur la terre, je suis encore en croissance dans ces qualités et l’amour et la miséricorde du Père viennent à moi avec l’assurance que jamais, dans toute l’éternité, je cesserai de progresser vers la source même de ces attributs de Lui, le seul Dieu, le Tout en Tous.
 
@@ -63,12 +63,11 @@ Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
 Votre frère et ami, Jésus.
 
-*Note : Jésus a communiqué plusieurs autres messages sur l'incarnation de l'âme. ils ont été respectivement communiqués :*
+**Note :** Jésus a communiqué plusieurs autres messages sur l'incarnation de l'âme. ils ont été respectivement communiqués :
 
-•	le 02 Mars 1916 : [Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-2-1-jep-jesus/).
-
-•	le 14 Février 1920 : [Jésus donne des conseils à M. Padgett afin qu'il se mette en condition d’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-14-1-jep-jesus/)
-
-•	le 15 Février 1920 : [Incarnation de L’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-15-1-jep-jesus/).
-
-•	le 21 Mars 1920 : [Commentaire sur un prédicateur, individualisation et incarnation de l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-3-21-2-jep-jesus/).
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Comment l’âme rachetée est sauvée des peines que le péché et l’erreur lui ont infligées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-2-1-jep-jesus/) | 02 Mars 1916
+Jésus | [Jésus donne des conseils à M. Padgett afin qu'il se mette en condition d’âme pour recevoir les messages](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-14-1-jep-jesus/) | 14 Février 1920
+Jésus | [Incarnation de L’âme.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-15-1-jep-jesus/) | 15 Février 1920
+Jésus | [Commentaire sur un prédicateur, individualisation et incarnation de l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-3-21-2-jep-jesus/) | 21 Mars 1920

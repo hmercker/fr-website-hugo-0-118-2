@@ -15,7 +15,7 @@ C’est moi, Hélène.
 
 Eh bien mon cher, je vois que tu as fait du bon travail ce soir envers une pauvre âme (le Dr Arbelee) qui est mourant, et que ta conversation aura un effet sur son âme qui l’amènera à souhaiter l’Amour du Père. Il a été très impressionné par votre conversation et beaucoup de ses amis spirituels étaient présents et ont écouté ton explication de l’Amour et de la façon de l’obtenir et ils ont été quelque peu étonnés par ta doctrine. Ils vivent dans la croyance telle qu’elle est enseignée dans le Christianisme, par les enseignants et les ministres des églises, et ils ont été très touchés par les enseignements que tu as exposés. Ils sont très désireux d’apprendre la voie et certains d’entre eux t’ont accompagné chez toi et ont écouté ta conversation avec le Docteur.
 
-Certains sont ici maintenant et désirent écrire, mais nous leur disons qu’il est trop tard et que s’ils viennent demain soir, ils auront l’occasion d’écrire. Le père du malade était parmi les esprits qui étaient présents, et il est très désireux d’écrire à son fils et de corroborer ce que tu lui as dit, et demain soir il désire t’écrire, tu dois donc être prêt à le laisser écrire.
+Certains sont ici maintenant et désirent écrire, mais nous leur disons qu’il est trop tard et que s’ils viennent demain soir, ils auront l’occasion d’écrire. Le père du malade était parmi les esprits qui étaient présents, et il est très désireux d’écrire à son fils et de corroborer ce que tu lui as dit, et [demain soir il désire t’écrire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-4-24-1-jep-arbelee/), tu dois donc être prêt à le laisser écrire.
 
 Eh bien, nous étions présents et le pouvoir d’attraction que tu as ressenti est venu de l’exercice des désirs de beaucoup de ces amis du malade de communiquer avec toi, et si nous l’avions permis, ils auraient pris possession de toi et fait connaître leurs souhaits. Mais nous n’avons pas pensé qu’il était préférable qu’ils te contrôlent, et nous leur avons donc dit et ils ont renoncé.
 
@@ -25,6 +25,6 @@ Je suis heureuse de te dire que tu es en meilleure condition ce soir pour recevo
 
 Nous t’aimons tous beaucoup et nous essayons de t’aider de toutes les manières possibles. L’esprit qui te conseille dans tes affaires matérielles était ici ce soir, désireux de t’écrire, mais il est maintenant parti. Il a cependant dit qu’il est du même avis mais tu dois être un peu prudent dans ton estimation du marché, car il se peut qu’il n’atteigne pas le sommet dont il t’a parlé la première fois, qu’il y a eu un grand volume d’actions vendues ou achetées récemment et que le point culminant pourrait arriver un peu plus tôt qu’il ne le pensait au début. Il viendra demain soir et parlera pour lui-même.
 
-Bébé veut écrire, et je lui ai dit que bientôt elle le fera. Je n’écrirai plus maintenant. Alors, mon chéri, je te souhaite une bonne nuit. Va te coucher.
+Bébé veut écrire, et je lui ai dit que [bientôt elle le fera](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-25-1-jep-nita-padgett/). Je n’écrirai plus maintenant. Alors, mon chéri, je te souhaite une bonne nuit. Va te coucher.
 
 Ta vraie et affectueuse, Hélène.

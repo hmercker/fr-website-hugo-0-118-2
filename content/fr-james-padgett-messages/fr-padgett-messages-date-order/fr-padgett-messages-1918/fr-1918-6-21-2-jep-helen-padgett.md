@@ -1,13 +1,13 @@
 ---
-title: "Hélène parle sur la mort de sa fille et qu’il y avait des esprits célestes présents, diffusant sur les personnes présentes l’amour et l’aide que seuls les esprits Célestes peuvent donner. Bébé était avec moi"
+title: "Hélène parle sur la mort de sa fille et qu’il y avait des esprits Célestes présents, diffusant sur les personnes présentes l’amour et l’aide que seuls les esprits Célestes peuvent donner. Bébé était avec moi"
 menu_title: ""
-description: "Hélène parle sur la mort de sa fille et qu’il y avait des esprits célestes présents, diffusant sur les personnes présentes l’amour et l’aide que seuls les esprits Célestes peuvent donner. Bébé était avec moi"
+description: "Hélène parle sur la mort de sa fille et qu’il y avait des esprits Célestes présents, diffusant sur les personnes présentes l’amour et l’aide que seuls les esprits Célestes peuvent donner. Bébé était avec moi"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True
 weight:
 ---
-### Hélène parle sur la mort de sa fille et qu’il y avait des esprits célestes présents, diffusant sur les personnes présentes l’amour et l’aide que seuls les esprits Célestes peuvent donner. Bébé était avec moi
+### Hélène parle sur la mort de sa fille et qu’il y avait des esprits Célestes présents, diffusant sur les personnes présentes l’amour et l’aide que seuls les esprits Célestes peuvent donner. Bébé était avec moi
 
 Hélène Padgett - reçu par James Padgett le 21 Juin 1918, Washington, USA.
 
@@ -19,7 +19,7 @@ Ce soir, tu ne dois écrire davantage, mais tu dois te coucher et te reposer. Je
 
 Aime-moi et prie le Père. Bonne nuit, et que Dieu te bénisse, mon cher Ned.
 
-Tu es homme vrai et aimant, Hélène.
+Ta vraie et bien aimée, Hélène.
 <small>
 
-1. <large id="f1"> Helenita a été enterrée dans la tombe familiale au cimetière de Mount Olivet, Frederick, Md le Samedi 22 Juin 1918 à 14 heures (G.J.C.)[↩](#a1)
+1. <large id="f1"> Hélénita a été enterrée dans le caveau familial au cimetière de Mount Olivet, Frederick, Md le Samedi 22 Juin 1918 à 14 heures (Geoff Cutler)[↩](#a1)

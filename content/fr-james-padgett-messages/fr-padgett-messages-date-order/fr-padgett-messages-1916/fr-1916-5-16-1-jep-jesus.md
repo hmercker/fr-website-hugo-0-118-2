@@ -16,6 +16,7 @@ C’est moi, Jésus.
 Je n’écrirai pas de message officiel ce soir, mais je vous dirai simplement que j’étais avec vous, ce soir, chez M. Morgan, et que j’ai écrit ce que vous avez reçu comme prétendant venir de moi, et je voulais dire que si je pouvais établir le rapport avec lui, je le guérirais ; et c’est ce que je ferai. Cela dépend en quelque sorte du fait qu’il ait la concentration nécessaire et qu’il croit en moi.
 
 Il peut sembler étrange que je ne puisse pas le faire si ce rapport n’est pas établi, mais c’est un fait. Il y a certaines lois qui contrôlent l’exercice de ce pouvoir sur les mortels et qui doivent être respectées. Lorsque, sur terre, je pouvais entrer en contact direct avec le mortel du fait de mon existence dans la chair, et que le pouvoir était en moi, ou pouvait être engendré en moi par l’exercice de mes pouvoirs spirituels, je ne rencontrais aucun obstacle dans la manière dont j’exerçais ces pouvoirs sur le mortel. Mais maintenant, il n’y a plus de contact direct entre moi et le mortel, et il n’y a donc plus de moyen de lui communiquer ce pouvoir tant qu’une relation n’est pas établie.
+
 Ce rapport est quelque chose de plus qu’un simple lien « spirituel », et implique une certaine part de matériel, bien que nous ne soyons pas du matériel ; cependant, le rapport doit être de la nature mentionnée, et la partie matérielle de celui-ci doit venir du mortel lui-même.
 
 Vous comprendrez maintenant que ma relation avec le mortel dans de tels cas est très différente de ce que serait votre relation avec lui, si vous aviez ce pouvoir qui réside en vous. Lorsque le moment sera venu pour vous de recevoir ce pouvoir, vous n’aurez pas besoin d’établir un quelconque rapport entre vous et celui que vous pourrez guérir. Je veux dire qu’il ne sera pas nécessaire que ce rapport s’établisse en tirant du mortel une partie quelconque de la matière qui lui appartient : vous l’aurez vous-même, et le pouvoir sera exercé par vous simplement en tant que mortel entrant en contact avec lui.
@@ -32,15 +33,12 @@ Je viendrai bientôt vous écrire un autre message sur un sujet important, afin 
 
 Votre frère et ami, Jésus.
 
-*Note : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
+**Note :** Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :
 
-•	29 Août 1915 : [Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915/fr-1915-8-29-2-jep-jesus/).
-
-•	28 Décembre 1915 : [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/).
-
-•	09 Juillet 1917 : [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/).
-
-•	06 Janvier 1918 : [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/).
-
-•	19 Septembre 2020 : [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/). 
-
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Conseils donnés par Jésus sur la participation au service religieux](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-2-jep-jesus/) | 29 Août 1915
+Jésus | [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/) | 28 Décembre 1915
+Jésus | [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude - la prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/) | 09 Juillet 1917
+Jésus | [L’état d’âme de M. Padgett - encourage à continuer à prier pour l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/) | 06 Janvier 1918
+Jésus | [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/) | 19 Septembre 2020

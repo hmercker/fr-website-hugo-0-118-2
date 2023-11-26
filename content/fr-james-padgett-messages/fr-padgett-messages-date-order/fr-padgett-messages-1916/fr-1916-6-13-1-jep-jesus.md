@@ -15,7 +15,7 @@ C’est moi, Jésus.
 
 J’avais l’intention de terminer mon discours ce soir, mais il est maintenant trop tard, et je vais devoir le reporter.
 
-*[Question.]*
+*[Question :]*
 
 Eh bien, il y a des cas où de tels résultats se produisent, et il n’est pas étonnant qu’il en soit ainsi, car ces médiums qui abandonnent leurs propres facultés et volontés et les forces morales trouveront que les Esprits les contrôlent ; et ces Esprits n’hésitent pas à utiliser ces moyens pour accomplir ce qu’ils désirent ; ces désirs sont surtout nuisibles et néfastes aux médiums, tant au niveau moral que spirituel.
 
@@ -23,7 +23,7 @@ Dans de tels cas de contrôle des esprits, les médiums soumettent absolument le
 
 L’exercice de votre médiumnité ne vous causera pas de tort, et vous n’avez pas à craindre les résultats. En fait, il est nécessaire que vos facultés mentales soient vivifiées et élargies pour que vous puissiez faire le travail, et plus votre développement sera important, plus vous serez capables de faire notre travail d’une manière satisfaisante.
 
-*[Question.]*
+*[Question :]*
 
 Je connais la substance du livre que vous avez lu, et la fausseté de ces spéculations qui affirment la doctrine de la réincarnation. Il n’existe pas de seconde incarnation de l’âme dans la forme humaine, ni de retour sur terre dans le but d’améliorer la condition de l’âme. Essayez donc d’être en forme et nous continuerons l’écriture de mes messages.
 

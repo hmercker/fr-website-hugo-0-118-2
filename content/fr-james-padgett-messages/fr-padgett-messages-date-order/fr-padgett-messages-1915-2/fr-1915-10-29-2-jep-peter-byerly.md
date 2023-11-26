@@ -29,6 +29,7 @@ Eh bien, j’ai regardé, et je vois un certain nombre de très beaux esprits, m
 
 Je lui ai parlé, et elle m’a dit qu’elle était très heureuse de me rencontrer, et qu’elle veut que je l’accompagne après que le professeur aura terminé sa conversation. Mais, dis-moi, qu’est-ce que tout cela signifie ? Je ne peux pas comprendre.
 
-Je dois m’arrêter – bonne nuit, Peter D. Byerly.
-________________
-123 Son nom de famille est probablement plutôt Byerly, comme l’ont confirmé différentes recherches.
+Je dois m’arrêter – bonne nuit, Peter D. Byerly. <sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> Son nom de famille est probablement plutôt Byerly, comme l’ont confirmé différentes recherches.[↩](#a1)

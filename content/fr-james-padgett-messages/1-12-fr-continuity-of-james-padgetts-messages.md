@@ -64,6 +64,6 @@ Une autre branche fut créée à Santa Cruz.
 
 Juillet 2012 : Parallèlement au développement de la FCNB et de la FCDT, il est également utile de noter la longue histoire du mouvement de l'Amour Divin dans la région de Vancouver au Canada. Cette histoire est décrite en détail sur un autre site et fait état des efforts d'Alec Gaunt. C’est ainsi qu’un groupe important est né dans cette région et est toujours actif à ce jour et il s’identifie sous le nom de Divine Love Sanctuary Foundation (Fondation du Sanctuaire de l’Amour Divin) officiellement crée en Juillet 2012. Il est principalement animé par Albert and Jeanne Fike.
 
-2014 : Nouvelle publication « modernisée » des quatre volumes des Nouvelles Révélations de Jésus de Nazareth par Geoff Cutler auteur des sites Web https://new-birth.net/ et https://soultruth.ca/. Dans ces éditions la ponctuation et la syntaxe ont été revues et différentes notes ont été ajoutées afin d’aider à une meilleure compréhension du texte des divers messages.
+2014 : Nouvelle publication « modernisée » des quatre volumes des Nouvelles Révélations de Jésus de Nazareth par Geoff Cutler auteur des sites Web [new-birth.net](https://new-birth.net/) et [soultruth.ca](https://soultruth.ca/). Dans ces éditions la ponctuation et la syntaxe ont été revues et différentes notes ont été ajoutées afin d’aider à une meilleure compréhension du texte des divers messages.
 
 Septembre 2014 : retraite de célébration du 100e anniversaire de la réception des messages par James Padgett. Elle s'est tenue à Chevy Chase, à proximité de Washington D.C.

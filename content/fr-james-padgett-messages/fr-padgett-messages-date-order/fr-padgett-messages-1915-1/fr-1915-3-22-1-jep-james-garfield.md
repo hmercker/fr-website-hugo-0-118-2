@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### James A. Garfield a recherché la vérité avec son mental. M. Padgett lui dit de rechercher la vérité avec son âme <sup id="a1">[1](#f1)</sup>
+### James A. Garfield a recherché la vérité avec son mental. M. Padgett lui dit de rechercher la vérité avec son âme
 
 James Garfield - reçu par James Padgett le 22 Mars 1915, Washington, USA.
 
 Je suis là, Garfield. Je suis J. A. Garfield, l’ami de votre ancien partenaire.
 
-Je veux dire que vous êtes un homme très favorisé d’avoir tant d’esprits d’un si haut degré de développement qui s’intéressent à vous et à votre travail en tant que médium. J’ai beaucoup fréquenté M. Riddle, et il me parle des merveilleux pouvoirs que vous avez reçus en prenant ces communications, et des merveilleuses vérités qui vous ont été communiquées et de la grande foi vous avez en la prière au Père. Vous voyez, je m’y intéresse aussi, et je voudrais dire quelque chose au sujet de cette vie spirituelle et de mes expériences en tant qu’esprit.
+Je veux dire que vous êtes un homme très favorisé d’avoir tant d’esprits d’un si haut degré de développement qui s’intéressent à vous et à votre travail en tant que médium. J’ai beaucoup fréquenté M. Riddle, et il me parle des merveilleux pouvoirs que vous avez reçus en prenant ces communications, et des merveilleuses vérités qui vous ont été communiquées et de la grande foi que vous avez en la prière au Père. Vous voyez, je m’y intéresse aussi, et je voudrais dire quelque chose au sujet de cette vie spirituelle et de mes expériences en tant qu’esprit.
 
 Je suis maintenant dans la Troisième Sphère (Spirituelle) où se trouve M. Riddle, et lui et moi discutons fréquemment de ces questions, et recherchons les vérités avec tous nos esprits et âmes. Eh bien, je ne connais ce chemin qu’en tant que croyant dans les doctrines de mon église, et ce que j’ai appris de plus depuis mon arrivée ici. Je ne crois pas à tout ce que la Bible enseigne, mais seulement aux choses qui font appel à ma raison. Je n’ai pas une foi dans la prière ou dans la possibilité de devenir un esprit qui puisse recevoir une grande aide des opérations de l’Esprit Saint, qui, comme le dit Riddle, est la seule influence qui peut sûrement me racheter de mes péchés ou de leurs conséquences, et me rendre un avec le Père. Je ne peux pas comprendre cet enseignement et, à moins que je ne puisse être convaincu par la raison, il m’est difficile d’accepter l’enseignement comme vrai.
 
@@ -25,7 +25,7 @@ Vous avez peut-être raison, j’ai peut-être tort. Je vais interroger Riddle s
 
 J’en ai rencontré quelques-uns (les membres du groupe de M. Padgett), et ils sont tous très beaux et heureux, surtout votre femme. C’est un esprit merveilleusement beau et tellement aimable et généreux. Je lui ai parlé plusieurs fois, et elle m’a parlé du merveilleux Amour du Père, comme elle l’appelle ; mais je pensais qu’elle n’était qu’une enthousiaste et une croyante en une doctrine que les jeunes peuvent facilement croire, et faire de leur foi une réalité.
 
-*[Question et réponse.]*
+*[Question et réponse :]*
 
 Non, mais je le ferai. Je vais demander une entrevue avec votre grand-mère, et je n’ai aucun doute qu’elle me ‘accordera. Je vais l’écouter, comme vous dites.
 
@@ -42,6 +42,3 @@ Eh bien, j’avais oublié, mais maintenant que vous me le rappelez, je m’en s
 Donc, avec tout mon respect et mon amour spirituel, je suis votre véritable ami, et chercheur de vérité.
 
 James A. Garfield.
-<small>
-
-1. <large id="f1"> Ce message fut publié doublement dans la première édition anglaise de ce 3ème volume des messages.[↩](#a1)

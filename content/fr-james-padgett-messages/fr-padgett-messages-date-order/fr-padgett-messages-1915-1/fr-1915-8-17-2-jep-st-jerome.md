@@ -13,7 +13,7 @@ St Jérôme - reçu par James Padgett le 17 Août 1915, Washington, USA.
 
 Saint Jérôme.
 
-Je suis venu vous dire que je suis un habitant de ce Royaume que Samuel a si inadéquatement décrit, et c’est le Royaume de Jésus et, bien sûr, du Père.
+Je suis venu vous dire que je suis un habitant de ce Royaume que Samuel [a si inadéquatement décrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-17-1-jep-samuel/), et c’est le Royaume de Jésus et, bien sûr, du Père.
 
 Vous ne savez peut-être rien de moi, mais j’ai été canonisé, il y a plusieurs siècles, par l’église, parce qu’elle pensait que j’avais fait tant de bien à l’église par mes écrits et mes discours sur les sujets religieux. Mais je dois avouer maintenant que lorsque j’ai écrit, j’ai exprimé, comme vérités, beaucoup de points que je vois maintenant sont inexacts, et j’aimerais pouvoir corriger toutes ces erreurs dans mes écrits, mais je ne le peux pas.
 
@@ -21,7 +21,7 @@ Je vous dirai donc en quelques mots que les vérités du Maître, qui sont les v
 
 Je fais de mon mieux pour aider la cause qu’il défend, et je suis l’un des esprits derrière vous qui essaient avec tous leurs pouvoirs spirituels de vous diriger correctement et vous permettre de recevoir la vérité.
 
-*[Question]*
+*[Question :]*
 
 Je suis dans une Sphère Céleste, très haut dans les cieux. Je ne peux pas décrire autrement son emplacement. Ces sphères, après les premières, ne sont pas numérotées parce qu’elles s’entremêlent de sorte qu’il n’y a pas de lignes de démarcation.
 

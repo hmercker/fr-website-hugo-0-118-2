@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Les fêtes de Pâques et leur célébration commune le 2e samedi soir et dimanche d’Avril
+### Les fêtes de Pâques et leur célébration commune le 2eme samedi soir et dimanche d’Avril
 
-Jésus - reçu par Dr Samuels le Septembre et Octobre 1955, Août et Octobre 1962, Mai et Juin 1965, Washington, DC, USA.
+Jésus - reçu par Dr Samuels en Septembre et Octobre 1955, Août et Octobre 1962, Mai et Juin 1965, Washington, DC, USA.
 
 Le premier jour férié de l’année sacrée était Pâques, le septième mois de l’année civile qui commençait au coucher du soleil du 14 Nissan, et se poursuivait les 15 et 16 (Mars – Avril). Elle célébrait la délivrance des Juifs de l’esclavage en Égypte par Moïse et exigeait la présence de tout homme de plus de 12 ans devant le sanctuaire du Seigneur. C’est pendant le repas de Pâques, avant mon arrestation par Pilate, que j’ai donné à mes disciples le Onzième. Commandement : *« Aimez-vous les uns les autres comme je vous ai aimés. »* Je voulais dire que puisque j’aimais l’humanité, et surtout mes disciples, avec l’Amour qui m’est venu de l’Essence du Père, les disciples devaient chercher l’Amour Divin dans la prière au Père et s’aimer les uns les autres de cet Amour Divin. Ainsi, nous devions tous être un dans l’Amour du Père. C’était là le Commandement, qui devait être obéi par mes disciples et les lier, tout comme les Dix Commandements liaient tous les Juifs de l’époque, et même d’aujourd’hui, en tant que préceptes moraux donnés à l’humanité par Dieu à travers Moïse.
 
@@ -25,7 +25,7 @@ Je veux aussi inclure dans cette fête le fait de la Résurrection, car c’est 
 
 Le rôle joué par le Messie dans la célébration de cette fête lors de la Dernière Cène, en plus de la Résurrection, est donc l’événement marquant de l’époque et fait de Pâques une fête Judéo-Chrétienne, une fête unifiée et cohérente qui souligne le co-héritage de ces deux religions. Cette fête doit être observée par l’Église de la Nouvelle Naissance comme une grande manifestation de l’Amour de Dieu pour Ses enfants, non seulement en les libérant de l’esclavage dans la chair, mais en leur montrant le chemin pour se libérer du péché et de la parenté avec Lui dans leur âme par leurs prières pour l’Amour Divin, que le Messie a enseigné comme nouveau commandement au Seder de Pâques.
 
-Voici les récits de Luc et de moi-même, publiés dans les Nouvelles Révélations de Jésus de Nazareth sur ce qui s’est passé au moment de ma crucifixion. Tout d’abord, le message écrit par Luc par l’intermédiaire de M. Padgett (vol. I, p. 326-327) :
+Voici les récits de Luc et de moi-même, publiés dans les Nouvelles Révélations de Jésus de Nazareth sur ce qui s’est passé au moment de ma crucifixion. Tout d’abord, [le message écrit par Luc par l’intermédiaire de M. Padgett](https://lanouvelleverite.fr/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-24-1-jep-st-luke/) :
 
 > Je n’étais pas présent à la crucifixion et, bien sûr, je ne sais pas, personnellement, ce qu’est devenu le corps de Jésus, mais j’ai été informé par ceux qui étaient présents, que la description Biblique de son ensevelissement dans le tombeau de Joseph est exacte. Le corps a été enterré dans le tombeau de Joseph et a été laissé là par ceux qui l’ont placé ; le tombeau a alors été scellé et un garde posté devant pour empêcher quiconque de s’approcher et d’interférer avec le corps, parce que Jésus avait prédit que trois jours après il ressusciterait.
 <br>

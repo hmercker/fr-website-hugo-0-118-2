@@ -26,7 +26,7 @@ La Nouvelle Naissance
 > Ce qui est né de la chair est chair, et ce qui est né de l’Esprit est esprit.
 <br>
 <br>
-> Ne t’étonne pas que je t’aie dit : Il faut que vous naissiez de nouveau. (Jean 3 : 1-7).
+> Ne t’étonne pas que je t’aie dit : Il faut que vous naissiez de nouveau. [Jean 3 : 1-7](https://saintebible.com/john/3-1.htm).
 
 La Nouvelle Naissance est l’essence de la mission de Jésus. Nulle part ailleurs on ne trouvera si succinctement et si clairement expliquées les exigences de la bonne nouvelle du salut que Jésus a reçue du Père et proclamée à l’humanité. Toutes les promesses et prophéties de l’Ancien Testament sont ici accomplies.
 
@@ -46,7 +46,7 @@ Ceci est la signification réelle du pardon du péché, et dans ce sens peut seu
 
 Le pardon de Dieu consiste à se tourner vers Lui et à chercher son Amour qui, en entrant dans l’âme, en éradique progressivement les désirs et les émotions qui sont en contradiction avec Ses Lois. Le pardon qui vient avec la Nouvelle Naissance est donc un acte positif de coopération de la part de l’homme et de Dieu. L’homme doit le rechercher dans la prière spirituelle et Dieu le confère à l’homme par un processus actif d’éradication.
 
-La Nouvelle Naissance, alors, comme la transformation de l’âme humaine en l’Âme Divine et la purification conséquente du péché à travers l’Amour du Père, qualifie donc l’âme pour vivre pour toute l’éternité avec Dieu dans Ses Demeures Célestes. C’est l’Amour que Jésus manifesta dans son âme et avec lequel il demanda à ses apôtres de s’aimer les uns les autres lors de la dernière Cène (*« C’est mon commandement, que vous vous aimiez les uns les autres comme je vous ai aimés. »* Jean XV, 12.) C’est l’Amour qu’il a expliqué à Nicodème, ce maître en Israël, et a enseigné aux hommes de foi à rechercher.
+La Nouvelle Naissance, alors, comme la transformation de l’âme humaine en l’Âme Divine et la purification conséquente du péché à travers l’Amour du Père, qualifie donc l’âme pour vivre pour toute l’éternité avec Dieu dans Ses Demeures Célestes. C’est l’Amour que Jésus manifesta dans son âme et avec lequel il demanda à ses apôtres de s’aimer les uns les autres lors de la dernière Cène [* C’est mon commandement, que vous vous aimiez les uns les autres comme je vous ai aimés.*](https://saintebible.com/john/15-12.htm) C’est l’Amour qu’il a expliqué à Nicodème, ce maître en Israël, et a enseigné aux hommes de foi à rechercher.
 
 Ainsi Jésus est né d’en haut ; en effet, il est né de l’Esprit Saint dans le sens où c’est par son afflux que l’Amour du Père a été répandu en abondance dans son âme; et il a dit à Nicodème que lui aussi et tous ceux des enfants de Dieu qui obéiraient à ses enseignements, pourraient aussi renaître par l’Esprit et devenir un avec le Père. Cette transformation de l’âme, cette régénération spirituelle, est la Nouvelle Naissance que Jésus a enseignée et qui a maintenant été rendue limpide dans le VRAI Évangile révélé de nouveau par Jésus et obtenu par la médiumnité de M. James E. Padgett, avocat à Washington, entre les années 1914 et 1923. Ces écrits, que Jésus déclare lui-même être son *« Nouvel et répété Évangile pour toute l’humanité »*, mettent en lumière ses véritables enseignements de la Nouvelle Naissance et de l’Amour du Père.
 

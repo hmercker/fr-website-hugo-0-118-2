@@ -21,7 +21,7 @@ J’étais avec toi ce soir lorsque tu as rendu visite à tes enfants ainsi qu�
 
 Comme tu peux t’en douter, un certain nombre d’esprits brillants étaient présents et Mme Colburn était là aussi dans son amour pour son mari et ses enfants. Elle les aime beaucoup et apprécie d’être avec eux et surtout lorsqu’ils tournent leurs pensées vers elle comme ils le font parfois.
 
-Comme il est très tard, je ne dois pas écrire davantage mais te laisser aller au lit. Aime-moi et pense à moi avec ton amour qui progresse sans cesse et nous serons tous les deux très heureux dans notre amour. Tu sais ce que l’amour signifie pour nous et comme il fait partie de notre existence même et il ne devrait pas être autorisé à sommeiller ou même à régresser. Je pense que tu seras en mesure de recevoir certains des messages les plus élevés demain soir et tu dois t’asseoir tôt et donner aux esprits la possibilité d’écrire. 
+Comme il est très tard, je ne dois pas écrire davantage mais te laisser aller au lit. Aime-moi et pense à moi avec ton amour qui progresse sans cesse et nous serons tous les deux très heureux dans notre amour. Tu sais ce que l’amour signifie pour nous et comme il fait partie de notre existence même et il ne devrait pas être autorisé à sommeiller ou même à régresser. Je pense que tu seras en mesure de recevoir certains des messages les plus élevés demain soir et tu dois t’asseoir tôt et donner aux esprits la possibilité d’écrire.
 
 Comme je te l’ai dit, beaucoup désirent écrire et tu dois faire un effort pour te mettre en condition afin qu’ils puissent le faire.
 
@@ -32,4 +32,4 @@ Bonne nuit et que le Père te bénisse en tout point.
 Ton véritable amour, Hélène.
 <small>
 
-1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été diffusé par la F.C.N.B. dans son bulletin d’information du printemps 2012.[↩](#a1)
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été diffusé par la F.C.N.B. (Fédération des églises de la Nouvelle Naissance) dans son bulletin d’information du printemps 2012. Consulter [ce lien](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/) pour plus d'informations sue les églises impliquées dans la diffusion des messages de James Padgett.[↩](#a1)

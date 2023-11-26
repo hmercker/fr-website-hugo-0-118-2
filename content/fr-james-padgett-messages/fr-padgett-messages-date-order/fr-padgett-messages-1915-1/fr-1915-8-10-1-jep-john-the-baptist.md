@@ -7,13 +7,15 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre
+### Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre <sup id="a1">[1](#f1)</sup>
 
 Jean le Baptiste - reçu par James Padgett le 10 Août 1915, Washington, USA.
 
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-herodias.jpg)
+
 C’est moi, Jean le Baptiste.
 
-Je viens vous dire que je suis maintenant l’annonciateur du Maître comme je l’ai été durant ma vie terrestre et c’est le vrai Jésus qui vous a écrit dans toutes les communications que vous avez reçues signées par lui ou en son nom. Je fais cela afin que vous puissiez croire et ne pas mettre en doute les messages que vous recevez. Il vient de vous écrire <sup id="a1">[1](#f1)</sup> et vous devez prendre en considération ce qu’il dit, parce ce qu’il a dit, se produira certainement.
+Je viens vous dire que je suis maintenant l’annonciateur du Maître comme je l’ai été durant ma vie terrestre et c’est le vrai Jésus qui vous a écrit dans toutes les communications que vous avez reçues signées par lui ou en son nom. Je fais cela afin que vous puissiez croire et ne pas mettre en doute les messages que vous recevez. Il vient de vous écrire <sup id="a2">[2](#f2)</sup> et vous devez prendre en considération ce qu’il dit, parce ce qu’il a dit, se produira certainement.
 
 Je suis le même Jean qui est apparu en Palestine et a annoncé sa venue, et que je leur ai dit ce qui devait effectivement avoir lieu. Alors je vous dis ce qui se passe réellement, et vous ne recevrez pas uniquement les messages de la vérité qu’il va vous écrire, mais ils seront également distribués à toute l’humanité partout où les langues écrites du monde existent, sont parlées ou écrites.
 
@@ -41,7 +43,9 @@ Je suis maintenant dans les Cieux Célestes et je suis très proche de Jésus da
 
 Votre frère en Christ, Jean le Baptiste.
 
-*Note : Les mots en italiques ne figuraient pas dans la version publiée de ce message. Comme ces choses prédites ne sont pas produites, il est logique que le Dr Stone ait édité le message pour se concentrer sur ce qui était important. La question relative à la compréhension de la raison selon laquelle les esprits ne peuvent pas prédire l’avenir, [est traitée dans le message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-1-5-1-jep-baruch-spinoza/) communiqué par Spinoza le 5 Janvier 1919. La transcription complète de ce message a été partagée par Paul King à l’occasion de la 100ème retraite anniversaire qui s’est tenue à Washington en septembre 2014.*
+**Note :** Les mots en italiques ne figuraient pas dans la version publiée de ce message. Comme ces choses prédites ne sont pas produites, il est logique que le Dr Stone ait édité le message pour se concentrer sur ce qui était important. La question relative à la compréhension de la raison selon laquelle les esprits ne peuvent pas prédire l’avenir, [est traitée dans le message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-1-5-1-jep-baruch-spinoza/) communiqué par Spinoza le 5 Janvier 1919.
 <small>
 
-1. <large id="f1"> Il s’agit probablement d’un message personnel inédit du 7 août 2015.[↩](#a1)
+1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de Septembre 2014 par Paul King.[↩](#a1)
+
+2. <large id="f2"> Il s’agit probablement d’un message personnel inédit du 7 Août 2015.[↩](#a2)

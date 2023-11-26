@@ -19,7 +19,7 @@ Néanmoins, elle n’est pas ton ange gardien. Aigle Blanc est un guide pour bea
 
 Nous nous intéressons tous tellement à toi que tu n’es jamais seul, même pendant ton sommeil. Même M. Riddle et le professeur Salyards sont avec toi pour essayer de t’influencer dans tes affaires terrestres.
 
-Le dernier auteur de message <sup id="a1">[1](#f1)</sup> était l’esprit de l’homme qui a écrit le livre que tu es en train de lire. Je ne le connaissais pas jusqu’à ce qu’il vienne écrire et se présente comme l’auteur du livre et dise que Jésus le recommandait. Bien sûr nous avons consenti à ce qu’il écrive.
+[Le dernier auteur de message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-17-2-jep-eugen-crowell/) était l’esprit de l’homme qui a écrit le livre que tu es en train de lire. Je ne le connaissais pas jusqu’à ce qu’il vienne écrire et se présente comme l’auteur du livre et dise que Jésus le recommandait. Bien sûr nous avons consenti à ce qu’il écrive.
 
 C’est un esprit de la cinquième sphère où je vis et je le verrai davantage maintenant. Il se peut qu’il rejoigne notre groupe, car il est un homme merveilleusement intellectuel et bien versé dans les vérités spirituelles. Oui, il n’est pas rempli de ce grand Amour comme le sont ta grand-mère, ta mère et Hélène. Mais il fera un ajout intéressant, et je crois que toute la bande y consentira, surtout parce que Jésus l’a recommandé.
 
@@ -31,11 +31,8 @@ Oui, ils prient encore et je les vois souvent. Mackey progresse plus rapidement 
 
 Oui, surtout Taggart qui dit qu’il aimerait avoir une autre conversation avec toi d’ici peu, il veut te poser quelques questions et peut-être que tu pourras y répondre afin que certains de ses doutes puissent être levés.
 
-Oui, elle (Mme Emmons) n’est pas très heureuse et n’a pas encore pleinement réalisé qu’elle est exclusivement dans le monde spirituel. Mais Hélène est avec elle et essaie de l’aider à voir la lumière et à tourner ses pensées vers les choses spirituelles.
+Oui, elle, [Mme Emmons](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-27-2-jep-helen-padgett/), n’est pas très heureuse et n’a pas encore pleinement réalisé qu’elle est exclusivement dans le monde spirituel. Mais Hélène est avec elle et essaie de l’aider à voir la lumière et à tourner ses pensées vers les choses spirituelles.
 
 Je dois arrêter, alors bonne nuit, mon cher fils.
 
 Ton père qui t’aime.
-<small>
-
-1. <large id="f1"> Il s’agit de M. Eugène Crowell, auteur de « L’identité du christianisme des premiers jours et du spiritualisme moderne ». Son message, communiqué le 17 Mars 1955, est publié dans le volume IV, 2ème édition de Juillet 2014, page 283 (G.J.C.)[↩](#a1)

@@ -1,19 +1,18 @@
 ---
-title: "Calvert, une connaissance de l’école demande l’aide de M. Padgett"
+title: "Calvert, une connaissance de l’école d'avocats demande l’aide de M. Padgett"
 menu_title: ""
-description: "Calvert, une connaissance de l’école demande l’aide de M. Padgett"
-date: 2022-06-01 06:00:01+00:37
+description: "Calvert, une connaissance de l’école d'avocats demande l’aide de M. Padgett"
 draft: False
 hidden: True
 weight:
 ---
-### Calvert, une connaissance de l’école demande l’aide de M. Padgett
+### Calvert, une connaissance de l’école d'avocats demande l’aide de M. Padgett
 
 George Calvert - reçu par James Padgett le 31 Janvier 1917, Washington, USA.
 
 Je suis, George C. Calvert.
 
-J’étais une de vos connaissances alors que vous étiez étudiant à New Market, et vous vous souviendrez de moi lorsque je vous rappeler que j’étais appelé « Juge ». Eh bien, je suis venu, parce que j’ai vu que d’autres esprits vous écrivaient, et quand je vous ai regardé, je me suis souvenu de vous, et ensuite j’ai voulu écrire.
+J’étais une de vos connaissances alors que vous étiez étudiant à New Market, et vous vous souviendrez de moi lorsque je vai vous rappeler que j’étais appelé « le Juge ». Eh bien, je suis venu, parce que j’ai vu que d’autres esprits vous écrivaient, et quand je vous ai regardé, je me suis souvenu de vous, et ensuite j’ai voulu écrire.
 
 Je suis dans ce qu’on appelle le plan des ténèbres et je le suis depuis un certain temps maintenant, bien que, lorsque je suis entré dans le monde des esprits, je suis allé dans les enfers et j’ai beaucoup souffert. Mais je suis reconnaissant d’avoir pu sortir des conditions qui me conviennent pour ces endroits, et je suis maintenant dans un plan plus lumineux et dans moins de souffrance. Je ne sais pas si vous pouvez faire quoi que ce soit pour moi, mais certains esprits disent que vous les avez aidés et si c’est vrai, je voudrais que vous m’aidiez. Je suis prêt à tout pour améliorer ma condition, et si vous faites ce que je dis, j »apprécierai beaucoup et j’essaierai de suivre vos conseils.
 

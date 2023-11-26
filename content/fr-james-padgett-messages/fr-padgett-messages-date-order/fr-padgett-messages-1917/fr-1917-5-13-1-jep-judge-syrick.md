@@ -25,6 +25,7 @@ J’aimerais écrire une plus longue lettre, mais il m’est dit que j’ai asse
 
 Eh bien, je dois m’arrêter maintenant, et ce faisant, je veux vous assurer à tous les deux que vous avez mon amour et ma gratitude dans la mesure où une âme reconnaissante peut la donner. Rose vous envoie son amour et vous dit qu’elle est très heureuse et qu’elle prie pour vous deux. Bonne nuit, mes chers frères.
 
-Votre vieil ami, Syrick.
+Votre vieil ami, Syrick. <sup id="a1">[1](#f1)</sup>
+<small>
 
-*Note : Je connaissais bien le Juge Syrick. C’était un vieil ami de M. Padgett qui a réussi à convaincre Hélène, qui a le merveilleux don de trouver l’âme-sœur de ceux qui voulaient savoir si l’âme-sœur est sur terre ou dans le monde des esprits. Hélène a trouvé l’âme-sœur du juge Syrick, qui était un bel esprit et qui s’appelait Rose. Tous deux ont maintenant fait leur chemin dans le Ciel. (Dr Leslie R. Stone).*
+<large id="f1"> J'ai bien connu le Juge Syrick. C’était un vieil ami de M. Padgett qui a réussi à sollicter Hélène, qui a le merveilleux don de trouver l’âme-sœur de ceux qui voulaient savoir si l’âme-sœur est sur terre ou dans le monde des esprits. Hélène a trouvé l’âme-sœur du juge Syrick, qui était un bel esprit et qui s’appelait Rose. Tous deux ont maintenant fait leur chemin dans le Ciel. (Dr Leslie R. Stone).[↩](#a1)

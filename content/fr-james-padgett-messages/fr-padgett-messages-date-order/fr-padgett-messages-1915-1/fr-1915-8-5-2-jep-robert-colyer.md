@@ -25,4 +25,4 @@ Je n’écrirai plus ce soir, car vous êtes fatigués, mais je reviendrai un jo
 Alors, avec tout mon amour de frère en Christ, je suis Robert Colyer.
 <small>
 
-1. <large id="f1"> Robert Coyler fut un prédicateur anglais qui a émigré aux USA et est décédé en 1912. Il fut le premier pasteur itinérant pour la First Unitarian Church (Première Église Unitarienne).[↩](#a1)
+1. <large id="f1"> **Robert Coyler** fut un prédicateur anglais qui a émigré aux USA et est décédé en 1912. Il fut le premier pasteur itinérant pour la First Unitarian Church (Première Église Unitarienne).[↩](#a1)

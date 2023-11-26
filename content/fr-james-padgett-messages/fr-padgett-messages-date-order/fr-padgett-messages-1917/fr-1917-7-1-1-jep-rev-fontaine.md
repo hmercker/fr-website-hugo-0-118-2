@@ -53,4 +53,3 @@ Et ce que j’ai à te dire, ma fille, je le dis à mon fils et l’invite à pe
 <small>
 
 1. <large id="f1"> Il s’agit d’un lieu temporaire avant que l’esprit aille au plan que détermine l’état de son âme.[↩](#a1)
- 

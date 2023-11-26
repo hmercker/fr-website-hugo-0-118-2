@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 17 Juin 1915, Washington, USA.
 
 C’est moi, Hélène.
 
-Eh bien, mon chéri, tu as reçu une longue lettre de Joe Shellington et je suis heureuse que tu l’aies laissé écrire, car cela semble l’avoir beaucoup aidé. Il progresse maintenant et prie le Père, et il a un peu de foi. Comme il l’a dit, j’ai essayé de l’aider, et il m’écoute avec beaucoup d’intérêt. Bientôt, je crois qu’il verra la lumière et sortira de ses ténèbres.
+Eh bien, mon chéri, tu as reçu une [longue lettre de Joe Shellington](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-17-1-jep-joe-shellington/) et je suis heureuse que tu l’aies laissé écrire, car cela semble l’avoir beaucoup aidé. Il progresse maintenant et prie le Père, et il a un peu de foi. Comme il l’a dit, j’ai essayé de l’aider, et il m’écoute avec beaucoup d’intérêt. Bientôt, je crois qu’il verra la lumière et sortira de ses ténèbres.
 
 Fais ce qu’il demande. Envoie une copie de la lettre à sa femme, car je crois que cela lui fera du bien, ainsi qu’à lui. Elle ne l’aime pas tellement en ce moment, mais elle se sentira mieux en sachant qu’il l’aime et qu’il est vivant.
 Je ne sais pas, car je n’ai pas demandé, mais je le ferai et te le ferai savoir. Mais il n’est pas préférable que l’un ou l’autre le sache pour le moment.

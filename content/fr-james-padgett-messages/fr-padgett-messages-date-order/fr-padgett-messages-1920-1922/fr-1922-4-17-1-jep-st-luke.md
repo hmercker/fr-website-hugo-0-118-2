@@ -42,6 +42,13 @@ Je suis heureux d’avoir pu vous écrire à nouveau, et que votre état de sant
 Votre frère en Christ, Luc.
 <small>
 
-1. <large id="f1"> La date de ce message est le 17 avril 1922, qui est seulement connue par référence au document manuscrit original.[↩](#a1)
+1. <large id="f1"> La date de ce message est seulement connue par référence au document manuscrit original. Il est le dernier message connu à ce jour de James Padgett.[↩](#a1)
 
-2. <large id="f2"> Il y a deux messages de Jésus sur l’immortalité. Le [premier est daté du 28 mai 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-28-1-jep-jesus/) et le [second du 2 juin 1920](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/).[↩](#a2)
+2. <large id="f2"> Il y a deux autres messages de Jésus, un message de Gottfried Leibnitz et un message de Henry Ward Beecher sur l’immortalité.
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Le sens de l'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-28-1-jep-jesus/) | 28 Mai 1915
+Henry Ward Beecher | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-5-2-jep-henry-ward-beecher/) | 05 Juillet 1915
+Gottfried Leibnitz | [l’immortalité et l’incertitude de l’obtenir même dans le monde spirituel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-4-1-jep-gottfried-leibnitz/) | 04 Juin 1917
+Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920[↩](#a2)

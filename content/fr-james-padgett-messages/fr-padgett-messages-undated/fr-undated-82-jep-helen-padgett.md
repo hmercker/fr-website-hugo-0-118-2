@@ -28,4 +28,4 @@ Oui, mais je ne suis pas en état. Je ne me sens pas assez forte pour écrire pl
 Ta vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id="f1"> La date du 24 Mars 1915 a été attribuée à ce message, mais je ne peux trouver aucune preuve pour cela. Ce doit être avant le 20 Juin 1918, car c’est la date à laquelle Nita est décédée. Un message non publié du 28 Septembre 1914 indique qu’Hélène sait que le père et la mère de James Padgett ne sont pas des âmes sœurs. Un autre message daté du 15 Décembre 1914 indique que son père a rencontré son âme sœur. (G.J.C.)[↩](#a1)
+1. <large id="f1"> La date du 24 Mars 1915 a été attribuée à ce message, mais je ne peux trouver aucune preuve pour cela. Ce doit être avant le 20 Juin 1918, car c’est la date à laquelle Nita est décédée. Un message non publié du 28 Septembre 1914 indique qu’Hélène sait que le père et la mère de James Padgett ne sont pas des âmes sœurs. Un autre message daté du 15 Décembre 1914 indique que son père a rencontré son âme-sœur. (Geoff Cutler)[↩](#a1)

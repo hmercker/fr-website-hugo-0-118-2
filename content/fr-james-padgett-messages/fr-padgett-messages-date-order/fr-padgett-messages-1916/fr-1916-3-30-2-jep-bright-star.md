@@ -26,6 +26,6 @@ Je viendrai bientôt vous écrire comme promis. Venez me voir bientôt et amenez
 Alors au revoir, votre ami, Bright Star.
 <small>
 
-1. <large id="f1"> Bright Star était guide aux séances de Mme Ripple. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Bright Star était guide aux séances de Mme Ripple. (Geoff Cutler)[↩](#a1)
 
 2. <large id="f2"> Ce message a probablement été communiqué entre Mars et Mai 1916, parce que c’est à cette période que M. Pierpoint Morgan donna des conseils financiers à James Padgett.[↩](#a2)

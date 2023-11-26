@@ -11,7 +11,7 @@ weight:
 
 Robert Ingersoll - reçu par James Padgett le 29 Mars 1917, Washington, USA.
 
-C’est moi, Robert G. Ingersoll.
+C’est moi, Robert G. Ingersoll. <sup id="a1">[1](#f1)</sup>
 
 Je viens en premier parce que je suis plus modeste que les autres esprits qui sont présents, et je vais dire quelques mots et ensuite laisser la place aux autres.
 
@@ -19,7 +19,7 @@ J’ai été avec vous pendant que vous lisiez l’œuvre de Swedenborg, et j’
 
 Swedenborg eut de nombreuses occasions de recevoir et de communiquer la vérité, mais son grand apprentissage des sciences et ses croyances dans les anciennes doctrines orthodoxes de l’église dans laquelle il avait été élevé le conduisirent à des conclusions et des déclarations de vérités – comme il le croyait – qui étaient contraires à la fois à la science et à la religion dans son sens le plus élevé et le plus vrai.
 
-Eh bien, vous pouvez vous demander pourquoi j’écris sur ce sujet, et pour répondre à toute question qui pourrait surgir de votre étonnement, je tiens seulement à dire que, depuis que j’ai reçu la connaissance du plan de Dieu pour le salut de l’humanité et une partie de Son Amour Divin, j’enquête avec toutes les énergies de mon âme sur les grandes vérités qui existent et qui ne sont jamais modifiées. Au cours de ces recherches, j’ai parlé avec Swedenborg et il m’a parlé des sources de ses merveilleuses déclarations et doctrines telles qu’elles sont exposées dans ses œuvres. Il est maintenant en pleine connaissance de la vérité, et aussi de ses erreurs de ses propres disquisitions savantes <sup id="a1">[1](#f1)</sup>, comme ses disciples le croient et le déclarent.
+Eh bien, vous pouvez vous demander pourquoi j’écris sur ce sujet, et pour répondre à toute question qui pourrait surgir de votre étonnement, je tiens seulement à dire que, depuis que j’ai reçu la connaissance du plan de Dieu pour le salut de l’humanité et une partie de Son Amour Divin, j’enquête avec toutes les énergies de mon âme sur les grandes vérités qui existent et qui ne sont jamais modifiées. Au cours de ces recherches, j’ai parlé avec Swedenborg et il m’a parlé des sources de ses merveilleuses déclarations et doctrines telles qu’elles sont exposées dans ses œuvres. Il est maintenant en pleine connaissance de la vérité, et aussi de ses erreurs de ses propres disquisitions savantes<sup id="a2">[2](#f2)</sup>, comme ses disciples le croient et le déclarent.
 
 Il est le mieux à même de vous expliquer les causes de ses croyances erronées et ce qui l’a conduit à tenter d’expliquer les enseignements qu’il a reçus dans le monde des esprits et ses expériences de la manière mystique dont il l’a fait. Je n’écrirai pas plus sur le sujet.
 
@@ -32,4 +32,6 @@ Alors, mon cher ami, avec mon amour et ma gratitude, je vous souhaite une bonne 
 Votre frère dans le Christ, R. G. Ingersoll.
 <small>
 
-1. <large id="f1"> Essai ou discussion longue ou élaborée sur un sujet particulier.[↩](#a1)
+1. <large id="f1"> Le précédent message de Robert G. Ingersoll datait du [2 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-2-2-jep-robert-ingersoll/).[↩](#a1)
+
+2. <large id="f2"> Essai ou discussion longue ou élaborée sur un sujet particulier.[↩](#a2)

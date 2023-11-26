@@ -21,7 +21,7 @@ Comme Jésus te l’a dit, il ne viendra pas sur terre entouré de ses anges, en
 
 Il n’est pas le Dieu de colère et de jugement qu’ils enseignent, mais simplement le vrai fils de son Père, et il vient à tous les hommes dans l’amour et la sympathie, et avec le grand désir que les hommes se détournent de leurs mauvaises pensées et cherchent l’amour et la miséricorde du Père.
 
-J’ai senti la nécessité d’écrire ceci, car je me rends compte des grandes erreurs contenues dans ce tract, et que les hommes peuvent être amenés à croire ces erreurs. Bien que tu puisses lire une telle littérature, ne la laisse pas un seul instant te détourner des enseignements purs et vrais du Maître, car si toi, ou tout autre homme, tu bases ton salut sur ce qui est enseigné dans ces écrits, tu seras trompé, et quand tu viendras dans le monde spirituel tu seras grandement déçu de ne pas trouver ce que ces écrits peuvent te faire espérer.
+J’ai senti la nécessité d’écrire ceci, car je me rends compte des grandes erreurs contenues dans ce tract, et que les hommes peuvent être amenés à croire ces erreurs. Bien que tu puisses lire une telle littérature, ne la laisse pas un seul instant te détourner des enseignements purs et vrais du Maître, car si toi, ou tout autre homme, tu bases ton salut sur ce qui est enseigné dans ces écrits, tu seras trompé, et lorsque tu viendras dans le monde spirituel tu seras grandement déçu de ne pas trouver ce que ces écrits peuvent te faire espérer.
 
 Je ne dois pas écrire plus maintenant, car tu n’es pas en état d’écrire davantage.
 

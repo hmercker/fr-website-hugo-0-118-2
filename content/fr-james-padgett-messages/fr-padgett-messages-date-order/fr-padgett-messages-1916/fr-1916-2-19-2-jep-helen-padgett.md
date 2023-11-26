@@ -15,8 +15,8 @@ C’est moi, ta vraie Hélène.
 
 Je n’écrirai qu’une ligne, car il est très tard.
 
-Je ne l’avais jamais vu auparavant, mais il venait des Sphères Célestes, car il était un esprit merveilleusement brillant et développé, et l’Amour rayonnait de son visage à un degré prodigieux. Je n’ai aucun doute qu’il est celui qu’il prétendait être.
+Je ne l’avais jamais vu auparavant, [mais il venait des Sphères Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-19-1-jep-john-yorking/), car il était un esprit merveilleusement brillant et développé, et l’Amour rayonnait de son visage à un degré prodigieux. Je n’ai aucun doute qu’il est celui qu’il prétendait être.
 
 Bonne nuit.
 
-Ta propre vraie et bien-aimée Hélène.
+Ta vraie et bien-aimée Hélène.

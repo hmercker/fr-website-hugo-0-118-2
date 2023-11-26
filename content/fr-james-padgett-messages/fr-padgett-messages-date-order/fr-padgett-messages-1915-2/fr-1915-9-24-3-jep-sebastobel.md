@@ -15,9 +15,9 @@ Je suis Sebastobel.
 
 Je suis un esprit qui n’a jamais écrit auparavant, et je désire partager certaines choses que je considère importantes pour les mortels aussi bien que pour les esprits.
 
-Je vis dans la sphère la plus élevée où l’intellect règne en maître (La sixième sphère. (J.P.G.)) et où les esprits sont heureux de savoir que leur existence spirituelle est libre de tous les soucis et limitations qu’une vie dans le corps impose.
+Je vis dans la sphère la plus élevée <sup id="a1">[1](#f1)</sup> où l’intellect règne en maître (La sixième sphère. (J.P.G.)) et où les esprits sont heureux de savoir que leur existence spirituelle est libre de tous les soucis et limitations qu’une vie dans le corps impose.
 
-J’étudie les lois qui régissent les relations des diverses planètes entre elles et avec la terre, ainsi que les influences que le soleil, la lune et les étoiles exercent sur les mortels de la terre. Je suis un esprit ancien et je suis venu dans le monde des esprits il y plusieurs milliers d’années – bien avant le grand déluge qui a submergé un grand continent que les hommes appellent l’Atlantide.
+J’étudie les lois qui régissent les relations des diverses planètes entre elles et avec la terre, ainsi que les influences que le soleil, la lune et les étoiles exercent sur les mortels de la terre. Je suis un esprit ancien et je suis venu dans le monde des esprits il y plusieurs milliers d’années – bien avant le grand déluge qui a submergé un grand continent que les hommes appellent l’Atlantide. <sup id="a2">[2](#f2)</sup>
 
 Lorsque ce continent existait et était peuplé d’êtres vivants, actifs et intelligents, j’étais un esprit depuis de nombreuses années et j’étais en communication avec les prophètes, comme ils étaient appelés – ou plutôt avec les voyants – de cette terre heureuse. Le développement de ces peuples a surpassé de loin celui des habitants actuels de la terre non seulement par leurs qualités purement intellectuelles sur le plan abstrait, mais aussi par leur connaissance de ce que vous appelez les arts et sciences. Non seulement les habitants de cette belle terre n’avaient pas besoin de chevaux, d’automobiles, de voitures à vapeur, de bateaux ou de dirigeables pour se déplacer d’un endroit à l’autre et voyager, mais ils connaissaient l’existence et la manière d’utiliser certaines forces de la nature qui permettaient à chaque individu ou groupe d’individus de se transporter d’endroit en endroit par simple action de leur volonté, en utilisant ces forces. Ces forces existent toujours dans la nature et sont tout aussi prêtes à être utilisées aujourd’hui qu’elles l’étaient à l’époque où ces gens dont je parle les ont mises sous leur contrôle.
 
@@ -39,10 +39,17 @@ Eh bien, je dois avouer que je n’ai jamais vu dans ma sphère un esprit aussi 
 
 Non, mon intellect ne me le dit pas, et je vois qu’il y a là un phénomène présenté qui mérite toute investigation et étude.
 
-Eh bien, elle me l’a dit, et je suis étonné de son explication. Je n’avais jamais entendu parler de l’existence d’une chose telle que cette Nouvelle Naissance ou cet Amour Divin, et même maintenant je ne comprends pas ce que cela signifie, mais je vois un résultat ou un effet pour lequel je ne peux trouver aucune cause, et il me semble raisonnable d’accepter la cause qu’elle me donne. Mais je suis étonné, car je pensais qu’il n’y a rien dans tout le monde des esprits qui soit égal au mental, et rien qui apporte un tel bonheur. Mais elle me parle d’un bonheur dont je n’avais aucune idée. Eh bien, comme vous le dites, je vois un effet et il doit y avoir une cause ; et comme je suis un chercheur de vérité, il est de mon devoir de rechercher cette cause.
+Eh bien, elle me l’a dit, et je suis étonné de son explication. Je n’avais jamais entendu parler de l’existence d’une chose telle que cette Nouvelle Naissance ou cet Amour Divin, et même maintenant je ne comprends pas ce que cela signifie, mais je vois un résultat ou un effet pour lequel je ne peux trouver aucune cause, et il me semble raisonnable d’accepter la cause qu’elle me donne. Mais je suis étonné, car je pensais qu’il n’y a rien dans tout le monde des esprits qui soit égal au mental, et rien qui apporte un tel bonheur. Mais elle me parle d’un bonheur dont je n’avais aucune idée. Eh bien, comme vous le dites, je vois un effet et il doit y avoir une cause ; et comme je suis un chercheur de vérité, il est de mon devoir de rechercher cette cause. <sup id="a3">[3](#f3)</sup>
 
 Elle m’a invité à l’accompagner et à rencontrer son groupe, et aussi une personne qui, me dit-elle, est le plus magnifique et le plus beau de tout l’univers spirituel. J’irai avec elle enquêter sur cette affaire, et je reviendrai vers vous. Alors je vous souhaite une bonne nuit.
 
 Je m’appelais Sebastobel quand j’étais sur terre. J’ai vécu dans le Haut-Nil lorsque la race humaine s’est développée très tôt en êtres pensants.
 
 Sebastobel.
+<small>
+
+1. <large id="f1"> La sixième sphère spirituelle.[↩](#a1)
+
+2. <large id="f2"> Voir à ce sujet le message de Jésus des [18 et 20 Octobre 1988](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-10-18-1-dl-jesus/).[↩](#a2)
+
+3. <large id="f3"> Le parcours spirituel d'Hélène Padgett est décrit [dans cette page](/fr-james-padgett-messages/1-1-3-fr-details-of-the-life-of-helen-padgett/).[↩](#a3)

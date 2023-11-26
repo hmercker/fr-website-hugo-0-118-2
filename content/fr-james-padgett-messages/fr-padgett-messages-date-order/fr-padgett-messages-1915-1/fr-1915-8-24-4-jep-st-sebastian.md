@@ -13,7 +13,7 @@ St Sébastien - reçu par James Padgett le 24 Août 1915, Washington, USA.
 
 Je suis là, Saint-Sébastien.
 
-Je suis le Saint qui vous a écrit il y a quelques nuits et je veux dire que je suis toujours en mesure de le faire.
+Je suis le Saint qui vous a écrit [il y a quelques nuits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-22-1-jep-st-sebastian/) et je veux dire que je suis toujours en mesure de le faire.
 
 Bonne nuit.
 

@@ -12,6 +12,7 @@ weight:
 John Richards - reçu par James Padgett le 13 Avril 1919, Washington, USA.
 
 Je suis John T. Richards. Permettez-moi d’écrire quelques lignes, car j’ai très envie de vous raconter la scène de la réunion de ce soir.
+
 Il y avait autour de vous un très grand nombre d’esprits de toutes sortes et de toutes conditions. Certains étaient présents par simple curiosité, d’autres avaient le désir de communiquer avec leurs proches de la terre ; d’autres encore cherchaient de l’aide et la délivrance de leurs conditions de souffrances et de tourments.
 
 Mme Kates, la médium, a essayé de transmettre les communications de certains des esprits qui étaient impatients de parler à leurs parents et amis de leur présence et de l’état dans lequel eux, les mortels, se trouvaient, et de leur donner des conseils sur ce qu’il convient de faire ; et que, s’ils suivent seulement les conseils, ils seront aidés.
@@ -27,4 +28,4 @@ Je ne vais pas écrire plus maintenant, et je vais vous souhaiter une bonne nuit
 Votre ami,John T. Richards.
 <small>
 
-1. <large id="f1"> Bien que cela puisse être techniquement correct, c’est plutôt trompeur. Il existe un certain nombre de communications spirituelles qui illustrent le fait qu’à toutes fins utiles, il y aura un équivalent spirituel de tout animal qui est aimé par un mortel. Non seulement les esprits le signalent, mais aussi les humains qui ont le don de clairvoyance. Il est cependant établi que l’animal spirituel n’ait pas d’âme, qu’il soit plus précisément appelé forme de pensée, et qu’il soit plutôt immatériel. Ils existent dans les sphères des esprits et donnent du plaisir à ceux qui les ont aimés pendant leur séjour sur terre. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Bien que cela puisse être techniquement correct, c’est plutôt trompeur. Il existe un certain nombre de communications spirituelles qui illustrent le fait qu’à toutes fins utiles, il y aura un équivalent spirituel de tout animal qui est aimé par un mortel. Non seulement les esprits le signalent, mais aussi les humains qui ont le don de clairvoyance. Il est cependant établi que les animaux spirituels n'ont pas d'âme bien qu'ils existent dans les différentes sphères des esprits et donnent du plaisir à ceux qui les ont aimés pendant leur séjour sur terre. (Geoff Cutler)[↩](#a1)

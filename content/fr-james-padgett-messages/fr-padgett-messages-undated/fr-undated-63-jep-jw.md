@@ -40,6 +40,7 @@ Ses souffrances n’aident pas mes souffrances, et si seulement je pouvais me d�
 Je m’appelais J.W. Je vivais dans la ville de Newark, N.J., et je suis décédée en 1897. J’ai été enterrée dans le sol où sont enterrés les pauvres ; mais ce fait n’est pas important. Mon pauvre corps repose là aussi paisiblement que s’il était enterré dans le plus beau mausolée.
 
 J’étais une jeune fille instruite. Je terminais ma dernière année d’études lorsque la terrible chose m’est arrivée et a fait mourir mes chers parents d’un cœur brisé ; car je tiens à vous dire qu’un cœur brisé, ça existe ; mais mon Dieu, cela ne peut se comparer à une âme perdue, comme la mienne.
+
 Oui, je vous ferai confiance et je croirai, mais ne me laissez pas espérer, alors qu’il n’y a pas d’espoir. Dites-le-moi rapidement et je ferai ce que vous me direz. Oh, si je peux recevoir le pardon que celui dont vous avez parlé a reçu.
 
 Oui, je vois beaucoup d’esprits, mais ils sont malheureux et ont besoin d’aide comme moi ; et vous ne voulez sûrement pas dire que l’un d’eux pourrait m’aider.
@@ -48,11 +49,11 @@ Mais oui, je vois de beaux et brillants esprits. Ils sont si beaux, et ils me re
 
 Eh bien, je peux à peine écrire. Oh, aidez-moi.
 
-Elle m’appelle et me dit qu’elle va m’aider et me montrer le chemin. Elle met son bras autour de moi et dit : « Tu es ma sœur ; l’amour de Dieu est pour toi comme il est pour moi. Crois seulement qu’Il t’aime, et prie de tout ton cœur et de toute ton âme pour Sa miséricorde et Son pardon ; et viens avec moi dans un endroit tranquille, où je pourrai te parler plus complètement de Son grand amour et de Sa miséricorde. Cela te suffira ».*
+Elle m’appelle et me dit qu’elle va m’aider et me montrer le chemin. Elle met son bras autour de moi et dit : *« Tu es ma sœur ; l’Amour de Dieu est pour toi comme il est pour moi. Crois seulement qu’Il t’aime, et prie de tout ton cœur et de toute ton âme pour Sa miséricorde et Son pardon ; et viens avec moi dans un endroit tranquille, où je pourrai te parler plus complètement de Son grand amour et de Sa miséricorde. Cela te suffira ».*
 
 Je dois donc y aller. Oh, je vous remercie de tout mon cœur et donc, cher ami, je vous dis bonne nuit. 
 
 J.W.
 <small>
 
-1. <large id="f1"> Chaque fois que des initiales sont données au lieu d’un nom complet, c’est parce que des parents vivants peuvent faire objection. (J.P.G.) Comme le lecteur avisé l’aura maintenant remarqué, j’ai (G.J.C.) fait de nombreuses recherches afin de discerner qui pourrait se trouver derrière ces initiales, car le passage des années permet cette liberté. Souvent, cette information était contenue dans le journal quotidien tenu par James Padgett. Dans d’autres cas, il a été découvert à la suite de recherches personnelles. Parfois ces recherches n’ont pas abouti et, à l’heure actuelle, le mystère demeure. (G.J.C.)[↩](#a1)
+1. <large id="f1"> Chaque fois que des initiales sont données au lieu d’un nom complet, c’est parce que des parents vivants peuvent faire objection. (John Paul Gibsons) Comme le lecteur avisé l’aura maintenant remarqué, j’ai (Geoff Cutler) fait de nombreuses recherches afin de discerner qui pourrait se trouver derrière ces initiales, car le passage des années permet cette liberté. Souvent, cette information était contenue dans le journal quotidien tenu par James Padgett. Dans d’autres cas, il a été découvert à la suite de recherches personnelles. Parfois ces recherches n’ont pas abouti et, à l’heure actuelle, le mystère demeure. (Geoff Cutler)[↩](#a1)

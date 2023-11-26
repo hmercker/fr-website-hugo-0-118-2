@@ -9,7 +9,7 @@ weight:
 ---
 ### Lafayette, l’amoureux de la liberté, ami de Washington et de notre pays, exprime ses réflexions sur la France et l’Allemagne et sur l’issue de la guerre
 
-Lafayette - reçu par James Padgett le 1 Août 1915, Washington, USA.
+Lafayette - reçu par James Padgett le 1er Août 1915, Washington, USA.
 
 Je suis Lafayette. <sup id="a1">[1](#f1)</sup>
 
@@ -43,9 +43,11 @@ Je vois parfois Napoléon et je parle avec lui et plus souvent depuis le début 
 
 Je ne peux pas écrire plus.
 
-Votre ami, Lafayette.
+Votre ami, Lafayette. <sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id="f1"> Marie-Joseph Paul Yves Roch Gilbert du Motier, marquis de Lafayette (6 septembre 1757 – 20 mai 1834), aux États-Unis, souvent simplement connu sous le nom de Lafayette, était un aristocrate et officier militaire français qui a combattu pour les États-Unis pendant la guerre de l’indépendance américaine. Ami intime de George Washington, Alexander Hamilton et Thomas Jefferson, Lafayette a été une figure clé de la Révolution française de 1789 et de la Révolution de Juillet 1830. Né à Chavaniac, dans la province d’Auvergne, Lafayette est issu d’une riche famille de propriétaires terriens. Il a suivi sa tradition martiale et a été nommé officier à l’âge de 13 ans. Convaincu que la cause américaine dans sa guerre révolutionnaire était noble, il se rendit dans le Nouveau Monde à la recherche de gloire. C’est là qu’il a été nommé général de division, bien qu’à l’origine, le jeune homme de 19 ans n’ait pas reçu de troupes à commander. Blessé pendant la bataille de Brandywine, il réussit quand même à organiser une retraite ordonnée. Il a servi avec distinction dans la bataille de Rhode Island. Au milieu de la guerre, il rentre chez lui pour faire pression en faveur d’une augmentation du soutien français. Il a de nouveau navigué vers l’Amérique en 1780, et a reçu des postes supérieurs dans l’armée continentale. En 1781, les troupes en Virginie sous son commandement bloquèrent les forces dirigées par Cornwallis jusqu’à ce que d’autres forces américaines et françaises puissent se positionner pour le siège décisif de Yorktown. (Source : Wikipédia)[↩](#a1)
+1. <large id="f1"> **Marie-Joseph Paul Yves Roch Gilbert du Motier, marquis de Lafayette** (6 Septembre 1757 – 20 Mai 1834), aux États-Unis, souvent simplement connu sous le nom de Lafayette, était un aristocrate et officier militaire français qui a combattu pour les États-Unis pendant la guerre de l’indépendance américaine. Ami intime de George Washington, Alexander Hamilton et Thomas Jefferson, Lafayette a été une figure clé de la Révolution française de 1789 et de la Révolution de Juillet 1830. Né à Chavaniac, dans la province d’Auvergne, Lafayette est issu d’une riche famille de propriétaires terriens. Il a suivi sa tradition martiale et a été nommé officier à l’âge de 13 ans. Convaincu que la cause américaine dans sa guerre révolutionnaire était noble, il se rendit dans le Nouveau Monde à la recherche de gloire. C’est là qu’il a été nommé général de division, bien qu’à l’origine, le jeune homme de 19 ans n’ait pas reçu de troupes à commander. Blessé pendant la bataille de Brandywine, il réussit quand même à organiser une retraite ordonnée. Il a servi avec distinction dans la bataille de Rhode Island. Au milieu de la guerre, il rentre chez lui pour faire pression en faveur d’une augmentation du soutien français. Il a de nouveau navigué vers l’Amérique en 1780, et a reçu des postes supérieurs dans l’armée continentale. En 1781, les troupes en Virginie sous son commandement bloquèrent les forces dirigées par Cornwallis jusqu’à ce que d’autres forces américaines et françaises puissent se positionner pour le siège décisif de Yorktown. (Source : Wikipédia)[↩](#a1)
 
 2. <large id="f2"> Ce fut la première guerre mondiale.[↩](#a2)
+
+3. <large id="f3"> L’ensemble des messages relatifs à la première guerre mondiale sont disponibles par l’intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a3)

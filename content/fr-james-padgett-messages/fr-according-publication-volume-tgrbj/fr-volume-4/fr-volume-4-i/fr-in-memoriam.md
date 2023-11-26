@@ -9,7 +9,7 @@ weight:
 ---
 ### En mémoire
 
-C’est avec le plus sincère regret et le plus grand chagrin que nous, les Administrateurs, annonçons que le Dr Leslie Rippon Stone, notre bien-aimé Président de la Fondation de l’Église de la Nouvelle Naissance, est passé au monde spirituel le 6 janvier 1967, les écrits ci-inclus étant en cours de validation. Certainement, il est maintenant avec son âme sœur, Mary Kennedy, et avec sa famille, parents et amis, afin de vivre dans le bonheur et l’amour, dans les demeures du Seigneur pour toujours, Amen.
+C’est avec le plus sincère regret et le plus grand chagrin que nous, les Administrateurs, annonçons que le Dr Leslie Rippon Stone, notre bien-aimé Président de la Fondation de l’Église de la Nouvelle Naissance, est passé au monde spirituel le 6 Janvier 1967, les écrits ci-inclus étant en cours de validation. Certainement, il est maintenant avec son âme sœur, Mary Kennedy, et avec sa famille, parents et amis, afin de vivre dans le bonheur et l’amour, dans les demeures du Seigneur pour toujours, Amen.
 
 Le Dr Stone est décédé à l’âge de 90 ans, à Washington, D.C., sa demeure depuis plus de 50 ans et qu’il aimait comme son pays natal. Ce fut un homme d’un grand courage et de grandes convictions, qui croyait implicitement dans la vérité des écrits de Jésus et des Esprits Célestes, dans les visites au Monde des Esprits dont il a parlé dans le passé, et dans l’Amour Divin que lui et son âme sœur, Mary Kennedy, éprouvaient l’un pour l’autre, l’un dans la vie mortelle, l’autre comme Esprit Céleste.
 

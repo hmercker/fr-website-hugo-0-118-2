@@ -1,0 +1,28 @@
+---
+title: "Continuez à faire ressortir la Vérité"
+menu_title: ""
+description: "Continuez à faire ressortir la Vérité"
+date: 2023-09-01 06:00:01+00:23
+draft: False
+hidden: True
+weight:
+---
+### Continuez à faire ressortir la Vérité
+
+André - reçu par Al Fike le 24 Mars 2022, Gibsons, Colombie-Britannique, Canada.
+
+Que le grand don de l’Amour de Dieu soit avec vous, mes amis bien-aimés. Je suis André. Je viens une fois de plus vous rejoindre dans la prière, pour être dans cette Lumière donnée par Dieu à chacun de nous alors que Dieu nous rassemble dans les lumières unifiées de Sa Main sur nous. Ses bénédictions sur nos âmes continuent de nous remplir et de nous transformer. Nous nous réunissons donc de partout dans le monde, reconnaissant que nous sommes frères et sœurs, enfants de Dieu. Le don de Sa Grâce, Son Toucher, peut en effet élever, peut en effet augmenter la lumière autour de nous et en nous, afin que tout ce qui est l’œuvre, la Volonté et les bénédictions de Dieu soient les nôtres aujourd’hui, âmes bien-aimées.
+
+Vous êtes forts. Vous avez fait le choix d’être ensemble dans la prière en raison de la lumière dans vos âmes et de votre acceptation du désir de votre âme d’être dans cette lumière, d’être avec Dieu et d’être ensemble avec Dieu. Vous êtes forts parce que vous avez choisi la lumière. Vous mettez de côté toutes vos préoccupations quotidiennes, toutes les attirances du monde, pour vous entraîner dans des directions qui ne sont pas en adéquation avec cet effort. Au lieu de cela, vous avez choisi d’être ensemble dans la lumière, de marcher dans la lumière, d’être ouverts au Toucher de Dieu sur vous. Ainsi le Toucher de Dieu arrive, âmes bien-aimées, et ainsi la transformation de vos âmes continue et vous apportera les éveils, les idées, la joie et l’expérience d’être proche de Dieu. À mesure que vous continuez à expérimenter ces bénédictions et que la puissance de Son Toucher sur vous s’intensifie, à mesure que vous êtes cohérent avec vos efforts et reconnaissez le désir profond de votre âme, vous devenez également une lumière, un canal pour les autres. Ceux que vous aimez, ceux qui sont connectés avec vous dans votre vie bénéficient de vos prières, de votre lumière, de votre engagement et de votre insistance sur la vérité qui est l’Amour de Dieu pour vous et pour tous.
+
+Puissiez-vous continuer à faire passer ce message, âmes bien-aimées, continuer à apporter la vérité. Non seulement en mots, mais par votre visage, votre lumière, votre amour, votre expression dans le monde, votre belle âme qui brille, étant un phare de lumière dans le monde, apportant le message d’amour à tous ceux que vous rencontrez. Le monde est changé par ceux qui portent la lumière. Le monde sera changé à mesure que ceux qui portent la lumière continueront d’être changés, élevés et transformés par le grand don de l’Amour de Dieu.
+
+Ne pouvez-vous pas ressentir le changement en vous, âmes bien-aimées ? Ne reconnaissez-vous pas que vous êtes différent, que vous portez une vérité en vous et que vous exprimez cette vérité dans votre vie. À moins que vous ne soyez différent des autres, le message que vous portez vient avec la lumière intérieure. La beauté de votre âme signale à toutes les âmes autour de vous que la grâce de Dieu vit en vous et est disponible pour tous ceux qui le désirent, mes amis bien-aimés.
+
+C’est une belle œuvre que vous portez avec vous. La vérité résonne avec votre être et votre présence. L’amour coule autour de vous et à travers vous. La lumière pénètre dans les ténèbres à mesure que vous continuez à grandir dans la lumière, donc cette pénétration grandit également et vous apportez un soulagement à ceux qui souffrent. Vous apportez la lumière à ceux qui sont entourés par les ténèbres. Vous apportez la paix à ceux qui sont en difficulté et le réconfort à ceux qui sont en détresse, et dans de nombreux cas, vous n’en êtes pas conscients, mes bien-aimés et beaux amis, du travail que vous accomplissez en tant qu’émissaires de lumière et d’amour de Dieu. Pourtant, en effet, vous marchez avec la lumière, vous êtes la lumière et vous serez une lumière plus grande à chaque souffle et pas dans la prière. Vous apportez la lumière.
+
+En effet, le travail continue. Chacun de vous sera appelé à sa manière à faire avancer la lumière dans le monde. Chacun de vous a un but et une destinée pour apporter cette vérité au monde. Puissiez-vous trouver les voies, le plan, le flux et le déploiement de votre objectif, de votre bel être, resplendissant de dons et de capacités qui continuent de grandir dans l’amour. Dieu a besoin de chacun de vous, âmes bien-aimées. Dieu a besoin de tous ceux qui sont prêts à avancer et à éclairer, à être une lumière, à apporter la vérité et l’amour au monde.
+
+Que ses bénédictions d’Amour continuent de se déverser dans votre âme et de vous envelopper de Lumière. Que sa grâce élimine toutes les barrières et difficultés de votre vie. Avec cette grâce, guérison de vos corps et de votre esprit, guérison de votre âme et de votre esprit, éveil de tout ce qui est vous et de tout ce que Dieu a créé et signifie pour vous d’être et de s’exprimer dans toute sa beauté, tout son émerveillement. Vous êtes aimés, âmes bien-aimées. L’humanité toute entière est aimée.
+
+Puissiez-vous connaître et ressentir cet amour, être élevé par cet amour. Que toute la sagesse et la vérité qui accompagnent l’afflux de cet amour dans vos âmes vous éveillent, chacune de vos parties, et vous apportent une grande harmonie, âmes bien-aimées. Que Dieu vous bénisse dans votre voyage vers l’union avec le Créateur. Vous êtes aimé et vous êtes béni. Que Dieu vous bénisse. Je m’appelle André et je vous aime. Que Dieu vous bénisse, âmes bien-aimées.

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Mary Kennedy parle, dans un message précédent, de son grand amour pour son âme sœur, Leslie
+### Mary Kennedy parle, dans un message précédent, de son grand amour pour son âme-sœur, Leslie
 
 Mary Kennedy - reçu par James Padgett, Washington, USA.
 
@@ -34,7 +34,7 @@ Il est mon vrai garçon, et lorsque je pense à la grande béatitude qui sera la
 
 Vous aussi, vous avez la chance d’avoir une si belle âme-sœur pure, et comme je l’aime, et je souhaite seulement que vous puissiez la voir maintenant ! Elle est là, elle vous aime et elle sourit, et elle dit qu’elle me remercie de vous l’avoir dit, mais elle suppose qu’elle devra faire son propre amour.
 
-Alors, mon cher ami, dis-lui de m’aimer de tout son cœur et de toute son âme, et de penser souvent à son propre et véritable amour, Mary. <sup id="a1">[1](#f1)</sup>
+Alors, mon cher ami, dis-lui de m’aimer de tout son cœur et de toute son âme, et de penser souvent à son propre et véritable amour, Mary.<sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id="f1"> Bien que je sois en possession de toute la correspondance du Dr Leslie Stone, je n’ai jamais trouvé toutes les lettres d’amour qu’il a écrit chaque nuit à Mary. (J.P.G.)[↩](#a1)
+1. <large id="f1"> Bien que je sois en possession de toute la correspondance du Dr Leslie Stone, je n’ai jamais trouvé toutes les lettres d’amour qu’il a écrit chaque nuit à Mary. (John Paul Gibsons)[↩](#a1)

@@ -17,7 +17,7 @@ Vous êtes mon ami et mon disciple. Vous êtes en moi et je suis en vous, et nou
 
 Mon royaume n’est pas de ce monde et vous n’êtes pas de celui-ci. Vous êtes en moi, comme je l’ai dit à mes disciples d’autrefois. Croyez-moi seulement et gardez mes commandements, et je vous aimerai jusqu’à la fin, et le Père vous aimera.
 
-*[Question]*
+*[Question :]*
 
 Je veux dire que vous devez aimer tous les hommes et essayer de leur montrer le chemin vers l’Amour de Dieu.
 

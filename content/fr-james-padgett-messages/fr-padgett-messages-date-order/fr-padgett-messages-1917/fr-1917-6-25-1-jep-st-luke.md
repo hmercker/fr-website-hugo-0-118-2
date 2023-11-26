@@ -29,4 +29,4 @@ Je n’écrirai pas plus ce soir, mais avec mon amour, je vous conseille à tous
 
 Votre frère dans le Christ, Luc.
 
-*Prière : « Afin que tous soient un, comme toi, Père, tu es en moi, et comme je suis en toi, afin qu’eux aussi soient un en nous, pour que le monde croie que tu m’as envoyé » (Jean 17:21)*
+*Prière : « Afin que tous soient un, comme toi, Père, tu es en moi, et comme je suis en toi, afin qu’eux aussi soient un en nous, pour que le monde croie que tu m’as envoyé. » [Jean 17:21](https://saintebible.com/john/17-21.htm)*

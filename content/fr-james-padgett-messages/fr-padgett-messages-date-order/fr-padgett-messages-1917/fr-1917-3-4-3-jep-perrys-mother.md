@@ -21,7 +21,7 @@ N’oubliez pas de prier, tous les deux, pour mon fils, car nous savons tous que
 
 Bonne nuit.
 
-La mère de Perry.185
+La mère de Perry.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le Volume III et dans le Volume IV.[↩](#a1)
+1. <large id="f1"> Ce message est publié dans le Volume III page 497 et dans le Volume IV page 449. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

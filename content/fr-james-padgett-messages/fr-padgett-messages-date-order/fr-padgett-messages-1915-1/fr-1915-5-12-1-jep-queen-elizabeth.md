@@ -13,7 +13,7 @@ Reine Elizabeth1 - reçu par James Padgett le 12 Mai 1915, Washington, USA.
 
 C’est moi, la Reine Elizabeth I d’Angleterre.
 
-Je suis venu ici plusieurs fois mais je n’ai jamais pu avoir la chance de vous écrire, mais maintenant que je l’ai, ne décevez pas mon espoir et aidez moi.
+Je suis venu ici plusieurs fois mais je n’ai jamais pu avoir la chance de vous écrire, mais maintenant que je l’ai, ne ME décevez et aidez moi.
 
 Eh bien, j’ai été une femme très mauvaise sur terre comme je vois maintenant la vraie réalité des choses et des faits et je souffre de la mémoire de ces faits.
 

@@ -38,4 +38,4 @@ Oui, je prierai avec vous et j’espère que vous laisserez tous les désirs de 
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> Nous pouvons en déduire qu’une quantité considérable de matériel planifié n’a jamais été reçue par James Padgett. Maintenant que cent ans se sont écoulés, il y a bien sûr eu un volume considérable de messages reçus depuis James Padgett, en particulier au cours des 15 dernières années.[↩](#a1)
+1. <large id="f1"> Nous pouvons en déduire qu’une quantité considérable de matériel planifié n’a jamais été reçue par James Padgett. Maintenant que cent ans se sont écoulés, il y a bien sûr eu un volume considérable de messages reçus depuis James Padgett, en particulier au cours des 40 dernières années.[↩](#a1)

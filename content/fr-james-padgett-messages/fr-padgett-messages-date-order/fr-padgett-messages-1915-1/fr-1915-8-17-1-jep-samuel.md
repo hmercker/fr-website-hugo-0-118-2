@@ -13,7 +13,7 @@ Samuel - reçu par James Padgett le 17 Août 1915, Washington, USA.
 
 C’est moi Samuel, le Prophète.
 
-Je suis le prophète qui vous a déjà écrit. Cette nuit, je veux vous parler des merveilleuses choses que Dieu a préparées pour ses enfants rachetés dans les Sphères Célestes, où seuls ceux qui ont reçu la Nouvelle Naissance peuvent entrer.
+Je suis le prophète [qui vous a déjà écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-21-2-jep-samuel/). Cette nuit, je veux vous parler des merveilleuses choses que Dieu a préparées pour ses enfants rachetés dans les Sphères Célestes, où seuls ceux qui ont reçu la Nouvelle Naissance peuvent entrer.
 
 Dans ces sphères se trouvent des habitations faites des plus beaux matériaux que l’on puisse imaginer, et qui ont un caractère réel et permanent, et qui ne sont pas sujettes à la décomposition ou à la détérioration d’aucune sorte, qui ne sont pas construites manuellement, mais par le développement de l’âme, et l’amour que chaque esprit possède.
 
@@ -31,7 +31,7 @@ Je suis dans ces cieux depuis de nombreuses années, et je sais de quoi je parle
 
 Eh bien, en ce qui concerne nos plaisirs sociaux, nous sommes tellement attentionnés et aimants, l’un envers l’autre, que rien ne surgit, comme sur la terre, pour provoquer le moindre trouble dans notre magnifique harmonie. Nous nous visitons les uns les autres et partageons nos expériences de la vie de cœur que nous menons, nous avons une vie musicale, et nous échangeons nos pensées sur notre progrès continu et notre travail dans le monde spirituel. Tout esprit dans notre sphère peut visiter tout autre esprit, et savoir que la porte est toujours ouverte et qu’un accueil chaleureux l’attend.
 
-Je ne peux pas pleinement parler de toutes ces merveilles parce qu’il n’y a pas de mots qui puissent transmettre notre pensée. Votre capacité à comprendre est entravée par vos limites mentales et, par conséquent, je suis désavantagé. Cependant je peux vous dire, c’est qu’un jour, si vous avez suffisamment d’Amour Divin dans votre âme, vous verrez et comprendrez, par vous-mêmes, ce que Dieu a en réserve pour vous. Il a été dit en vérité : *« Qu’aucun œil n’a vu, et qu’aucun esprit n’a conçu, les choses merveilleuses qui attendent le véritable enfant du Père »* (1 Corinthiens 2-9).
+Je ne peux pas pleinement parler de toutes ces merveilles parce qu’il n’y a pas de mots qui puissent transmettre notre pensée. Votre capacité à comprendre est entravée par vos limites mentales et, par conséquent, je suis désavantagé. Cependant je peux vous dire, c’est qu’un jour, si vous avez suffisamment d’Amour Divin dans votre âme, vous verrez et comprendrez, par vous-mêmes, ce que Dieu a en réserve pour vous. Il a été dit en vérité : *« Qu’aucun œil n’a vu, et qu’aucun esprit n’a conçu, les choses merveilleuses qui attendent le véritable enfant du Père »* [1 Corinthiens 2-9](https://saintebible.com/1_corinthians/2-9.htm).
 
 Non, il n’y a pas de rues pavées d’or ou de murs de jaspe, ni aucune de ces choses matérielles que Jean a utilisées dans son Apocalypse pour décrire la Cité de Dieu. Elles ont été simplement utilisés comme symboles, mais elles n’exprimaient pas les merveilles de nos maisons.
 

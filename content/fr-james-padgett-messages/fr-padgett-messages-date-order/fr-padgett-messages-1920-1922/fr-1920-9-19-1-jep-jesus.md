@@ -9,7 +9,7 @@ weight:
 ---
 ### Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits
 
-Jésus - reçu par James Padgett le 19 Septembre 1920, Washington, USA.
+Jésus - reçu par James Padgett le 19 Septembre 1920, Washington, USA. <sup id="a1">[1](#f1)</sup>
 
 C’est moi, Jésus. Permettez-moi de dire quelques mots, ce soir, alors que je remarque que vous avez été déçu par le sermon que le prédicateur a prononcé ce soir.
 
@@ -23,21 +23,21 @@ Cela fait un certain temps que je ne vous ai pas écrit au sujet de ces vérité
 
 Je suis heureux que vous ayez davantage pensé à ces choses au cours de ces derniers jours, et j’espère que vos pensées se prolongeront et que vos aspirations couleront davantage vers le Père. Vous ne pouvez pas maintenant apprécier la nécessité de cette condition, et si vous le pouviez, je sais que vous consacreriez toutes vos pensées, vos désirs et votre énergie à l’accomplissement de l’œuvre.
 
-Eh bien, je n’écrirai pas plus ce soir, mais je serai avec vous, je prierai avec vous et j’essaierai de vous influencer dans vos efforts pour accomplir la mission qui vous a été donnée. Ayez plus de foi et croyez que vous réussirez et que vous ne serez pas déçus.
+Eh bien, je n’écrirai pas plus ce soir, mais je serai avec vous, je prierai avec vous et j’essaierai de vous influencer dans vos efforts pour accomplir la mission qui vous a été donnée. Ayez plus de foi et croyez que vous réussirez et que vous ne serez pas déçus.<sup id=”a2”>[2](#f2)</sup>
 
 Votre frère et ami, Jésus.
 
-*Note 1: C’est, selon la Tablette, l’avant-dernier message reçu par James Padgett de Jésus. En fait il y a eu 5 autres messages. Le dernier message connu à ce jour date du 17 Avril 1922.*
+**Note :** Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :
 
-*Note 2 : Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Conseis donnés par Jésus sur la participation au service religieux](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-2-jep-jesus/) | 29 Août 1915
+Jésus | [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/) | 28 Décembre 1915
+Jésus | [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/)  | 16 Mai 1916
+Jésus | [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/) | 09 Juillet 1917
+Jésus | [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/) | 06 Janvier 1918
+<small>
 
-•	29 Août 1915 : [Conseils donnés par Jésus sur la participation au service religieux, Jésus était présent avec M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915/fr-1915-8-29-2-jep-jesus/).
+1. <large id="f1"> C’est, selon [la Tablette (journal quotidien de James Padgett)](https://new-birth.net/padgetts-messages/the-padgett-tablet-or-index/), l’avant-dernier message reçu par James Padgett de Jésus. En fait il y a eu 5 autres messages. Le dernier message connu à ce jour date du 17 Avril 1922.[↩](#a1)
 
-•	28 Décembre 1915 : [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/).
-
-•	16 Mai 1916 : [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/).
-
-•	09 Juillet 1917 : [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/).
-
-•	06 Janvier 1918 : [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/).
-
+2. <large id="f2"> Ce message est également publié dans le volume III à la page 113 et dans le volume IV à la page189. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a2)

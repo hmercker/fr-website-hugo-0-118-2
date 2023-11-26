@@ -21,13 +21,13 @@ Ses sœurs sont ici, lui envoient aussi leur amour et veulent qu’il sache qu�
 
 Alors que nous ressentons tous le grand désir de progression spirituelle qui fait défaut à notre frère, qu’il n’est pas très heureux et que ses actes tendent à le détourner des voies qui le rendraient heureux et plus en accord avec la volonté du Père, il souffre vraiment parfois à cause de sa condition spirituelle. Pourtant, nous ne sommes pas vraiment malheureuses, parce que nous savons que ce n’est que temporaire et que, tôt ou tard, nos prières et notre influence auront leur effet, qu’il réalisera qu’il y a quelque chose de plus important, pour la vie et la mort, que les simples choses matérielles de la terre.
 
-Eh bien, je ne sais pas si je dois écrire plus ce soir, d’autant plus qu’il y a une fille <sup id="a1">[1](#f1)</sup> ici qui est très impatiente d’écrire, et qui est presque égoïste dans son désir de lui dire, à Leslie, comme elle l’appelle, qu’elle l’aime de plus en plus.
+Eh bien, je ne sais pas si je dois écrire plus ce soir, d’autant plus qu’il y a une petite fille <sup id="a1">[1](#f1)</sup> ici qui est très impatiente d’écrire, et qui est presque égoïste dans son désir de lui dire, à Leslie, comme elle l’appelle, qu’elle l’aime de plus en plus.
 
 Alors, je vous remercie et je vous souhaite une bonne nuit.
 
 Avec tout mon amour pour mon fils, et grâce à vous, je dirai je suis sa mère.
 
-La petite fille dont il est question est mon âme sœur, Mary Kennedy, qui va maintenant écrire :
+*La petite fille dont il est question est mon âme-sœur, Mary Kennedy, qui va maintenant écrire :*
 
 Je ne suis pas égoïste comme ma belle-mère le dit. Vous savez à quel point la belle-mère a une terrible réputation d’interférence dans la relation entre la belle-fille et le fils qui pense plus à sa femme qu’à sa mère. Mais ce n’est pas le cas en l’occurrence, car sa mère m’aime autant qu’elle l’aime, et elle est heureuse lorsque je peux venir à lui et lui dire combien je l’aime.
 

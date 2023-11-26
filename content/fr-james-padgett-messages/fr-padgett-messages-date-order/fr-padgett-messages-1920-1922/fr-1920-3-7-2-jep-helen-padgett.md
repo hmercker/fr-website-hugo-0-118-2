@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 07 Mars 1920, Washington, USA.
 
 C’est moi, ta vraie et bien-aimée Hélène.
 
-Eh bien, mon cher, je suis heureux que le Maître t’ait écrit ce soir comme il l’a fait car je dois te dire qu’il était très sérieux dans ces propos et j’espère que tu y penseras et essayeras d’améliorer ta condition comme il te la suggéré.
+Eh bien, mon cher, je suis heureux que [le Maître t’ait écrit ce soir](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-3-7-1-jep-jesus/) comme il l’a fait car je dois te dire qu’il était très sérieux dans ces propos et j’espère que tu y penseras et essayeras d’améliorer ta condition comme il te la suggéré.
 
 Il est si désireux de te révéler la vérité qu’il connaît et sait qu’elle servira le bien de l’humanité.
 

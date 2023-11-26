@@ -34,6 +34,16 @@ Ce fut un temps de douleurs, amer, mais la loi avait imposé sa peine, et nous n
 Quand Amon et moi avons été créés, il n’y avait pas d’autres êtres humains qui vivaient sur terre, et aucun n’est venu y vivre, jusqu’à ce que nous ayons des fils et des filles qui se sont mariés et ont produit d’autres fils et filles. Je ne peux pas vous dire à quand remonte notre création, mais ce fut plusieurs milliers d’années avant la venue de Jésus. Je n’écrirai plus cette nuit, mais je reviendrai, [un jour ou l’autre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/), vous écrire.
 
 Votre frère en Christ, Aman.
+
+**Note :** Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/) :
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/)| 30 Août 1915
+Jean | [Affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/)| 30 Août 1915
+Aman | [Aman apporte une correction](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/)| 07 Septembre 1915
+Jésus | [La relation de l’homme à la création du monde et l’origine de la vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 janvier 1916
+Luc | [Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/) | 22 Juillet 1917
 <small>
 
 1. <large id="f1"> Une explication détaillée a été donnée [par l’intermédiaire d’un autre médium en 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-3-fab-aman/).[↩](#a1)

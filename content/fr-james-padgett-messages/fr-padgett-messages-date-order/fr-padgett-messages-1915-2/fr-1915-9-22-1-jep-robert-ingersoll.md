@@ -15,7 +15,7 @@ Je suis Robert G. Ingersoll.
 
 Je reviens vers vous parce que je désire vous remercier et vous dire le grand bien que vous m’avez fait en me présentant aux beaux esprits qui forment votre groupe. Bien sûr, je connaissais Riddle <sup id="a1">[1](#f1)</sup>, mais je dois avouer qu’il était si beau et si brillant que je l’ai à peine reconnu. Je me suis émerveillé de son apparence car il était très différent de moi et de celui d’un certain nombre d’autres esprits qui sont ici avec moi et qui sont mes amis.
 
-Comme je l’ai déjà dit, Riddle, sur terre, était un homme qui pensait un peu comme moi, et je n’avais jamais entendu parler de sa conversion au Christianisme ; et par conséquent, lorsque je l’ai rencontré ici, j’ai été impressionné par son apparence, car elle était la même que celle d’un grand nombre d’esprits que j’ai rencontrés ici et qui se disent Chrétiens. Et lorsque Riddle m’a expliqué la cause de son apparence, j’ai été encore plus surpris, car je ne pensais pas qu’il se laisserait convaincre qu’il y avait une quelconque vérité dans les doctrines Chrétiennes. Cependant, après lui avoir parlé, j’ai découvert qu’il ne croyait pas aux doctrines Chrétiennes telles qu’elles sont enseignées par les églises sur terre, mais plutôt dans les enseignements de Jésus, que Riddle a appris depuis qu’il est devenu un esprit.
+Comme je l’ai déjà dit, [Riddle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-24-2-jep-ag-riddle/), sur terre, était un homme qui pensait un peu comme moi, et je n’avais jamais entendu parler de sa conversion au Christianisme ; et par conséquent, lorsque je l’ai rencontré ici, j’ai été impressionné par son apparence, car elle était la même que celle d’un grand nombre d’esprits que j’ai rencontrés ici et qui se disent Chrétiens. Et lorsque Riddle m’a expliqué la cause de son apparence, j’ai été encore plus surpris, car je ne pensais pas qu’il se laisserait convaincre qu’il y avait une quelconque vérité dans les doctrines Chrétiennes. Cependant, après lui avoir parlé, j’ai découvert qu’il ne croyait pas aux doctrines Chrétiennes telles qu’elles sont enseignées par les églises sur terre, mais plutôt dans les enseignements de Jésus, que Riddle a appris depuis qu’il est devenu un esprit.
 
 J’ai également parlé à votre grand-mère – et quel bel esprit, sage et puissant elle est. Elle m’a expliqué la signification de la Nouvelle Naissance telle qu’elle a été enseignée par Jésus et à laquelle tous ses disciples ont cru, et je dois avouer qu’elle semble être très raisonnable et simple de compréhension.
 
@@ -41,4 +41,3 @@ Votre ami, Robert G. Ingersoll.
 <small>
 
 1. <large id="f1"> M. A. G. Riddle fut, à un moment donné, un associé de M. Padgett. (J.P.G.)[↩](#a1)
- 

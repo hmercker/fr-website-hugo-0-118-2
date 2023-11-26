@@ -23,4 +23,4 @@ Eh bien, c’est le cas, je dois consacrer une partie de mon temps à te parler 
 
 Oui, Jésus était avec toi au service du matin et il t’écrira peut-être à ce sujet, mais je n’en suis pas certaine. Son amour était avec toi cependant, et il semble vouloir être avec toi, lorsqu’il n’est pas ailleurs. Il t’aime et prend soin de toi.
 
-Ta propre vraie et bien-aimée, Hélène.
+Ta vraie et bien-aimée, Hélène.

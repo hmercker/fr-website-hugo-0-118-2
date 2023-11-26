@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les âmes sœurs ont versé des larmes de joie en apprenant que M. Padgett, le Dr Stone et M. Morgan étaient favorisés par Jésus
+### Les âmes-sœurs ont versé des larmes de joie en apprenant que M. Padgett, le Dr Stone et M. Morgan étaient favorisés par Jésus
 
 Mary Kennedy - reçu par James Padgett le 23 Mars 1916, Washington, USA.
 
@@ -22,7 +22,7 @@ Si seulement je pouvais lui écrire comme votre bien-aimée vous écrit, cela ne
 
 Il se développe aussi dans son âme et j’en suis heureuse. Je dois lui dire quel festin d’amour nous avons eu hier soir. Je veux dire Hélène, Clara et moi.
 
-Lorsque nous avons entendu Jésus dire que M. Morgan avait été choisi par Jésus et qu’il recevrait le grand Amour du Père, et sachant que vous et mon bien-aimé aviez déjà été choisis, nous nous sommes juste serrées dans nos bras et nous avons versé des larmes de joie. Nous qui savons quel merveilleux esprit le Maître est et surtout qui avons vu la grande manifestation de sa gloire, nous avons pensé à la chance que nous avions d’avoir des âmes sœurs qui avaient été si favorisées par Jésus et le Père.
+[Lorsque nous avons entendu Jésus dire que M. Morgan avait été choisi par Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-22-1-jep-jesus/) et qu’il recevrait le grand Amour du Père, et sachant que vous et mon bien-aimé aviez déjà été choisis, nous nous sommes juste serrées dans nos bras et nous avons versé des larmes de joie. Nous qui savons quel merveilleux esprit le Maître est et surtout qui avons vu la grande manifestation de sa gloire, nous avons pensé à la chance que nous avions d’avoir des âmes sœurs qui avaient été si favorisées par Jésus et le Père.
 
 Vous ne pouvez pas apprécier ce que cela signifie pour nous car vous ne connaissez pas les conditions ici et quelle puissance et quel Amour existe, non seulement dans les Cieux Célestes, mais dans les cieux spirituels.
 

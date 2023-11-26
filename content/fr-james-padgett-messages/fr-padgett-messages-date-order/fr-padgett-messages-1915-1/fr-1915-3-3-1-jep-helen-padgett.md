@@ -13,7 +13,7 @@ Hélène Padgett - reçu par James Padgett le 3 Mars 1915, Washington, USA.
 
 C’est moi, Hélène.
 
-N’était-ce pas là un merveilleux message du Maître ? Il était tellement rempli d’éléments qui devraient faire réfléchir et travailler les hommes pour obtenir cet Amour Divin dont il parlait.
+[N’était-ce pas là un merveilleux message du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) ? Il était tellement rempli d’éléments qui devraient faire réfléchir et travailler les hommes pour obtenir cet Amour Divin dont il parlait.
 
 Je suis heureuse de dire que je l’ai maintenant à un degré considérable, et plus j’en reçois, plus je suis heureuse. Je pensais être heureuse lorsque je suis entrée dans la troisième sphère et plus encore dans la cinquième, puis suprêmement dans la septième, mais, vraiment, je ne savais pas ce qu’était le bonheur jusqu’à je sois entrée dans les Cieux Célestes. Et je suppose qu’alors que je progresserai, le bonheur de chaque sphère vers laquelle je progresserai sera beaucoup plus grand que celui que j’avais dans la sphère précédente.
 

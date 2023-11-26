@@ -30,6 +30,6 @@ Bien cordialement,
 James E. Padgett.
 <small>
 
-1. <large id="f1"> Un nombre plus élevé de messages fut reçu de la part de Jésus jusqu’à l’année 1923 (Dr S.). Cette note peut conduire en erreurs car le nombre de messages communiqués par Jésus est d’environ 240, mais, au total, environ 2500 messages furent communiqués (G.J.C).[↩](#a1)
+1. <large id="f1"> Un nombre plus élevé de messages fut reçu de la part de Jésus jusqu’à l’année 1923 (Dr S.). Cette note peut conduire en erreurs car le nombre de messages communiqués par Jésus est d’environ 240, mais, au total, environ 2500 messages furent communiqués (Geoff Cutler).[↩](#a1)
 
-2. <large id="f2"> M . P. pensait, comme le font beaucoup d’orthodoxes, que Jésus était la seconde personne de la Trinité. C’était avant que Jésus ne lui écrive et lui dise : « Que ceux qui l’adorent comme Dieu commettent un blasphème » (Dr. S.). Voir Volume 1 page 288 (G.J.C).[↩](#a2)
+2. <large id="f2"> M. Padgett pensait, comme le font beaucoup de Chrétiens orthodoxes, que Jésus était la seconde personne de la Trinité. C’était avant que Jésus ne lui écrive et lui dise : [« Que ceux qui l’adorent comme Dieu commettent un blasphème. »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-24-1-jep-jesus/) ou [« Le culte de moi en tant que Dieu est blasphématoire et je ne l’ai pas enseigné. »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/)(Dr. Stone)[↩](#a2)

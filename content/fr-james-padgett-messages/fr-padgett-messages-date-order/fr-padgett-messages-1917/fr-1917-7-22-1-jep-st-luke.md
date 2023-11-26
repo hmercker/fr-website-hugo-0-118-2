@@ -13,9 +13,9 @@ St Luc - reçu par James Padgett le 22 Juillet 1917, Washington, USA.
 
 C’est moi, St. Luc, qui fut l’auteur du troisième Évangile. Eh bien, je désire écrire quelques lignes sur le sujet figurant dans le livre que vous lisiez ce soir. Je veux dire le livre traitant de *« La création et la chute de l’homme. »*
 
-Eh bien, l’homme qui a écrit le livre essaye de réconcilier la doctrine de la création de la Bible et de la chute de l’homme avec la doctrine scientifique de l’évolution, et de montrer que ces deux vues sur le sujet ne sont pas antinomiques, mais, si correctement comprises, elles peuvent être utilisées, l’une en support de l’autre. Mais en cela il n’a pas réussi, et il ne le pouvait pas, pour la simple raison, qu’il n’y en avait aucune autre, que l’homme n’a pas évolué de la bête ou d’un animal inférieur, mais fut toujours l’homme, la créature de Dieu, parfaite dans sa création et complètement naturelle. <sup id="a1">[1](#f1)</sup>
+Eh bien, l’homme qui a écrit le livre essaye de réconcilier la doctrine de la création de la Bible et de la chute de l’homme avec la doctrine scientifique de l’évolution, et de montrer que ces deux vues sur le sujet ne sont pas antinomiques, mais, si correctement comprises, elles peuvent être utilisées, l’une en support de l’autre. Mais en cela il n’a pas réussi, et il ne le pouvait pas, pour la simple raison, qu’il n’y en avait aucune autre, que l’homme n’a pas évolué de la bête ou d’un animal inférieur, mais fut toujours l’homme, la créature de Dieu, parfaite dans sa création et complètement naturelle.
 
-Il n’y avait rien de surnaturel et il n’a jamais été un surhomme, statut duquel il serait tombé au moment de sa désobéissance. Il n’a jamais été quelque chose de plus ou de moins que la création parfaite de son Créateur, même s’il a dégénéré dans ses qualités et dans l’exercice de sa volonté.
+Il n’a jamais été un surhomme, statut duquel il serait tombé au moment de sa désobéissance. Il n’a jamais été quelque chose de plus ou de moins que la création parfaite de son Créateur, même s’il a dégénéré dans ses qualités et dans l’exercice de sa volonté.
 
 L’évolution ou la doctrine de l’évolution a ses limites, et son fondateur, ou ceux qui le suivent complètement ou de façon modifiée, ne peuvent pas lier cette doctrine à la chute de l’homme. Par conséquent, lorsqu’ils essayent de passer au delà de cette étape lorsque l’homme a semblé être très dégénéré et être un produit des ancêtres animaux, ils entrent dans le champ de la spéculation, et la connaissance cesse d’exister.
 
@@ -40,7 +40,13 @@ Non, l’homme n’a pas évolué des animaux plus bas, mais seulement de lui-m�
 Eh bien, j’ai assez écrit pour ce soir, mais ,comme j’étais avec vous aujourd’hui, alors que vous lisiez et découvriez les idées fausses de l’auteur du livre, ainsi que celles des scientifiques qu’il a cités, j’ai pensé qu’il était souhaitable de vous écrire ces quelques vérités incomplètes sur le sujet. Je reviendrai bientôt pour vous écrire. Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
 Votre frère en Christ, Luc.
-<small>
 
-1. <large id="f1"> Six messages ont été reçus sur le sujet de la création de l’espèce humaine. Les autres auteurs sont Aman, Aman, Amon, Jean, et Jésus. Ce sujet est complexe, et exposé dans une section séparée (le lien renvoie vers le site anglais des messages de James Padgett.) Cette section fera, ultérieurement, l’objet d’une traduction.[↩](#a1)
- 
+**Note :** Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/) :
+
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Aman | [Aman, le premier parent révèle sa tentation et sa chute](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/)| 29 Août 1915
+Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/)| 30 Août 1915
+Jean | [Affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/)| 30 Août 1915
+Aman | [Aman apporte une correction](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/) | 07 Septembre 1915
+Jésus | [La relation de l’homme à la création du monde et l’origine de la vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 Janvier 1916

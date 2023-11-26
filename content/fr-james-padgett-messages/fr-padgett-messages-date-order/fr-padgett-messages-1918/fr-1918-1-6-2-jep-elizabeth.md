@@ -23,6 +23,6 @@ J’ai pensé que je devais écrire ceci ce soir, car nous voyons votre conditio
 
 Votre sœur en Christ, Elizabeth.
 
-*[Question]*
+*[Question :]*
 
 Eh bien, cela fait si longtemps que je n’ai pas entendu ou utilisé ce nom qu’il était un peu difficile de s’en souvenir et de le formuler. Les noms sont des choses que nous oublions peu de temps après notre retour dans nos foyers célestes, à moins qu’il n’y ait une raison spéciale de se les rappeler.

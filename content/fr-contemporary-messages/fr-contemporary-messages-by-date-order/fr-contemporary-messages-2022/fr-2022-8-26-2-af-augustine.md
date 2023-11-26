@@ -1,0 +1,20 @@
+---
+title: "Voyage au puits"
+menu_title: ""
+description: "Voyage au puits"
+date: 2023-09-01 06:00:01+00:46
+draft: False
+hidden: True
+weight:
+---
+### Voyage au puits
+
+Augustin - reçu par Al Fike le 26 Août 2022, Gibsons, Colombie-Britannique, Canada.
+
+Soyez ouverts au monde des possibilités, âmes bien-aimées. Je suis votre enseignant, Augustin. Alors que vous grandissez dans l’Amour du Père et que vos âmes s’éveillent avec ce don, votre vision ne change-t-elle pas et votre perception des possibilités et des aspects de la vie ne change-t-elle pas avec elle ? Sachant qu’en vous, de nouvelles perceptions se développent et qu’en vous jaillit une joie, un sens de la grandeur des possibilités de la vie qui se manifestent au fur et à mesure que vous vous éveillez dans l’amour. Puissiez-vous vraiment vous éveiller dans l’amour, âmes bien-aimées, et être ouvertes à toutes les possibilités que Dieu met devant vous lorsqu’Il dissipe les voiles de vos yeux, lorsqu’Il ouvre la porte à vos perceptions, lorsqu’Il vous transmet la Vérité. Comment ne pas changer et grandir dans vos attitudes, vos perceptions et vos sentiments ? Car l’âme est alors dominante et puissante en vous, ce qui n’est pas courant dans votre monde.
+
+Être conduit par l’âme plutôt que par l’esprit est le don que Dieu vous a fait et le don que vous devez utiliser pour aider à apporter la vérité à vos frères et sœurs. C’est certainement une manière différente d’être et de percevoir. L’intuition de l’âme est puissante et pourtant ses subtilités vous échappent souvent lorsque vous passez des perceptions de votre âme aux perceptions de votre esprit. Je vous encourage cependant à continuer à faire confiance à ces perceptions de l’âme, à votre réalité de l’âme, car c’est la nouvelle façon d’être que Dieu veut que tous vos frères et sœurs adoptent et portent dans un nouveau monde, où la volonté et l’intellect des hommes ne domineront pas et ne détermineront pas l’avenir de l’humanité. Ce seront plutôt les subtilités de l’amour et la sagesse de l’âme en alignement avec Dieu qui guideront l’humanité vers l’avant.
+
+Vous êtes les précurseurs de cette perception et de cette compréhension. Vous êtes Ses enfants, choisis parce que vous avez choisi. Vous avez décidé de marcher sur la route de l’amour et de la vérité, alors Dieu suscite votre désir et votre ouverture à Sa Volonté afin que vous puissiez effectivement marcher plus subtilement sur le Chemin Divin. Pour que vous puissiez être Ses instruments, des canaux d’amour. Afin que vous puissiez être utilisés pour établir de grandes bénédictions sur le plan terrestre, des bénédictions de portails, de treillis, de canaux d’amour, de lumière et de vérité. Ces choses viennent facilement au fur et à mesure que vous grandissez dans l’Amour du Père. Puissiez-vous en venir à voir la puissance de Son Amour et à réaliser que chaque jour vous offre l’opportunité de recevoir davantage de ce don. Car ce n’est pas un don que vous avez à la naissance, c’est un don qui vous est offert lorsque vous demandez à Dieu de vous accorder cette bénédiction. Je vous exhorte à le faire fréquemment et intensément, car sans cela, vous ne pouvez pas recevoir ce don, mais grâce à lui et à votre respect des lois de l’amour, vous serez fortifiés, vous grandirez dans Son Amour et vous serez transformés en conséquence.
+
+Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans la vérité et l’émerveillement de Son Toucher sur votre âme. Je suis votre enseignant, Augustin. Je prie avec vous aujourd’hui et je reconnais les efforts de chacun de vous, désireux et tendus vers Dieu afin de recevoir Son grand don d’Amour. Continuez dans ce voyage, âmes bien-aimées, et sachez que moi et une foule d’anges sommes proches et continuons à vous soutenir dans ces efforts et dans votre voyage d’éveil et de développement en tant que canaux et instruments de vérité et d’Amour de Dieu. Que Dieu vous bénisse, âmes bien-aimées. Augustin vous aime tous et continuera d’être proche. Que Dieu vous bénisse.

@@ -15,11 +15,11 @@ C’est moi, Jésus.
 
 Eh bien, mon cher frère, le temps passe, et la nécessité de la révélation est très évidente, alors que les hommes sont dans la nostalgie et l’attente de celui qui saura satisfaire les envies naturelles de leur âme, et que la religion actuelle, appelée le Christianisme, ne peut pas satisfaire.
 
-Je suis heureux que vous êtes en meilleure forme, et que votre amour devient à nouveau éveillé et actif, qu’il agisse sur les qualités de votre cerveau afin qu’une relation puisse être établie, comme cela fut récemment expliqué par Jean dans son message <sup id="a1">[1](#f1)</sup>. Et ici j’ai envie de vous faire comprendre la nécessité et l’utilité de votre compréhension soigneuse des vérités énoncées dans ce message, de méditer sur ce dernier et de mettre personnellement en application ce qu’il y est écrit.
+Je suis heureux que vous êtes en meilleure forme, et que votre amour devient à nouveau éveillé et actif, qu’il agisse sur les qualités de votre cerveau afin qu’une relation puisse être établie, comme cela fut récemment expliqué par Jean dans son message **Note 1****. Et ici j’ai envie de vous faire comprendre la nécessité et l’utilité de votre compréhension soigneuse des vérités énoncées dans ce message, de méditer sur ce dernier et de mettre personnellement en application ce qu’il y est écrit.
 
 J’aurais beaucoup aimer pouvoir vous délivrer, ce soir, un message en relation avec la vérité spirituelle, mais je ne pense pas que votre condition puisse me permettre de prendre possession de votre cerveau et de le contrôler en rapport avec les qualités et les vérités de mon message, et je ne vais donc pas tenter d’écrire ce message. Au lieu de cela, je vous conseillerai quelque peu sur la façon selon laquelle vous devez penser et agir pour parfaire la condition que vous devez posséder afin que nous puissions établir une relation.
 
-Jean vous a demandé de prier souvent le Père afin que l’amour puisse devenir plus abondant et votre âme s’en imprégner, afin que vous puissiez avoir des pensées spirituelles, jusqu’à ce que, par cette pensée, votre cerveau puisse devenir, en quelque sorte, imprégné de ces pensées et ainsi recevoir ces qualités qui le mettront dans des conditions similaires aux conditions des esprits qui souhaiteraient former une union avec votre cerveau et transmettre, à travers lui, les vérités qui attendent d’être délivrées. Et je confirme ce que Jean a écrit et, en outre, je dis que votre prière doit être plus fréquente, afin que l’âme puisse être libérée de l’existence, en elle, de pensées non spirituelles. Vous ne devez pas attendre des occasions ou des opportunités pour formellement prier mais vous devez le faire tout au long de la journée et soirée et laissez vos désirs pour l’amour monter vers le Père. Une longue prière, ou même une formulée avec des mots, n’est pas nécessaire, car le désir n’est pas lié à la formulation de mots. Le désir peut être rapide comme la pensée informe et peut tout aussi bien être capté par le Père, si je peux le dire. Le désir est plus rapide que la pensée, et la réponse viendra avec autant de certitude et d’amour que si vous aviez formulé le désir dans la forme la plus exacte. Les prières de ce genre montent au Père, sont entendues et répondues et, par une loi de votre relation au Père, affecte, comme je l’ai dit, les qualités du cerveau de façon à le préparer à l’union avec les pensées spirituelles des esprits qui ont le désir d’écrire. Vos pensées pour les choses spirituelles ou les vérités du monde spirituel, comme elles vous ont déjà été révélées, et particulièrement celles qui se rapportent à l’amour, à la miséricorde du Père et à Sa volonté, dans leur adoption et fonctionnement, affectent également les qualités du cerveau pour établir la condition nécessaire à notre relation.
+[Jean vous a demandé](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/) de prier souvent le Père afin que l’amour puisse devenir plus abondant et votre âme s’en imprégner, afin que vous puissiez avoir des pensées spirituelles, jusqu’à ce que, par cette pensée, votre cerveau puisse devenir, en quelque sorte, imprégné de ces pensées et ainsi recevoir ces qualités qui le mettront dans des conditions similaires aux conditions des esprits qui souhaiteraient former une union avec votre cerveau et transmettre, à travers lui, les vérités qui attendent d’être délivrées. Et je confirme ce que Jean a écrit et, en outre, je dis que votre prière doit être plus fréquente, afin que l’âme puisse être libérée de l’existence, en elle, de pensées non spirituelles. Vous ne devez pas attendre des occasions ou des opportunités pour formellement prier mais vous devez le faire tout au long de la journée et soirée et laissez vos désirs pour l’amour monter vers le Père. Une longue prière, ou même une formulée avec des mots, n’est pas nécessaire, car le désir n’est pas lié à la formulation de mots. Le désir peut être rapide comme la pensée informe et peut tout aussi bien être capté par le Père, si je peux le dire. Le désir est plus rapide que la pensée, et la réponse viendra avec autant de certitude et d’amour que si vous aviez formulé le désir dans la forme la plus exacte. Les prières de ce genre montent au Père, sont entendues et répondues et, par une loi de votre relation au Père, affecte, comme je l’ai dit, les qualités du cerveau de façon à le préparer à l’union avec les pensées spirituelles des esprits qui ont le désir d’écrire. Vos pensées pour les choses spirituelles ou les vérités du monde spirituel, comme elles vous ont déjà été révélées, et particulièrement celles qui se rapportent à l’amour, à la miséricorde du Père et à Sa volonté, dans leur adoption et fonctionnement, affectent également les qualités du cerveau pour établir la condition nécessaire à notre relation.
 
 Cela peut vous surprendre que cette condition soit exigée du cerveau d’un être humain, tout comme le développement de l’âme qui produit vraiment la condition, afin qu’une relation puisse être établie pour permettre aux vérités spirituelles d’être délivrées. Vous êtes aussi surpris d’avoir été sélectionné parmi tous les hommes sur la terre au sein desquels cette condition et développement doivent se produire. Et c’est peut-être encore plus surprenant de savoir que cela est vrai.
 
@@ -39,31 +39,27 @@ Et je dirai encore que vous avez une association plus étroite avec les esprits 
 
 Eh bien, j’ai écrit un long message et vous êtes un peu fatigué. Souvenez-vous de mon conseil et priez souvent et avec sérieux, au moins pour un instant, et votre condition sera telle que nous viendrons et poursuivrons nos révélations.
 
-Avec mon amour et ma bénédiction, je suis, votre frère et ami, Jésus.
-<small>
+Avec mon amour et ma bénédiction, je suis, votre frère et ami, Jésus. **Note 2**
 
-1. <large id="f1"> Jésus se réfère ici à trois messages de Jean, tous sur le rapport et la communication. Ce sont : [Jean – Comment et quand Dieu répond à la prière. Lois de Rapport et Communication](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-2-1-jep-st-john/), [Jean – Lois du rapport, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/), [Jean – Lois de rapport et de communication, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/).[↩](#a1)
+**Note 1 :** Jésus se réfère ici à trois messages de Jean, tous sur le rapport et la communication :
 
-*Note 2 : Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Saint Jean | [Jean – Comment et quand Dieu répond à la prière. Lois de Rapport et Communication](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-2-1-jep-st-john/) | 2 Novembre 1917
+Saint Jean | [Jean – Lois du rapport, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/) | 4 janvier 16918
+Saint Jean | [Jean – Lois de rapport et de communication, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/) | 22 Octobre 1918
 
-•	24 Septembre 1914 : [Jésus n’est pas Dieu. Il est le chemin, la vérité et la vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/).
+**Note 2 :** Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :
 
-•	28 Septembre 1914 : [Ici, le Maître, lors de ses premiers messages, explique qui il était vraiment](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-28-1-jep-jesus/).
-
-•	24 janvier 1915 : [Jésus n'est pas Dieu et ne doit pas être adoré comme Dieu. Explique sa mission](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-24-1-jep-jesus/).
-
-•	31 janvier 1915 : [La nature de Dieu comme mon Dieu et votre Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-31-1-jep-jesus/).
-
-•	15 Juin 1915 : [Pourquoi les hommes doivent croire qu’il est le vrai Jésus et pourquoi il écrit à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-15-1-jep-jesus/).
-
-•	26 Septembre 1915 : [Le pouvoir merveilleux qui pourrait venir vers M. Padgett s’il avait seulement la Foi](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-26-2-jep-jesus/).
-
-•	02 Décembre 1915 : [Jésus dit que sa mission d’écriture de ces messages est sa seconde venue sur terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-1-jep-jesus/).
-
-•	14 Décembre 1915 : [Jésus a montré sa grande gloire et a donné son amour à M. Padgett](//fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-14-1-jep-jesus/).
-
-•	25 Décembre 1915 : [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/).
-
-•	06 Novembre 1917 : [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/).
-
-
+**Auteur** | **Titre du message** | **Date du message**
+---|---|---
+Jésus | [Jésus n’est pas Dieu. Il est le chemin, la vérité et la vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/) | 24 Septembre 1914
+Jésus |  [Ici, le Maître, lors de ses premiers messages, explique qui il était vraiment](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-28-1-jep-jesus/)| 28 Septembre 1914
+Jésus | [Jésus n'est pas Dieu et ne doit pas être adoré comme Dieu. Explique sa mission](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-24-1-jep-jesus/) | 24 janvier 1915
+Jésus | [La nature de Dieu comme mon Dieu et votre Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-31-1-jep-jesus/) | 31 janvier 1915
+Jésus | [Pourquoi les hommes doivent croire qu’il est le vrai Jésus et pourquoi il écrit à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-15-1-jep-jesus/) | 15 Juin 1915
+Jésus | [Le pouvoir merveilleux qui pourrait venir vers M. Padgett s’il avait seulement la Foi](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-26-2-jep-jesus/) | 26 Septembre 1915
+Jésus | [Jésus dit que sa mission d’écriture de ces messages est sa seconde venue sur terre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-1-jep-jesus/) | 02 Décembre 1915
+Jésus | [Jésus a montré sa grande gloire et a donné son amour à M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-14-1-jep-jesus/) | 14 Décembre 1915
+Jésus | [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
+Jésus | [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/) | 06 Novembre 1917

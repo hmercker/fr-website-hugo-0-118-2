@@ -39,7 +39,7 @@ Bien sûr, ces esprits peuvent aussi recevoir ce plus grand développement de l�
 
 Je sais qu’il peut être un peu difficile pour toi de comprendre cette question telle que j’ai essayé de l’expliquer, mais ce que j’ai dit est vrai. Au jour de la séparation, ces esprits se rendront compte de ce fait, mais il sera alors trop tard pour remédier à leur négligence ou manque du désir de l’âme pour le développement de l’âme. Celui-ci ne vient que par l’afflux de l’Amour Divin dans l’âme en abondance suffisante, et qui est nécessaire pour leur permettre de devenir des habitants du Royaume Céleste.
 
-*[Question]*
+*[Question :]*
 
 Eh bien, quand un esprit entre dans le monde des esprits, son état de développement mental, moral ou spirituel détermine où il doit d’abord vivre. Dans la grande majorité des cas, le premier foyer de l’esprit est le plan terrestre, lequel comporte un certain nombre de plans, respectivement plus hauts ou plus bas que les autres. Ainsi, lorsque l’esprit se trouve dans le plan terrestre, il découvre aussi que sa condition n’est pas très différente de ce qu’elle était sur terre. Les mêmes idées de bien et de mal, de croyances, d’affections et de désirs s’acquièrent.
 
@@ -65,17 +65,17 @@ Tous leurs désirs et toutes leurs aspirations sont subordonnés à leurs grands
 
 Comme je l’ai dit, au-delà de la sixième sphère, ces seuls chercheurs mentaux ou moraux ne peuvent progresser que s’ils cherchent l’Amour Divin, et dans cette sixième sphère le bonheur mental est atteint.
 
-La sixième sphère est une sphère plus prolifique de probation, dans le sens que beaucoup de ces esprits sont éveillés à la nécessité de rechercher ce développement de l’âme. En effet, alors que certains de ces esprits sont là depuis longtemps, ils commencent à réaliser cette limitation de leur bonheur mental. Et, aussi étrange que cela puisse te paraître, ils font souvent leur premier pas en invoquant les souvenirs de leur enfance, lorsqu’on leur enseignait et qu’ils croyaient que Dieu les aimait, et que Son Amour était la plus grande chose dans le monde. Ainsi tu vois ici illustré, d’une manière à laquelle tu n’as probablement jamais pensé, le dicton de Jésus disant que, *« Si vous ne devenez pas comme de petits enfants, vous ne pouvez en aucun cas entrer dans le Royaume des Cieux ».*
+La sixième sphère est une sphère plus prolifique de probation, dans le sens que beaucoup de ces esprits sont éveillés à la nécessité de rechercher ce développement de l’âme. En effet, alors que certains de ces esprits sont là depuis longtemps, ils commencent à réaliser cette limitation de leur bonheur mental. Et, aussi étrange que cela puisse te paraître, ils font souvent leur premier pas en invoquant les souvenirs de leur enfance, lorsqu’on leur enseignait et qu’ils croyaient que Dieu les aimait, et que Son Amour était la plus grande chose dans le monde. Ainsi tu vois ici illustré, d’une manière à laquelle tu n’as probablement jamais pensé, le dicton de Jésus disant que, *« Si vous ne devenez pas comme de petits enfants, vous ne pouvez en aucun cas entrer dans le Royaume des Cieux ».* ***[Matthieu 18:3](https://saintebible.com/matthew/18-3.htm)***
 
 Mais comme beaucoup de ces esprits n’ont aucun souvenir d’enfance de ce genre, l’œuvre des esprits supérieurs, qui ont été rachetés par ce Grand Amour du Père, devient disponible.
 
-Dans tout cela, tu vois comment Dieu reconnaît et respecte la volonté indépendante de sa créature. Il ne les force pas à chercher Son Amour, mais il attend qu’ils apprennent, par leur propre expérience, que ce qu’ils pensaient autrefois suffisant pour leur bonheur n’est pas suffisant. En se rendant compte de cette insuffisance, ils deviennent insatisfaits, et avec une telle insatisfaction vient le désir d’apprendre la grande inconnue du désir, qui, enfin, leur fait ressentir leur dépendance à une source de bonheur qui ne vient pas d’eux-mêmes.
+Dans tout cela, tu vois comment Dieu reconnaît et respecte la volonté indépendante de Ses créatures. Il ne les force pas à chercher Son Amour, mais il attend qu’elles apprennent, par leur propre expérience, que ce qu’elles pensaient autrefois suffisant pour leur bonheur n’est pas suffisant. En se rendant compte de cette insuffisance, elles deviennent insatisfaites, et avec une telle insatisfaction vient le désir d’apprendre la grande inconnue du désir, qui, enfin, leur fait ressentir leur dépendance à une source de bonheur qui ne vient pas d’eux-mêmes.
 
-Ainsi donc, mon cher fils, à ma manière imparfaite, j’ai tenté de te décrire les différentes sphères, leur caractère et l’objet de leur création.
+Ainsi donc, mon cher fils, de manière imparfaite, j’ai tenté de te décrire les différentes sphères, leur caractère et l’objet de leur création.
 
 Tu dois croire ce que je t’ai dit, car c’est vrai ; et en croyant tu verras le grand avantage de t’efforcer d’entrer dans les sphères de l’âme ou dans les Cieux Divins. En faisant cela, tu gagneras non seulement le développement de ton âme, mais aussi le développement de tes qualités mentales et de ta nature morale.
 
-C’est ainsi que tu comprendras le grand dicton de la Bible : *« Cherchez d’abord le Royaume de Dieu et sa justice, et toutes ces choses vous seront données par surcroît  »*
+C’est ainsi que tu comprendras le grand dicton de la Bible : *« Cherchez d’abord le Royaume de Dieu et sa justice, et toutes ces choses vous seront données par surcroît  »* ***[Matthieu 6:33](https://saintebible.com/matthew/6-33.htm)***
 
 Je t’ai écrit une longue lettre et je dois arrêter. Alors, avec tout l’amour d’une grand-mère dévouée, je te souhaite une bonne nuit.
 
