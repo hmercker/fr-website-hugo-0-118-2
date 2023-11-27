@@ -9,7 +9,7 @@ weight:
 ---
 ### Saint Luc, sur les enseignements de la Nouvelle Pensée et son explication des croyances erronées de celle-ci
 
-St Luc - reçu par James Padgett le 09 Mars 1919, Washington, USA.
+St Luc - reçu par James Padgett le 9 Mars 1919, Washington, USA.
 
 Permettez-moi d’écrire quelques lignes, ce soir, car vous êtes en meilleure condition, et je suis en mesure d’établir un rapport avec vous et de livrer mon message.
 

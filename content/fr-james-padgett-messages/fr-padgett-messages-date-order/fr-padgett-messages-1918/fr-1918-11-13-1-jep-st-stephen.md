@@ -36,4 +36,4 @@ Eh bien, nous devons nous arrêter ici. Je terminerai plus tard.
 Je suis St. Étienne.
 <small>
 
-1. <large id="f1">  Ce message n'a apparemment pas été publié bien qu'il soit mentionné dans [la tablette (journal quotidien de James Padgett)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1918/).[↩](#a1)
+1. <large id="f1">  Ce message n'a apparemment pas été publié bien qu'il soit mentionné dans [la tablette (journal quotidien de James Padgett)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/).[↩](#a1)

@@ -46,7 +46,7 @@ Avec mon amour et ma bénédiction, je suis, votre frère et ami, Jésus. **Note
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Saint Jean | [Jean – Comment et quand Dieu répond à la prière. Lois de Rapport et Communication](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-2-1-jep-st-john/) | 2 Novembre 1917
-Saint Jean | [Jean – Lois du rapport, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/) | 4 janvier 16918
+Saint Jean | [Jean – Lois du rapport, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/) | 4 janvier 1918
 Saint Jean | [Jean – Lois de rapport et de communication, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/) | 22 Octobre 1918
 
 **Note 2 :** Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :

@@ -43,4 +43,4 @@ Car le moment est venu de vous découvrir et de marcher dans la lumière du jour
 
 Que Dieu vous bénisse, chers étudiants. Je suis votre enseignant, Augustin. Je vous parle sérieusement. Je vous parle parce que vous avez besoin de dépasser la condition humaine et ses restrictions et d’être libérés par l’Amour de Dieu. Que Dieu vous bénisse. Votre maître Augustin vous aime et sera toujours à vos côtés. Que Dieu vous bénisse.
 
-Note : La congruence est le fait de coïncider, de s’ajuster parfaitement
+**Note :** La congruence est le fait de coïncider, de s’ajuster parfaitement
