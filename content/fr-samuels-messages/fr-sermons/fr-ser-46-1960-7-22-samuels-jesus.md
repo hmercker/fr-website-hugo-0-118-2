@@ -15,20 +15,19 @@ C’est moi, Jésus.
 
 Jérémie, et tous ceux intéressés à préserver les rituels purifiés de Jéhovah et une meilleure éthique morale parmi le peuple, furent amers lorsqu’ils ont vu Jojakim revenir sur les grandes réformes de son père, Josias. Imprégné de son esprit de confiance dans le Père, comme je l’ai indiqué dans les sermons précédents sur ce prophète, Jérémie n’a pas craint pas l’hostilité du roi et il a parlé contre lui avec audace, en déclarant que Jojakim allait mourir comme un chien et sans sépulture :
 
-> *« Ton père ne mangeait-il pas, ne buvait-il pas  ? Mais il pratiquait la justice et l’équité, Et il fut heureux ; Mais il pratiquait la justice et l’équité, Et il fut heureux; N’est-ce pas là me connaître ? dit l’Éternel. Mais tu n’as des yeux et un cœur que pour te livrer à la cupidité, pour répandre le sang innocent, et pour exercer l’oppression et la violence. C’est pourquoi ainsi parle l’Éternel sur Jojakim, fils de Josias, roi de Juda : On ne le pleurera pas, ..… Il aura la sépulture d’un âne, Il sera traîné et jeté hors des portes de Jérusalem. »* [Jérémie 22 : 15-19](https://saintebible.com/jeremiah/22-15.htm)
+> Ton père ne mangeait-il pas, ne buvait-il pas  ? Mais il pratiquait la justice et l’équité, Et il fut heureux ; Mais il pratiquait la justice et l’équité, Et il fut heureux; N’est-ce pas là me connaître ? dit l’Éternel. Mais tu n’as des yeux et un cœur que pour te livrer à la cupidité, pour répandre le sang innocent, et pour exercer l’oppression et la violence. C’est pourquoi ainsi parle l’Éternel sur Jojakim, fils de Josias, roi de Juda : On ne le pleurera pas, ..… Il aura la sépulture d’un âne, Il sera traîné et jeté hors des portes de Jérusalem. - [Jérémie 22 : 15-19](https://saintebible.com/jeremiah/22-15.htm)
 
 Maintenant, je voudrais expliquer que Jérémie a pensé que la destruction de Jérusalem était imminente, car suite à la défaite de Necho par Nabuchodonosor, les Babyloniens pourraient attaquer Jérusalem sans qu’aucune armée égyptienne ne soit sur un de leurs flancs. Mais il n’y eut aucune attaque directe, pour la simple raison qu’aucun soldat Hébreu n’avait été envoyé se battre avec l’Égypte contre les Babyloniens, car une telle politique ne pourrait pas réussir dans un pays dont le roi avait été tué par un pharaon Égyptien. Cependant, Jérémie était convaincu que, en dépit des retards et des ajournements, le jour du jugement était à l’aube dans la plénitude des temps de Dieu. Jojakim mourut en 597 av. J.-C., c’est à dire au moment de la première invasion de Jérusalem. Il mourut à l’âge de 36 ans, certainement méconnu et non regretté par la grande majorité du peuple et les autres, les grands prêtres et les faux prophètes, ainsi que certains des aristocrates, étaient beaucoup trop pratiques et indifférents pour verser des larmes sur lui. Cette partie que Jérémie a prophétisée à son égard fut correcte, mais le fait est qu’il a juste réussi à mourir à temps pour être enterré avec ses ancêtres royaux.
 
 Jérémie pensait à Dieu comme le façonneur des personnes et des événements, qui moulait et refaisait selon l’exigence des circonstances. Par ses contacts avec le monde des esprits, il lui fut dit :
 
-> *« Lève-toi, et descends dans la maison du potier ; Là, je te ferai entendre mes paroles. »* [Jérémie 18 : 2](https://saintebible.com/jeremiah/18-2.htm)
+> Lève-toi, et descends dans la maison du potier ; Là, je te ferai entendre mes paroles. - [Jérémie 18 : 2](https://saintebible.com/jeremiah/18-2.htm)
 
 Il l’a fait et vit l’artisan travaillant à un dispositif de fabrication de pot, ce que l’on appelle le tour de potier, dans une stalle à la place de marché de Jérusalem. Il a vu l’émergence de vaisseaux  admirablement formés, mais parfois le pot a pu être gâché dans le processus. Toutefois, le potier le refaisait, plus beau que jamais, du même argile.
 
 Alors le sermon vint  de Dieu à Jérémie :
 
-> *« Ô maison d’Israël, ne puis-je agir avec vous comme ce potier ? dit le Seigneur. Voici, comme l’argile dans la main du potier, ainsi vous êtes dans ma main, Ô maison d’Israël. »*
-[Jérémie : 18 : 6](https://saintebible.com/jeremiah/18-6.htm)
+> Ô maison d’Israël, ne puis-je agir avec vous comme ce potier ? dit le Seigneur. Voici, comme l’argile dans la main du potier, ainsi vous êtes dans ma main, Ô maison d’Israël. - [Jérémie : 18 : 6](https://saintebible.com/jeremiah/18-6.htm)
 
 Ainsi, Dieu pourrait arracher ou détruire un Royaume ou une nation, s’il était mauvais, mais s’il se repentait de ses mauvaises actions, Dieu pourrait défaire le travail de la destruction, et réparer et reconstruire. En bref, l’œuvre de Dieu de reconstruction et de construction des nations comme des individus était liée avec le but et le contrat moral.
 

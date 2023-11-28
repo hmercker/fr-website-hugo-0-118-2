@@ -31,7 +31,7 @@ Alors Habacuc a élaboré une prophétie qui demandait à Dieu de répondre à s
 
 Habacuc s’est plaint :
 
-> *« Pourquoi me fais-tu voir l’iniquité, et contempler l’injustice ? Parce que l’oppression et la violence sont devant moi? Aussi la loi n’a point de vie, La justice n’a point de force ; Car le méchant triomphe du juste, Et l’on rend des jugements iniques. »* [Habacuc 1:3-4](https://saintebible.com/habakkuk/1-3.htm)
+> Pourquoi me fais-tu voir l’iniquité, et contempler l’injustice ? Parce que l’oppression et la violence sont devant moi? Aussi la loi n’a point de vie, La justice n’a point de force ; Car le méchant triomphe du juste, Et l’on rend des jugements iniques. - [Habacuc 1:3-4](https://saintebible.com/habakkuk/1-3.htm)
 
 Dieu répond que les Chaldéens, surgiront, cruels et rapides, terribles et redoutables, pour conquérir et posséder.
 
@@ -39,9 +39,10 @@ Habacuc reconnaît que ces conquérants viendront comme un correcteur pour les m
 
 Habacuc va à sa tour de guet, pour méditer en silence et attendre la réponse de Dieu à ses requêtes. Et le Seigneur lui répond :
 
-> *« Écris la prophétie: Grave-la sur des tables, Afin qu’on la lise couramment. »* (de façon si claire que toute personne passant par là en courant puisse la lire).
-
-> *« Car c’est une prophétie dont le temps est déjà fixé, Elle marche vers son terme, et elle ne mentira pas ; Si elle tarde, attends-la, Car elle s’accomplira, elle s’accomplira certainement. Voici, son âme s’est enflée, elle n’est pas droite en lui; Mais le juste vivra par sa foi. »* [Habacuc 2 : 2-4](https://saintebible.com/habakkuk/2-4.htm)
+> Écris la prophétie: Grave-la sur des tables, Afin qu’on la lise couramment. »* (de façon si claire que toute personne passant par là en courant puisse la lire).
+<br>
+<br>
+> Car c’est une prophétie dont le temps est déjà fixé, Elle marche vers son terme, et elle ne mentira pas ; Si elle tarde, attends-la, Car elle s’accomplira, elle s’accomplira certainement. Voici, son âme s’est enflée, elle n’est pas droite en lui; Mais le juste vivra par sa foi. - [Habacuc 2 : 2-4](https://saintebible.com/habakkuk/2-4.htm)
 
 Il s’agit de la première partie de la réponse, et je tiens à la commenter et à l’éclairer à la lumière de notre connaissance spirituelle avant de continuer sur la deuxième partie.
 
@@ -55,4 +56,4 @@ Habacuc a ainsi voulu vivre une vie morale et éthique, et même si cette vie da
 
 Jésus de la Bible et Maître des Cieux Célestes.
 
-D'autres messages relatifs à Job ont été communiqués le [06 Décembre 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-6-1-fab-jesus/) et le [26 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-26-1-fab-jesus/). Job a également communiqué lui-même un message le [19 Févier 1919](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-2-19-1-jep-job/)
+**Note :** D'autres messages relatifs à Job ont été communiqués le [06 Décembre 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-6-1-fab-jesus/) et le [26 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-26-1-fab-jesus/). Job a également communiqué lui-même un message le [19 Févier 1919](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-2-19-1-jep-job/)

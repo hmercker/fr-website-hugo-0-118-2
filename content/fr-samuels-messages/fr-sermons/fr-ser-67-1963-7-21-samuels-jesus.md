@@ -15,13 +15,13 @@ C’est moi, Jésus.
 
 Pour continuer avec [le chapitre 53 : 4-6](https://saintebible.com/isaiah/53-4.htm)
 
-> *« Cependant, ce sont nos souffrances qu’il a portées, C’est de nos douleurs qu’il s’est chargé; Et nous l’avons considéré comme puni, Frappé de Dieu, et humilié. »*
+> Cependant, ce sont nos souffrances qu’il a portées, C’est de nos douleurs qu’il s’est chargé; Et nous l’avons considéré comme puni, Frappé de Dieu, et humilié.
 <br>
 <br>
-> *« Mais il était blessé pour nos péchés, Brisé pour nos iniquités ; Le châtiment qui nous donne la paix est tombé sur lui, Et c’est par ses meurtrissures que nous sommes guéris. »*
+> Mais il était blessé pour nos péchés, Brisé pour nos iniquités ; Le châtiment qui nous donne la paix est tombé sur lui, Et c’est par ses meurtrissures que nous sommes guéris.
 <br>
 <br>
-> *« Nous étions tous errants comme des brebis, Chacun suivait sa propre voie ; Et l’Éternel a fait retomber sur lui l’iniquité de nous tous. »*
+> Nous étions tous errants comme des brebis, Chacun suivait sa propre voie ; Et l’Éternel a fait retomber sur lui l’iniquité de nous tous.
 
 Ici le Second Isaïe, comme il me l’a dit, avait à l’esprit les péchés, la cruauté, les oppressions et les barbarismes, non seulement de ses propres jours, mais la sauvagerie et les abominations qui ont suivi le cours lent de l’histoire. Il a estimé que, même si Israël avait certainement péché et transgressé, comme les simples Écritures le montrent clairement, cependant l’abattage rituel coupe gorge des enfants et des prisonniers, l’incroyable comportement inhumain parmi les païens, qui avait suscité tant d’invectives de fureur ardente parmi les prophètes, fut un record de faits positifs dont l’Éternel était intensément conscient, mais qui devait être puni et serait puni, sinon celui qui connaissait Dieu et avait donc moins d’excuses pour l’iniquité – Israël ? (Ou, si j’interprète la victime comme le prophète, celui qui connaissait Dieu plus encore que le peuple ?)
 
@@ -29,7 +29,7 @@ Ainsi, dans ses vers le Second Isaïe montre ici que les Babyloniens avaient le 
 
 Le prophète, après avoir combiné ces éléments, souligne maintenant l’humiliation et la mort de la nation prophète selon les lignes traditionnelles Babyloniennes, tel qu’elles figurent dans le [Second Isaïe, 53 : 7 -9](https://saintebible.com/isaiah/53-7.htm)
 
-> *« Il a été maltraité et opprimé, Et il n’a point ouvert la bouche, Semblable à un agneau qu’on mène à la boucherie, A une brebis muette devant ceux qui la tondent ; Il n’a point ouvert la bouche. Il a été enlevé par l’angoisse et le châtiment. Et parmi ceux de sa génération, qui a cru Qu’il était retranché de la terre des vivants Et frappé pour les péchés de mon peuple ? On a mis son sépulcre parmi les méchants, Son tombeau avec le riche, Quoiqu’il n’eût point commis de violence Et qu’il n’y eût point de fraude dans sa bouche. »*
+> Il a été maltraité et opprimé, Et il n’a point ouvert la bouche, Semblable à un agneau qu’on mène à la boucherie, A une brebis muette devant ceux qui la tondent ; Il n’a point ouvert la bouche. Il a été enlevé par l’angoisse et le châtiment. Et parmi ceux de sa génération, qui a cru Qu’il était retranché de la terre des vivants Et frappé pour les péchés de mon peuple ? On a mis son sépulcre parmi les méchants, Son tombeau avec le riche, Quoiqu’il n’eût point commis de violence Et qu’il n’y eût point de fraude dans sa bouche.
 
 Ces mots sont extrêmement intéressants, d’abord pour leur aspect littéraire, en ce qu’ils forment la poésie religieuse inspirée, représentant la punition de la nation prophète bouc émissaire précédant le rachat et contenant un appel émotionnel élevé, et deuxièmement, parce que beaucoup de Chrétiens considèrent ces versets comme prophétiques, semblant pointer vers le Christ à venir. Mais je tiens à expliquer la source ou la composition de ces versets pour montrer qu’ils ne se réfèrent en aucune façon à moi, mais suivent une ligne de pensée déterminée par la situation douloureuse d’Israël en tant qu’exilés dans le pays des suzerains Babyloniens.
 
