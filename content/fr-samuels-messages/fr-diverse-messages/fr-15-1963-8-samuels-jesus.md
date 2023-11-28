@@ -24,7 +24,7 @@ Selon le Christianisme, les fruits de l’Esprit Saint sont l’amour, la joie, 
 
 Dès le début, les écrivains du Nouveau Testament ont eu de la difficulté à comprendre ce qu’était l’Esprit Saint. Le deuxième chapitre des Actes des apôtres nous dit qu’au matin de la Pentecôte, lorsque les disciples de Jésus, venus de plusieurs pays différents, étaient réunis tous ensemble pour célébrer les solennités du jour, il vint soudain un bruit du ciel comme un violent souffle de vent, remplissant toute la maison où ils étaient assis. Ils virent des langues comme des flammes qui se posaient sur la tête de chacun et ils étaient tous remplis de l’Esprit Saint, commençant à parler, non pas en araméen, mais dans leurs propres langues, Égyptien, Latin, Grec, Hébreu et bien d’autres langues, et tous louaient le Seigneur. Certains passants pensaient que ces gens étaient ivres, mais Pierre, selon le récit, se leva et déclara que ce phénomène était l’accomplissement de la prophétie de Joël.
 
-> *« Dans les derniers jours, dit le Seigneur, je répandrai alors mon esprit sur toute chair… »*
+> Dans les derniers jours, dit le Seigneur, je répandrai alors mon esprit sur toute chair…
 
 Pierre avait raison en ce sens qu’il s’agissait d’une prophétie de Joël, inspirée par le Nouveau Cœur de Jérémie, mais Pierre, d’après l’histoire, ne semblait pas connaître la signification du Nouveau Cœur, car, lorsque les autres disciples demandèrent : *« Frères, que devons-nous faire ? »* Au lieu de leur demander de prier pour l’afflux de l’Amour du Père, comme je l’avais enseigné, Pierre est censé avoir insisté sur le baptême : *« Repentez-vous, et que chacun de vous soit baptisé au nom de Jésus Christ, pour la rémission de vos péchés, alors vous recevrez le don de l’Esprit Saint »* ([Actes 2:38](https://saintebible.com/acts/2-38.htm)).
 
@@ -38,9 +38,9 @@ De plus, il n’a jamais conféré des pouvoirs extraordinaires à des personnes
 
 L’Amour Divin a donc été mal compris au moment de son effusion à l’humanité à la Pentecôte, et il est encore mal compris à l’heure actuelle. Cependant, nous, dans l’Église de la Nouvelle Naissance, nous savons avec certitude et avec l’autorité de Jésus lui-même, que c’est l’Amour Divin du Père qui a été répandu sur l’humanité à la Pentecôte par l’œuvre de cet Esprit Saint de Dieu, et que le séjour de cet Amour dans l’âme, en portions suffisantes, transformera cette âme d’humaine en une âme divine et Unie avec moi, et ce fut ma prière comme l’a écrit [Jean, chapitre 17, verset 21](https://saintebible.com/john/17-21.htm) : *« Afin que tous soient un, comme toi, Père, tu es en moi, et comme je suis en toi, afin qu’eux aussi soient un en nous, pour que le monde croie que tu m’as envoyé. »*
 
-Bref, la Pentecôte est la fête la plus importante de l’Église de la Nouvelle Naissance, et nous l’observerons avec respect.<sup id=”a1”>[1](#f1)</sup>
+Bref, la Pentecôte est la fête la plus importante de l’Église de la Nouvelle Naissance, et nous l’observerons avec respect.<sup id="a1">[1](#f1)</sup>
 
 Jésus de la Bible et Maître des Cieux Célestes.
 <small>
 
-1. <large id=”f1”> L’influence du médium est évidente sur ces messages, et cela se confirme [dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).[↩](#a1)
+1. <large id="f1"> L’influence du médium est évidente sur ces messages, et cela se confirme [dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).[↩](#a1)

@@ -15,7 +15,7 @@ C’est moi, Jésus.
 
 Les écrits d’Isaïe, par conséquent, sont remplis d’émotion personnelle, avec du lyrisme, et avec la joie que le jour de la rédemption était enfin arrivé. Il se faisait appeler le *« messager de bonnes nouvelles »*, et demandait également aux autres, de proclamer les bonnes nouvelles à Sion:
 
-> *« Monte sur une haute montagne, Sion, pour publier la bonne nouvelle;  Élève avec force ta voix, Jérusalem … »* [Isaïe 40 : 9](https://saintebible.com/isaiah/40-9.htm)
+> Monte sur une haute montagne, Sion, pour publier la bonne nouvelle;  Élève avec force ta voix, Jérusalem… - [Isaïe 40 : 9](https://saintebible.com/isaiah/40-9.htm)
 
 Maintenant, lorsque j’ai prêché en Palestine, j’étais aussi le porteur de bonnes nouvelles – le rachat de l’âme du péché à la vie éternelle à travers le don de l’Amour du Père, qu’Il avait mis, avec ma venue, à la disposition à l’humanité. Je sentais donc que je devais m’inspirer, pour la prédication de l’Amour du Père, du Second Isaïe, le prédicateur de la rédemption de l’exil et du pardon de Dieu pour le passé coupable d’Israël, dans la mesure où Israël avait abandonné ses anciennes iniquités et renouvelé son alliance avec Lui. Cela ne signifie pas la libération complète du péché, comme Isaïe en était conscient, mais cela demandait un effort sincère de la part d’Israël pour réparer ses voies, ce qui a énormément plu au Père Céleste qui n’a pas tardé à montrer son appréciation à façonner, à travers Ses instruments, les événements menant, à l’époque, à la libération de Son peuple. Isaïe, comme l’a fait Ézéchiel, a considéré que cela signifiait que le Seigneur faisait cela pour Lui-Même. [Isaïe 43 : 25](https://saintebible.com/isaiah/43-25.htm) Le prophète lui-même a expliqué cela dans sa poésie:
 

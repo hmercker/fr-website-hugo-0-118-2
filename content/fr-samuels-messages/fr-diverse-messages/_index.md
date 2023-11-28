@@ -9,7 +9,7 @@ weight: 120
 ---
 ## Messages Divers au Dr Samuels
 
-![](/fr-samuels-messages/fr-diverse-messages/fr-paysage-de-montagne13.jpg)
+![title](/fr-samuels-messages/fr-diverse-messages/fr-paysage-de-montagne13.jpg)
 
 Le Dr Samuels a reçu une série de messages entre 1954 et 1966, qui s'inscrivent dans le prolongement du travail de James Padgett. Pour autant que nous puissions en juger, il a surtout reçu des messages de Jésus, et ceux-ci sont rassemblés sur deux pages, appelées respectivement [révélations](/fr-samuels-messages/fr-revelations) relatives à des explications et aperçus sur le Nouveau Testament et celles appelées [sermons](/fr-samuels-messages/fr-sermons) relatives à des explications sur l'Ancien Testament.
 
