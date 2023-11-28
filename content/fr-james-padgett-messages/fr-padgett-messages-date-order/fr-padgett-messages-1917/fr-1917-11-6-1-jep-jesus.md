@@ -43,4 +43,4 @@ Jésus | [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-mess
 Jésus | [La sélection par Jésus de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/) | 25 Octobre 1918
 <small>
 
-1. <large id="f1"> *M. Padgett a lu – « Le Parlement Mondial des Religions » à l’Exposition universelle de Chicago de 1893.[↩](#a1)
+1. <large id="f1"> M. Padgett a lu – « Le Parlement Mondial des Religions » à l’Exposition universelle de Chicago de 1893.[↩](#a1)

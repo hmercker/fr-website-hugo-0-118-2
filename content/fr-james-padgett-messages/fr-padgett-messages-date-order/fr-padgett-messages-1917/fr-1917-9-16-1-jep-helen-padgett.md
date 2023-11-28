@@ -18,4 +18,4 @@ Eh bien, mon cher, le Maître t’a écrit un message important <sup id="a1">[1]
 Ta vraie et bien-aimée Hélène.
 <small>
 
-1. <large id="f1"> Il semblerait que le message écrit par Jésus et auquel il est fait référence ici, et clairement indiqué dans [la Tablette](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1917/), ne figure pas parmi ceux qui ont été publiés. Il semblerait que Jésus ait écrit les 14, 16 et 17, mais seul le dernier message a été publié.[↩](#a1)
+1. <large id="f1"> Il semblerait que le message écrit par Jésus et auquel il est fait référence ici, et clairement indiqué dans [la Tablette](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/), ne figure pas parmi ceux qui ont été publiés. Il semblerait que Jésus ait écrit les 14, 16 et 17, mais seul le dernier message a été publié.[↩](#a1)

@@ -26,8 +26,8 @@ Bonne nuit, ta vraie et bien-aimée Hélène.
 
 1. <large id="f1"> Date déduite de la tablette. Cependant cette entrée n’était pas présente dans la tablette (journal quotidien de James Padgett).[↩](#a1)
 
-2. <large id="f2"> Le message de Jean auquel Hélène se réfère n'a pas été publié. Il n'est connu que par sa mention dans [la tablette (journal quotidien de James Padgett)](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1918/)[↩](#a2)
+2. <large id="f2"> Le message de Jean auquel Hélène se réfère n'a pas été publié. Il n'est connu que par sa mention dans [la tablette (journal quotidien de James Padgett)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/)[↩](#a2)
 
-3. <large id="f3"> L'un deux était [Frédéric III - deuxième empereur Allemand](https://fr.wikipedia.org/wiki/Fr%C3%A9d%C3%A9ric_III_(empereur_allemand)). L'autre était Bismark qui est mentionné dans [la tablette](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1918/) mais qui n'a pas été publié.[↩](#a3)
+3. <large id="f3"> L'un deux était [Frédéric III - deuxième empereur Allemand](https://fr.wikipedia.org/wiki/Fr%C3%A9d%C3%A9ric_III_(empereur_allemand)). L'autre était Bismark qui est mentionné dans [la tablette](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/) mais qui n'a pas été publié.[↩](#a3)
 
 4. <large id="f4"> Les principaux messages relatifs à la première guerre mondiale sont disponibles par l'intermédiaire de ce [lien](/fr-james-padgett-messages/1-8-fr-messages-about-the-first-world-war/).[↩](#a4)

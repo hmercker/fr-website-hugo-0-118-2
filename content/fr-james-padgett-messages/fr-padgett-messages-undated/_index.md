@@ -91,6 +91,6 @@ Anonyme | [Un écrivain inconnu essaie d’expliquer quel profit il y a de gagne
 Hélène Padgett | [Hélène confirme l’écrivain inconnu](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-77-jep-helen-padgett/) | non daté
 Minnie | [La cousine d’Eugène Morgan est remerciante pour la guidance spirituelle reçue sur la terre, cela lui a permis de progresser vers la 7ème sphère du monde spirituel.](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-78-jep-minnie/) | non daté
 Ben Robinson | [Ben Robinson : Un marin a besoin d’aide, il décrit ses voyages sur les mers des ténèbres, avec son épouse, et rapporte ce qu’il a fait sur terre](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-79-jep-ben-robinson/) | non daté
-Dr Leslie R. Stone | [Écrit sur la forte impression que ce premier message a exercé sur lui](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-80--dr-leslie-r-stone/) | non daté
+Dr Leslie R. Stone | [Écrit sur la forte impression que ce premier message a exercé sur lui](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-80-stone-dr-leslie-r-stone/) | non daté
 Frank Davis | [Le copain d’enfance de M. Padgett exprime sa gratitude pour l’aide reçue](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-81-jep-frank-davis/) | non daté
 Hélène Padgett | [Hélène Padgett a localisé l’âme sœur du Père de M. Padgett. Elle est remplie d’amour et est un esprit Céleste](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-82-jep-helen-padgett/) | non daté
