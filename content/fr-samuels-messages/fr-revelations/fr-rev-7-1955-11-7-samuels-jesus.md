@@ -27,4 +27,4 @@ J’ai assez dit sur la phase, le Royaume de Dieu en vous, et sur ce que cela si
 
 Jésus de la Bible et Maître des Cieux Célestes.
 
-*Note : Dans un message récent, [le 26 février 2012](/fr-contemporary-message/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-1-fab-daniel-samuels/), par un médium à Berkeley en Californie, Dr Samuels a expliqué que ce « sens » fait référence à cette instance. Parce que « entos » a deux significations.*
+**Note :** Dans un message récent, [le 26 février 2012](/fr-contemporary-message/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-1-fab-daniel-samuels/), par un médium à Berkeley en Californie, Dr Samuels a expliqué que ce « sens » fait référence à cette instance. Parce que « entos » a deux significations.

@@ -29,7 +29,7 @@ Je tiens à préciser que le divorce est recevable lorsqu’il met fin à un ét
 
 Dans cette phase la plus importante de l’existence de l’homme, comme dans toutes les autres, l’Amour Divin apportera la paix, le bonheur et l’harmonie et ceci se traduira par l’évitement des terribles enfers réservés aux hommes dont l’âme est endommagée par ses mauvais désirs et inclinaisons.
 
-<u>Reçu 6 Janvier 1955</u> :
+<u>Reçu 6 Janvier 1955 :</u>
 
 Je vais continuer avec le Nouveau Testament, sur ses vérités, ses mensonges et vous parler de l’Amour Divin dans l’un des passages concernant le jeune homme riche qui est venu  vers moi et m’a demandé comment il pourrait obtenir le salut de son âme. La façon dont le Nouveau Testament décrit cette rencontre amène le lecteur à supposer que mon grand message à l’humanité n’était rien de plus que les dix commandements, car plusieurs de ces plus importants commandements, concernant l’amour de Dieu pour l’homme, sont complètement omis, et seul ceux qui traitent des relations humaines sont donnés. Lorsque le jeune homme m’a déclaré qu’il avait obéi à tous ces commandements, et qu’il souhaitait savoir à quoi d’autre il devait obéir ou ce qu’il devait faire d’autre pour mériter le salut, [je lui ai dit de donner tous ses biens, de  devenir  pauvre et de me suivre](https://saintebible.com/matthew/19-16.htm).
 

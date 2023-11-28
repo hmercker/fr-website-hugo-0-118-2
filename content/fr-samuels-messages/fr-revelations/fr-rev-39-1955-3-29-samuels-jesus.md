@@ -39,6 +39,4 @@ Votre frère aîné et ami et Maître des Cieux Célestes.
 
 Jésus de la Bible.
 
-Commentaire :
-
-Beaucoup de gens sont consternés d’apprendre que « le ciel » se fermera. Pourtant la Bible dit cela, la seule différence étant que, d’après les messages de James Padgett, nous savons que la fermeture des cieux se rapporte aux Cieux Célestes, et elle ne signifie pas que ceux qui sont écartés sont en enfer, bien au contraire. [Consulter ce message pour toute clarification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-3-1-hr-judas/).
+**Commentaire :** Beaucoup de gens sont consternés d’apprendre que « le ciel » se fermera. Pourtant la Bible dit cela, la seule différence étant que, d’après les messages de James Padgett, nous savons que la fermeture des cieux se rapporte aux Cieux Célestes, et elle ne signifie pas que ceux qui sont écartés sont en enfer, bien au contraire. [Consulter ce message pour toute clarification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-3-1-hr-judas/).

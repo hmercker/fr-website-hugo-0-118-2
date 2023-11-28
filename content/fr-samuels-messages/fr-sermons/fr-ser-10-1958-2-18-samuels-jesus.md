@@ -29,7 +29,7 @@ Maintenant le développement de l’amour humain dans l’Ancien Testament est u
 
 Et les écrivains de l’Ancien Testament sont préoccupés avec Jacob, fils d’Isaac, le terrassier  de puits, et comment Jacob est devenu prince d’Israël après ses années turbulentes de tromperie et de ruse. [Depuis le détournement du droit d’aînesse et la bénédiction de son frère](https://saintebible.com/genesis/25-28.htm), on découvre un Jacob différent, [une personne qui montre son chagrin quand son fils tue les hommes du peuple de Hamor et de Sichem](https://saintebible.com/genesis/34-5.htm), qui voulaient se marier avec Dinah, après qu’ils l’aient souillée. Et Jacob, plusieurs années après avoir trompé son frère, ne cherche pas à fuir ou à combattre Esaü, mais décide d’une restitution sous la forme d’un don. Et Esaü, quand il a vu son frère cadet, courut à sa rencontre, [l’étreignit et tomba à son cou et l’embrassa, et ils pleurèrent.](https://saintebible.com/genesis/33-1.htm)
 
-Et c’est le genre d’amour humain, entre le père, le frère et le fils, que l’hommepouvait comprendre et devait d’abord comprendre avant de pouvoir comprendre l’amour que le Père Céleste a pour ses enfants. 
+Et c’est le genre d’amour humain, entre le père, le frère et le fils, que l’hommepouvait comprendre et devait d’abord comprendre avant de pouvoir comprendre l’amour que le Père Céleste a pour ses enfants.
 
 Dans mon prochain sermon, je continuerai avec le développement de l’amour humain dans l’Ancien Testament.
 

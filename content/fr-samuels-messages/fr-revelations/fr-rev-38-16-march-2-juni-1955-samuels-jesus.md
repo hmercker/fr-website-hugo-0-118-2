@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 16 Mars & 2 Juin 1955, Washington, USA.
 
 C’est moi, Jésus.
 
-Je tiens à vous écrire, si vous êtes en état, sur le passage, [dans le dixième chapitre de l’Évangile de Jean](), concernant mon sermon supposé sur le bon berger. J’ai donné ce sermon approximativement sous la forme où il est trouvé dans l’Évangile de Jean, sauf que certains propos, que je n’ai jamais prononcés, ont été ajoutés à l’original écrit par Jean. Jean, comme vous pouvez facilement comprendre, n’a jamais écrit et n’a jamais insisté sur, ni répété le thème du bon berger qui donne sa vie pour ses brebis.
+Je tiens à vous écrire, si vous êtes en état, sur le passage, [dans le dixième chapitre de l’Évangile de Jean](https://saintebible.com/john/10-1.htm), concernant mon sermon supposé sur le bon berger. J’ai donné ce sermon approximativement sous la forme où il est trouvé dans l’Évangile de Jean, sauf que certains propos, que je n’ai jamais prononcés, ont été ajoutés à l’original écrit par Jean. Jean, comme vous pouvez facilement comprendre, n’a jamais écrit et n’a jamais insisté sur, ni répété le thème du bon berger qui donne sa vie pour ses brebis.
 
 Je n’ai jamais dit que le bon berger donne sa vie pour ses brebis, mais qu’il guide et protège ses brebis et montre à ses brebis le chemin vers la bergerie. Je voulais simplement dire, par-là, que les moutons étaient le peuple d’Israël, ou les âmes humaines tout simplement, et que j’étais le bon berger dans le sens où je les guidais et leur montrais la voie vers les Cieux Célestes en les enseignant et en influençant leur âme par l’Amour Divin qui, en commençant par moi, était désormais ouvert à tous ceux qui le chercheraient dans le sérieux et la sincérité.
 

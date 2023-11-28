@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 16 Août et 8 Septembre 1955, Washington, USA.
 
 C’est moi, Jésus.
 
-Je suis ici pour vous écrire sur le sujet : "Qui étaient les anges présumés avoir existé avant la création de l’homme" ?
+Je suis ici pour vous écrire sur le sujet : *« Qui étaient les anges présumés avoir existé avant la création de l’homme ? »*
 
 Comme vous le savez, l’homme a été créé par Dieu à partir des éléments de l’univers et dans l’homme fut implanté l’âme, ou l’homme réel ou spirituel, ce qui le distinguait des autres créatures de Dieu. Et avec cette âme, Dieu a donné à l’homme la possibilité d’obtenir la nature propre de Dieu, à travers les désirs de l’homme pour l’Union avec lui. La fierté et le désir de maîtriser l’environnement, qui, pensait-il, pourrait lui assurer l’immortalité, a conduit au retrait de l’Amour Divin et la potentialité pour l’homme de devenir un avec Dieu a été perdu jusqu’à ce que j’apparaisse en Palestine et prêche l’immortalité aux Juifs.
 
@@ -31,7 +31,7 @@ L’esprit de Dieu est le grand ange ou messager de Dieu qui s’est manifesté 
 
 Adam et Eve, ou ceux qui les représentent, ont été créés grâce à l’opération de l’Esprit de Dieu, l’énergie active de Dieu, qui a provoqué les regroupements de ces éléments utilisés dans le façonnage de l’homme, tel qu’il a façonné les autres êtres vivants sur terre, mais, l’homme n’était pas homme, jusqu’à ce que la pureté spirituelle – et par là, je ne veux pas dire le corps-esprit, qui est de matière sublimée , mais l’âme, à la ressemblance de Dieu – fut conférée à l’homme. Les premiers parents n’ont pas conscience du moment où ils sont devenus des âmes, c’est-à-dire lorsque Dieu a réellement implanté l’âme en eux, car il n’y a aucun moyen de distinguer le moment où ils étaient humains en apparence sans leurs âmes, car sans leur âme, il n’y a pas de souvenir de ce diplôme ou fait dont ils pourraient se rappeler. Ils ne savent pas comment cette implantation de l’âme a eu lieu, même si cela s’est passé dans leur corps ; et je dirai qu’actuellement, moi non plus, je ne sais pas comment cela s’est passé, car je n’ai jamais vu une âme, même si je peux percevoir sa présence par l’intermédiaire des sens de perception de mon âme. Mais, lorsque ceci fut accompli, les premiers parents surent qu’ils étaient des êtres humains, et qu’ils étaient les créations du Père.
 
-Reçu le 8 Septembre 1955 :
+<u>Reçu le 8 Septembre 1955 :</u>
 
 L’homme, comme il est considéré normalement, est une création qui a traversé ce que vous appelleriez une longue période de développement, de même que toutes les créatures de Dieu qui ont connu cette période de développement de la terre qui a permis aux êtres vivants de venir à l’existence et de survivre.
 

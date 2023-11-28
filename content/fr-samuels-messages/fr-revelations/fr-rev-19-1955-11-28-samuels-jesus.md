@@ -33,7 +33,7 @@ En un mot, je tiens à montrer que l’amour, la foi et la prière dans le séri
 
 <u>Deuxième partie du message</u>
 
-<u>Reçu le 7 Février 1956</u> :
+<u>Reçu le 7 Février 1956 :</u>
 
 La question qui se pose lors du décès d’un être cher, en dépit des prières auprès du Père pour son Amour, est une qui est importante pour avoir une meilleure compréhension de l’Amour merveilleux du Père et de sa miséricorde. Le processus de guérison dépend, en dehors des forces spirituelles qui sont engagées dans le travail, de la condition de l’organe ou de la partie du corps du mortel à restaurer. Un organe qui, lorsqu’il n’est pas soumis à l’attaque pathologique, fonctionne correctement, peut retrouver sa santé primitive indépendamment de la perturbation pathologique dont il peut souffrir. C’est à dire un organe sain lorsqu’il est attaqué par la maladie, ou par une condition provoquant un dysfonctionnement de l’organe, peut-être être restauré à son usage normal par le biais de la guérison spirituelle dont j’ai déjà parlé avec vous dans mes autres écrits sur ce sujet. Mais lorsqu’un organe normalement utilisé a atteint un état de faiblesse ou de mauvais fonctionnement par suite de cette utilisation, cela signifie simplement que l’organe en question a atteint un point dans la vie mortelle où il ne peut plus être restauré à un état de santé dont il ne jouit plus, et, tout effort de la part des esprits guérisseurs pour restaurer cet organe serait inutile et sans but.
 

@@ -37,7 +37,7 @@ Je vais m’arrêter maintenant, car je pense que j’ai suffisamment écrit sur
 
 Jésus de la Bible et Maître des Cieux Célestes.
 
-Reçu le 5 Mai 1955 :
+<u>Reçu le 5 Mai 1955 :</u>
 
 C’est moi, Jésus.
 
