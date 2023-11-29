@@ -27,7 +27,7 @@ Parfois les gens semblent croire que le divorce est comme un remède, mais en fa
 
 Mais, lorsque le mal est déjà fait, il faut au moins profiter de cette occasion pour  méditer et analyser l’état de ton amour naturel. Tu trouveras sûrement beaucoup à travailler, même si tu peux sentir que tu es la partie innocente dans ce divorce. N’analyse pas le blâme de l’autre, analyse ta propre contribution au problème et détermine où tu te situes vraiment dans ta spiritualité. La purification de l’âme nécessite un travail, elle exige une action. Et seulement alors, tu peux éviter la prochaine erreur préprogrammée. Prie. Peu importe ce qui est arrivé, n’arrête jamais d’aimer. Lorsque tu perds l’amour, tu perds tout.
 
-Mais changeons de sujet, quand j’ai lu l’idée de Geoff sur la [Galerie des Apôtres](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/), j’ai souri.
+Mais changeons de sujet, quand j’ai lu l’idée de Geoff sur la [Galerie des Apôtres](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/), j’ai souri.
 
 Cher Geoff, il n’y a jamais eu douze apôtres. Tu sais les apôtres étaient simplement les plus intimes disciples de Jésus, mais nous ne pouvons pas déterminer leur nombre. Je te conseille de lire les parties pertinentes des quatre Évangiles, où les douze apôtres sont réellement mentionnés, tu remarqueras alors que l’énumération des noms ne coïncide pas.
 

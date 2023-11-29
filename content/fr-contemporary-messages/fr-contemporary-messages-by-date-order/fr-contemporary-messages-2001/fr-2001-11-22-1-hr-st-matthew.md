@@ -63,6 +63,6 @@ Puisse Dieu te bénir toujours.
 
 Ton ami et frère, Matthieu.
 
-![title](/fr-judas-of-kerioth-messages/fr-matthaeus_large.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-matthaeus_large.jpg)
 
 *St Matthieu*

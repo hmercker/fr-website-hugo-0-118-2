@@ -27,7 +27,7 @@ Dans tous ces messages, le droit d'auteur a été revendiqué par Geoff Cutler (
 
 Le médium qui, pour des raisons personnelles, souhaite rester anonyme a également confirmé son accord pour la publication en français de ces messages. Malheureusement, cette série de messages, qui comprend 178 communications, s’étendant sur plus de 500 pages, n’est pas terminée et l'auteur n'a pas jugé nécessaire de continuer le récit là où il l'a laissé en 2003. Les détails sur la vie de Jésus s’arrêtent en l’an 26, bien que quelques détails sur quelques événements ultérieurs ont également été communiqués, tels que l’incident de Temple qui a eu lieu en 29 AP. J.-C.
 
-[Voici un lien de téléchargement pour le livre de Judas.](/fr-publications-and-downloads/fr-books/fr-conversations-avec-judas-iscariote.pdf)
+[Voici un lien de téléchargement pour le livre de Judas.](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-conversations-avec-judas-iscariote.pdf)
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

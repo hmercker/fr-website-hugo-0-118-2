@@ -13,7 +13,7 @@ Qui était Jésus de Nazareth ?
 
 Suivent de merveilleux messages de Judas de Kerioth, dans lesquels il décrit les années d'enfance et d'adolescence du jeune Jésus. On sait peu de choses sur cette période de la vie de Jésus et ces messages sont donc très instructifs.
 
-Ce passage, ainsi que le suivant sur [le ministère public](/fr-judas-of-kerioth-messages/fr-the-public-ministry-of-jesus/) de Jésus, répond à la question : qui était Jésus de Nazareth ?
+Ce passage, ainsi que le suivant sur [le ministère public](/3-fr-judas-of-kerioth-messages/3-4-fr-the-public-ministry-of-jesus/) de Jésus, répond à la question : qui était Jésus de Nazareth ?
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

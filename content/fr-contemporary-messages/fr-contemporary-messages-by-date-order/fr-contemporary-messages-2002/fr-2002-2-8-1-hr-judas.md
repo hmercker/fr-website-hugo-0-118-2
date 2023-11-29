@@ -31,7 +31,7 @@ Mais retournons à notre histoire, Pierre était de très mauvaise humeur. Il é
 
 *« Simon, qu’est-ce que je t’ai fait ? »*
 
-« Qu’est-ce que tu m’as fait ? »** Rien !
+*« Qu’est-ce que tu m’as fait ? »* Rien !
 
 *« Alors, qu’est ce qui ne va pas avec toi ? »*
 
