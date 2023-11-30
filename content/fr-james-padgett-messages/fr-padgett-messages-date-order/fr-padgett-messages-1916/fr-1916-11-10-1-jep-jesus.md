@@ -35,24 +35,23 @@ Comme jusqu’ici je l’ai dit, avec ma venue, ce grand privilège a été rest
 
 Les hommes peuvent croire et enseigner qu’en leur sein est une partie du Divin qui permettra à leur âme de progresser et de se développer jusqu’à ce qu’elle atteigne l’état de Divinité qui fera d’elle une partie de la Divinité du Père. Mais en cela ils sont tous dans l’erreur, car, tandis que l’homme était la création de Dieu la plus élevée, la plus parfaite et faite à son image, cependant en l’homme il n’y a aucune partie du Divin et n’ayant aucune partie du Divin, c’est totalement impossible pour lui de progresser vers la possession du Divin. Il ne peut pas, quel que soit son développement, il ne peut jamais, devenir plus grand, plus parfait ou d’une nature supérieure à ce qu’il était lors de sa création.
 
-Le Divin vient du dessus et une fois planté dans l’âme d’un homme, il ne peut y avoir aucune limite à son expansion et développement, même dans les Cieux Célestes. Laissez tous les hommes chercher cet Amour et il n’y aura aucune âme perdue ; mais, hélas, beaucoup ne le feront pas, et les cieux spirituels seront remplis d’âmes perdues*<sup id="a1">[1](#f1)</sup> ne possédant pas l’Essence Divine du Père.
+Le Divin vient du dessus et une fois planté dans l’âme d’un homme, il ne peut y avoir aucune limite à son expansion et développement, même dans les Cieux Célestes. Laissez tous les hommes chercher cet Amour et il n’y aura aucune âme perdue ; mais, hélas, beaucoup ne le feront pas, et les cieux spirituels seront remplis d’âmes perdues* <sup id="a1">[1](#f1)</sup> ne possédant pas l’Essence Divine du Père.
 
 J’ai suffisamment écrit pour ce soir et je suis satisfait de la façon dont vous avez reçu mon message. Continuez à prier le Père pour recevoir de plus en plus Son Amour Divin, et vos prières seront répondues, et vous réaliserez, avec la certitude de la possession consciente de l’Essence Divine, que votre âme n’est pas perdue et ne le sera jamais. Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.<sup id="a2">[2](#f2)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id="f1"> C’est le Ciel Spirituel de l’homme parfait qui possède seulement l’amour naturel à l’état pur, mais ne possède pas l’Amour Divin qui est nécessaire pour entrer dans les Cieux Célestes.[↩](#a1)
-
-2. <large id="f2"> Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a2)
+**Note :** Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus |  [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) | 03 Mars 1915
+Jésus | [Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père d ans son âme - le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) | 03 Mars 1915
 Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/) | 4 Juin 1915
-Jésus |  [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/) | 28 Février 1916 
-Jésus |  [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père. Mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/) |  15 Mars 1916
-Jésus |  [Comment l’Amour Divin entre dans l’âme de l’homme ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/) | 23 Mars 1916
+Jésus | [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/) | 28 Février 1916
+Jésus | [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père - mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/) | 15 Mars 1916
+Jésus | [Comment l’Amour Divin entre dans l’âme de l’homme ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/) | 23 Mars 1916
 Jésus | [Comment l’Amour Divin entre dans l’âme de l’homme (Suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/) | 08 Mai 1916
 Jésus | [Christ peut être en vous – ce que cela signifie ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-3-3-1-jep-jesus) | 3 Mars 1918
+<small>
 
+1. <large id="f1"> C’est le Ciel Spirituel de l’homme parfait qui possède seulement l’amour naturel à l’état pur, mais ne possède pas l’Amour Divin qui est nécessaire pour entrer dans les Cieux Célestes.[↩](#a1)

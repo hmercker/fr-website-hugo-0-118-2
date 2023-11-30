@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Nous laissons les esprits sombres écrire<sup id="a1">[1](#f1)</sup>
+### Nous laissons les esprits sombres écrire <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 28 Mars 1915, Washington, USA.
 

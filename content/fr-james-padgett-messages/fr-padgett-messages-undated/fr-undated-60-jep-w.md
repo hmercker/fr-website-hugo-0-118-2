@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Aide donnée à un esprit<sup id="a1">[1](#f1)</sup>
+### Aide donnée à un esprit <sup id="a1">[1](#f1)</sup>
 
 W - reçu par James Padgett, Washington, USA.
 

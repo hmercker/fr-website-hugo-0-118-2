@@ -11,8 +11,7 @@ weight:
 
 Flavius Josèphe - reçu par James Padgett le 8 Août 1915, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/eveil-spirituel2.jpg)
-
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-eveil-spirituel2.jpg)
 
 Je suis Flavius Josèphe.
 

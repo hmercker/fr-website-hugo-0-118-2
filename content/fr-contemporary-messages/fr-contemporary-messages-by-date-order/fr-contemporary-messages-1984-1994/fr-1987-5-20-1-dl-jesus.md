@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Révérend Dave Lampron le 20 Mai 1987.
 
-Je suis maintenant ici pour écrire, mon cher frère en Christ. Je suis votre ami et frère en esprit, Jésus, qui est Maître des Cieux Célestes. Aujourd’hui, je désire aborder un sujet d’une certaine importance concernant [la Loi de Prière](***law of prayer*****) que vous avez déjà reçue. Comme vous le savez, vous avez déjà reçu, par la pensée, des impressions concernant une Loi d’Activation, et ceci vous a été donné en préparation de mon exposé d’aujourd’hui sur ce sujet.
+Je suis maintenant ici pour écrire, mon cher frère en Christ. Je suis votre ami et frère en esprit, Jésus, qui est Maître des Cieux Célestes. Aujourd’hui, je désire aborder un sujet d’une certaine importance concernant [la Loi de Prière](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-9-fr-the-law-of-prayer/) que vous avez déjà reçue. Comme vous le savez, vous avez déjà reçu, par la pensée, des impressions concernant une Loi d’Activation, et ceci vous a été donné en préparation de mon exposé d’aujourd’hui sur ce sujet.
 
 Comme il vous l’a été dit, la Loi de la Prière est une loi où l’humanité et le Père ont tous deux un rôle à jouer. Le Père reçoit toutes les prières offertes dans la vraie sincérité et qui émanent des âmes de Ses enfants ; et Il, à son tour, répond à ces prières d’une manière bienveillante et sans faille lorsque la condition d’âme qui vient d’être exprimée est remplie par Ses enfants en devenir. Cependant, il ne vous a pas encore été expliqué la façon dont ces prières sont exaucées en termes d’aides du Père : les Célestes et autres bons et hauts esprits.
 

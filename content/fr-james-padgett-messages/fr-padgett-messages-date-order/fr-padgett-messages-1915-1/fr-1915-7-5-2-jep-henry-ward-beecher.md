@@ -57,10 +57,9 @@ Je ne pensais pas, en fait, écrire si longtemps, mais comme je suis enthousiast
 
 Donc merci pour votre patience, je vais arrêter maintenant. J’espère, cependant, avoir le privilège de pouvoir revenir et écrire. Avec mes salutations, je suis
 
-Très cordialement, Henry Ward Beecher.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Très cordialement, Henry Ward Beecher.
 
-1. <large id="f1"> Il y a plusieurs autres messages communiqués respctivement par Jésus, Gottfried Leibnitz et St Luc sur l’immortalité.[↩](#a1) 
+**Note :** Il y a plusieurs autres messages communiqués respctivement par Jésus, Gottfried Leibnitz et St Luc sur l’immortalité :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -68,4 +67,3 @@ Jésus | [Le sens de l'immortalité](/fr-james-padgett-messages/fr-padgett-messa
 Gottfried Leibnitz | [l’immortalité et l’incertitude de l’obtenir même dans le monde spirituel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-4-1-jep-gottfried-leibnitz/) | 04 Juin 1917
 Jésus | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-6-2-1-jep-jesus/) | 02 Juin 1920
 St Luc | [L'immortalité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1922-4-17-1-jep-st-luke/) | 17 Avril 1922
-

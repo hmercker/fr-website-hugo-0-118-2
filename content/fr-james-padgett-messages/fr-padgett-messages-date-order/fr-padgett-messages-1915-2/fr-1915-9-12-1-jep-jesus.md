@@ -24,6 +24,7 @@ Je suis heureux que vous assistiez à ces réunions (L’Église de la Sainteté
 J’ai essayé d’influencer les orateurs pour leur dire quelles étaient les conditions de leur âme, et quelle expérience ils avaient eu dans la réception et la jouissance de l’Amour Divin ; et beaucoup d’entre eux expérimentent et possèdent ce qu’ils disent avoir. Il vous sera bénéfique d’assister à cette église, et d’obtenir le bénéfice de la présence de l’Esprit Saint qui est avec eux dans leur culte. J’étais avec vous et j’ai essayé de vous faire sentir ma présence, et je l’ai fait, et vous avez ressenti une petite exaltation de vos qualités d’âme et apprécié les services, en particulier les chants et les prières. Ainsi, bien que vous ne devez pas être influencé par leurs doctrines quant à mon identité comme Dieu ou à mon adoration, cependant, si vous ignorez cela et considérez seulement que leur véritable adoration est Dieu et que leurs âmes sont à l’unisson avec Lui, vous trouverez que ces services vous feront beaucoup de bien.
 
 Je suis avec vous et j’essaie de vous soulager des soucis que vous rencontrez. J’essaie également de vous aider à obtenir cette condition spirituelle qui est nécessaire pour que vous puissiez recevoir et continuer mes messages formels.
+
 Oui, vous l’êtes et je suis heureux qu’il en soit ainsi. Je veux que vous deveniez un homme tellement possédé de cet Amour et de cette foi, et si fort, que rien de ce que vous rencontrerez ne vous détournera de vos convictions et de votre travail.
 
 Je vois que vous êtes impatient de poursuivre ce travail et que vous serez bientôt en mesure de le faire.
@@ -36,16 +37,13 @@ Je suis avec vous ce soir pour vous réconforter, vous encourager et vous aider 
 
 Je n’écrirai pas plus ce soir car d’autres sont ici pour écrire, et je désire qu’ils le fassent.
 
-Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id=”f1”> *Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*.[↩](#a1)
+**Note :** Jésus s'est également exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-4-jep-jesus/)| 05 Septembre 1915
-Jésus | [Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-19-1-jep-jesus/) | 19 Septembre 1915
-Jésus |  [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-6-1-jep-jesus/) | 06 Mai 1917
-Jésus | [La Vérité Divine doit être déclarée à toute l'humanité.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-2-1-jep-jesus/) | 02 Mai 1920
-
-
+Jésus | [Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-4-jep-jesus/) | 05 Septembre 1915
+Jésus | [Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-19-1-jep-jesus/) | 19 Septembre 1915
+Jésus | [Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-6-1-jep-jesus/) | 06 Mai 1917
+Jésus | [La Vérité Divine doit être déclarée à toute l'humanité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-5-2-1-jep-jesus/) | 02 Mai 1920

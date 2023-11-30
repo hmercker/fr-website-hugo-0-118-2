@@ -11,7 +11,7 @@ weight:
 
 Robert Ingersoll - reçu par James Padgett le 5 Août 1915, Washington, USA.
 
-Je suis Robert G. Ingersoll.<sup id="a1">[1](#f1)</sup>
+Je suis Robert G. Ingersoll. <sup id="a1">[1](#f1)</sup>
 
 Je suis un esprit qui, lorsqu’il était sur terre, a enseigné aux hommes que le seul salut requis pour eux était de bonnes actions et des cœurs bienveillants, et que la Bible, en dehors de ses préceptes moraux, n’était pas digne de foi, que beaucoup de ses affirmations étaient fausses et que tous ses enseignements quant à la croyance et à la foi n’étaient pas dignes de considération.
 

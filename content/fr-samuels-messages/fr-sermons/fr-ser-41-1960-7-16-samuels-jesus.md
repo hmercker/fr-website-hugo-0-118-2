@@ -25,11 +25,11 @@ Avec son respect pour la vie animale, et en ayant à l’esprit les protestation
 
 Vis à vis de tout cela, cependant, il faut se rappeler qu’alors que Jérémie grandissait, de façon précoce, à l’âge adulte, les rites de tous les sanctuaires du pays avaient été avilis honteusement par les ordres du roi, Manassé, de sorte que, comme nous l’avons vu, le culte n’était guère plus que les rites de fertilité de Canaan. A cela, Jérémie, fidèle à l’adoration de Dieu dans l’esprit Hébraïque de Ezéchias, ne pourrait jamais consentir, et par conséquent, il est devenu un paria virtuel dans son propre village. Il a perdu la seule femme de sa vie qu’il a vraiment aimée car ses parents ne voulaient pas consentir à un mariage avec ce rebelle, et il écrivit plus tard sur ce sujet à Anathoth :
 
-> *« J’ai abandonné ma maison, J’ai délaissé mon héritage, J’ai livré l’objet de mon amour aux mains de ses ennemis. »* [Jérémie 12 : 7](https://saintebible.com/jeremiah/12-7.htm)
+> J’ai abandonné ma maison, J’ai délaissé mon héritage, J’ai livré l’objet de mon amour aux mains de ses ennemis. - [Jérémie 12 : 7](https://saintebible.com/jeremiah/12-7.htm)
 
 En fait, ceux qui préféraient le culte plus spirituel de Jéhovah, comme Jérémie, étaient persécutés par Manassé et par les prêtres des hauts lieux, comme ceux d’Anathoth, et on n’est pas tellement surpris de découvrir qu’un complot s’est formé pour l’empoisonner, lequel venait de sa propre famille et des voisins:
 
-> *« J’étais comme un agneau familier qu’on mène à la boucherie, Et j’ignorais les mauvais desseins qu’ils méditaient contre moi : Détruisons l’arbre avec son fruit ! Retranchons-le de la terre des vivants, Et qu’on ne se souvienne plus de son nom ! »*  [Jérémie 11 : 19](https://saintebible.com/jeremiah/11-19.htm)
+> J’étais comme un agneau familier qu’on mène à la boucherie, Et j’ignorais les mauvais desseins qu’ils méditaient contre moi : Détruisons l’arbre avec son fruit ! Retranchons-le de la terre des vivants, Et qu’on ne se souvienne plus de son nom ! -  [Jérémie 11 : 19](https://saintebible.com/jeremiah/11-19.htm)
 
 Mais Jérémie échappa hors de la main de sa famille intransigeante et hors de la main des voisins hostiles. Il a été le témoin de la mort de Manassé en 638 av. J.-C., de celle de son fils, Amon, deux ans plus tard et du règne de l’enfant roi Josias, qui, après une Régence de dix ans, commença à régner par lui-même, en 636 av J.-C
 

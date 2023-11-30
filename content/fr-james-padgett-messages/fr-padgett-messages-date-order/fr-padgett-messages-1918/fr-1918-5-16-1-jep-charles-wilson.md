@@ -13,7 +13,7 @@ Charles Wilson - reçu par James Padgett le 16 Mai 1918, Washington, USA.
 
 Je suis Charles T. Wilson. Laissez-moi écrire quelques lignes.
 
-Je suis l’ami du docteur<sup id=”a1”>[1](#f1)</sup>  et je l’ai connu il y a quelques années, lorsqu’il vivait à Buffalo, N.Y. J’étais dans un hôpital où il s’occupait de mortels fous, comme moi.
+Je suis l’ami du docteur <sup id="a1">[1](#f1)</sup>  et je l’ai connu il y a quelques années, lorsqu’il vivait à Buffalo, N.Y. J’étais dans un hôpital où il s’occupait de mortels fous, comme moi.
 
 À l’époque, mon esprit et mon cerveau ne se coordonnaient pas, et je sais que, peu de temps après mon passage à la vie spirituelle, j’ai découvert que mon mental me permettait de comprendre les réalités comme je le faisais avant que l’horrible vide ne m’arrive, ce qui m’a valu d’être incarcéré à l’hôpital.
 
@@ -34,4 +34,4 @@ Alors, je vous remercie.
 Je m’appelais Charles T. Wilson et j’étais appelé Wash.
 <small>
 
-2. <large id=”f1”> Le docteur Stone.[↩](#a1)
+1. <large id="f1"> Le docteur Stone.[↩](#a1)

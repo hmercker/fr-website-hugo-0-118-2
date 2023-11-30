@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène – affirmant que Saint Étienne a écrit sur le sens de l’Amour Divin
 
-Hélène Padget - reçu par James Padgett le 13 Novembre 1918, Washington, USA.
+Hélène Padgett - reçu par James Padgett le 13 Novembre 1918, Washington, USA.
 
 C’est moi, ta vraie et bien-aimée Hélène.
 

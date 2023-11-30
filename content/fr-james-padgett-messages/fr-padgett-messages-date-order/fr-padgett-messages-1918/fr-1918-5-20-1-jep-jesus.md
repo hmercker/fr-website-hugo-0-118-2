@@ -21,18 +21,15 @@ Chaque être humain connaîtra la fin de la vie terrestre, et pour lui ce sera, 
 
 Il y a encore beaucoup de choses à divulguer, et cette divulgation attend seulement que vous soyez dans la bonne condition pour les recevoir. Vous pouvez voir l’importance de cela, car la fin du monde arrive chaque jour pour de nombreux mortels, et c’est ce qui est si important pour eux de savoir. Pensez davantage aux choses spirituelles et à votre travail. Croyez que je suis avec vous très souvent, et surtout quand vous priez la nuit, selon ma promesse. Bonne nuit.
 
-Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id=”f1”> *Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*.[↩](#a1)
+**Note :** Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/) | 24 Mai 1915
-Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/) | 07 Juin 1915
-Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/)| 08 Juin 1915
-Jésus | [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/)| 29 Juin 1915
-Jésus | [4ème Révélation : Jésus annonce Sa Messianité.](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/) | 25 Mai 1955
-Jésus | [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie.](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/) | 14 Juin 1955
-
-
+Jésus | [La condition du monde au temps des enseignements de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/) | 24 Mai 1915
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/) | 07 Juin 1915
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/)| 08 Juin 1915
+Jésus | [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/) | 29 Juin 1915
+Jésus | [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/) | 25 Mai 1955
+Jésus | [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/) | 14 Juin 1955

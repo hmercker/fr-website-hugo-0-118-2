@@ -11,9 +11,9 @@ weight:
 
 John P Newman - reçu par James Padgett le 9 Décembre 1915, Washington, USA.
 
-Je suis John P. Newman.<sup id="a1">[1](#f1)</sup>
+Je suis John P. Newman. <sup id="a1">[1](#f1)</sup>
 
-J’aimerais que vous me laissiez écrire quelques lignes ce soir.<sup id="a2">[2](#f2)</sup>
+J’aimerais que vous me laissiez écrire quelques lignes ce soir. <sup id="a2">[2](#f2)</sup>
 
 Lors de ma vie terrestre, je fus un prédicateur de l’Évangile de Jésus, tel que je le comprenais alors, et j’ai fait de grands et sérieux efforts pour montrer à mon frère ce qu’étaient les vérités de cet Évangile, et j’ai parfois, et dans une grande mesure, réussi. Cependant, je vois maintenant à quel point je manquais de connaissances et de compréhension de ces vérités, et à quel point les croyances et les dogmes de mon église ont interféré avec moi et les membres de mon église et m’ont empêché d’obtenir une véritable conception des vérités du Maître. Beaucoup d’hommes ont perdu l’occasion de développer leur âme par (à cause de) leurs croyances en l’expiation. Je veux dire qu’ils se sont appuyés sur le sacrifice de Jésus, en croyant que cela était suffisant pour payer la dette qu’ils supposaient avoir envers le Père et, se basant sur cette conviction, ils ont négligé de développer leurs qualités intérieures d’amour pour leur Père. Cette doctrine de l’expiation est une doctrine qui cause un grand tort parmi les enfants des hommes, et elle ne devrait plus être crue, mais il devrait être enseigné qu’elle est en totale contradiction avec la vérité , et qu’elle n’est approuvée ni par Dieu ni par le Maître.
 

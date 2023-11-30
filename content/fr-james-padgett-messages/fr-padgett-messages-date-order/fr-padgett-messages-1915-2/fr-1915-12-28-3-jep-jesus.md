@@ -23,17 +23,16 @@ Mon but est que vous et votre ami obteniez ce Grand Amour alors que vous êtes e
 
 Je vous écrirai bientôt un autre message qui montrera une autre grande vérité que l’humanité doit connaître.
 
-Eh bien, j’expliquerai, très prochainement, cette phrase dans un de mes messages, et je montrerai, à la satisfaction de votre ami, que Dieu ne soumet jamais aucun de ses enfants à la tentation, et que je n’ai jamais dit, en enseignant à mes disciples la prière du Seigneur, qu’ils devraient prier pour que Dieu ne les soumette pas à la tentation. Je vous communiquerai aussi la prière que je leur ai enseignée, et qui est la vraie prière que tous les hommes au cœur fervent, honnête et désireux, devraient offrir au Père. Que cela ne vous trouble pas, vous ou votre ami, car Dieu ne soumet pas les hommes à la tentation, mais, au contraire, il utilise l’influence de ses justes esprits sur eux pour les aider à résister à toute tentation.<sup id="a1">[1](#f1)</sup>
+Eh bien, j’expliquerai, très prochainement, cette phrase dans un de mes messages, et je montrerai, à la satisfaction de votre ami, que Dieu ne soumet jamais aucun de ses enfants à la tentation, et que je n’ai jamais dit, en enseignant à mes disciples la prière du Seigneur, qu’ils devraient prier pour que Dieu ne les soumette pas à la tentation. Je vous communiquerai aussi la prière que je leur ai enseignée, et qui est la vraie prière que tous les hommes au cœur fervent, honnête et désireux, devraient offrir au Père. Que cela ne vous trouble pas, vous ou votre ami, car Dieu ne soumet pas les hommes à la tentation, mais, au contraire, il utilise l’influence de ses justes esprits sur eux pour les aider à résister à toute tentation.
 
 Avec tout mon amour pour vous et votre collègue, et les bénédictions du Père sur vous deux, je suis votre frère et ami, Jésus.
-<small>
 
-1. <large id="f1"> *Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*[↩](#a1)
+**Note :** Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [– Conseils donnés par Jésus sur la participation au service religieux.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-2-jep-jesus/) |  29 Août 1915
-Jésus | [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/)  | 16 Mai 1916 
-Jésus |  [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/) | 09 Juillet 1917
-Jésus | [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/) | 06 Janvier 1918
-Jésus | [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/)   | 19 Septembre 2020
+Jésus | [Conseils donnés par Jésus sur la participation au service religieux](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-2-jep-jesus/) | 29 Août 1915
+Jésus | [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/) | 16 Mai 1916
+Jésus | [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/) | 09 Juillet 1917
+Jésus | [L’état d’âme de M. Padgett. Encourage à continuer à prier pour l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-6-1-jep-jesus/) | 06 Janvier 1918
+Jésus | [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/) | 19 Septembre 2020

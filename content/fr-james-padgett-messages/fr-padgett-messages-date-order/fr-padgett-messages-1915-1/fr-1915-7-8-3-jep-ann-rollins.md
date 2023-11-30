@@ -57,13 +57,12 @@ Pendant de nombreuses années, les puissances du monde des esprits ont cherché 
 
 Je dois m’arrêter maintenant et, comme j’ai écrit depuis longtemps, tu dois te reposer un peu avant de continuer à écrire.
 
-Ta grand-mère aimante.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Ta grand-mère aimante.
 
-1. <large id=”f1”> *Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :* .[↩](#a1)
+**Note :** Dans les messages ci-dessous Anne Rollins décrit ses expériences dans différentes sphères :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les sphères célestes.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-10-2-jep-ann-rollins/) | 10 Mars 1915
-Anne Rollins | [Anne Rollins parle de sa progression de la première sphère Céleste vers la seconde sphère Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) | 27 Avril 1915
-Anne Rollins | [Anne Rollins décrit certaines des différentes sphères.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) | 22 Décembre 1915
+Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les sphères célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-10-2-jep-ann-rollins/) | 10 Mars 1915
+Anne Rollins | [Anne Rollins parle de sa progression de la première sphère Céleste vers la seconde sphère Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) | 27 Avril 1915
+Anne Rollins | [Anne Rollins décrit certaines des différentes sphères](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/) | 22 Décembre 1915

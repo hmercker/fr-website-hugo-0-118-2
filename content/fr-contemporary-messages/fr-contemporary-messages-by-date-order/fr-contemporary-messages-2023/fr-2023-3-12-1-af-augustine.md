@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Invitation à l'Amour Divin(FUSC<sup id=”a1”>[1](#f1)</sup>)
+### Invitation à l'Amour Divin(FUSC <sup id=”a1”>[1](#f1)</sup>)
 
 Augustin - reçu par Al Fike le 12 Mars 2023, Sechelt, Colombie-Britannique, Canada.
 
@@ -25,5 +25,3 @@ Nous honorons chacun de vous, âmes précieuses de la création de Dieu, et ceux
 <small>
 
 1. <large id=”f1”> FUSC : First United Spiritualist Church (Première Eglise Spiritualiste Unifiée).[↩](#a1)
-
-

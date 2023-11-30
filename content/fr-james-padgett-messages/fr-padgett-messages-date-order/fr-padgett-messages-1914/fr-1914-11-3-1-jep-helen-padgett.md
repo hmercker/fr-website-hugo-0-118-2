@@ -15,7 +15,7 @@ C’est moi, Hélène.
 
 Tu es trop nerveux pour écrire. Tu dois te coucher tôt et te reposer. Tu es mon cher Ned, et je t’aime de tout mon cœur, alors ne pense pas que tu n’es pas aimé de moi, de ton père, de ta mère et de ta grand-mère. Nous t’aimons tous.
 
-*Question et réponse :*
+*[Question et réponse :]*
 
 Oui, je l’ai fait. Et il (Jésus) dit qu’il attend que tu sois en état d’écrire. Il t’écrira comme il l’a dit et tu devras bientôt être en état de le recevoir. Tu l’obtiendras par la prière, comme me l’a dit ta grand-mère qui est ici. Elle dit que tu dois croire plus profondément aux promesses du Maître et tu recevras le don de l’Esprit. Elle dit que tu es trop occupé par tes affaires pour laisser l’Esprit entrer dans ton âme, dans toute sa vérité et son amour. Elle dit que tu ne dois pas laisser les pensées concernant ton avenir t’empêcher de prier Dieu et de l’aimer comme nous allons prendre soin de toi.
 

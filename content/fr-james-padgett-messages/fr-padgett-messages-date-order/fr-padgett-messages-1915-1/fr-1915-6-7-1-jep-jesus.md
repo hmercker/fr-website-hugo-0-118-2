@@ -11,10 +11,9 @@ weight:
 
 Jésus - reçu par James Padgett le 7 Juin 1915, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-jesus-akiane-kramarik.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-jesus-akiane-kramarik.jpg)
 
-
-C’est moi, Jésus.<sup id=”a1”>[1](#f1)</sup>
+C’est moi, Jésus. <sup id="a1">[1](#f1)</sup>
 
 Je veux vous écrire ce soir au sujet de ma naissance et de ma vie jusqu’à l’époque de mon ministère public.
 
@@ -54,27 +53,24 @@ Tout d’abord, je suis devenu le Christ lorsque je fus oint par mon Père, et c
 
 Simplement, en tant que Jésus, je n’ai jamais affirmé, comme mentionné dans la Bible, que, là où deux ou trois sont réunis, je serai aussi ; car il serait impossible pour moi d’être partout en même temps. Mais Christ, étant sans forme ni restriction, est omniprésent et, par conséquent, peut remplir ma promesse à cet égard. Christ est autant vivant aujourd’hui que jamais. Il n’a jamais été crucifié et n’est pas mort comme Jésus l’a été.
 
-Eh bien, je pense que vous êtes trop somnolent maintenant pour continuer, et vous avez besoin de dormir. Je ne connais aucune influence spéciale exercée sur vous pour vous endormir.<sup id=”a2”>[2](#f2)</sup>
+Eh bien, je pense que vous êtes trop somnolent maintenant pour continuer, et vous avez besoin de dormir. Je ne connais aucune influence spéciale exercée sur vous pour vous endormir. <sup id="a2">[2](#f2)</sup>
 
 [Je continuerai dans un proche avenir.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/)
 
-Votre frère et ami, Jésus.<sup id=”a3”>[3](#f3)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id=”f1”> *Credits du portrait de Jésus : [Akiane Kramarik](https://akiane.com)*.[↩](#a1)
-2. <large id=”f2”> *[Un message contemporain de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) prétend que Jésus avait en fait cinq frères et deux sœurs et il cite leurs noms.*[↩](#a2)
-3. <large id=”f3”> *Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*[↩](#a3)
+**Note :** Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus |  [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/) | 24 Mai 1915
-Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) | 08 Juin 1915
-Jésus | [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/) | 29 Juin 1915
-Jésus | [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/) | 20 Mai 1918
+Jésus | [La condition du monde au temps des enseignements de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/) | 24 Mai 1915
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) | 08 Juin 1915
+Jésus | [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/) | 29 Juin 1915
+Jésus | [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/) | 20 Mai 1918
 Jésus | [4ème Révélation : Jésus annonce Sa Messianité.](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/) | 25 Mai 1955
 Jésus | [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie.](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/) | 14 Juin 1955
+<small>
 
+1. <large id="f1"> Credits du portrait de Jésus : [Akiane Kramarik](https://akiane.com).[↩](#a1)
 
-
-
-
+2. <large id="f2"> [Un message contemporain de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) prétend que Jésus avait en fait cinq frères et deux sœurs et il cite leurs noms.[↩](#a2)

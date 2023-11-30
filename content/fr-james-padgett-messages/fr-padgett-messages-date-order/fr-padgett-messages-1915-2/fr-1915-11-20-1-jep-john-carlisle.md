@@ -11,7 +11,7 @@ weight:
 
 John G Carlisle - reçu par James Padgett le 20 Novembre 1915, Washington, USA.
 
-Laissez-moi écrire, John G. Carlisle.<sup id="a1">[1](#f1)</sup>
+Laissez-moi écrire, John G. Carlisle. <sup id="a1">[1](#f1)</sup>
 
 Je veux juste dire que j’ai tellement besoin d’aide. Je souffre tellement et je suis dans une telle obscurité que je ne peux trouver aucun soulagement à ma condition. Alors s’il vous plaît, dites-moi si vous pouvez m’aider. Certains esprits ici disent que vous les avez aidés, si possible je veux que vous m’aidiez.
 
@@ -35,9 +35,9 @@ C’est pourquoi, mon ami, je dois vous quitter, mais ce faisant, je tiens à vo
 
 Au revoir.
 
-Votre ami, John G. Carlisle.<sup id=”a2”>[2](#f2)</sup>
+Votre ami, John G. Carlisle. <sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **John Griffin Carlisle** (5 Septembre 1834 – 31 Juillet 1910) fut un homme politique américain de premier plan au sein du Parti démocrate pendant le dernier quart du XIXe siècle. Il fut président de la Chambre des représentants des États-Unis de 1883 à 1889 et secrétaire du Trésor de 1893 à 1897, pendant la panique de 1893. En tant que Démocrate Bourbon, il était à la tête de l’aile conservatrice et pro-business du parti, aux côtés du président Grover Cleveland. (Source : Wikipédia)[↩](#a1)
 
-2. <large id="f1"> [Il est revenu ultérieurement pour partager la bonne nouvelle de ses progrès](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-7-2-jep-john-carlisle/).*[↩](#a2)
+2. <large id="f2"> [Il est revenu ultérieurement pour partager la bonne nouvelle de ses progrès](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-7-2-jep-john-carlisle/).[↩](#a2)

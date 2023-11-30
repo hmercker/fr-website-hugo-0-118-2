@@ -17,4 +17,4 @@ Je veux simplement dire que je suis intéressé par votre travail et que vous re
 
 Votre frère en Christ, Flavius Josèphe.
 
-[Le vrai jésus de Nazareth](/4-fr-jesus-of-nazareth-messages/4-0-fr-the-real-jesus-of-nazareth/)
+**Note :** [Le vrai jésus de Nazareth](/4-fr-jesus-of-nazareth-messages/4-0-fr-the-real-jesus-of-nazareth/)

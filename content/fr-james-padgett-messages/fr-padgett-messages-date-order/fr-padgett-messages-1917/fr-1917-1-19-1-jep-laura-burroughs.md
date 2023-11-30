@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La cousine Laura Burroughs raconte sa rencontre avec son âme-sœur<sup id="a1">[1](#f1)</sup>
+### La cousine Laura Burroughs raconte sa rencontre avec son âme-sœur <sup id="a1">[1](#f1)</sup>
 
 Laura Burroughs - reçu par James Padgett le 19 Janvier 1917, Washington, USA.
 

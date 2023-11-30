@@ -38,7 +38,7 @@ Je n’écrirai pas plus sur Paul ce soir, mais je vous parlerai de certaines ch
 
 Les hommes sont maintenant dans une condition qui les fait désirer ardemment ce grand Amour, la paix et le bonheur qu’il leur apporte, sans savoir vraiment ce qu’ils désirent; Lorsque mes vérités leur sont présentées, et qu’il leur est communiqué les merveilleuses bénédictions qui peuvent être les leurs en le cherchant simplement dans une prière sincère et honnête, ils tourneront leurs pensées et désirs vers Dieu et Son Amour, et trouveront le bonheur et la paix dont ils sont si peu conscients.
 
-J’ai beaucoup de choses que je souhaite exprimer et j’espère que nous aurons bientôt le rapport qui me permettra de le faire. 
+J’ai beaucoup de choses que je souhaite exprimer et j’espère que nous aurons bientôt le rapport qui me permettra de le faire.
 
 Eh bien, je vois ce que vous ressentez, et je suis si heureux que vous le fassiez ; et je dois vous dire que l’Amour du Père travaille dans votre âme, et qu’il fera de vous mon vrai et sincère disciple. Je serai avec vous avec tout mon pouvoir et mon influence, afin que rien n’empêche l’accomplissement de la grande œuvre pour laquelle que je vous ai choisi. Vous devez prier le Père pour Son Amour et pour la foi, et ils viendront à vous ; car le Père désire répondre et exaucer une telle prière.
 
@@ -48,7 +48,7 @@ Vous avez écrit longuement cette nuit et je pense qu’il vaut mieux que j’ar
 
 Avec tout mon amour et mes bénédictions, et l’amour et les bénédictions du Père, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
+Votre frère et ami, Jésus. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> [Ce même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-3-jep-st-paul/), Paul a également commenté le message du prédicateur.[↩](#a1)
+1. <large id="f1"> [Ce même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-3-jep-st-paul/), Paul a également commenté le message du prédicateur.[↩](#a1)

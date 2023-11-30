@@ -33,6 +33,4 @@ J’attends donc vos conseils.
 
 Je l’ai appelé et il dit qu’il me montrera le chemin et que je dois l’accompagner. Je vuus dirai donc,
 
-Bonne nuit, 
-
-William S. Richards.
+Bonne nuit, William S. Richards.

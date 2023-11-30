@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Comment et quand Dieu répond à la prière. Lois du rapport et de la communication<sup id="a1">[1](#f1)</sup>
+### Comment et quand Dieu répond à la prière. Lois du rapport et de la communication <sup id="a1">[1](#f1)</sup>
 
 St Jean - reçu par James Padgett le 2 Novembre 1917, Washington, USA.
 
@@ -29,7 +29,7 @@ L’homme a son libre arbitre et, comme nous vous l’avons écrit, cela n’est
 
 Vous pouvez chercher une détermination plus antérieure de la lutte que certains hommes croient maintenant possible mais, lorsque la fin viendra, beaucoup de mortels deviendront des esprits et trouveront leurs demeures – certains dans les sphères plus sombres, et d’autres dans celles de la lumière et de l’amour, mais tous sont les enfants de Dieu et ils ne seront pas abandonnés par Lui dans la grande éternité.
 
-*[Question.]*
+*[Question :]*
 
 Eh bien, vous n’avez pas été dans cet état d’esprit qui nous a permis d’établir la nécessaire relation avec vous. Nous devons avoir un esprit qui est rempli de pensées des choses supérieures de la vérité, même si nous n’utilisons pas ces pensées. Nos pensées sont toutes spirituelles, et nos vérités ne peuvent être reçues que par le mental dans une condition spirituelle, et vous, dernièrement, vous n’avez pas eu autant de ce mental spirituel qu’auparavant. Notre contact n’a pas été si proche, et notre relation, nécessaire pour nous permettre d’exprimer par votre esprit ces vérités spirituelles, n’a pas été si parfaite. Et quand je dis mental, je veux simplement dire les organes du cerveau tels qu’influencés par les pensées du mental ; car je vais vous dire ce que vous ne savez peut-être pas, que ces organes constitutifs du cerveau ne sont pas toujours et dans toutes les conditions réceptives au même contrôle par le mental des esprits. Vous pouvez recevoir à travers votre cerveau un message long et profond de choses relatives à ce que vous pouvez appeler le matériel, et pourtant, dans des conditions similaires de ces organes, vous ne pouvez pas recevoir les messages des vérités supérieures ; et les conditions de ces organes du cerveau sont causées par la condition de l’âme en possession des choses spirituelles.
 
@@ -37,9 +37,9 @@ Il m’est difficile d’exprimer exactement ce que j’ai l’intention de tran
 
 Une pensée spirituelle – je veux dire une pensée qui ne peut venir que d’un esprit qui a le développement de l’âme qui rend cette âme Divine – ne peut pas passer à travers un cerveau humain qui n’a jamais été développé par une âme dans laquelle l’Amour Divin est entré et a travaillé ses pouvoirs régénérateurs. Les choses de la matière peuvent être transmises par un cerveau purement matériel, les choses morales par un cerveau qui a été influencé par des vérités morales, et les choses spirituelles par un cerveau qui a assimilé ces vérités qui ne viennent qu’avec le développement de l’Âme par l’Amour. C’est la loi du rapport et de la communication.
 
-Eh bien, je n’écrirai pas plus maintenant. Mais, en conclusion, exhortez vous à avoir foi en nous, laissez vos soucis vous quitter, et priez davantage le Père. Au revoir.<sup id="a2">[2](#f2)</sup>
+Eh bien, je n’écrirai pas plus maintenant. Mais, en conclusion, exhortez vous à avoir foi en nous, laissez vos soucis vous quitter, et priez davantage le Père. Au revoir. <sup id="a2">[2](#f2)</sup>
 
-Votre frère en Christ, Jean.<sup id="a3">[3](#f3)</sup>
+Votre frère en Christ, Jean. <sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id="f1"> C’est l’un des trois messages auxquels Jésus fait référence dans le message qu'il a communiqué publié [le 25 Octobre 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-25-1-jep-jesus/).[↩](#a1)

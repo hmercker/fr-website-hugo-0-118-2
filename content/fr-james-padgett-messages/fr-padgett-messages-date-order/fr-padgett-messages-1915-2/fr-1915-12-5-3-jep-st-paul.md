@@ -23,7 +23,7 @@ Alors que beaucoup de choses que j’ai enseignées et telles que je les vois ma
 
 Eh bien, je n’écrirai pas plus ce soir car vous avez déjà écrit beaucoup, et d’autres souhaitent écrire. Je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Paul.<sup id=”a1”>[1](#f1)</sup>
+Votre frère en Christ, Paul. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> [Ce même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-2-jep-jesus/), Jésus a également commenté le message du prédicateur.[↩](#a1)
+1. <large id="f1"> [Ce même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-5-2-jep-jesus/), Jésus a également commenté le message du prédicateur.[↩](#a1)

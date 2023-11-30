@@ -21,7 +21,7 @@ En ce qui concerne le Baptême, cette performance ou cet acte ne sont pas néces
 
 Cependant, la dédicace de l’enfant dans l’église de la Nouvelle Naissance est, en conséquence, sur un plan spirituel, un acte de foi, dans le Père et dans Son Amour Rédempteur, largement au-dessus et au-delà des anciens rites Hébraïques ou du Baptême Chrétien, né du développement historique et de la croissance spirituelle sur le plan de la perfection de l’Amour Naturel. Pourtant, parce que vous êtes maintenant les âmes de l’Amour Naturel, alors que vous cherchez le Divin, il n’est pas dans la volonté de Jésus et de ses hôtes d’interdire, pour ceux qui souhaitent y prendre part, les rites de dédicace des religions plus anciennes, en offrant leur enfant à la grâce du Père.
 
-<u>12 Novembre 1960</u> :
+<u>12 Novembre 1960 :</u>
 
 Maintenant, le fait, qui doit être considéré en premier, est que les Spiritualistes qui prétendent être Chrétiens ont leur libre arbitre en leur qualité d’êtres humains. Ils sont  très souvent obsédés par leurs enseignements qui les retiennent comme avec des tentacules, et ils n’ont pas le pouvoir de briser ces entraves de l’esprit, ni ne sont prêts à écouter et à être convaincus sur la base des faits qui leur sont présentés. Les Chrétiens, comme ils sont habituellement appelés, adhèrent à un certain type d’enseignement, que leur culte soit orthodoxe ou libéral. Dans ce culte ils adhèrent généralement à leur propre concept de Dieu, dans lequel je suis représenté comme le Fils de Dieu, comme deuxième personne de la trinité.
 

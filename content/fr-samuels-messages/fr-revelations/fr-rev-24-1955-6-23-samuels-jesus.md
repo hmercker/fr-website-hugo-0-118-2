@@ -33,6 +33,4 @@ Je pense que j’ai couvert le sujet du libre arbitre et du destin de l’homme,
 
 Alors, je vous remercie de m'avoir permis d’écrire ce soir et je terminerai en disant : je suis votre ami et frère aîné,
 
-Jésus de la Bible
-et
-Maître des Cieux Célestes.
+Jésus de la Bible et Maître des Cieux Célestes.

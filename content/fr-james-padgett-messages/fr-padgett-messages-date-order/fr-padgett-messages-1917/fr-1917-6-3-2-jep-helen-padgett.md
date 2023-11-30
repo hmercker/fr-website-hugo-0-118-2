@@ -17,7 +17,7 @@ Jésus t’a dit, il y a peu de temps, qu’un jour il te permettrait de le voir
 
 Que l’Amour du Père te suffise. Bonne nuit, mon cher mari.
 
-Ta vraie et bien-aimée, Hélène.<sup id=”a1”>[1](#f1)</sup
+Ta vraie et bien-aimée, Hélène. <sup id="a1">[1](#f1)</sup
 <small>
 
-1. <large id=”f1”> *M. Padgett m’a dit qu’à plusieurs reprises, qu’alors qu’il priait pour l’Amour Divin, il a souvent vu Jésus prier avec lui. (Docteur Stone)*[↩](#a1)
+1. <large id="f1"> M. Padgett m’a dit qu’à plusieurs reprises, qu’alors qu’il priait pour l’Amour Divin, il a souvent vu Jésus prier avec lui. (Docteur Stone)[↩](#a1)

@@ -11,7 +11,7 @@ weight:
 
 Descartes - reçu par James Padgett le 20 Novembre 1916, Washington, USA.
 
-Je suis Descartes.<sup id="a1">[1](#f1)</sup>
+Je suis Descartes. <sup id="a1">[1](#f1)</sup>
 
 Laissez-moi vous dire un mot. Je ne m’imposerai pas longtemps, je veux seulement vous dire que vous n’êtes pas aussi bon que ces esprits peuvent vous le faire croire. Je ne suis pas un esprit mauvais, mais un observateur impartial des choses, y compris des états d’âme des hommes, et quand je dis ce que j’ai dit, vous ne devez pas penser que j’ai des préjugés ou le désir de vous faire sentir que vous êtes un grand pécheur, mais j’ai entendu ce que certains de ces esprits vous ont écrit et je vois qu’ils vous flattent et essayent de vous faire croire que vous êtes un petit dieu sur terre et, en tant que votre ami, je ne crois pas que vous devriez être ainsi déçu.
 
@@ -25,7 +25,7 @@ Vous voyez donc que je m’intéresse vraiment à vous et que je désire que vou
 
 Eh bien, nous sommes tous dans ce qu’ils appellent la sphère terrestre et nous sommes dans une relative obscurité et aussi dans une certaine lumière et nous comprenons la raison de vivre dans l’obscurité. Nous n’avons pas encore accompli ce développement de nos qualités intellectuelles qui convient pour les plans de la grande lumière parce que, comme vous le savez, la plus grande connaissance que nous pouvons acquérir sur terre n’est pas égale au moindre savoir qui est nécessaire pour nous adapter aux plans où seule la lumière existe. C’est pour cette raison que nous avons l’apparence des ténèbres, mais à mesure que nous obtenons un plus grand développement mental, cette apparence d’obscurité nous quitte et nous progressons ensuite vers les sphères de lumière. Ceci, comme vous le comprendrez, n’est que naturel et le résultat d’une loi que nous reconnaissons comme travaillant exactement et immuablement comme le font les autres lois de la nature.
 
-*[Question ?]*
+*[Question :]*
 
 Eh bien, je suis dans la vie spirituelle depuis de nombreuses années et j’ai travaillé aussi dur et avec plus d’enthousiasme que sur terre pour acquérir la connaissance et comprendre les lois de la nature et je suis satisfait de mon progrès, bien que je ne cesserai jamais de progresser comme je le sais, car je ne cesserai jamais mes efforts pour acquérir toujours plus de connaissances.
 

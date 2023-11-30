@@ -29,7 +29,7 @@ Je reviendrai bientôt pour tenter à nouveau l’expérience, et je suppose que
 
 Votre sœur bien-aimée, Mary.
 
-*P.S. *Le lendemain de l’information reçue par M. Padgett selon laquelle son Hélène et ma compagne d’âme [Mary allaient essayer de me sortir du corps](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-25-2-jep-helen-padgett/) comme elles l’avaient écrit environ trois semaines auparavant, j’ai ressenti une merveilleuse influence d’amour qui semblait prendre possession de tout mon être, et cela a duré trois jours et m’a rendu très heureux.*
+**Note :** Le lendemain de l’information reçue par M. Padgett selon laquelle son Hélène et ma compagne d’âme [Mary allaient essayer de me sortir du corps](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-25-2-jep-helen-padgett/) comme elles l’avaient écrit environ trois semaines auparavant, j’ai ressenti une merveilleuse influence d’amour qui semblait prendre possession de tout mon être, et cela a duré trois jours et m’a rendu très heureux.
 
 *M. Padgett a vécu une expérience similaire après être allé dans le monde des esprits, dans la troisième sphère, quelques mois avant mon expérience, et il a dit qu’il a senti que beaucoup d’amour était présent dans son âme après l’événement.*
 

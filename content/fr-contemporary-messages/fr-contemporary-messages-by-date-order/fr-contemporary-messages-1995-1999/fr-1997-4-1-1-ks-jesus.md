@@ -27,12 +27,12 @@ Un jour à la fois, c'est tout ce que chacun peut attendre de lui-même ; et si 
 
 *[Q : ____ aimerait savoir s'il y a quelque chose en particulier qu'elle devrait faire ?]*
 
-Alors que ____ prie pour mieux comprendre ce qu'elle veut faire, comment elle veut être au service des autres, ses "spécialités" deviendront plus évidentes pour elle.
+Alors que ____ prie pour mieux comprendre ce qu'elle veut faire, comment elle veut être au service des autres, ses « spécialités » deviendront plus évidentes pour elle.
 Il n'est pas nécessaire de prendre une décision ferme quant à une orientation ou un choix de carrière pour le moment, mais une orientation quant à ses intérêts et aux projets dans lesquels elle veut s'impliquer révélera lentement mais sûrement des talents latents qu'elle apprendra à connaître en temps voulu.
 
 *[Q : ____ aimerait avoir des mots d'encouragement.]*
 
-____ va mieux, même s'il ne s'en rend pas encore compte. Par "mieux", nous considérons toujours les qualités de l'âme avant celles du physique ; même si l'une est le reflet de l'autre, la guérison doit d'abord avoir lieu dans la nature spirituelle avant que les améliorations physiques significatives ne soient durables.
+____ va mieux, même s'il ne s'en rend pas encore compte. Par « mieux », nous considérons toujours les qualités de l'âme avant celles du physique ; même si l'une est le reflet de l'autre, la guérison doit d'abord avoir lieu dans la nature spirituelle avant que les améliorations physiques significatives ne soient durables.
 
 Continuez donc vos prières ferventes et sincères aussi souvent que possible, ayez foi en la puissance de l'amour de Dieu pour changer votre état en un état vibrant et sain.
 Il y aura des revers seulement parce que les vieux schémas n'ont pas été totalement éliminés et quand ils entrent en jeu et que des pensées négatives sont entretenues et demeurent même pendant un certain temps dans votre personne, elles vous aideront à tomber ou au moins à trébucher et à vous sentir déprimé et abattu, jusqu'à ce que l'Amour soit activé et étendu aux autres et se manifeste sur une base plus régulière de jour en jour.
@@ -51,7 +51,7 @@ Lorsque l'on prie pour avoir la foi et la capacité de percevoir clairement les 
 
 *[Q : La difficulté de ____ à trouver un lieu de vie pour elle et ____ est-elle une indication qu'ils devraient chercher dans une autre région ?]*
 
-____ est indécise quant à ce qu'elle veut faire, et sa "guidance" ne sera donc pas très claire. Par exemple, si elle priait pour faire ce qui est le mieux pour ____ , elle serait guidée dans cette direction. Si elle veut rester dans ce domaine, cela peut entrer en conflit avec les autres conseils. Il est donc nécessaire de faire un choix, ou de dresser une liste de priorités, pour que la direction se déroule de manière plus simple.
+____ est indécise quant à ce qu'elle veut faire, et sa « guidance » ne sera donc pas très claire. Par exemple, si elle priait pour faire ce qui est le mieux pour ____, elle serait guidée dans cette direction. Si elle veut rester dans ce domaine, cela peut entrer en conflit avec les autres conseils. Il est donc nécessaire de faire un choix, ou de dresser une liste de priorités, pour que la direction se déroule de manière plus simple.
 
 Souvent, on est son pire ennemi à cause de la confusion que l'on a créée en ne faisant pas de choix clairs.
 

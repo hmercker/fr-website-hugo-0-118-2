@@ -27,7 +27,7 @@ Je te conseille donc de ne pas perdre ton temps à lire ces écritures, mais plu
 
 Je ne voudrais pas, par ce que j’ai dit, être comprise comme dévalorisant la lecture de ces écritures par des personnes qui n’ont pas la possibilité et le privilège d’entendre les vérités qui t’ont été révélées, car, dans ces écritures, beaucoup de vérités morales et illustrations peuvent leur servir, et sont sans doute essentielles dans les circonstances et les particularismes qui ont été décrits. Alors mon cher mari, continue à prier et à croire.
 
-*[Question et réponse.]*
+*[Question et réponse :]*
 
 Je voulais dire qu’il n’est pas nécessaire que les gens d’aujourd’hui lisent ces vérités, car, dans le Nouveau Testament se trouvent ces vérités morales ; et bien que ce ne soit pas nécessaire, je ne conseillerais pas que les gens lisent absolument l’Ancien Testament, car certains pourraient apprécier la lecture de ces vérités telles qu’elles sont contenues et associées aux circonstances les entourant. Elles peuvent plaire à certains, et, dans ce cas, elles peuvent être bénéfiques. Je répète qu’elles ne sont pas nécessaires, mais qu’elles peuvent être utiles à certains – l’esprit de tous ne fonctionne pas de la même manière.
 

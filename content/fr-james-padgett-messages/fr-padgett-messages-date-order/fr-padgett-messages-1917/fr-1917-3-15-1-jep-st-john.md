@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé 
+### Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé
 
 St Jean - reçu par James Padgett le 15 Mars 1917, Washington, USA.
 
 C’est moi, Jean.
 
-J’étais avec vous ce soir à la séance spirite et j’ai entendu ce que le médium<sup id="a1">[1](#12)</sup> a dit, et j’ai vu que, lorsqu’elle délivrait les divers messages, elle était dictée par des esprits d’un très faible niveau de développement, et qu’ils aimaient beaucoup la tromperie qu’ils pratiquaient sur le médium et sur les auditeurs.
+J’étais avec vous ce soir à la séance spirite et j’ai entendu ce que le médium <sup id="a1">[1](#1)</sup> a dit, et j’ai vu que, lorsqu’elle délivrait les divers messages, elle était dictée par des esprits d’un très faible niveau de développement, et qu’ils aimaient beaucoup la tromperie qu’ils pratiquaient sur le médium et sur les auditeurs.
 
 Ces esprits ne sont pas du genre de ceux avec qui vous devriez être associés. Votre groupe était présent et a empêché qu’aucun de ces esprits ne communique avec vous, vous affecte par son influence. Cependant cela ne vous fait aucun bien de vous mêler avec ces esprits.
 
@@ -59,11 +59,11 @@ Eh bien, mon frère, j’ai assez écrit pour ce soir et je vais m’arrêter, m
 
 Avec mon amour et les bénédictions du Père, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Jean.<sup id="a3">[3](#f3)</sup>
+Votre frère en Christ, Jean. <sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id="f1"> Ce message a été reçu par M. Padgett, après que M. Padgett et le Dr Stone aient assisté à une séance du Dr. Bruen dans cette ville. (Geoff Cutler)[↩](#a1)
 
-2. <large id="f2"> **Seconde mort** : la perte et la mort du privilège d’obtenir l’Amour Divin que les âmes doivent posséder afin de pouvoir entrer das le Royaume des Cieux avant que ce dernier ne ferme. Voir le message d’Anne Rollins du 1er Juin 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/)»(Geoff Cutler).[↩](#a2)
+2. <large id="f2"> **Seconde mort** : la perte et la mort du privilège d’obtenir l’Amour Divin que les âmes doivent posséder afin de pouvoir entrer das le Royaume des Cieux avant que ce dernier ne ferme. Voir le [message d’Anne Rollins du 1er Juin 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/)»(Geoff Cutler).[↩](#a2)
 
 3. <large id="f3"> Ce message a également été publié dans le Volume 2, 1ère édition française, page 218 et dans le Volume IV  page 16. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a3)

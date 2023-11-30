@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais<sup id="a1">[1](#f1)</sup>
+### Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 15 Août 1915, Washington, USA.
 
@@ -29,18 +29,16 @@ Je sais que vous êtes impatient de faire ce travail, et que votre âme attend l
 
 Alors croyez en mon amour et en mon désir pour votre succès.
 
-Votre frère en Christ, Jésus.<sup id=”a2”>[2](#f2)</sup>
-<small>
+Votre frère en Christ, Jésus.
 
-1. <large id="f1"> Ce message est publié, volume I, 1ère édition française, page 209 et dans le volume III à la page 133. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
-
-1. <large id="f2"> *Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a2)
+**Note :** Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
-Jésus | [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-13-1-jep-jesus/) | 13 Août 1916
-Jésus | « [En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père ».](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/) | 24 Septembre 1916
-Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 18 Octobre 1919 
+Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
+Jésus | [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-13-1-jep-jesus/) | 13 Août 1916
+Jésus | [« En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/) | 24 Septembre 1916
+Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 18 Octobre 1919
+<small>
 
-
+1. <large id="f1"> Ce message est publié, volume I, 1ère édition française, page 209 et dans le volume III à la page 133. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

@@ -39,11 +39,11 @@ C'est une bonne chose pour ____ de rechercher la Vérité et de prier pour l'Amo
 
 Lorsqu'une personne se consacre à prier quotidiennement pour obtenir davantage de la grâce de Dieu et fait l'effort de s'en remettre à l'amour de son parent Céleste, le créateur de son âme, elle sera ouverte aux influences de ses anges gardiens.
 
-La lecture des messages des anges est une discipline importante pour aider l'esprit à prendre conscience du fonctionnement des lois de Dieu qui gouvernent la vie de ses enfants. Mais les prières sincères d'une âme contrite sont les disciplines les plus importantes qui apportent la transformation, qui amènent dans l'âme une puissance supérieure pour surmonter les faiblesses, pour s'élever au-dessus des tendances humaines "naturelles" à s'inquiéter, à se sentir seul ou à penser que c'est à l'individu de résoudre tous ses problèmes.
+La lecture des messages des anges est une discipline importante pour aider l'esprit à prendre conscience du fonctionnement des lois de Dieu qui gouvernent la vie de ses enfants. Mais les prières sincères d'une âme contrite sont les disciplines les plus importantes qui apportent la transformation, qui amènent dans l'âme une puissance supérieure pour surmonter les faiblesses, pour s'élever au-dessus des tendances humaines « naturelles » à s'inquiéter, à se sentir seul ou à penser que c'est à l'individu de résoudre tous ses problèmes.
 
 Lorsqu'une personne croit ainsi, elle se coupe de l'aide supérieure que les anges pourraient lui offrir, car nous ne pouvons pas imposer notre aide à nos semblables, femmes et enfants, contre leur gré.
 
-Ainsi, les prières d'aide sont nécessaires pour que nous puissions intervenir avec les influences utiles et les autres interactions que nous désirons tant offrir et être en mesure d'accomplir, mais que souvent nous ne pouvons pas à cause de l'attitude "indépendante" et "je peux le faire moi-même" de l'individu, qui ne le laisse pas ouvert à notre aide ou à nos influences aimantes.
+Ainsi, les prières d'aide sont nécessaires pour que nous puissions intervenir avec les influences utiles et les autres interactions que nous désirons tant offrir et être en mesure d'accomplir, mais que souvent nous ne pouvons pas à cause de l'attitude « indépendante » et « je peux le faire moi-même » de l'individu, qui ne le laisse pas ouvert à notre aide ou à nos influences aimantes.
 <small>
 
 1. <large id="f1"> **********************************This matter of travelling at night to the spirit spheres has been wonderfully set out in considerable detail in two books by Robert James Lees, which books are in the suggested reading list. There is also an extract of this material here.*********************[↩](#a1)

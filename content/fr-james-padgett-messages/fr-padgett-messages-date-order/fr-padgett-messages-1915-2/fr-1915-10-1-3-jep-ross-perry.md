@@ -15,7 +15,7 @@ Je suis votre défunt ami, Perry.
 
 Je veux vous dire que je suis dans un état de grandes ténèbres et de souffrance, et que je ne peux trouver un moyen de sortir des ténèbres ou de me libérer de mes tortures.
 
-Je sais que vous pouvez trouver étrange que je n’aie pas écouté M. Riddle lorsque vous l’avez mis en relation avec moi il y a peu de temps<sup id="a1">[1](#f1)</sup>, mais je n’ai pas pu croire ce qu’il m’a dit, ni comprendre de quelle manière les ténèbres me quitteraient en priant simplement Dieu et en essayant de croire que l’Amour Divin existe. Si seulement je pouvais avoir la foi, en ce qu’il m’a dit, devenir suffisamment fort pour me faire oublier les souvenirs de mon terrible acte.
+Je sais que vous pouvez trouver étrange que je n’aie pas écouté M. Riddle lorsque vous l’avez mis en relation avec moi il y a peu de temps <sup id="a1">[1](#f1)</sup>, mais je n’ai pas pu croire ce qu’il m’a dit, ni comprendre de quelle manière les ténèbres me quitteraient en priant simplement Dieu et en essayant de croire que l’Amour Divin existe. Si seulement je pouvais avoir la foi, en ce qu’il m’a dit, devenir suffisamment fort pour me faire oublier les souvenirs de mon terrible acte.
 
 J’ai vu qu’il était un esprit extraordinairement brillant et qu’il semblait si heureux dans sa condition de croyance, mais, néanmoins, je n’ai pas pu croire que c’était le résultat de ce qu’il me disait et, ainsi, je suis dans le même état que lorsque je vous ai écrit la dernière fois.
 
@@ -51,7 +51,7 @@ Je lui demanderai de me parler de sa conversion et je l’écouterai attentiveme
 
 Dites-moi, quel genre d’homme êtes-vous pour savoir toutes ces choses ? Je ne vous comprends pas. Sur terre, je vous considérais simplement comme les autres, mais maintenant je découvre que vous savez des choses, que je n’aurais jamais pensé qu’un mortel puisse savoir.
 
-*[Questions et réponses]*
+*[Questions et réponses :]*
 
 Eh bien je vais d’étonnement en étonnement avec ce tout que vous dites pour m’aider et me conduire à la lumière. Oui, c’est ce que je veux, la lumière. Attendez seulement jusqu’à ce que j’ai eu ces expériences que vous me promettez, et je viendrai à vous et je vous écrirai une lettre que vous allez vous lasser de recevoir. Je dois arrêter maintenant, car vous devez être fatigué et je le suis.
 

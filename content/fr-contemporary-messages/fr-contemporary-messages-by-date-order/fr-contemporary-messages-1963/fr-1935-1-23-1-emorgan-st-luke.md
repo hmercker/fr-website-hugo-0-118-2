@@ -17,4 +17,4 @@ Vous devez réaliser ce que votre travail signifie. Vous avez permis à des mill
 
 Luc.
 
-Note : Ce message n’est pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.
+**Note :** Ce message n’est pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.

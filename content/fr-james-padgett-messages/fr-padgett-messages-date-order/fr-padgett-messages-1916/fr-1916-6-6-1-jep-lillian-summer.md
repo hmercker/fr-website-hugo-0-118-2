@@ -11,7 +11,7 @@ weight:
 
 Lillian Summer - reçu par James Padgett le 6 Juin 1916, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-flying-dove.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-flying-dove.jpg)
 
 Je suis Lillian Summer.
 

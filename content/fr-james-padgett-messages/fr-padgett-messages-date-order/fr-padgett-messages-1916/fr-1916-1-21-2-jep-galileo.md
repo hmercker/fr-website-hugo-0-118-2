@@ -9,7 +9,7 @@ weight:
 ---
 ### Galilée écrit sur ses études de l’Univers matériel
 
-Galilée<sup id="a1">[1](#f1)</sup> - reçu par James Padgett le 21 Janvier 1916, Washington, USA.
+Galilée <sup id="a1">[1](#f1)</sup> - reçu par James Padgett le 21 Janvier 1916, Washington, USA.
 
 Je suis l’esprit de Galilée et je veux partager avec vous quelques mots sur le monde spirituel de la science.
 

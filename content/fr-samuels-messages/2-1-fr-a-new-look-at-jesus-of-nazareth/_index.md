@@ -13,6 +13,6 @@ Dans les écrits reçus par le Dr Samuels, Jésus s’est attaché à redéfinir
 
 Les messages reçus par le Dr Samuels comportent :
 
-1°) D’une part [53 Révélations](/fr-samuels-messages/fr-revelations/) qui apportent une lumière nouvelle sur la compréhension de la mission de Christ. Ces Révélations montrent que le Nouveau Testament comporte de nombreuses inexactitudes et de nombreuses distorsions effectuées dans la volonté d’affirmer que Jésus était né d’une vierge ou qu’il était venu comme un prêtre-roi.
+1° D’une part [53 Révélations](/fr-samuels-messages/fr-revelations/) qui apportent une lumière nouvelle sur la compréhension de la mission de Christ. Ces Révélations montrent que le Nouveau Testament comporte de nombreuses inexactitudes et de nombreuses distorsions effectuées dans la volonté d’affirmer que Jésus était né d’une vierge ou qu’il était venu comme un prêtre-roi.
 
-2°) D’autre part [76 Sermons](/fr-samuels-messages/fr-sermons/) dans lesquels Jésus présente les grandes figures historiques de l’Ancien Testament et montre la manière dont les âmes courageuses des temps anciens ont ouvert la voie à la venue du Messie.
+2° D’autre part [76 Sermons](/fr-samuels-messages/fr-sermons/) dans lesquels Jésus présente les grandes figures historiques de l’Ancien Testament et montre la manière dont les âmes courageuses des temps anciens ont ouvert la voie à la venue du Messie.

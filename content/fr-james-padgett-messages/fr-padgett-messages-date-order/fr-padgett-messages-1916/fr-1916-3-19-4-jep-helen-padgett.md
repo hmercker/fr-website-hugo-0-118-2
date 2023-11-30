@@ -17,7 +17,7 @@ Certains de tes anciens amis avocats t’ont écrit, et j’en ai été ravie, c
 
 Le dernier fut le pauvre Lipscomb, et il imaginait qu’il était ivre, mais, bien sûr, il ne l’était pas. Il l’imaginait seulement ; et comme tu le sais *« les pensées sont des réalités »*.
 
-Eh bien, je suis vraiment désolé pour lui. J’ai essayé une ou deux fois de l’aider, mais je crains de devoir attendre un certain temps avant de pouvoir quelque peu pour le faire changer d’avis. Il est tellement terre à terre<sup id="a1">[1](#f1)</sup>, et cet appétit maudit semble avoir une telle emprise sur lui qu’il en est complètement dominé. Mais comme tu le dis, avec le temps, il s’améliorera.
+Eh bien, je suis vraiment désolé pour lui. J’ai essayé une ou deux fois de l’aider, mais je crains de devoir attendre un certain temps avant de pouvoir quelque peu pour le faire changer d’avis. Il est tellement terre à terre <sup id="a1">[1](#f1)</sup>, et cet appétit maudit semble avoir une telle emprise sur lui qu’il en est complètement dominé. Mais comme tu le dis, avec le temps, il s’améliorera.
 
 Eh bien, mon cher, j’étais avec toi ce soir à l’église et tu t’en es rendu compte pendant que le chœur chantait, car je pouvais voir et sentir que ton amour coulait vers moi, et j’étais très heureuse.
 

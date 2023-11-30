@@ -31,17 +31,14 @@ Je pense avoir assez écrit pour ce soir, et si vous lisez attentivement ce que 
 
 Alors, en vous exprimant ma satisfaction et mon plaisir d’avoir pu revenir vers vous et que vous ayez reçu mes idées sur qui est notre Père, et pour avoir aussi eu la possibilité de déclarer que Dieu est un être, ayant une existence propre, compréhensible par les perceptions de l’âme des rachetés de ses créatures, je vous dirai, bonne nuit.
 
-Votre ancien professeur et frère en Christ, Joseph H. Salyards.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre ancien professeur et frère en Christ, Joseph H. Salyards.
 
-1. <large id=”f1”> *Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :*[↩](#a1)
+**Note :** Plusieurs autres messages ont été écrits sur ce thème "Qui et qu'est-ce que Dieu". Ils peuvent être lus par les liens suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [La personalité de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-1-jep-jesus/) | 22 Novembre 1915
 Luc | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/) | 22 Novembre 1915
-Anne Rollins | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/) |  18 Février 1916 
+Anne Rollins | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-18-2-jep-ann-rollins/) | 18 Février 1916
 Anne Rollins | [Qui et qu'est-ce que Dieu (suite) ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-25-1-jep-ann-rollins/) | 25 Février 1916
 Jésus | [Qui et qu'est-ce que Dieu ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/) | 25 Mai 1917
-
-

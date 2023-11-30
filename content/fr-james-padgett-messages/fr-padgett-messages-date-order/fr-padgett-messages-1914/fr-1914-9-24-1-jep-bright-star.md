@@ -55,4 +55,4 @@ Oui, c’est ainsi qu’ils le pensaient de moi, mais je suis plus que ça. J’
 
 Laissez-moi aller maintenant. Bonne nuit. Bright Star.
 
-*Note : Le style de ce message correspond à un des premiers messages, bien que sa date ne corresponde peut-être pas exactement à celle indiquée dans le journal quotidien comme étant la date la plus ancienne enregistrée au regard de Bright Star.*
+**Note :** Le style de ce message correspond à un des premiers messages, bien que sa date ne corresponde peut-être pas exactement à celle indiquée dans le journal quotidien comme étant la date la plus ancienne enregistrée au regard de Bright Star.

@@ -31,21 +31,18 @@ La paix viendra, mais pas à la suite d’une bataille d’Armageddon, ou de tou
 
 Je n’écrirai pas plus ce soir, mais, à un moment donné, je pourrais en dire plus à ce sujet, bien que sa seule importance soit d’attirer l’attention des hommes sur la vérité et de créer des croyances qui nuisent. Je viendrai bientôt pour vous écrire un autre message de vérité.
 
-Je suis avec vous, comme je vous l’ai dit, en essayant de vous aider et de vous montrer le chemin vers cette Nouvelle Naissance qui est la vôtre et de tous ceux qui suivront mes instructions. Je vous aime comme un frère cadet et je continuerai à vous bénir avec mon influence et mes prières. Ne doutez donc pas, priez le Père et vous trouverez la vérité dans une plus grande plénitude et recevrez le bonheur correspondant. Je vais m’arrêter maintenant.<sup id=”a1”>[1](#f1)</sup>
+Je suis avec vous, comme je vous l’ai dit, en essayant de vous aider et de vous montrer le chemin vers cette Nouvelle Naissance qui est la vôtre et de tous ceux qui suivront mes instructions. Je vous aime comme un frère cadet et je continuerai à vous bénir avec mon influence et mes prières. Ne doutez donc pas, priez le Père et vous trouverez la vérité dans une plus grande plénitude et recevrez le bonheur correspondant. Je vais m’arrêter maintenant. <sup id="a1">[1](#f1)</sup>
 
-Votre frère et ami, Jésus.<sup id=”a2”>[2](#f2)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id=”f1”> *[Dans un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-7-20-1-ks-jesus/), Jésus dit clairement qu’il pourrait « apparaître » à l’humanité, mais il ne serait pas un homme de chair. Il aurait ce qu’on appelle un corps matérialisé, le même que ses disciples ont vu après sa mort sur la croix. En fait, il est probablement apparu à certaines personnes de cette manière.*[↩](#a1)
-
-2. <large id=”2”> Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*[↩](#a2)
+**Note :** Jésus s'est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-15-1-jep-jesus) | 15 Août 1915
-Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
-Jésus | « [En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père ».](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/) | 24 Septembre 1916
-Jésus |  [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 18 Octobre 1919 
+Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
+Jésus | [En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/) | 24 Septembre 1916
+Jésus | [L’importance de connaître le chemin vers le Royaume Céleste – beaucoup de déclarations dans la Bible sont fausses](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-10-18-1-jep-jesus/) | 18 Octobre 1919
+<small>
 
-
-
+1. <large id="f1"> [Dans un message contemporain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-7-20-1-ks-jesus/), Jésus dit clairement qu’il pourrait « apparaître » à l’humanité, mais il ne serait pas un homme de chair. Il aurait ce qu’on appelle un corps matérialisé, le même que ses disciples ont vu après sa mort sur la croix. En fait, il est probablement apparu à certaines personnes de cette manière.[↩](#a1)

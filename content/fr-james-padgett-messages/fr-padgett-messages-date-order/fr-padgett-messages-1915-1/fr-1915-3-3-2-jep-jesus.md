@@ -49,20 +49,16 @@ Un esprit est seulement un homme sans un corps terrestre et les soucis qui sont 
 
 Eh bien, j’ai déjà écrit trop longtemps et je dois cesser. Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère spirituel, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère spirituel, Jésus.
 
-<large id=”f1”> *Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :*[↩](#a1)
+**Note :** Jésus s'est exprimé, au sujet de l'Amour Divin, dans plusieurs autres messages :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/). | 4 Juin 1915
-Jésus |  [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/). | 28 Février 1916 
-Jésus |  [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père. Mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/). |  15 Mars 1916
-Jésus |  [Comment l’Amour Divin entre dans l’âme de l’homme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/). | 23 Mars 1916
-Jésus | [Comment l’Amour Divin entre dans l’âme de l’homme (Suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/). | 08 Mai 1916
-Jésus |  [Comment l’âme d’un mortel reçoit l’Amour Divin et quel est son effet, bien que, par la suite, il puisse se laisser influencer par des croyances qui peuvent avoir tendance à empêcher la croissance de l’âme. Qu’est ce qu’une âme en peine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-10-1-jep-jesus/) ? | 10 Novembre 1916 
+Jésus | [Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-4-1-jep-jesus/) | 4 Juin 1915
+Jésus |  [Pourquoi une âme doit recevoir l’Amour Divin du Père afin de devenir une habitante du Royaume de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/) | 28 Février 1916
+Jésus |  [L’homme a eu la possibilité de devenir, dans sa nature, Divin comme le Père - Mais il ne l’est jamais devenu jusqu’à ma venue sur terre, et que je fasse connaître cette possibilité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-15-2-jep-jesus/) |  15 Mars 1916
+Jésus |  [Comment l’Amour Divin entre dans l’âme de l’homme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-23-1-jep-jesus/) | 23 Mars 1916
+Jésus | [Comment l’Amour Divin entre dans l’âme de l’homme (Suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-8-1-jep-jesus/) | 08 Mai 1916
+Jésus |  [Comment l’âme d’un mortel reçoit l’Amour Divin et quel est son effet, bien que, par la suite, il puisse se laisser influencer par des croyances qui peuvent avoir tendance à empêcher la croissance de l’âme. Qu’est ce qu’une âme en peine ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-10-1-jep-jesus/) | 10 Novembre 1916
 Jésus | [Christ peut être en vous – ce que cela signifie ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-3-3-1-jep-jesus) | 3 Mars 1918
-
-
-

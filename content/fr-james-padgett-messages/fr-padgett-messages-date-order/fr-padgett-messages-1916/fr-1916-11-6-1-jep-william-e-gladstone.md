@@ -11,7 +11,7 @@ weight:
 
 William E Gladstone - reçu par James Padgett le 6 Novembre 1916, Washington, USA.
 
-Je suis Gladstone<sup id="a1">[1](#f1)</sup>
+Je suis Gladstone <sup id="a1">[1](#f1)</sup>
 
 Oui, je fus premier ministre de Grande-Bretagne et je veux simplement dire que je souhaite venir vous voir un jour pour vous écrire un message sur mes points de vue sur la guerre qui sévit actuellement dans les pays qui sont censés être Chrétiens. Oh, quelle horreur ! Et comme les dirigeants sont aveugles au bien-être de l’humanité !
 

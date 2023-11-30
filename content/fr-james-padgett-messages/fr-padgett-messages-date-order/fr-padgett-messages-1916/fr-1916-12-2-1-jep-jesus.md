@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### La prière donnée par Jésus comme la seule prière<sup id=”a1”>[1](#f1)</sup>
+### La prière donnée par Jésus comme la seule prière <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 2 Décembre 1916, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-candle-in-hand.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-candle-in-hand.jpg)
 
 C’est moi, Jésus.
 
@@ -50,13 +50,11 @@ Nous avons une très bonne relation ce soir et je voie que l’amour du Père es
 
 Votre frère et ami,
 
-Jésus.<sup id=”a2”>[2](#f2)</sup>
+Jésus. <sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id=”f1”> Il est possible d'écouter la narration de cette prière [par l'intermédiaire de ce lien](https://www.youtube.com/watch?v=viwN9wsCMfw). Cette prière est classée 1200 sur la carte de la conscience du Dr David R. Hawkins ! !! (1000 étant un état de pure conscience)[↩](#a1)
+1. <large id="f1"> Il est possible d'écouter la narration de cette prière [par l'intermédiaire de ce lien](https://www.youtube.com/watch?v=viwN9wsCMfw). Cette prière est classée 1200 sur la carte de la conscience du Dr David R. Hawkins ! (1000 étant un état de pure conscience)[↩](#a1)
 
-2. <large id=”f2”> Dans [une très belle vidéo réalisée](https://www.youtube.com/watch?v=m4WdGwt-X9A) par Care Darby Walsh qui est disponible sur YouTube, il est possible d’écouter la narration de la version originale de cette prière en anglais.
+2. <large id="f2"> Dans [une très belle vidéo réalisée](https://www.youtube.com/watch?v=m4WdGwt-X9A) par Care Darby Walsh qui est disponible sur YouTube, il est possible d’écouter la narration de la version originale de cette prière en anglais.
 Il est également possible, toujours en anglais, de visualiser une seconde vidéo relative à la prière de l'Amour Divin. J'apprécie particulièrement cette seconde vidéo car ke trouve que l'accompagnement musical est juste maginifique. Vous pouvez visualiser cette seconde par [l'intermédiaire de ce lien](https://www.youtube.com/watch?v=Pg6p3rivAZw&t=127s
 )[↩](#a2)
-
-

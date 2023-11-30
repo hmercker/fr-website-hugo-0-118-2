@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’expérience d’un Esprit après avoir écrit à travers M. Padgett. A obtenu l’Amour Divin et a progressé vers la troisième sphère<sup id="a1">[1](#f1)</sup>
+### L’expérience d’un Esprit après avoir écrit à travers M. Padgett. A obtenu l’Amour Divin et a progressé vers la troisième sphère <sup id="a1">[1](#f1)</sup>
 
 Albert Riddle - reçu par James Padgett le 20 Janvier 1915, Washington, USA.
 
@@ -41,11 +41,11 @@ Je pourrais te parler de mes expériences lors de ma transition, mais je pense q
 
 Je suis si heureux d’avoir été racheté par ce grand amour, les enseignements de Jésus, l’aide de ta parenté spirituelle, et aussi par l’aide de tes prières, que je ne peux pas exprimer l’étendue de ma joie. Rien dans tout le ciel ou la terre ne peut se comparer aux sentiments de joie qui viennent à une âme lorsqu’elle se rend compte qu’elle est en harmonie avec le Père dans l’Amour et le pouvoir.
 
-Oui<sup id="a2">[2](#f2)</sup>, ils savent, et sont avec toi chaque nuit pendant que tu pries. Ils ne semblent pas très bien comprendre bien que tu peux les aider de quelque façon, mais néanmoins, d’une certaine manière, ils ressentent une sensation particulière lorsque tu pries et que les autres prient avec toi. N’arrête pas de prier pour eux.
+Oui <sup id="a2">[2](#f2)</sup>, ils savent, et sont avec toi chaque nuit pendant que tu pries. Ils ne semblent pas très bien comprendre bien que tu peux les aider de quelque façon, mais néanmoins, d’une certaine manière, ils ressentent une sensation particulière lorsque tu pries et que les autres prient avec toi. N’arrête pas de prier pour eux.
 
-Je te dis que tu es un homme merveilleusement béni d’avoir une telle mère et grand-mère chrétienne si aimantes, et avec lesquelles tu peux prier, et qui veillent continuellement sur toi. Si tous les hommes avaient des parents chrétiens pour leur enseigner et leur montrer le chemin vers cet Amour de Dieu, alors qu’ils grandissent de l’enfance à l’âge adulte, beaucoup de temps, de souffrance et de malheur seraient épargnés, et beaucoup d’esprits viendraient dans cette vie avec nettement moins de péchés à expier.<sup id="a3">[3](#f3)</sup>
+Je te dis que tu es un homme merveilleusement béni d’avoir une telle mère et grand-mère chrétienne si aimantes, et avec lesquelles tu peux prier, et qui veillent continuellement sur toi. Si tous les hommes avaient des parents chrétiens pour leur enseigner et leur montrer le chemin vers cet Amour de Dieu, alors qu’ils grandissent de l’enfance à l’âge adulte, beaucoup de temps, de souffrance et de malheur seraient épargnés, et beaucoup d’esprits viendraient dans cette vie avec nettement moins de péchés à expier. <sup id="a3">[3](#f3)</sup>
 
-Ton vieil ami, George Riddle.<sup id="a4">[4](#f4)</sup>
+Ton vieil ami, George Riddle. <sup id="a4">[4](#f4)</sup>
 <small>
 
 1. <large id="f1"> Ce message est également publié dans le Volume II, deuxième édition française, à la page 13 et dans le volume IV des messages à la page 367. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
@@ -54,5 +54,4 @@ Ton vieil ami, George Riddle.<sup id="a4">[4](#f4)</sup>
 
 3. <large id="f3"> Chaque fois que des initiales sont données au lieu du nom complet, c’est en raison d’une possible opposition de la famille encore vivante. Mais maintenant, 100 années plus tard, si nous connaissons le nom nous l’ajoutons.[↩](#a3)
 
-4. <large id="f4"> A G Ridle dans un message communiqué le [19 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-19-1-jep-ag-riddle/) décrit ses expériences lors de son arrivée dans le monde spirituel.[↩](#a4)
-
+4. <large id="f4"> A G Riddle dans un message communiqué le [19 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-19-1-jep-ag-riddle/) décrit ses expériences lors de son arrivée dans le monde spirituel.[↩](#a4)

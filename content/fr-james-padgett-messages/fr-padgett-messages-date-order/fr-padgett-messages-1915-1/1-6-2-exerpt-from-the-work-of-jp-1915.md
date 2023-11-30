@@ -160,7 +160,7 @@ Je le sais aussi bien par ma propre expérience que par les enseignements du ma�
 
 Lorsque cette vérité parvient à un homme, il commence à accepter la nature divine du Père et la partie de lui que l'on peut appeler la nature naturelle commence à le quitter, et lorsque l'Amour Divin continue de croître et de remplir son âme, l'amour et l'affection naturels pour les choses de la terre disparaissent, et en conséquence, il ne fera plus qu'un avec le Père et deviendra immortel.
 
-[Nicodème - 30 Juillet 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-30-1-jep-nicodemus/)*
+*[Nicodème - 30 Juillet 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-30-1-jep-nicodemus/)*
 
 #### Les vérités de Jésus sont simples
 
@@ -178,7 +178,7 @@ J'ai prêché à des milliers de personnes au sujet de son expiation par substit
 
 Je vois maintenant quelle grande erreur j'ai commise dans ma conception de Dieu et de la mission de Christ sur terre et combien de mal j'ai fait aux mortels par mes prédications et comment j'ai calomnié le Père de l'amour. Alors que j'ai travaillé dur et prêché avec éloquence pour faire croire aux mortels ces doctrines nuisibles pendant que j'étais sur terre, je dois maintenant travailler dur et prêcher avec éloquence pour rééduquer les esprits qui viennent ici avec ces croyances, afin qu'ils voient la vérité telle qu'elle est réellement.
 
-*[George Whitefield - 8 Août 1915](content\fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1915-1\fr-1915-8-8-1-jep-george-whitefield.md)*
+*[George Whitefield - 8 Août 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-1-jep-george-whitefield/)*
 
 #### L'Amour Divin est ouvert à tous
 
@@ -308,7 +308,7 @@ Lorsque Jésus est venu sur terre, sa mission lui a été communiquée en foncti
 
 Sa mission consistait en deux parties : expliquer à l'humanité que le Père avait à nouveau donné l'Amour Divin qu'Adam (ou les premiers parents) avait perdu et, deuxièmement, montrer à l'homme le moyen d'obtenir cet Amour afin que son propriétaire devienne un associé de l'Être Divin et soit immortel.
 
-*[Paul - 26 Octobre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-26-1-jep-st-paul.md/)*
+*[Paul - 26 Octobre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-26-1-jep-st-paul/)*
 
 #### L'âme et sa relation avec Dieu
 
@@ -328,7 +328,7 @@ La nation Juive est la plus stricte de tous les peuples dans sa croyance en ses 
 
 Lorsqu'ils liront, comme cela pourrait être le cas, que Jésus lui-même a déclaré et proclamé qu'il n'était pas Dieu mais seulement Son fils, et qu'ils sont aussi Ses fils, ils considéreront ses enseignements avec plus de tolérance. Beaucoup d'entre eux seront enclins à reconnaître ses vérités et celles du Père. Et le Judaïsme, dans son aspect religieux, disparaîtra peu à peu, et les Juifs deviendront une partie de l'unique et grande fraternité religieuse des hommes. Et il n'y aura plus, comme dans nos Cieux Divins, ni Juifs ni Gentils sur terre, mais tous deviendront un dans leur foi au Père et dans la mission de Jésus. Il sera reconnu comme le Messie non seulement des Juifs mais aussi du monde entier. Alors, le peuple élu de Dieu ne sera plus une petite minorité d'enfants de Dieu. Au contraire, le monde entier constituera son peuple élu.
 
-*[Moïse, le législateur des Juifs - 9 Novembre 1915](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-9-1-jep-moses/)*
+*[Moïse, le législateur des Juifs - 9 Novembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-9-1-jep-moses/)*
 
 #### Le révélation de ces messages est l’expression de la seconde venue de Jésus sur terre
 
@@ -350,7 +350,7 @@ Croyez-moi et faites confiance au Père, et vous ne serez pas abandonnés ou lai
 
 Les perceptions de l'âme ne dépendent pas des facultés mentales et, en fait, ces dernières ne font pas partie des premières, mais elles sont totalement différentes et d'un ordre et d'une composition différents de ces facultés mentales. Ces perceptions de l'âme en tant que telles ne peuvent pas être cultivées ou amenées à développer leurs pouvoirs ou leurs qualités par une simple étude, mais elles et leur progrès sont totalement dépendants et non séparés du développement de l'âme dans l'amour. Je veux parler de l'Amour Divin du Père. En d'autres termes, tant qu'il n'y aura pas de développement de l'âme par cet Amour Divin, il n'y aura pas de développement des perceptions de l'âme.
 
-*[Anne Rollins - 22 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/)
+*[Anne Rollins - 22 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-22-4-jep-ann-rollins/)*
 
 #### Jésus veut uniquement être considéré comme un frère aîné
 

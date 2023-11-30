@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Le Dr Campbell prescrit des traitements et un régime alimentaire pour James Padgett<sup id=”a1”>[1](#f1)</sup>.
+### Le Dr Campbell prescrit des traitements et un régime alimentaire pour James Padgett <sup id="a1">[1](#f1)</sup>
 
-Dr Campbell - reçu par James Padgett le 2 Août 1915, Washington, USA<sup id=”a2">[2](#f2)</sup>.
+Dr Campbell - reçu par James Padgett le 2 Août 1915, Washington, USA <sup id="a2">[2](#f2)</sup>.
 
 Je suis le Dr. Campbell qui s’intéresse à votre bien-être depuis quelque temps. Je vois que vous avez besoin de mon attention en ce moment et, comme le Maître vous l’a dit, vous devez suivre mes conseils et si vous le faites, vous serez bientôt rétabli et vous vous sentirez à nouveau jeune.
 
@@ -35,7 +35,7 @@ Je vous remercie pour vos bons vœux et j’ai le plaisir de vous informer que j
 
 Oui, c’est vrai et vous pouvez croire qu’il a écrit l’histoire que vous avez reçue il y a quelques jours. Nous avons tous été très heureux que vous l’ayez reçue de façon aussi complète. C’était une jolie histoire et vous en recevrez d’autres comme j’en suis informé.
 
-Eh bien, le temps viendra bientôt où nous vous ferons connaître le remède.sup id=”a3>[3](#21)</sup> Tous les médecins qui travaillent sur ce remède sont convaincus que c’est vous qui le recevrez et qui essaierez de l’utiliser pour aider l’humanité. Il sera difficile à administrer comme je le pensais au début, mais vous devrez avoir l’aide d’un médecin qui comprend certaines conditions du corps humain que vous ne comprenez pas.
+Eh bien, le temps viendra bientôt où nous vous ferons connaître le remède. <sup id="a3">[3](#f3)</sup> Tous les médecins qui travaillent sur ce remède sont convaincus que c’est vous qui le recevrez et qui essaierez de l’utiliser pour aider l’humanité. Il sera difficile à administrer comme je le pensais au début, mais vous devrez avoir l’aide d’un médecin qui comprend certaines conditions du corps humain que vous ne comprenez pas.
 
 Il s’agira d’un liquide à injecter dans le sang du patient et aussi d’un liquide à prendre par voie interne.
 
@@ -53,8 +53,3 @@ J’ai assez écrit. Alors, mon cher, je vais vous souhaiter une bonne nuit avec
 2. <large id="f2"> Ce message n'ayant pas été publié, la date est tirée des archives.[↩](#a2)
 
 2. <large id="f3"> Ce passage et les suivants semblent être une référence à la recherche d’un remède contre la tuberculose, bien que l’entrée de l’index dise simplement « tuberculose » et que ce mot ne figure pas dans ce message.[↩](#a3)
-
-
-
-
-

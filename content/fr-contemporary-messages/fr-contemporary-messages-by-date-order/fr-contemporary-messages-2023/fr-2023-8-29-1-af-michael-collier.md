@@ -33,7 +33,7 @@ Il est important que vous preniez note de ne pas craindre ces choses qui vous so
 
 Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous en effet parvenir à un lieu de compréhension profonde et d’engagement profond envers la Volonté de Dieu, Son plan manifesté à travers chacun de vous et bien d’autres. Que Dieu vous bénisse. Je m'appelle Michael Collier. Je vous remercie de m'avoir accordé du temps, d'avoir écouté mes paroles dans l'espoir que vous serez inspiré, que vous pourrez vous concentrer plus intensément sur les questions spirituelles en cours et sur l'âme qui grandit en vous. Que Dieu vous bénisse. Mon amour est avec vous, âmes bien-aimées.
 
-**Note du médium** : 
+**Note du médium** :
 
 Michael Collier souhaitait que je partage une vision que j'ai eue le matin, peu  avant la réception de ce message. Je m'assois souvent dehors sous une terrasse couverte, observant les oiseaux, admirant mon jardin et priant. C'est un merveilleux début de journée et cela m'offre des moments très précieux de contemplation et de dévotions priantes.
 

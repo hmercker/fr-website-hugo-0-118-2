@@ -25,8 +25,7 @@ Dites-lui que nous serons avec lui à chaque visite qu’il lui rendra et que no
 
 Mais surtout, priez et exercez votre foi.
 
-Aigle blanc.<sup id=”a1”>[1](#f1)</sup>
+Aigle blanc. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *Je suis heureux de dire que la femme qui était avancée en âge, et que j’ai contribué à soigner, a retrouvé la santé et a vécu de nombreuses années après la guérison. Je reconnais que la guérison qui a porté ses fruits est due à des esprits de guérison élevés. (Dr. L. R. Stone)*.[↩](#a1)
-
+1. <large id="f1"> Je suis heureux de dire que la femme qui était avancée en âge, et que j’ai contribué à soigner, a retrouvé la santé et a vécu de nombreuses années après la guérison. Je reconnais que la guérison qui a porté ses fruits est due à des esprits de guérison élevés. (Dr. L. R. Stone).[↩](#a1)

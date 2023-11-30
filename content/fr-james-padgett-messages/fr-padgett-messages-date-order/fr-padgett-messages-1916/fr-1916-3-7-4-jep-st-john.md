@@ -9,7 +9,7 @@ weight:
 ---
 ### Jean conseille à M. Padgett d’abandonner la lecture de documents non pertinents et de s’appliquer aux écrits qui lui ont été donnés par Jésus et les autres esprits Célestes
 
-St Jean - reçu par James Padgett le 7 Mars 1916<sup id="a1">[1](#f1)</sup>, Washington, USA.
+St Jean - reçu par James Padgett le 7 Mars 1916 <sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 C’est moi, Jean.
 

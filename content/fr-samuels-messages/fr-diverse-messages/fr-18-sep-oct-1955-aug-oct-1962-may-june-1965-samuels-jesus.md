@@ -72,4 +72,4 @@ C’est la fête de la Liberté que j’ai aimée et observée fidèlement duran
 
 Jésus de la Bible et Maître des Cieux Célestes.
 
-*Note : L’influence du médium est évidente sur ces messages, et cela a été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).*
+**Note :** L’influence du médium est évidente sur ces messages, et cela a été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).

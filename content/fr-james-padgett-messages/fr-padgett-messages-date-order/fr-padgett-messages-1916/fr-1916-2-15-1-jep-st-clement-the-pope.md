@@ -11,7 +11,7 @@ weight:
 
 St Clément le Pape - reçu par James Padgett le 15 Février 1916, Washington, USA.
 
-Je suis Saint Clément le Pape.<sup id="a1">[1](#f1)</sup>
+Je suis Saint Clément le Pape. <sup id="a1">[1](#f1)</sup>
 
 Je tiens simplement à dire que je suis heureux de pouvoir témoigner du travail pour lequel vous avez été choisi et du fait que Jésus et de nombreux esprits élevés vous écrivent.
 

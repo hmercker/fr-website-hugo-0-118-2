@@ -19,9 +19,9 @@ C’est l’une des vérités les plus vitales dans tout le plan de Dieu pour la
 
 Bien que les hommes sur terre puissent ne jamais former de grandes congrégations et ériger de magnifiques églises pour adorer le Père avec le véritable culte de l’âme et les aspirations, cependant lorsqu’ils arriveront dans le monde des esprits, ils découvriront que le Maître a établi son église dans les cieux éternels, où seul le vrai Chrétien peut entrer et partager ses gloires et son bonheur.
 
-Jésus est le chef de cette église<sup id="a1">[1](#f1)</sup> ici dans nos Cieux Célestes, comme il devrait l’être de l’église sur terre et comme il doit l’être quand cette église n’a pour membres que ceux qui ont eu la résurrection du péché, de l’erreur et de la mort de l’âme dans la connaissance de l’Amour Divin et la vie éternelle. Jésus a fait référence à cette Résurrection lorsqu’il a dit : *« Je suis la résurrection et la vie »*, et non la résurrection du corps physique ou spirituel.
+Jésus est le chef de cette église <sup id="a1">[1](#f1)</sup> ici dans nos Cieux Célestes, comme il devrait l’être de l’église sur terre et comme il doit l’être quand cette église n’a pour membres que ceux qui ont eu la résurrection du péché, de l’erreur et de la mort de l’âme dans la connaissance de l’Amour Divin et la vie éternelle. Jésus a fait référence à cette Résurrection lorsqu’il a dit : *« Je suis la résurrection et la vie »*, et non la résurrection du corps physique ou spirituel.
 
-Je vois que vous êtes impatient de voir ces vérités venir et je suis aussi impatient, et je suis un collègue de travail.<sup id="a2">[2](#f2)</sup>
+Je vois que vous êtes impatient de voir ces vérités venir et je suis aussi impatient, et je suis un collègue de travail. <sup id="a2">[2](#f2)</sup>
 
 Je vais maintenant vous souhaiter bonne nuit et, ce faisant, vous dire tout mon amour. Que Dieu vous bénisse et vous garde sous sa garde maintenant et toujours.
 

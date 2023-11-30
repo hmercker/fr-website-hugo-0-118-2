@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre<sup id=”a1”>[1](#f1)</sup>
+### Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre <sup id="a1">[1](#f1)</sup>
 
 Jean le Baptiste - reçu par James Padgett le 10 Août 1915, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/Herodias.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-herodias.jpg)
 
 C’est moi, Jean le Baptiste.
 
@@ -43,7 +43,7 @@ Je suis maintenant dans les Cieux Célestes et je suis très proche de Jésus da
 
 Votre frère en Christ, Jean le Baptiste.
 
-*Note : Les mots en italiques ne figuraient pas dans la version publiée de ce message. Comme ces choses prédites ne sont pas produites, il est logique que le Dr Stone ait édité le message pour se concentrer sur ce qui était important. La question relative à la compréhension de la raison selon laquelle les esprits ne peuvent pas prédire l’avenir, [est traitée dans le message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-1-5-1-jep-baruch-spinoza/) communiqué par Spinoza le 5 Janvier 1919.*
+**Note :** Les mots en italiques ne figuraient pas dans la version publiée de ce message. Comme ces choses prédites ne sont pas produites, il est logique que le Dr Stone ait édité le message pour se concentrer sur ce qui était important. La question relative à la compréhension de la raison selon laquelle les esprits ne peuvent pas prédire l’avenir, [est traitée dans le message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-1-5-1-jep-baruch-spinoza/) communiqué par Spinoza le 5 Janvier 1919.
 <small>
 
 1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de Septembre 2014 par Paul King.[↩](#a1)

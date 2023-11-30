@@ -77,14 +77,11 @@ Mais ces questions ont été mieux décrites ailleurs, je m’étendrai donc pas
 
 N’oubliez pas que mes promesses seront accomplies, vous devez avoir la foi. Je suis très souvent avec vous et je vous aime comme vous le savez et je vais continuer à prier le Père pour vous. Alors, faites-moi confiance et soyez assuré que je vous aide dans votre désir.
 
-Bonne nuit et que Dieu vous bénisse, votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Bonne nuit et que Dieu vous bénisse, votre frère et ami, Jésus.
 
-1. <large id=”f1”> *Jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux dans les messages suivants :*[↩](#a1)
+**Note :** Jésus a également communiqué sur le sujet du cheminement vers le Royaume des Cieux dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-5-21-jep-jesus/)  | 27 Juin 1916
-Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes.]((/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/)) | 15 Mai 1917
-
-
+Jésus | [Pourquoi est-il nécessaire pour l’homme de posséder l’Amour Divin de Dieu afin qu’il devienne un avec le Père et un habitant du Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-27-1-jep-jesus/) | 27 Juin 1916
+Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/) | 15 Mai 1917

@@ -33,14 +33,13 @@ L’âme aussi a été étouffée dans ces croyances dogmatiques et, par conséq
 
 Eh bien, comme vous êtes fatigué, je vais reporter le reste de mon exposé. Je pense que c’est mieux lorsque vous vous sentez fatigué d’interrompre l’écriture plutôt que d’essayer de vous forcer à la recevoir.
 
-Je n’écrirai donc pas plus. Croyez que je suis votre frère en Christ. Jean.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Je n’écrirai donc pas plus. Croyez que je suis votre frère en Christ. Jean.
 
-1. <large id=”f1”> *Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a1)
+**Note :** Jean s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saint Jean | [Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/)   | 07 Septembre 1915
-Saint Jean |  [Rejette l’expiation déléguée. Si les hommes pouvaient avoir la foi des apôtres, la guérison et les soi-disant miracles existeraient aujourd’hui.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-3-jep-st-john/)  | 12 Septembre 1915
-Saint Jean | [Qu’est ce qu’un homme qui n’est satisfait avec aucune église doit faire.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-19-1-jep-st-john/) | 19 Octobre 1916
-Saint Jean | [Les hommes ou les prophètes ne peuvent pas dire ce qui va se passer dans les siècles à venir – cela ne peut être connu que par le Père.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/\fr-1918-3-10-1-jep-st-john/)   | 10 Mars 1918
+Saint Jean | [Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/) | 07 Septembre 1915
+Saint Jean | [Rejette l’expiation déléguéen - si les hommes pouvaient avoir la foi des apôtres, la guérison et les soi-disant miracles existeraient aujourd’hui](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-12-3-jep-st-john/) | 12 Septembre 1915
+Saint Jean | [Qu’est ce qu’un homme qui n’est satisfait avec aucune église doit faire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-19-1-jep-st-john/) | 19 Octobre 1916
+Saint Jean | [Les hommes ou les prophètes ne peuvent pas dire ce qui va se passer dans les siècles à venir – cela ne peut être connu que par le Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/\fr-1918-3-10-1-jep-st-john/) | 10 Mars 1918

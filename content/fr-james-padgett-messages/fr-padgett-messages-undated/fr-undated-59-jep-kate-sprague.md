@@ -11,7 +11,7 @@ weight:
 
 Kate Sprague - reçu par James Padgett, Washington, USA.
 
-Accordez-moi votre amour et votre aide. Je suis Kate Sprague.<sup id="a1">[1](#f1)</sup>
+Accordez-moi votre amour et votre aide. Je suis Kate Sprague. <sup id="a1">[1](#f1)</sup>
 
 Je vois que votre sympathie va vers nous, et que votre amour nous appelle à venir vers vous, et je veux tellement les deux. Alors accordez-les moi. Je suis dans une telle obscurité et je veux tellement la lumière. Je sais que vous pouvez m’aider, et je vous prie de le faire. Je suis une femme qui a vécu sur terre dans des circonstances qui m’ont dépouillé de mon âme, et qui ont fait de moi une femme brillante et fortement intellectuelle. Mais l’amour, comme il m’a évitée ! Et comment mon âme a été affamée ! Je n’ai pensé qu’à acquérir des connaissances qui me permettraient d’être célèbre et de faire en sorte que les hommes et les femmes recherchent ma société. Eh bien, j’ai réussi, mais quelle victoire superficielle à la lumière de ce que je sais maintenant ; et comme j’ai regretté à maintes reprises que mes efforts se soient tournés vers ces réalités qui, dans ce monde, ont leurs limites, au lieu du développement de l’amour et de mon âme. L’esprit le plus pauvre dans tout l’univers de Dieu doit être celui qui est sans amour et sans sympathie.
 
@@ -43,4 +43,3 @@ Kate Sprague.
 <small>
 
 1. <large id="f1"> **Katherine Jane (« Kate ») Chase Sprague** (13 août 1840 – 31 juillet 1899) était la fille de Salmon P. Chase, homme politique de l’Ohio, secrétaire au Trésor lors de la première présidence du président Abraham Lincoln et plus tard juge en chef des États-Unis. Elle était une hôtesse de la société de Washington pendant la guerre de Sécession, une fervente partisane des ambitions présidentielles de son père veuf qui aurait fait d’elle la première dame, et l’épouse du gouverneur du Rhode Island, William Sprague. Kate Chase a étudié à la Haines School de New York, où elle a appris les langues, l’élocution et les bonnes manières, ainsi que la musique et l’histoire. Après neuf ans de scolarité, elle est revenue à Columbus, dans l’Ohio, pour servir d’hôtesse officielle à son père, le gouverneur de l’Ohio nouvellement élu, et qui est maintenant veuf une troisième fois. Belle et intelligente, Kate a impressionné des amis de son père tels que Charles Sumner, sénateur du Massachusetts et autre champion anti-esclavagiste, le futur président James Garfield et Carl Schurz, un homme politique américain d’origine allemande. (Source : Wikipedia)[↩](#a1)
-

@@ -9,8 +9,6 @@ weight: 400
 ---
 ## Suicide et suicide assisté
 
-*Source : Henning Mercker "https://wahrheitfuerdiewelt.de/"*
-
 ### 1. Suicide / (Suicide : Selbstmord)
 
 Définition :
@@ -41,7 +39,7 @@ Jésus dit :
 > Que pourrait-il se passer dans l'esprit de quelqu'un qui croit que sa vie est mieux terminée par sa propre volonté, que son but n'existe plus dans le schéma des choses ? Cette pensée, qui va à l'encontre de l'instinct de survie, est également contraire au véritable but de sa création en tant qu'enfant de Dieu - aimer et être aimé, glorifier la création suprême en vivant en accord avec la loi de l'amour et en retournant à la source de toute vie pour ne faire qu'un avec son Créateur. Quel plus grand honneur peut-il y avoir pour l'homme ? Mais si quelqu'un détourne les yeux de son potentiel et du véritable amour de l'âme et se plonge dans un tourment de désespoir qu'il s'est lui-même créé et qui argumente avec son véritable désir de vivre et de respirer, son âme méritée et honorable souffrira malheureusement de sa propre main. Et jusqu'à ce qu'il se tourne à nouveau vers l'amour et les pensées d'harmonie, non seulement en lui-même, mais avec toute la création, il restera dans ses ténèbres.
 <br>
 <br>
-> Pourquoi j'écris de cette façon, c'est pour donner une perspective que toutes les choses ont un but et qu'il est important d'embrasser ce but avec ferveur et zèle et de reconnaître notre relation avec toutes les autres choses qui nous entourent comme étant celle de l'harmonie et de la vérité. »
+> Pourquoi j'écris de cette façon, c'est pour donner une perspective que toutes les choses ont un but et qu'il est important d'embrasser ce but avec ferveur et zèle et de reconnaître notre relation avec toutes les autres choses qui nous entourent comme étant celle de l'harmonie et de la vérité. - 
 [Jésus le 16 janvier 2000](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/)
 
 #### 1.2. [...Si une personne se suicide et se retrouve en enfer, que se passe-t-il exactement ? Dieu tient-il compte de la raison pour laquelle ils se sont suicidés ? Y a-t-il une direction personnelle ?]
@@ -60,7 +58,7 @@ Jésus dit :
 > Vous avez un libre arbitre, c'est un cadeau. Ce libre arbitre peut être utilisé pour t'élever dans tes efforts pour surmonter le mal de ce plan terrestre. Mais tu as aussi le libre arbitre de descendre sous le pouvoir de ce mal, de succomber, d'étouffer la lumière qui brûle en toi. C'est un choix que tu dois faire et Dieu respecte ce choix, car Il t'aime et Il ne te forcera pas à L'aimer.
 <br>
 <br>
-> Oui, ce sera très difficile si vous vous suicidez, mais avec Dieu, rien n'est impossible. Laisse-le prendre ta vie maintenant, comme la sienne. Ne prends pas la tienne, laisse-la à Dieu. Rends ta vie à Dieu, laisse-le t'avoir. Il prendra soin de toi. » 
+> Oui, ce sera très difficile si vous vous suicidez, mais avec Dieu, rien n'est impossible. Laisse-le prendre ta vie maintenant, comme la sienne. Ne prends pas la tienne, laisse-la à Dieu. Rends ta vie à Dieu, laisse-le t'avoir. Il prendra soin de toi. - 
 [Jésus le 25 juin 2000](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-25-1-ar-jesus/)
 
 #### 1.3. [Le témoignage de Judas](/7-fr-life-after-death/7-6-1-fr-the-testimony-of-judas/)

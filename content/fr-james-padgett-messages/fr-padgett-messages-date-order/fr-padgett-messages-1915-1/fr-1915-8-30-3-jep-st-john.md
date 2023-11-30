@@ -31,18 +31,14 @@ Le récit de leur chute fut, bien sûr, connu de leurs descendants immédiats et
 
 Je ne dois pas écrire plus ce soir. Alors, en me souvenant de ce que vous dites, je suis votre frère en Christ.
 
-Jean – Apôtre de Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Jean – Apôtre de Jésus.
 
-1. <large id=”f1”> *Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)*.[↩](#a1)
+**Note :** Cinq autres messages ont été reçus sur le sujet de la création de l’espèce humaine. Ce sujet, complexe, est traité dans [une autre section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/) :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Aman | [Aman, le premier parent révèle sa tentation et sa chute.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/)| 29 Août 1915
-Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1\fr-1915-8-30-2-jep-amon/)| 30 Août 1915
-Aman | [Aman apporte une correction.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/)| 07 Septembre 1915
-Jésus | [La relation de l’homme à la création du monde et l’origine de la vie.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 janvier 1916
-Luc  | [Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/) | 22 Juillet 1917
-
-
-
+Aman | [Aman, le premier parent révèle sa tentation et sa chute](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/) | 29 Août 1915
+Amon | [La mère de tous les humains, partage son expérience, sa tentation et désobéissance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1\fr-1915-8-30-2-jep-amon/) | 30 Août 1915
+Aman | [Aman apporte une correction](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/)| 07 Septembre 1915
+Jésus | [La relation de l’homme à la création du monde et l’origine de la vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 janvier 1916
+Luc  | [Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/) | 22 Juillet 1917

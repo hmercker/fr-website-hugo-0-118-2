@@ -9,7 +9,7 @@ weight:
 ---
 ### Est venu encourager M. Padgett et le Dr Stone à avoir confiance dans le résultat d’un plan que les forces spirituelles leur ont présenté
 
-St Jean - reçu par James Padgett le 24 Mai 1916<sup id="a1">[1](#f1)</sup>, Washington, USA.
+St Jean - reçu par James Padgett le 24 Mai 1916 <sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 C’est moi, Jean.
 

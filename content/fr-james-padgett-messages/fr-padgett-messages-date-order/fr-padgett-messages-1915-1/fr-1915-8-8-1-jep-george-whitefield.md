@@ -35,16 +35,13 @@ Je n’écrirai pas plus ce soir.
 
 Je suis votre ami..
 
-George Whitefield.<sup id=”a1”>[1](#f1)</sup>
-<small>
+George Whitefield.
 
-1. <large id=”f1”> *Note  : Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes.:*.[↩](#a1)
+**Note :** Quatre autres esprits témoignent de leur progression spirituelle vers la 3ème sphère ou les Cieux Célestes :
 
-**Auteur** | **Ttre du message** | **Date du message**
+**Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Thomas Paine | [L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/) | 20 Juin 1915
-Hugh Latimer | [Hugh Latimer dans les Cieux Célestes. Ses croyances sur terre. Jésus vint et lui dit qu’il n’était pas Dieu.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/) | 13 Août 1915
-Samuel B. Soulthard | [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
-Lafayette | [Relate son changement d’attitude envers les allemands.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) | 23 Avril 1916
-
-
+Thomas Paine | [L’auteur sceptique des jours coloniaux, appelé par ses contemporains un infidèle, admet qu’il se trompait dans certaines de ses croyances](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-20-1-jep-thomas-paine/) | 20 Juin 1915
+Hugh Latimer | [Hugh Latimer dans les Cieux Célestes. Ses croyances sur terre. Jésus vint et lui dit qu’il n’était pas Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-5-jep-hugh-latimer/) | 13 Août 1915
+Samuel B. Soulthard | [Un esprit qui avait foi dans les crédos et dans son éveil à la vérité après avoir rencontré Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
+Lafayette | [Relate son changement d’attitude envers les allemands](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-23-3-jep-lafayette/) | 23 Avril 1916

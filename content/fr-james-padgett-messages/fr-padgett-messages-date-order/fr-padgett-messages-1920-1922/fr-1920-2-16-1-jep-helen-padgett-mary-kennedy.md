@@ -17,7 +17,7 @@ Eh bien, mon cher, le Maître ne poursuivra pas ses messages ce soir parce que t
 
 Bien sûr, je veux dire Mary, et elle est toute excitée, comme vous les mortels diriez, à la perspective d’écrire au Docteur. Je vais donc la laisser venir et écrire. Cependant, tu dois être prudent et ne pas la laisser écrire trop longtemps, parce que, ce qu’elle a à dire exigerait, afin d’être reçu, d’écrire pour le reste de la soirée.
 
-*[Mary écrit maintenant.]*
+*[Mary écrit maintenant :]*
 
 C’est moi. Mary. Eh bien, je suis ici et je souhaite partager beaucoup de choses, mais comme Hélène vous a prévenu, je ne ferai pas intrusion très longtemps. Hélène a exagéré en disant que je voulais écrire pour le reste de la soirée. Je suis aussi prévenante que possible envers vous et nonobstant ma chance, je me rends compte de vos capacités.
 
@@ -33,7 +33,7 @@ J’aimerais écrire sur toutes les choses qui se trouvent ici dans sa réalité
 
 Bonne nuit, je vous remercie et avec mon amour pour lui et l’assurance que je veille sur lui et sympathise avec lui dans tous ses soucis terrestres, je signerai moi-même sa Mary aimante.
 
-*[Hélène écrit maintenant.]*
+*[Hélène écrit maintenant :]*
 
 Eh bien, mon cher, elle a écrit et dit qu’elle se sent beaucoup mieux, et je sais qu’elle l’ait, car elle a l’air très heureuse et reconnaissante pour ce privilège. Je suis avec Mary et je partage ses sentiments d’amour, d’espoir et de certitude, et tu dois croire que ces choses dont elle a parlé seront les tiennes lorsque tu viendras nous rejoindre. Pourquoi mon cher, ne peux-tu pas comprendre ce que tout cela signifie pour toi et pour nous ! Nous sommes vraiment reconnaissants au Père pour le privilège de savoir que nous avons sur la terre une âme sœur – l’autre partie de nous-mêmes avec qui nous pouvons parler et communiquer les sentiments plus profonds de nos âmes.
 
@@ -48,7 +48,6 @@ Je dois arrêter maintenant, car tu as assez écrit. Mais n’oublie pas que Bé
 Ta vraie et bien aimée, Hélène.
 <small>
 
-1. <large id="f1"> Il ressort du journal quotidien que James Padgett avait une autre femme dans sa vie, Ella, et qu’Hélène était très heureuse à ce sujet. Voir à ce sujet l'entrée, pour cette date, [dans le journal quotidien de James Padgett](https://new-birth.net/padgetts-messages/all-the-padgett-messages-in-date-order-for-1919/). Ce message particulier d’Hélène n’a pas été publié.[↩](#a1)
+1. <large id="f1"> Il ressort du journal quotidien que James Padgett avait une autre femme dans sa vie, Ella, et qu’Hélène était très heureuse à ce sujet. Voir à ce sujet l'entrée, pour cette date, [dans le journal quotidien de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/). Ce message particulier d’Hélène n’a pas été publié.[↩](#a1)
 
 2. <large id="f2"> Mary Kennedy voulait en fait exprimer que même si notre vie terrestre  est relativement longue, comparée à l'éternité, elle est relativement courte. Le Dr Stone a transité à l’âge de 90 ans, le 15 Janvier 1967.[↩](#a2)
- 

@@ -21,11 +21,11 @@ Dans ce cadre, David se considérait lui-même comme l’oint de l’Éternel ; 
 
 C’est le sens [du Psaume 2](https://saintebible.com/psalms/2-1.htm), qui est vraiment le premier de la série. Il a été écrit que David, comme roi, avait conquis une succession de forces ennemies, à la fois Philistines et Trans-Jordaniennes, et il se sentait en sécurité comme le roi oint de Jéhovah, aucune force ne pouvait résister à son pouvoir. Il attribuait ses victoires à Dieu, et lui disait :
 
-> *« J’ai mon roi sur ma sainte colline de Sion. »* [Psaumes 2 : 6](https://saintebible.com/psalms/2-6.htm)
+> J’ai mon roi sur ma sainte colline de Sion. - [Psaumes 2 : 6](https://saintebible.com/psalms/2-6.htm)
 
 comme il a déclaré :
 
-> *« Le Seigneur m’a dit : Tu es mon fils. Ce jour-là je t’ai engendré. »*  [Psaumes 2 : 7](https://saintebible.com/psalms/2-7.htm)
+> Le Seigneur m’a dit : Tu es mon fils. Ce jour-là je t’ai engendré. -  [Psaumes 2 : 7](https://saintebible.com/psalms/2-7.htm)
 
 Cette déclaration, je dois dire, était l’une que David, dans son psaume, place dans la bouche de Dieu, pour ainsi dire, et elle se référait à lui-même. Elle ne faisait pas, comme certains l’ont pensé à tort, allusion à moi en aucune façon.
 
@@ -35,6 +35,6 @@ David continue d’avertir les rois païens frontaliers d’Israël à prendre g
 
 David, alors, considérait ses ennemis comme les ennemis de Dieu, car nous avons dit qu’il se considérait comme le représentant de Dieu sur terre pour décimer les païens et leur culte des dieux païens – une pratique que, David sentait, le Seigneur voulait éliminer, de sorte que toute l’humanité se tourne vers Lui. David a donc senti qu’il menait les guerres de Dieu – des guerres saintes – et son extermination de l’ennemi était due en grande partie à cette croyance. Voilà pourquoi l’humanité de David ne s’est pas étendue aux personnes étrangères et explique ce qui semble une grande contradiction entre ses actions en tant qu’individu et ses ordres en tant que roi de la nation Hébraïque. Cette attitude à l’égard des ennemis vaincus n’était, il faut se rappeler, pas particulière aux  convictions de David, mais profondément enracinée dans la tradition Hébraïque, qui remonte au Deutéronome
 
-> [Chapitre 7 : 2](https://saintebible.com/deuteronomy/7-2.htm) *« Tu feras point d’alliance avec eux, ni preuve de miséricorde à leur égard. »*
+> Tu feras point d’alliance avec eux, ni preuve de miséricorde à leur égard. - [Chapitre 7 : 2](https://saintebible.com/deuteronomy/7-2.htm)
 
 Jésus de la Bible et Maître des Cieux Célestes

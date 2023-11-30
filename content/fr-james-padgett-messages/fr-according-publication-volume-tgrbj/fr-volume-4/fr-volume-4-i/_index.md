@@ -9,7 +9,7 @@ weight:
 ---
 ### Volume IV des messages reçus par James Padgett - Première Partie
 
-![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/paysage-des-alpes.jpg)
+![title](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-4/fr-volume-4-i/fr-paysage-des-alpes.jpg)
 
 Liste des messages reçus par James Padgett faisant partie du Volume IV :
 
@@ -89,7 +89,7 @@ III | Rev John Paul Gibson | [Introduction au volume IV](/fr-james-padgett-messa
 84 | Priscilla Stone | [Dit à son fils, Leslie, que son âme se remplit de plus en plus de l’Amour du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-2-2-jep-priscilla-stone/) | 2 Novembre 1916
 85 | Mary Kennedy | [Est d’accord avec ce que sa mère a dit sur les progrès de Leslie dans le développement de son âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-2-3-jep-mary-kennedy/) | 2 Novembre 1916
 86 | Mary Kennedy | [Mary dit que Leslie est l’autre partie d’elle, et qu’il s’unira sûrement à elle lorsqu’il viendra dans le monde des esprits](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-41-jep-mary-kennedy/) | non daté
-87 | Jésus | [Le Dr Stone reçoit l’instruction de Jésus de la Bible d’accepter l’aide de quiconque est prêt à la donner, même s’il n’a pas l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-death/fr-1954-11-15-1-Samuels-jesus/) | 15 Novembre 1954
+87 | Jésus | [Le Dr Stone reçoit l’instruction de Jésus de la Bible d’accepter l’aide de quiconque est prêt à la donner, même s’il n’a pas l’Amour Divin](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-after-1922/fr-1954-11-15-1-Samuels-jesus/) | 15 Novembre 1954
 88 | Mary Kennedy | [Progresse vers la Première Sphère Céleste et donne une description de sa nouvelle demeure](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-8-4-jep-mary-kennedy/) | 8 Octobre 1915
 91 | Mary Kennedy | [Mary Kennedy dit que peu importe le nombre d’épouses que Leslie a pu avoir, aucune d’entre elles ne peut être son âme sœur, seulement moi](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-12-2-jep-mary-kennedy/) | 12 Janvier 1918
 92 | Mary Kennedy | [Mary progresse tout le temps](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-1-1-jep-mary-kennedy/) | 1 Mai 1918

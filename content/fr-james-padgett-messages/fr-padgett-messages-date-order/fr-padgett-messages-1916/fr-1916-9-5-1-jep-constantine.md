@@ -11,7 +11,7 @@ weight:
 
 Constantin - reçu par James Padgett le 5 Septembre 1916, Washington, USA.
 
-C’est moi, Constantin.<sup id="a1">[1](#f1)</sup>
+C’est moi, Constantin. <sup id="a1">[1](#f1)</sup>
 
 Je fus un Empereur Romain et je suis décédé comme le leader de l’Église Chrétienne. Je n’étais pas vraiment Chrétien et je ne comprenais pas les vrais principes de l’enseignement Chrétien, mais j’ai adopté le Christianisme comme une religion d’État pour des raisons politiques car cela me permettait d’assouvir mon désir de détruire les pouvoirs de mes opposants qui étaient des croyants et des adorateurs des dieux du paganisme. Je fus un homme qui ne s’est absolument pas soucié de savoir si la croix ou le symbole des oracles étaient le véritable signe de la religion, ou si les adeptes des croyances religieuses appartenaient à l’église Chrétienne ou du culte des dieux que notre pays avait adopté et suivi pendant tant d’années.
 
@@ -35,7 +35,7 @@ Je ne dois pas écrire plus maintenant et je vous remercie pour m’avoir permis
 
 Avec tout mon amour je vais vous dire bonne nuit.
 
-Votre frère en Christ, Constantin.<sup id="a2">[2](#f2)</sup>
+Votre frère en Christ, Constantin. <sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **Constantin le grand** (En latin : Flavius Valerius Aurelius Constantinus Augustus ; 27 Février 272 – 22 Mai 337), également connu sous le nom de Constantin I ou Saint Constantin, a été Empereur Romain de 306 à 337. Bien connu pour être le premier empereur Romain à se convertir au Christianisme, Constantin a publié l’édit de Milan en 313 qui a proclamé la tolérance religieuse envers toutes les religions dans tout l’empire. Il a convoqué en 325 le Concile de Nicée, le premier concile effectivement œcuménique (à moins que le Concile de Jérusalem ne soit ainsi classé). Le concile de Nicée a principalement traité de l’Arianisme. (Source : Wikipedia).[↩](#a1)

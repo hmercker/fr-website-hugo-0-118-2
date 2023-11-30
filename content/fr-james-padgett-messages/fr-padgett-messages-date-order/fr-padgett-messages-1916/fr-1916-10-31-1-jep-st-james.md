@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jacques dit que M. Padgett sera bientôt soulagé de l’inquiétude<sup id="a1">[1](#f1)</sup>
+### Jacques dit que M. Padgett sera bientôt soulagé de l’inquiétude <sup id="a1">[1](#f1)</sup>
 
 St Jacques - reçu par James Padgett le 31 Octobre 1916, Washington, USA.
 

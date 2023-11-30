@@ -25,7 +25,7 @@ Donc, si j’apparaissais, et que certains croyaient que je suis celui que je pr
 
 Je ne le pense pas. Ils seraient déçus que je ne sois pas en mesure de les sauver de leur malheur. Les gens, pour la plupart, veulent vraiment rendre quelqu’un d’autre responsable de leurs imperfections ; même s’ils acceptent le fait qu’il n’y a pas de voie royale pour atteindre l’excellence spirituelle, ils ont tendance à souhaiter que le chemin soit plus facile.
 
-S’ils deviennent humbles et s’en remettent à l’amour de Dieu, ils sont sur la bonne voie pour atteindre leurs objectifs spirituels. 
+S’ils deviennent humbles et s’en remettent à l’amour de Dieu, ils sont sur la bonne voie pour atteindre leurs objectifs spirituels.
 
 Mais l’esprit des êtres humains a tendance à vouloir contrôler la direction qu’ils prennent dans la vie – les choix qu’ils ont décidé être « les meilleurs » pour eux. La plupart de ces choix impliquent de gagner plus d’argent, de trouver un autre partenaire, de s’éloigner de leurs difficultés actuelles, ou d’autres considérations d’ordre matériel, qui n’incluent ni la prière ni l’humilité, et encore moins de remettre leur vie à leur Créateur.
 

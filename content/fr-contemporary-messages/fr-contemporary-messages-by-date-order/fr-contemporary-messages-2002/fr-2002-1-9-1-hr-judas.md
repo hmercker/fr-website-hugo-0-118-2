@@ -15,7 +15,7 @@ Judas - reçu par H____ le 9 Janvier 2002, Cuenca, Équateur.
 
 Judas. Oui, c’est correct.
 
-*[H : Alors, lors de nos échanges sur le sujet, je lui ai écrit :
+*[H : Alors, lors de nos échanges sur le sujet, je lui ai écrit :*
 
 *« Oui, il y a plus de perceptions […] que ce que nous entendons, en dehors de notre propre voix intérieure, ce que nous « sentons », lorsque quelqu’un derrière nous nous observe… Eh bien, nous percevons la concentration des autres gens sur nous. Nous ne sentons pas « la pression de leur regard », mais leurs pensées. Pas dans le sens où nous lisons leurs pensées, mais plutôt, nous ressentons des émotions, intentions, quelque chose comme ça… C’est ce qu’on appelle empathie, je pense. »*
 

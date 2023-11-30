@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le bonheur et la paix qui dépassent toute compréhension viennent au possesseur de l’Amour Divin 
+### Le bonheur et la paix qui dépassent toute compréhension viennent au possesseur de l’Amour Divin
 
 Samuel - reçu par James Padgett le 10 Septembre 1916, Washington, USA.
 
@@ -23,8 +23,7 @@ L’Amour opère sur toutes les choses que l’homme peut souhaiter ou concevoir
 
 Mais je ne dois pas écrire plus ce soir car il est tard et vous êtes fatigué. Alors croyez ce que j’ai dit et essayez de suivre mes conseils, et vous découvrirez bientôt que seulement cet Amour peut apporter la paix et le bonheur à l’âme des hommes. Aussi, avec mon amour et mes bénédictions, je vous souhaite une bonne nuit.
 
-Votre frère en Christ, Samuel.<sup id=”a1”>[1](#f1)</sup>
+Votre frère en Christ, Samuel. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> Ce message est publié dans le Volume 1, deuxième édition française, à la page 241 et dans le volume II, deuxième édition française, à la page 460. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)
-
+1. <large id="f1"> Ce message est publié dans le Volume 1, deuxième édition française, à la page 241 et dans le volume II, deuxième édition française, à la page 460. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

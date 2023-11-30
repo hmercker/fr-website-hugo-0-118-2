@@ -56,7 +56,7 @@ Croyez donc que je vous suis infiniment reconnaissant pour votre intérêt et je
 
 Votre ami reconnaissant qui vous souhaite une bonne nuit.
 
-S.B.C___ 
+S.B.C___
 <small>
 
 1. <large id="f1"> Ce n’est pas [Stephen B Elkins](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-11-1-jep-stephen-elkins/), parce qu’Elkins était connu de James Padgett et SBC a vécu à Glascow.[↩](#a1)

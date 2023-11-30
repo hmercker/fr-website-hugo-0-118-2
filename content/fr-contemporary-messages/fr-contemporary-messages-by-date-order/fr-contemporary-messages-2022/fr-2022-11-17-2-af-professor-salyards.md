@@ -11,7 +11,6 @@ weight:
 
 Professeur Salyards - reçu par Al Fike le 17 Novembre 2022, Gibsons, Colombie-Britannique, Canada.
 
-
 Je suis un peu surpris, c’est votre professeur Salyards. Je vois que lorsque vous arrivez à ce lieu de décision, vous retombez souvent dans les méthodes anciennes et éprouvées de déduction et d’intellectualisme. Je connais bien l’intellectualisme car j’ai été professeur d’université et enseignant. J’en connais les limites et j’en connais les avantages.
 
 Je vous le dis, mes amis, lorsque vous venez de prendre des décisions comme celle-ci qui est très certainement guidée par Dieu, comptez sur vos conseils, le sens de votre âme, pas celui de votre esprit, bien que vous ayez certainement besoin de votre esprit pour réaliser les impressions et l’inspiration que vous recevez. Pourtant, vous ne pouvez pas danser éternellement autour de ce qui est juste et de ce que vous pensez être juste en termes de décision à prendre. Vous êtes testé, n’est-ce pas, sur la façon dont vous pouvez aborder ces choses qui sont en effet importantes mais qui ne sont pas tant une décision commerciale qu’une décision spirituelle. Dans le domaine de la spiritualité, n’allez-vous pas à Dieu, ne demandez-vous pas de conseils ? Si vous demandez sincèrement, même collectivement, la puissance de votre demande apportera les résultats, les informations dont vous avez besoin.

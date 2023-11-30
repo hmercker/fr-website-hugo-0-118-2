@@ -13,7 +13,7 @@ Eugène Crowell - reçu par James Padgett le 17 Mars 1915, Washington, USA.
 
 Je suis, Eugène Crowell.
 
-Avec la permission de votre groupe, je vais vous écrire un peu, car je vois que vous êtes en train de lire mon livre<sup id="a1">[1](#f1)</sup> et je suis, par conséquent, intéressé par votre bonne compréhension de celui-ci.
+Avec la permission de votre groupe, je vais vous écrire un peu, car je vois que vous êtes en train de lire mon livre <sup id="a1">[1](#f1)</sup> et je suis, par conséquent, intéressé par votre bonne compréhension de celui-ci.
 
 Eh bien, comme vous l’avez observé, je n’ai pas considéré Jésus comme un dieu, mais simplement comme un médium très élevé et qui bénéficiait de la grande faveur des puissances spirituelles élevées. Et c’est exact dans la mesure où cela va de soi, mais il est plus que cela : il est le plus haut, le plus éclairé et le plus puissant de tous les esprits, et il est le seul de tous les grands prophètes, voyants, réformateurs ou messagers de Dieu à avoir jamais enseigné le vrai et unique chemin vers le Royaume des Cieux. Et plus vite tous les spiritualistes reconnaîtront et croiront ce fait, plus vite le vrai spiritualisme sera établi sur terre et l’Amour du Père sera implanté dans chaque âme.
 
@@ -29,7 +29,7 @@ Oui, c’est bien cela. Eh bien, je pensais que vous aviez écrit à Eugène. Je
 
 Eugène Crowell – c’est mon nom. L’écriture d’Edward n’était pas ce que je voulais.
 
-Oui, en 1886, à San Francisco, en Californie. C’est vrai, et vous trouverez un récit de ma disparition dans les journaux du 7 juin 1886. Dans les journaux de San Francisco. Examinez donc par vous-même et vous constaterez que ce que je dis est vrai.<sup id="a2">[2](#f2)</sup>
+Oui, en 1886, à San Francisco, en Californie. C’est vrai, et vous trouverez un récit de ma disparition dans les journaux du 7 juin 1886. Dans les journaux de San Francisco. Examinez donc par vous-même et vous constaterez que ce que je dis est vrai. <sup id="a2">[2](#f2)</sup>
 
 Je vous souhaite une bonne nuit.
 

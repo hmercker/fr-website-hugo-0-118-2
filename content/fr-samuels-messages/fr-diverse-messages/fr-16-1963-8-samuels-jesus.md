@@ -21,11 +21,11 @@ La Minorah, ou chandeliers, se trouve dans les maisons Juives. Et chaque nuit, u
 
 Les Psaumes appelés Hallel commencent par le mot Hallelujah, et le premier d’entre eux est une description de l’homme bon, qui vénère Dieu, trouve la joie dans ses commandements, est généreux, agit équitablement et qui, en conséquence, possède toujours la bonne fortune. [Le Psaume 114}(https://saintebible.com/lsg/psalms/114.htm) se réjouit que Dieu ait pris Juda pour les siens, et ait fait d’Israël son domaine. [Le suivant](https://saintebible.com/lsg/psalms/115.htm), qui contient 20 versets, dénonce les idoles futiles des païens, tandis qu’Israël fait confiance à l’Éternel, à son bouclier et à son aide. [Le Psaume 116](https://saintebible.com/lsg/psalms/116.htm), avec 19 versets, est un chant d’action de grâce que l’Éternel a sauvé l’adorateur de la mort spirituelle. Il poursuit en déclarant (versets 15-16)
 
-*« Précieuse aux yeux du Seigneur est la mort de ses fidèles. Éternel, je suis bien Ton serviteur, Ton serviteur, Ton serviteur, Tu m’as délivré. »*
+> Précieuse aux yeux du Seigneur est la mort de ses fidèles. Éternel, je suis bien Ton serviteur, Ton serviteur, Ton serviteur, Tu m’as délivré.
 
 [Le psaume 117](https://saintebible.com/lsg/psalms/117.htm) comporte deux versets, le second louant Dieu :
 
-*« Car Son Amour envers nous est immense, Sa loyauté durera toujours. »*
+> Car Son Amour envers nous est immense, Sa loyauté durera toujours.
 
 Une plus grande réjouissance que dans cette fête de Hanukka, où, pour le Juif, la Shekinah, ou la Présence de Dieu, est retournée habiter sur terre dans le Temple Saint purifié de Jérusalem, ne peut être trouvée que parmi les fêtes Hébraïques-Chrétiennes à Noël car, particulièrement, c’est le jour où nous membres de l’Église de la Nouvelle Naissance, nous pouvons nous réjouir de savoir que le Temple spirituel de Dieu, dans l’âme de l’enfant Jésus ben Joseph (prononcé Yey-seph), est venu sur terre non seulement avec la justice du Seigneur lui-même, mais aussi avec la grâce du Père, pour apporter le salut de la vie éternelle aux hommes.
 
@@ -41,4 +41,4 @@ En passant en revue ces trois jours fériés, qui ont lieu en Décembre et qui s
 
 Jésus de la Bible et Maître des Cieux Célestes.
 
-*Note : L’influence du médium est évidente sur ces messages, et cela a été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).*
+**Note :** L’influence du médium est évidente sur ces messages, et cela a été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).

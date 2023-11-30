@@ -31,7 +31,7 @@ Mon amour pour Lui est tel que j’aime chacune de Ses créatures, qu’elles so
 
 Ta femme progresse très rapidement sur le Chemin vers ce parfait Amour, et je pense qu’en peu de temps elle me rejoindra dans ma sphère, car elle ne laissera rien s’interposer entre elle et ses efforts pour posséder la plus grande quantité de cet Amour qu’il est possible d’obtenir.
 
-C’est merveilleux comme sa foi a grandi depuis qu’elle est devenue convaincue qu’elle doit chercher l’Amour du Père pour devenir une avec Lui et parfaitement heureuse. Tu dois essayer d’obtenir cette foi et progresser avec elle, afin que, lorsque ton heure viendra, vous progressiez ensemble dans le développement de l’âme et l’amour conjugal. Elle est maintenant dans le troisièm<sup id="a1">[1](#f1)</sup> ciel, comme elle te l’a dit, et elle a presque atteint le développement nécessaire pour quitter cette sphère et rejoindre ta mère dans la cinquième sphère, où son bonheur sera tellement plus grand.
+C’est merveilleux comme sa foi a grandi depuis qu’elle est devenue convaincue qu’elle doit chercher l’Amour du Père pour devenir une avec Lui et parfaitement heureuse. Tu dois essayer d’obtenir cette foi et progresser avec elle, afin que, lorsque ton heure viendra, vous progressiez ensemble dans le développement de l’âme et l’amour conjugal. Elle est maintenant dans le troisièm <sup id="a1">[1](#f1)</sup> ciel, comme elle te l’a dit, et elle a presque atteint le développement nécessaire pour quitter cette sphère et rejoindre ta mère dans la cinquième sphère, où son bonheur sera tellement plus grand.
 
 Elle t’aime tellement qu’il faut que tu aies l’impression qu’elle désire que tu partages avec elle tout son bonheur. Elle n’est pas la même Hélène que lorsqu’elle était sur terre. Elle est tellement changée que ta mère dit que son apparence est aussi différente que celle de la terre et du ciel. Elle n’est pas seulement changée dans son apparence, mais dans son caractère et ses désirs pour ces choses qui ne tendent pas à retarder le progrès de l’âme.
 
@@ -43,15 +43,14 @@ Mais tu ne dois pas penser que nous n’aimons pas intensément car l’amour qu
 
 Mon cher garçon, nous devons arrêter d’écrire maintenant car tu n’es pas en condition d’écrire plus. Alors je te vais te dire bonne nuit et que Dieu te bénisse et te garde dans Son Amour et Sa sollicitude.
 
-Ta grand-mère aimante, Anne Rollins.<sup id=”a2”>[2](#f2)</sup>
-<small>
+Ta grand-mère aimante, Anne Rollins.
 
-1. <large id="f1"> Dans un message postérieur, il est dit que Mme Padgett a atteint la 3ème sphère céleste. (Dr. Stone).[↩](#a1)
-
-2. <large id="f2"> *Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :*[↩](#a2)
+**Note :** Anne Rollins s'est exprimée, au sujet de l'Amour Divin, dans deux autres messages :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) | le 13 Mai 1915
 Anne Rollins | [La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-1-1-jep-ann-rollins/) | le 1er Juin 1916
+<small>
 
+1. <large id="f1"> Dans un message postérieur, il est dit que Mme Padgett a atteint la 3ème sphère céleste (Dr. Stone).[↩](#a1)

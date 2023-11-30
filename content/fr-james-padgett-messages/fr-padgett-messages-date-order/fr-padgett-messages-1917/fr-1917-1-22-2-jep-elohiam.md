@@ -37,16 +37,15 @@ Vous avez reçu beaucoup de messages décrivant le plan du Père pour le salut d
 
 Je suis un croyant dans ces vérités, un disciple du Maître et un habitant des Cieux Célestes ; mais je tiens à dire que ces vérités ne sont pas venues à moi et ont fait partie de ma foi, avant de longues années de ma vie dans le monde des esprits et que, pendant certaines de ces années, j’ai vécu dans l’obscurité et la souffrance. Je vais donc vous dire bonne nuit et me déclarer votre frère en Christ, Elohiam.
 
-Cela peut aussi avoir été plus correctement « Euliam. »<sup id="a2">[2](#f2)</sup>
-<small>
+Cela peut aussi avoir été plus correctement « Euliam. »
 
-1. <large id="f1"> Ce message est aussi publié dans le Volume I page 359 et dans le Volume III à la page 284 des messages de James Padgett. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
-
-1. <large id="f2">Liens vers d'autres messages relatifs à la crucifixion de Jésus :*[↩](#a2)
+**Note :** Liens vers d'autres messages relatifs à la crucifixion de Jésus :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-St Luc | [Explique la dématérialisation du corps terrestre de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-24-1-jep-st-luke/) | 24 Octobre 1915
-Joseph d’Arimathie | [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-16-1-jep-joseph/)  | 16 Mars 1916 
-Hélène Padgett| [Que s’est-il réellement passé lors de la crucifixion de Jésus ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/)| 27 Mars 1921
+St Luc | [Explique la dématérialisation du corps terrestre de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-24-1-jep-st-luke/) | 24 Octobre 1915
+Joseph d’Arimathie | [Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-16-1-jep-joseph/) | 16 Mars 1916
+Hélène Padgett | [Que s’est-il réellement passé lors de la crucifixion de Jésus ?](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1921-3-27-1-jep-samuel/) | 27 Mars 1921
+<small>
 
+1. <large id="f1"> Ce message est aussi publié dans le Volume I page 359 et dans le Volume III à la page 284 des messages de James Padgett. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

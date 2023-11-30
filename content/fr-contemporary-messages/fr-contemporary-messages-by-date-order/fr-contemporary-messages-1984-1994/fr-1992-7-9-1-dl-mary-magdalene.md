@@ -1,13 +1,13 @@
 ---
-title: "Communication personnelle."
+title: "Communication personnelle"
 menu_title: ""
-description: "Communication personnelle."
+description: "Communication personnelle"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True
 weight:
 ---
-### Communication personnelle.
+### Communication personnelle
 
 Marie Madeleine - reçu par Révérend Dave Lampron le 9 Juillet 1992.
 
@@ -37,8 +37,8 @@ Que le Père continue à répandre sur vous Son Amour en grande abondance.
 
 Votre sœur dans le Christ, Marie, autrefois enfant déchue mais jouissant maintenant de toute la béatitude d’une âme pleinement rachetée et de l’amour de la plus grande âme sœur de tous les Cieux de Dieu.
 
-*Note : Commentaire de l’éditeur du site « New-Birth.Net » : Personnellement, je doute de l’exactitude de l’affirmation selon laquelle Marie Madeleine et Jésus sont des âmes sœurs. Nous laissons au lecteur le soin de discerner la vérité de cette conclusion.*
+**Note :** Commentaire de l’éditeur du site « new-birth.net » : Personnellement, je doute de l’exactitude de l’affirmation selon laquelle Marie Madeleine et Jésus sont des âmes sœurs. Nous laissons au lecteur le soin de discerner la vérité de cette conclusion.
 
-*Ce message est par ailleurs en totale contradiction avec le message communiqué par Elie le 11 Février 2008 dans lequel il affirme que la véritable âme-soeur de Jésus est Dieu.*
+Ce message est par ailleurs en totale contradiction avec le message communiqué par [Elie le 11 Février 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/) dans lequel il affirme que la véritable âme-soeur de Jésus est Dieu.
 
-*Cette position a par ailleurs été confirmé par un message communiqué par Jésus et Marie Madeleine respectivement le 28 et 29 Janvier 2019.*
+Cette position a par ailleurs été confirmé par un message communiqué par Jésus et Marie Madeleine respectivement le [27](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-2-af-jesus/) et [29](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) Janvier 2019.

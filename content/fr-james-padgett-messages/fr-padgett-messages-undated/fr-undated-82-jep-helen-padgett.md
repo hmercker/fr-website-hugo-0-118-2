@@ -9,7 +9,7 @@ weight:
 ---
 ### Hélène Padgett a localisé l’âme sœur du Père de M. Padgett. Elle est remplie d’amour et est un esprit Céleste
 
-Hélène Padgett - reçu par James Padgett, Washington, USA.<sup id="a1">[1](#f1)</sup>
+Hélène Padgett - reçu par James Padgett, Washington, USA. <sup id="a1">[1](#f1)</sup>
 
 C’est moi, Hélène.
 

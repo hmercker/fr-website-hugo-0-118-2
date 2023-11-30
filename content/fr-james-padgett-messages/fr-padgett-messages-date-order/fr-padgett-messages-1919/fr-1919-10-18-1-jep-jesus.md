@@ -31,14 +31,13 @@ Je ne dois pas m’attarder pour corriger ces énonciations présumées, mais do
 
 Je viendrai bientôt et j’écrirai un message sur une vérité vitale et j’espère que vous serez en mesure de la recevoir. Je vais maintenant vous dire bonne nuit et que Dieu vous bénisse et vous protège.
 
-Votre frère et ami, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id=”f1”> *Jésus s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :*.[↩](#a1)
+**Note :** Jésus s’est également exprimé sur les vérités du Nouveau Testament dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Jésus | [Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-15-1-jep-jesus) | 15 Août 1915
-Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
-Jésus | [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-13-1-jep-jesus/) | 13 Août 1916
-Jésus | [« En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père ».](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/) | 24 Septembre 1916
+Jésus | [L’importance pour l’humanité de chercher l’Amour Divin et de ne pas se satisfaire d’un simple développement de l’amour naturel dans un état pur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-10-2-jep-jesus/) | 10 Janvier 1916
+Jésus | [Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-13-1-jep-jesus/) | 13 Août 1916
+Jésus | [« En vérité, en vérité, je vous le dis, celui qui croit en moi fera aussi les œuvres que je fais, et il en fera de plus grandes, parce que je m’en vais au Père »](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-9-24-1-jep-jesus/) | 24 Septembre 1916

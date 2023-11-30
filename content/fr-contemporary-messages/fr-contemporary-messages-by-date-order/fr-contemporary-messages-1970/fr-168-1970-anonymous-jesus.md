@@ -13,7 +13,7 @@ Jésus - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 
 Dieu répond à toutes les prières
 
-*"Je Te demande, Père, de bénir chacun de Tes enfants et de leur donner la possibilité d'aller de l'avant. Je Te demande, Père, de bénir chacun de Tes enfants"*.
+*« Je Te demande, Père, de bénir chacun de Tes enfants et de leur donner la possibilité d'aller de l'avant. Je Te demande, Père, de bénir chacun de Tes enfants »*.
 
 A vous mes amis, je viens en tant que votre frère et votre serviteur, ressentant une grande paix et une grande joie qui est ici ce soir, venant encourager chacun dans l'enseignement et la diffusion de ces merveilleuses vérités parce que mes enfants, c'est la clé du grand bonheur et d'une vie parfaite.
 

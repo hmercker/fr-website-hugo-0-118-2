@@ -37,9 +37,7 @@ Quand elle te dit de prier davantage et de laisser ta foi s’accroître et, lor
 
 Je ne dois pas écrire plus maintenant mais, pour conclure, je dirai que nous t’ aimons tous, que nous sommes tous avec toi et que nous prions le Père pour que son amour et ses bénédictions te parviennent dans des courants croissants de pureté, et de joie aussi, que Lui seul peut donner.
 
-Avec tout mon amour, je suis ta chère et tendre sœur, Kate.<sup id=”a1”>[1](#f1)</sup>
+Avec tout mon amour, je suis ta chère et tendre sœur, Kate. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> *C’est pour moi un merveilleux et très beau message qui me donne beaucoup de bonheur et de consolation. Leslie R. Stone.*[↩](#a1)
-
-
+1. <large id="f1"> *C’est pour moi un merveilleux et très beau message qui me donne beaucoup de bonheur et de consolation. Leslie R. Stone.*[↩](#a1)

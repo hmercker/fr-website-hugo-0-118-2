@@ -19,7 +19,7 @@ Ce type d’argument, cependant, montrait la mauvaise foi et le recours à la te
 
 Et ainsi, répondant à leurs objections scripturaires dans leurs propres termes, j’ai proclamé qu’il n’était pas vrai qu’ils ne savaient pas d’où je venais, ou qui était mon père, puisqu’ils ont fait référence à Joseph comme mon père, qu’ils connaissaient bien. J’ai fait référence à Dieu, mon Père céleste, qu’ils ne connaissaient pas, pas plus qu’ils ne connaissaient d’où je venais en tant qu’âme Divine, ni comment ou quand j’avais été créé. La référence des Rabbins à mon père Joseph ont, plus tard, été éliminées des Évangiles, la mention de mes parents terrestres était une épine dans le pied des révisionnistes des Évangiles qui étaient déterminés à faire de moi un homme-Dieu, né d’une vierge et étant la deuxième personne de la supposée Trinité, ce qui, bien sûr, n’a, en réalité, aucun fondement.
 
-Je leur ai également dit que, s’ils connaissaient le Père, ils pouvaient me connaître, moi, son fils, comme étant son envoyé et me reconnaître comme étant le Messie, et citant Isaïe, tout comme les dirigeants Hébreux, j’ai cité les paroles de mon Père ; *[ Prêtez l’oreille, et venez à moi, Écoutez, et votre âme vivra : Je traiterai avec vous une alliance éternelle, Pour rendre durables mes faveurs envers David.… Voici, je l’ai établi comme témoin auprès des peuples, Comme chef et dominateur des peuples](https://saintebible.com/isaiah/55-3.htm).*
+Je leur ai également dit que, s’ils connaissaient le Père, ils pouvaient me connaître, moi, son fils, comme étant son envoyé et me reconnaître comme étant le Messie, et citant Isaïe, tout comme les dirigeants Hébreux, j’ai cité les paroles de mon Père ; [Prêtez l’oreille, et venez à moi, Écoutez, et votre âme vivra : Je traiterai avec vous une alliance éternelle, Pour rendre durables mes faveurs envers David.… Voici, je l’ai établi comme témoin auprès des peuples, Comme chef et dominateur des peuples](https://saintebible.com/isaiah/55-3.htm).
 
 Et ce que j’ai dit était connu par tous ceux qui avaient reçu une instruction concernant le Père Céleste, ils savaient alors qu’Il avait choisi pour eux un Messie dans la lignée de David. Ils devaient donc m’accepter comme leur Messie, comme étant celui qui permettrait à leur âme de vivre, en mettant à leur disposition le don de l’immortalité dans l’Amour Divin du Père, accompagné par la puissance de guérison et par les miracles que j’avais effectués par le Père et ainsi attesté de la vérité de ma mission.
 
@@ -27,7 +27,7 @@ Et je les ai de plus informé que, s’ils voulaient affirmer la vérité de mes
 
 J’ai également dit que ces enseignements n’étaient pas les miens, mais ceux du Père – que j’avais été envoyé par Lui pour le proclamer aux enfants d’Israël, et que, ayant été envoyé par Lui, je ne faisais rien de moi-même, mais tout ce que j’avais fait je l’avais fait par le Père – c’est-à-dire par le pouvoir que j’ai reçu du Père. Je n’ai pas dit que je pouvais le faire, que j’avais vu le Père le faire ou que l’imitais, comme l’indique l’Évangile, car cela me donnerait un pouvoir égal à celui du Père, ce qui est un blasphème, car aucun mortel ou esprit, ne pourra jamais, de toute l’éternité, avoir un pouvoir égal à celui du Père. Cette la révision a été faite plusieurs années plus tard, en conformité avec la fausse doctrine, développée au début de la période Grecque du Christianisme, après ma mort, afin de me rendre co-égal au Père. Je voudrais dire que, si une telle absurdité fut admise pour un moment, elle se prête à sa propre destruction et prouve sa propre fausseté, parce que, n’ayant jamais vu le Père Céleste donner sa vie pour ses brebis, Israël, alors moi, Jésus, je ne pourrais le faire au sens où cela est compris dans le Nouveau Testament, c’est à dire que mon sang versé et mon sacrifice sur la Croix sont la source de rémission des péchés.
 
-J’ai cité les Psaumes et le Prophète Samuel sur l’Alliance Davidique, disant : *[J’élèverai ta postérité après toi, celui qui sera sorti de tes entrailles, et j’affermirai son règne. Ce sera lui qui bâtira une maison à mon nom, et j’affermirai pour toujours le trône de son royaume, Je serai pour lui un père, et il sera pour moi un fils.](https://saintebible.com/isaiah/55-3.htm)*
+J’ai cité les Psaumes et le Prophète Samuel sur l’Alliance Davidique, disant : [J’élèverai ta postérité après toi, celui qui sera sorti de tes entrailles, et j’affermirai son règne. Ce sera lui qui bâtira une maison à mon nom, et j’affermirai pour toujours le trône de son royaume, Je serai pour lui un père, et il sera pour moi un fils.](https://saintebible.com/isaiah/55-3.htm)
 
 Donc s’ils connaissaient le Père et honoraient Sa parole, ils savaient aussi que je proclamais le salut éternel de l’âme par le biais de Son Amour, qui a été mis en évidence dans mon âme et témoigne de Sa Puissance par mon intermédiaire. J’ai également témoigné que, alors qu’ils ne connaissaient pas le Père, Je le connaissais en effet et était envoyé par lui – et j’ai dit que Dieu était mon témoignage de la vérité de ma mission – une mission dans laquelle je m’étais engagé pour Sa gloire, et non pour la mienne.
 
@@ -39,16 +39,15 @@ C’est pourquoi j’ai dit qu’en refusant de me reconnaître comme le Messie,
 
 Je pense en avoir assez dit assez sur ce sujet en expliquant beaucoup de choses qui sont restées obscures dans le Nouveau Testament. Je vous donne ma bénédiction ainsi qu’au Docteur et à tous mes disciples qui font le travail du Père, je vais arrêter et signer moi-même,
 
-Jésus de la Bible et Maître des Cieux Célestes.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Jésus de la Bible et Maître des Cieux Célestes.
 
-<large id=”f1”> *Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*.[↩](#a1)
+**Note :** Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [La condition du monde au temps des enseignements de Jésus.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/). | 24 Mai 1915
-Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/). | 07 Juin 1915
-Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/).  | 08 Juin 1915
-Jésus | [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/).   | 29 Juin 1915
-Jésus | [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/).   | 20 Mai 1918
-Jésus | [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/).   | 25 Mai 1955
+Jésus | [La condition du monde au temps des enseignements de Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-24-1-jep-jesus/) | 24 Mai 1915
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-7-1-jep-jesus/) | 07 Juin 1915
+Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) | 08 Juin 1915
+Jésus | [Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-29-1-jep-jesus/) | 29 Juin 1915
+Jésus | [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/) | 20 Mai 1918
+Jésus | [4ème Révélation : Jésus annonce Sa Messianité](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/) | 25 Mai 1955

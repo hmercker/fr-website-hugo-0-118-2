@@ -15,17 +15,15 @@ C’est moi, Jésus.
 
 Le Second Isaïe a développé un double concept du Père en tant que résultat de la bonté de Cyrus envers les Hébreux. Cyrus, un païen, était un instrument de la Volonté de Dieu sur la terre pour libérer les Juifs, tout comme les Assyriens et Nabuchodonosor, le Babylonien, étaient Ses instruments pour châtier son peuple pour leur infidélité. En bref, le Dieu d’Israël est le seul Dieu, le Dieu universel de toutes les nations. En réaffirmant Cyrus comme le Messie, Dieu, Lui-même dit à travers le Second Isaïe :
 
-> *« C’est moi, ce sont Mes mains qui ont déployé les cieux, Et c’est Moi qui ai disposé toute leur armée. C’est Moi qui ai suscité Cyrus dans ma justice, Et J’aplanirai toutes ses voies. »*
-[Isaïe 45 : 12-13](https://saintebible.com/isaiah/45-12.htm)
+> C’est moi, ce sont Mes mains qui ont déployé les cieux, Et c’est Moi qui ai disposé toute leur armée. C’est Moi qui ai suscité Cyrus dans ma justice, Et J’aplanirai toutes ses voies. - [Isaïe 45 : 12-13](https://saintebible.com/isaiah/45-12.htm)
 
 Et encore, Dieu réitère:
 
-> *« … Que hors moi il n’y a point de Dieu : Je suis l’Éternel, et il n’y a point d’autre. »*
-[Isaïe 45 : 6](https://saintebible.com/isaiah/45-6.htm)
+> …Que hors moi il n’y a point de Dieu : Je suis l’Éternel, et il n’y a point d’autre. - [Isaïe 45 : 6](https://saintebible.com/isaiah/45-6.htm)
 
 Et encore une fois au chapitre [45 : 22-23](https://saintebible.com/isaiah/45-22.htm) :
 
-> *« Tournez-vous vers Moi, et vous serez sauvés, 
+> Tournez-vous vers Moi, et vous serez sauvés,
 <br>
 <br>
 Vous tous qui êtes aux extrémités de la terre !
@@ -37,13 +35,13 @@ Car je suis Dieu, et il n’y a pas d’autre, Je le jure par moi-même
 La vérité sort de Ma bouche, et Ma parole ne sera point révoquée;
 <br>
 <br>
-Qui à Moi tout genou fléchira, toute langue jurera par moi. »*
+Qui à Moi tout genou fléchira, toute langue jurera par moi.
 <br>
 <br>
 > La terre elle-même, dans la plénitude des temps, sera détruite, tout comme toutes les choses matérielles, pour être reconstruite et regroupée dans d’autres formes transitoires, mais Dieu et Son salut resteront à jamais :
 <br>
 <br>
-> *« Levez les yeux vers le ciel, et regardez en bas sur la terre ! 
+> Levez les yeux vers le ciel, et regardez en bas sur la terre !
 <br>
 <br>
 Car les cieux s’évanouiront comme une fumée,
@@ -55,18 +53,15 @@ La terre tombera en lambeaux comme un vêtement,
 Et ses habitants périront comme des mouches; Mais mon Salut durera éternellement
 <br>
 <br>
-Et Ma Justice n’aura pas de fin. »* 
-<br>
-<br>
-[Isaïe 51 : 6](https://saintebible.com/isaiah/51-6.htm)
+Et Ma Justice n’aura pas de fin. - [Isaïe 51 : 6](https://saintebible.com/isaiah/51-6.htm)
 
 Maintenant, les Hébreux, ou le peuple d’Israël, sont les instruments de Dieu par qui Sa connaissance doit être donnée aux Gentils. Cela est démontré, à travers l’histoire du peuple, par leurs dirigeants, Abraham, Moïse, Josué, David et les prophètes, qui ont connu et accepté le Seigneur, et qui, dans leurs jours les plus sombres de la défaite, ont conservé leur foi en Lui. Et c’est ainsi que les Hébreux sont les Serviteurs du Seigneur, Israël est le Serviteur du Seigneur, avec la mission d’apporter le salut aux Gentils.
 
 Alors le Second Isaïe, avec une perspicacité inégalée dans l’histoire de la religion, a écrit ses quatre Chants du Serviteur, en interprétant Israël, le Serviteur souffrant de Dieu, comme le peuple appelé à conduire vers Dieu, par la souffrance, les nations, tout comme les prophètes, en particulier Jérémie, comme il est souligné dans les écrits d’Ézéchiel, ont souffert et ont pris sur eux les iniquités du peuple incompréhensif.
 
-Ces Chants du Serviteur sont au nombre de quatre et je vais analyser chacun à la lumière de l’arrière-plan que je l’ai écrit. Le premier est dans le Second Isaïe, au chapitre [42 : 1-4](https://saintebible.com/isaiah/42-1.htm)
+Ces Chants du Serviteur sont au nombre de quatre et je vais analyser chacun à la lumière de l’arrière-plan que je l’ai écrit. Le premier est dans le Second Isaïe, au chapitre [42 : 1-4](https://saintebible.com/isaiah/42-1.htm).
 
-> *« Voici, Mon Serviteur, que Je défends ;
+> Voici, Mon Serviteur, que Je défends ;
 <br>
 <br>
 Mon élu, en qui mon âme prend plaisir ;
@@ -99,7 +94,7 @@ Il ne se découragera point et ne se relâchera point,
 Jusqu’à ce qu’il ait établi la justice sur la terre.
 <br>
 <br>
-Et que les îles espèrent en sa loi. »*
+Et que les îles espèrent en sa loi.
 
 Ce passage a attiré l’attention rapide des copistes cherchant toute relation entre le Christ et la prophétie de l’ancien Testament pour montrer, à travers ma venue, l’accomplissement des Écritures. Ici, ils ont souligné *« J’ai mis mon esprit sur lui »*, dont ils ont pensé qu’il faisait référence à moi, mais qui renvoie en fait aux grands mots dans Jérémie annonçant la Nouvelle Alliance. Cela signifiait qu’étant donné que les Hébreux étaient autorisés à retourner à Jérusalem, ils étaient rachetés de l’Éternel et la prophétie du « cœur de chair » était maintenant accomplie. Ils retourneraient sans péché et enseigneraient la connaissance de Dieu aux nations. Les écrivains chrétiens ont pensé que la description d’Israël comme un peuple si spirituel qu’il, comme un roseau meurtri, ne romprait pas ou n’éteindrait pas une bougie allumée, faisait référence à moi, dans le sens où je n’ai offert aucune résistance lors de mon  arrestation. Mais en fait cette description représente simplement le peuple d’Israël lorsqu’il est possédé de l’esprit de Dieu agissant en eux. Le Second Isaïe avait à l’esprit Jérémie comme modèle pour le peuple d’Israël lorsqu’ils furent rachetés du péché par l’Esprit de Dieu.
 

@@ -21,7 +21,7 @@ Je vous dirai donc en quelques mots que les vérités du Maître, qui sont les v
 
 Je fais de mon mieux pour aider la cause qu’il défend, et je suis l’un des esprits derrière vous qui essaient avec tous leurs pouvoirs spirituels de vous diriger correctement et vous permettre de recevoir la vérité.
 
-*[Question]*
+*[Question :]*
 
 Je suis dans une Sphère Céleste, très haut dans les cieux. Je ne peux pas décrire autrement son emplacement. Ces sphères, après les premières, ne sont pas numérotées parce qu’elles s’entremêlent de sorte qu’il n’y a pas de lignes de démarcation.
 

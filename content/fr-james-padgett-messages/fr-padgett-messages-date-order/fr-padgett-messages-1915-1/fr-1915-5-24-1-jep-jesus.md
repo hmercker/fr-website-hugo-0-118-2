@@ -31,10 +31,9 @@ Mais il y a un grand nombre d’hommes et de femmes vivant aujourd’hui qui ne 
 
 Je ne pense pas que vous pouvez écrire plus ce soir et je vais arrêter en vous disant que vous devez continuer à devenir plus fort, spirituellement et physiquement, de sorte que nous puissions continuer nos écritures plus rapidement et avec une plus grande satisfaction. Croyez ainsi que je suis Jésus, votre vrai ami et frère qui est très souvent avec vous, essayant de vous aider et de vous rendre heureux et satisfait.
 
-Avec mon amour et ma prière, je suis Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Avec mon amour et ma prière, je suis Jésus.
 
-<large id=”f1”> *Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*.[↩](#a1)
+**Note :** Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

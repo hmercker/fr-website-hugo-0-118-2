@@ -11,8 +11,8 @@ weight:
 
 Anne Padgett - reçu par James Padgett le 5 Octobre 1914, Washington, USA.
 
-Oh, mon cher fils : 
+Oh, mon cher fils :
 
-[Le Maître t’a montré le chemin du salut.!](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-10-14-1-jep-jesus/) Crois seulement.
+[Le Maître t’a montré le chemin du salut !](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-10-14-1-jep-jesus/) Crois seulement.
 
 Je suis ta mère aimante.

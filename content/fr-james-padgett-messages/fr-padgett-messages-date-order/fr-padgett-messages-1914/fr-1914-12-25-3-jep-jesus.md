@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par James Padgett le 25 Décembre 1914, Washington, USA.
 
-C’est moi, Jésus.<sup id="a1">[1](#f1)</sup>
+C’est moi, Jésus. <sup id="a1">[1](#f1)</sup>
 
 Vous êtes mon cher frère, et je vais vous dire ce que je désire que vous fassiez en ce moment. Vous ne devez pas laisser les petits soucis de votre vie professionnelle vous empêcher de tourner vos pensées vers Dieu, dans le culte et dans la prière, de croire en moi et de m’aimer comme votre ami et enseignant, car je le suis. Je souhaite seulement que vous fassiez ces choses qui vous rendront plus en harmonie avec le Père et que vous m’aimiez davantage. Vous devez essayer de laisser toutes vos pensées se tourner vers la mission pour laquelle je vous ai sélectionné, car je vous ai choisi et vous devez faire mon travail. Comme je suis celui que Dieu a choisi pour faire Son travail lorsque j’étais sur terre, ainsi vous êtes celui que je choisis maintenant pour faire mon travail en donnant au monde mes messages de vérité et d’amour. Je commencerai bientôt à les écrire et vous devrez les conserver jusqu’à ce que vous soyez en état de les publier, qui ne sera pas très long car, comme je vous l’ai déjà dit, vous aurez bientôt les moyens de vous consacrer totalement à cette tâche.
 

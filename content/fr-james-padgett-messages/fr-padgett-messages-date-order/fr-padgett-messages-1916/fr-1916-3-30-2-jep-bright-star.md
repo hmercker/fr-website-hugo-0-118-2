@@ -11,13 +11,13 @@ weight:
 
 Bright Star - reçu par James Padgett le 30 Mars 1916, Washington, USA.
 
-C’est moi, Bright Star.<sup id="a1">[1](#f1)</sup>
+C’est moi, Bright Star. <sup id="a1">[1](#f1)</sup>
 
 Vous êtes surpris de me voir, mais j’ai cette opportunité et je désire juste dire un mot.
 
 Je m’intéresse à vous et à votre ami (Eugène Morgan) et je veux faire tout ce que je peux pour vous aider de toutes les façons possibles. Bien sûr, quand vous entendez ma voix, vous vous sentez confiant, mais maintenant vous devez vous sentir tout aussi confiant que je peux écrire car je suis tout aussi certainement ici, en train d’écrire, que je ne l’étais lors de la séance. Je dis cela parce que j’ai entendu votre ami dire qu’un esprit peut se faire passer pour l’un de vos amis esprits qui prétendent écrire.
 
-J’ai vu les deux esprits précédents écrire et je sais qu’ils sont tous les deux Morgans mais un peu différents dans leur apparence et leurs conditions. Mais ils sont ce qu’ils prétendent être et je le sais car je les ai vus plusieurs fois auparavant vous écrire et l’un d’eux était présent à ma séance et a parlé un peu. Je ne sais bien sûr rien sur le sujet de la communication de l’homme très bruyant<sup id="a2">[2](#f2)</sup> (Pierpont Morgan) mais je vois qu’il est sérieux et qu’il veut vous partager ce qu’il pense être la vérité.
+J’ai vu les deux esprits précédents écrire et je sais qu’ils sont tous les deux Morgans mais un peu différents dans leur apparence et leurs conditions. Mais ils sont ce qu’ils prétendent être et je le sais car je les ai vus plusieurs fois auparavant vous écrire et l’un d’eux était présent à ma séance et a parlé un peu. Je ne sais bien sûr rien sur le sujet de la communication de l’homme très bruyant <sup id="a2">[2](#f2)</sup> (Pierpont Morgan) mais je vois qu’il est sérieux et qu’il veut vous partager ce qu’il pense être la vérité.
 
 De plus, votre femme et le reste de votre groupe sont ici et ils disent que les esprits qui écrivent leur sont connus et qu’ils sont les esprits qu’ils prétendent être.
 

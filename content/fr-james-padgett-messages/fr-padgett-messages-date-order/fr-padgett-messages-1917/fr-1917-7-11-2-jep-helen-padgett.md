@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène est avec moi lorsqu’Harry vient en visite au bureau<sup id="a1">[1](#f1)</sup>
+### Hélène est avec moi lorsqu’Harry vient en visite au bureau <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 11 Juillet 1917, Washington, USA.
 

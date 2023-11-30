@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L’Amour du Père n’est jamais loin quand la tentation frappe<sup id=”a1”>[1](#f1)</sup>.
+### L’Amour du Père n’est jamais loin quand la tentation frappe <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par James Padgett le 23 Mai 1917, Washington, USA.
 
@@ -41,4 +41,3 @@ Votre ami et frère, Jésus.
 <small>
 
 1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
-

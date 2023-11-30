@@ -11,7 +11,7 @@ weight:
 
 Copernic - reçu par Al Fike le 7 Juillet 2023, Sechelt, Colombie-Britannique, Canada<sup id=”a1”>[1](#f1)</sup>.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/copernic1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-copernic1.jpg)
 
 Votre Terre Mère a certainement besoin de prières. Je suis Copernic et j’étudie les cycles et les rythmes des planètes, non seulement lorsque j’habitais la Terre, mais depuis tout ce temps où j’habite le monde de l’esprit et plus particulièrement maintenant le Royaume Céleste. J’aimerais avoir de meilleures nouvelles pour vous, mes frères et sœurs bien-aimés, concernant la santé de votre plan terrestre. Mais effectivement, la Terre a de la fièvre. Le réchauffement est rapide et tous les systèmes et aspects de l’existence sur Terre créés par Dieu pour apporter l’harmonie et la vie sont désormais perturbés. Il y a un virus, je répugne à le dire, et ce virus, c’est l’humanité. L’humanité va à l’encontre, réduisant et inhibant les rythmes et cycles naturels de la Terre. La pression de l’humanité sur le plan terrestre est grande parce que la population est importante et les manifestations de l’humanité sont grandes, suffisamment importantes pour influencer malencontreusement votre Terre. Ainsi, votre Terre Mère se débat.
 

@@ -23,7 +23,7 @@ Ainsi, tu peux voir qu’un homme peut être apparemment dévot et rempli de zè
 
 Ne laisse pas tes désirs être uniquement intellectuels, mais essaie de mettre en pratique les désirs de l’âme, ne sois pas satisfait jusqu’à ce qu’une réponse vienne, et elle viendra certainement, et tu sauras que l’Amour est présent, en train d’œuvre, transformant le pouvoir sur l’âme. C’est tout ce que je désire dire ce soir. Je suis heureuse que tu sois maintenant en condition de recevoir nos messages et j’espère que ton excellente condition perdurera. Avec tout mon amour je vais te souhaiter une bonne nuit.
 
-Ta propre grand-mère adorée, Anne Rollins.<sup id=”a1”>[1](#f1)</sup>
+Ta propre grand-mère adorée, Anne Rollins. <sup id="a1">[1](#f1)</sup>
 <small>
 
 1. <large id="f1"> Ce message est publié dans le Volume 1  à la page 341 et dans Volume III à la page 146. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

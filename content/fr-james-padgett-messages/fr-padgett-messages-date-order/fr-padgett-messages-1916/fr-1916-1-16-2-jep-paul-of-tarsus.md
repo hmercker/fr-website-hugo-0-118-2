@@ -51,16 +51,11 @@ Il est trop tard ce soir pour expliquer cette Résurrection, mais je reviendrai 
 
 Je vais maintenant vous dire bonne nuit et que Dieu vous bénisse et vous protège.
 
-Votre frère en Christ, Paul.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre frère en Christ, Paul.
 
-1. <large id=”f1”> * Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :*.[↩](#a1)
+**Note :** Saint Paul s'est également exprimé sur la résurrection dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus |  [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/) |  08 Février 1916
-Jésus | [Quel est le corps réel qui est ressuscité au moment de la mort physique.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-4-1-jep-st-paul/)  | 04 Octobre 1916
-
-
-
-
+Jésus | [La résurrection que Jésus a enseignée sans laquelle notre foi en tant que Chrétiens est vaine](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/) | 08 Février 1916
+Jésus | [Quel est le corps réel qui est ressuscité au moment de la mort physique](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-4-1-jep-st-paul/) | 04 Octobre 1916

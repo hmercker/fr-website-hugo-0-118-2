@@ -11,9 +11,9 @@ weight:
 
 St Chrysostome - reçu par James Padgett le 22 Juillet 1915, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/eveil-spirituel2.jpg)
+![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-eveil-spirituel2.jpg)
 
-Je suis Saint Chrysostome.<sup id="a1">[1](#f1)</sup>
+Je suis Saint Chrysostome. <sup id="a1">[1](#f1)</sup>
 
 Je viens parce que je veux vous dire que vous avez commencé une œuvre qui apportera beaucoup de bonheur à l’humanité et beaucoup de gloire à la cause du Maître.
 

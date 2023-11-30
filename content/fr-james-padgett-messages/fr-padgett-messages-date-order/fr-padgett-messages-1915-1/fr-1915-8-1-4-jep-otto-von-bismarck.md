@@ -11,7 +11,7 @@ weight:
 
 Otto von Bismarck - reçu par James Padgett le 1 Août 1915, Washington, USA.
 
-Je suis Bismarck.<sup id="a1">[1](#f1)</sup>
+Je suis Bismarck. <sup id="a1">[1](#f1)</sup>
 
 Laissez-moi vous dire un mot. J’ai vu ce que Lafayette a écrit et je ne suis pas d’accord avec lui sur les deux propositions.
 
@@ -34,7 +34,7 @@ Excusez mon intrusion, mais j’ai juste estimé nécessaire d’exprimer ce que
 
 Je ne prendrai pas plus de votre temps.
 
-Donc, avec mes amitiés, je suis votre ami, Bismarck.<sup id="a2">[2](#f2)</sup>
+Donc, avec mes amitiés, je suis votre ami, Bismarck. <sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **Otto Eduard Léopold, prince de Bismarck, duc de Lauenburg** (1er Avril 1815 – 30 Juillet 1898), connu sous le nom d’Otto von Bismarck, était un homme d’État prussien conservateur qui domina les affaires allemandes et européennes des années 1860 à 1890. Dans les années 1860, il a organisé une série de guerres qui ont unifié les États Allemands (à l’exclusion de l’Autriche) en un puissant Empire Allemand sous la direction Prussienne. En 1871, il utilisa habilement la diplomatie de l’équilibre des forces pour préserver l’hégémonie Allemande dans une Europe qui, malgré de nombreux conflits et les craintes de la guerre, resta en paix. Pour l’historien Eric Hobsbawm, c’est Bismarck qui « resta champion du monde incontesté aux échecs diplomatiques multilatéraux pendant près de vingt ans après 1871,[et] se consacra exclusivement, et avec succès, au maintien de la paix entre les pouvoirs ». (Source : Wikipédia)[↩](#a1)

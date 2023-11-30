@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène exhorte M. Padgett à rester dans un état d’Amour pour le travail à faire<sup id="a1">[1](#f1)</sup>
+### Hélène exhorte M. Padgett à rester dans un état d’Amour pour le travail à faire <sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par James Padgett le 02 Mai 1920, Washington, USA.
 
@@ -26,4 +26,4 @@ Tu as assez écrit pour ce soir, et je dois arrêter. Mais crois que je t’aime
 Ta vraie et bien aimée Hélène.
 <small>
 
-1. <large id="f1"> Ce message est publié dans le volume II page 278 et dans le volume IV à la page 192. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1))
+1. <large id="f1"> Ce message est publié dans le volume II page 278 et dans le volume IV à la page 192. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/).[↩](#a1)

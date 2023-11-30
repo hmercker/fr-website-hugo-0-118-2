@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jean – la vérité sur les Enfers<sup id="a1">[1](#f1)</sup>
+### Jean – la vérité sur les Enfers <sup id="a1">[1](#f1)</sup>
 
 St Jean - reçu par James Padgett le 19 Décembre 1915, Washington, USA.
 

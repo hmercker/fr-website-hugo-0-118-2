@@ -11,7 +11,7 @@ weight:
 
 Blaine - reçu par James Padgett le 14 Septembre 1915, Washington, USA.
 
-C’est moi, James G. Blaine.<sup id="a1">[1](#f1)</sup>
+C’est moi, James G. Blaine. <sup id="a1">[1](#f1)</sup>
 
 Je suis ici pour te dire que tu es un médium merveilleux, et que tu feras beaucoup de bien avant de mourir.
 

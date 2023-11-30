@@ -11,7 +11,7 @@ weight:
 
 St Matthieu - reçu par H____ le 22 Novembre 2001, Cuenca, Équateur.
 
-Je suis heureux que tu m’aies immédiatement reconnu. Oui, c’est vrai, je suis Matthieu, l’apôtre de Jésus.<sup id=”a1”>[1](#f1)</sup> Hier soir, j’étais déjà présent, mais tu étais très somnolent, je n’ai donc pas essayé de transmettre un message. Mais maintenant, ton état est vraiment favorable.
+Je suis heureux que tu m’aies immédiatement reconnu. Oui, c’est vrai, je suis Matthieu, l’apôtre de Jésus.<sup id="a1">[1](#f1)</sup> Hier soir, j’étais déjà présent, mais tu étais très somnolent, je n’ai donc pas essayé de transmettre un message. Mais maintenant, ton état est vraiment favorable.
 
 Je veux me présenter moi-même, afin que tu connaisses un peu mon histoire. Ma famille appartenait à la tribu de Lévi, c’est pourquoi les personnes m’appelaient habituellement Lévi, mais mon vrai nom est Matti bar Khalpay ou Matthieu, fils d’Alphée.
 
@@ -64,6 +64,6 @@ Puisse Dieu te bénir toujours.
 Ton ami et frère, Matthieu.
 <small>
 
-1. <large id=”f1”>  Le portrait de Mathieu est donné lors du message : « [la fuite en Égypte](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2001\fr-2001-10-5-1-hr-judas.md) » communiqué le 05 Octobre 2001.[↩](#a1)
+1. <large id="f1">  Le portrait de Mathieu est donné lors du message : « [la fuite en Égypte](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2001\fr-2001-10-5-1-hr-judas.md) » communiqué le 05 Octobre 2001.[↩](#a1)
 
 © Geoff Cutler 2013

@@ -19,6 +19,6 @@ Je crois, cependant, qu’il aura un long chemin de développement de l’âme a
 
 Tu ne dois plus écrire maintenant.
 
-Alors au revoir, 
+Alors au revoir,
 
 Ta vraie et bien-aimée, Hélène.

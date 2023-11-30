@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### De nombreux Hébreux se sont prénommés Jésus.
+### De nombreux Hébreux se sont prénommés Jésus
 
 Jésus - reçu par Dr Samuels le 13 Mars 1959, Washington, DC, USA.
 

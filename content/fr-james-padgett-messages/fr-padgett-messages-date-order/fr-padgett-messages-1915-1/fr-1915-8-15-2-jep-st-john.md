@@ -27,7 +27,7 @@ Judas était le plus jeune des disciples et n’était pas aussi facile à contr
 
 Oui, je sais, mais ils sont tous basés sur les mêmes écrits erronés, car vous devez savoir que ces évangiles, tels que vous les avez, ne sont pas les originaux écrits par ceux dont ils portent le nom. Ne laissez pas ces choses troubler votre foi dans les vérités essentielles que contient la Bible.
 
-*[Question]*
+*[Question :]*
 
 Le problème est que Jésus, en tant qu’individu, perçoit l’importance qu’il faut donner à ses enseignements. Il est très mécontent à cause de cela, et l’un des grands buts de sa nouvelle écriture de ses vérités est de corriger cette erreur, et de faire des vérités qu’il a reçues du Père, les choses proéminentes.
 
@@ -37,15 +37,13 @@ Eh bien, je vous dirai que vous êtes sur le chemin pour recevoir l’Amour du P
 
 Je vois qu’à l’heure actuelle, vous avez quelques difficultés sur votre chemin, mais elles vont bientôt disparaître et vous laisser libre de faire ce grand travail. Mon conseil est donc de croire au Maître et de prier le Père et vous serez bientôt un homme beaucoup plus heureux.
 
-*[Question]*
+*[Question :]*
 
 Lors de ma vie terrestre, je fus un homme marié et la mère de Jésus a vécu, dans ma famille, jusqu’à sa mort. Elle, Marie, vit près de moi. Elle est un bel esprit et remplie de l’Amour du Père. Mais vous ne devez pas supposer que sa position est due au fait qu’elle fut la mère de Jésus. Les liens familiaux ne déterminent rien dans les sphères supérieures – le développement de l’âme est le seul critère. Beaucoup d’esprits vivent dans des sphères plus élevées que Marie.
 
 Je n’écrirai pas plus maintenant.
 
-Votre frère en Christ, Jean.<sup id=”a1”>[1](#f1)</sup>
+Votre frère en Christ, Jean. <sup id=”a1”>[1](#f1)</sup>
 <small>
 
 1. <large id=”f1”> Dans [ce message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-23-3-jep-judas/), Judas explique pourquoi il a trahi Jésus.[↩](#a1)
-
-

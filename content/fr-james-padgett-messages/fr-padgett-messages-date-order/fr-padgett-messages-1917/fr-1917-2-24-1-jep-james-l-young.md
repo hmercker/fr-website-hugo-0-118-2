@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### S’efforce de sortir des ténèbres<sup id="a1">[1](#f1)</sup>
+### S’efforce de sortir des ténèbres <sup id="a1">[1](#f1)</sup>
 
 James L Young - reçu par James Padgett le 24 Février 1917, Washington, USA.
 
@@ -23,6 +23,3 @@ James L Young.
 1. <large id="f1"> Ce message ne figure pas dans les volumes publiés. Il a été transcrit et présenté à l’occasion du 100e anniversaire de 2014 par Paul King.[↩](#a1)
 
 2. <large id="f2"> Ce message a certainement été enregistré parmi les très courts messages reçus des esprits des ténèbres auxquels James Padgett permettait d’écrire le mercredi. Ces messages n’ont pas été publiés.[↩](#a2)
-
-
-

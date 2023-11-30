@@ -41,10 +41,9 @@ Alors, pour débuter l’argumentation, quelle est la seule façon raisonnable d
 
 Bien, c’est un bon endroit pour arrêter car vous êtes fatigué. Je suis satisfait de la façon dont vous avez reçu mon message. Ayez la foi, priez, et tout ira bien. Bonne nuit, mon cher frère, car vous êtes en vérité mon frère.
 
-Votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup> 
-<small>
+Votre ami et frère, Jésus.
 
-<large id=”f1”> Plusieurs autres messages ont été communiqués sur le thème de l'immortalité[↩](#a1)
+**Note :** Plusieurs autres messages ont été communiqués sur le thème de l'immortalité :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---

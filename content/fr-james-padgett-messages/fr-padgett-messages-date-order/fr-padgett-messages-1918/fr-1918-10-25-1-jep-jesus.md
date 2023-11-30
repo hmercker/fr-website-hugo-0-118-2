@@ -15,7 +15,7 @@ C’est moi, Jésus.
 
 Eh bien, mon cher frère, le temps passe, et la nécessité de la révélation est très évidente, alors que les hommes sont dans la nostalgie et l’attente de celui qui saura satisfaire les envies naturelles de leur âme, et que la religion actuelle, appelée le Christianisme, ne peut pas satisfaire.
 
-Je suis heureux que vous êtes en meilleure forme, et que votre amour devient à nouveau éveillé et actif, qu’il agisse sur les qualités de votre cerveau afin qu’une relation puisse être établie, comme cela fut récemment expliqué par Jean dans son message <sup id="a1">[1](#f1)</sup>. Et ici j’ai envie de vous faire comprendre la nécessité et l’utilité de votre compréhension soigneuse des vérités énoncées dans ce message, de méditer sur ce dernier et de mettre personnellement en application ce qu’il y est écrit.
+Je suis heureux que vous êtes en meilleure forme, et que votre amour devient à nouveau éveillé et actif, qu’il agisse sur les qualités de votre cerveau afin qu’une relation puisse être établie, comme cela fut récemment expliqué par Jean dans son message **Note 1****. Et ici j’ai envie de vous faire comprendre la nécessité et l’utilité de votre compréhension soigneuse des vérités énoncées dans ce message, de méditer sur ce dernier et de mettre personnellement en application ce qu’il y est écrit.
 
 J’aurais beaucoup aimer pouvoir vous délivrer, ce soir, un message en relation avec la vérité spirituelle, mais je ne pense pas que votre condition puisse me permettre de prendre possession de votre cerveau et de le contrôler en rapport avec les qualités et les vérités de mon message, et je ne vais donc pas tenter d’écrire ce message. Au lieu de cela, je vous conseillerai quelque peu sur la façon selon laquelle vous devez penser et agir pour parfaire la condition que vous devez posséder afin que nous puissions établir une relation.
 
@@ -39,19 +39,17 @@ Et je dirai encore que vous avez une association plus étroite avec les esprits 
 
 Eh bien, j’ai écrit un long message et vous êtes un peu fatigué. Souvenez-vous de mon conseil et priez souvent et avec sérieux, au moins pour un instant, et votre condition sera telle que nous viendrons et poursuivrons nos révélations.
 
-Avec mon amour et ma bénédiction, je suis, votre frère et ami, Jésus.<sup id=”a2”>[2](#f2)</sup>
-<small>
+Avec mon amour et ma bénédiction, je suis, votre frère et ami, Jésus. **Note 2**
 
-1. <large id="f1"> *Jésus se réfère ici à trois messages de Jean, tous sur le rapport et la communication :*[↩](#a1)
+**Note 1 :** Jésus se réfère ici à trois messages de Jean, tous sur le rapport et la communication :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Saint Jean | [Jean – Comment et quand Dieu répond à la prière. Lois de Rapport et Communication.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-2-1-jep-st-john/) | 2 Novembre 1917
-Saint Jean | [Jean – Lois du rapport, suite.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/)  | 4 janvier 16918
-Saint Jean | [Jean – Lois de rapport et de communication, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/).[↩](#a1)  | 22 Octobre 1918
+Saint Jean | [Jean – Comment et quand Dieu répond à la prière. Lois de Rapport et Communication](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-2-1-jep-st-john/) | 2 Novembre 1917
+Saint Jean | [Jean – Lois du rapport, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-1-4-1-jep-st-john/) | 4 janvier 1918
+Saint Jean | [Jean – Lois de rapport et de communication, suite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-10-22-1-jep-st-john/) | 22 Octobre 1918
 
-
-2. <large id="f2"> *Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :*[↩](#a2)
+**Note 2 :** Jésus s'est également exprimé, sur la sélection de James Padgett dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -65,4 +63,3 @@ Jésus | [Jésus dit que sa mission d’écriture de ces messages est sa seconde
 Jésus | [Jésus a montré sa grande gloire et a donné son amour à M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-14-1-jep-jesus/) | 14 Décembre 1915
 Jésus | [Jésus n’est pas Dieu, mais un frère aîné](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
 Jésus | [La religion du futur sera complète et finale, fondée sur les Vérités reçues par M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-6-1-jep-jesus/) | 06 Novembre 1917
-

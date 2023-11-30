@@ -21,7 +21,6 @@ Comme sont pauvres les esprits qui enquêtent sur le sujet de l’âme d’une m
 
 Ce soir, je suis très heureuse de pouvoir t’écrire et te dire ce que tu sais déjà ; mais te le dire est un plaisir, car lorsque je le fais, tu dois dire, *« chérie je t’aime en retour »* et tu verras alors que je suis heureuse de donner et recevoir. Si ce n’était pas si tard, j’aurais aimé t’écrire une longue lettre, mais l’écrivain me dit qu’il ne doit pas écrire plus ce soir.
 
-Crois donc que je t’aime de tout mon cœur, aie confiance dans mes efforts pour t’aider et te consoler et surtout prie davantage le Père pour Son Amour et aie la foi qu’il te sera de nouveau décerné. 
+Crois donc que je t’aime de tout mon cœur, aie confiance dans mes efforts pour t’aider et te consoler et surtout prie davantage le Père pour Son Amour et aie la foi qu’il te sera de nouveau décerné.
 
 Bonne nuit, cher cœur, ta bien aimée, Mary.
-

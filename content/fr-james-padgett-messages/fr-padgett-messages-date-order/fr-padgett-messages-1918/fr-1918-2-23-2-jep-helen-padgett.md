@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène était également présente aux services du Révérend William Sunday avec beaucoup d’autres personnes, y compris son tuteur spécial, Jean, et elle est heureuse que Jésus ait pu établir de bonnes relations avec son mari<sup id="a1">[1](#f1)</sup>
+### Hélène était également présente aux services du Révérend William Sunday avec beaucoup d’autres personnes, y compris son tuteur spécial, Jean, et elle est heureuse que Jésus ait pu établir de bonnes relations avec son mari <sup id="a1">[1](#f1)</sup>
 
 Hélène Padget - reçu par James Padgett le 23 Février 1918, Washington, USA.
 

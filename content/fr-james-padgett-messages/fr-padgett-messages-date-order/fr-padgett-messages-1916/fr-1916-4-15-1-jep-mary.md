@@ -27,7 +27,7 @@ Je suis maintenant dans une telle condition que je sais que l’Amour du Père e
 
 Je n’écrirai pas plus, mais je reviendrai et je vous écrirai sur la vie de Jésus, et sur son développement dans l’Amour, comme il me l’a été montré alors qu’il était un enfant en pleine croissance, et après qu’il soit devenu un homme, avant son ministère public.
 
-*Question – Joseph était-il le père de Jésus ?*
+*[Question – Joseph était-il le père de Jésus ?]*
 
 Eh bien, je suppose que je suis la seule, dans tout l’univers de Dieu, qui connaît la réponse à cette question. En tant qu’esprit des sphères Célestes, ne connaissant que la vérité, **je vous déclare, ainsi qu’au monde entier, que Joseph était le père réel de Jésus, et qu’il a été conçu, et est né, comme tout autre mortel a été conçu et né.** L’Esprit Saint ne l’a pas engendré et je n’ai jamais été informé qu’une telle chose se produirait. J’ai connu Joseph avant la conception de Jésus, et c’est par lui que j’ai été mise enceinte de ce fils béni. C’est la vérité et tous les récits et déclarations contraires sont erronés.
 
@@ -39,7 +39,7 @@ Alors mes chers enfants croyez ce que j’ai écrit, et sachez aussi que je vous
 
 Votre sœur et votre mère en Christ.
 
-Marie.<sup id=”a1”>[1](#f1)</sup>
+Marie. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> [Le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-3-jep-saul/), Saul a confirmé le message de Marie.[↩](#a1)
+1. <large id="f1"> [Le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-3-jep-saul/), Saul a confirmé le message de Marie.[↩](#a1)

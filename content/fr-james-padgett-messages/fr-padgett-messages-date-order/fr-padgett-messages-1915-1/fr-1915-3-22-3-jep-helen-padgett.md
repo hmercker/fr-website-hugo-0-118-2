@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hélène Padgett confirme ce que M. Garfield a écrit 
+### Hélène Padgett confirme ce que M. Garfield a écrit
 
 Hélène Padgett - reçu par James Padgett le 22 Mars 1915, Washington, USA.
 

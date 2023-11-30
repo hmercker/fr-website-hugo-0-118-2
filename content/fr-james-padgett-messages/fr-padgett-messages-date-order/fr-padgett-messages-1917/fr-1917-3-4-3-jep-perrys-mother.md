@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La mère de Perry exprime sa gratitude à M. Padgett pour les efforts qu’il a déployés afin que son fils puisse voir la lumière<sup id="a1">[1](#f1)</sup>
+### La mère de Perry exprime sa gratitude à M. Padgett pour les efforts qu’il a déployés afin que son fils puisse voir la lumière <sup id="a1">[1](#f1)</sup>
 
 La mère de Perry - reçu par James Padgett le 4 Mars 1917, Washington, USA.
 

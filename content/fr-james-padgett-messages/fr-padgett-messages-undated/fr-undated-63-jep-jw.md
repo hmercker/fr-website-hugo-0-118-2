@@ -11,7 +11,7 @@ weight:
 
 JW - reçu par James Padgett, Washington, USA.
 
-Je suis. J.W. Laissez-moi vous écrire, car j’ai moi aussi besoin d’aide.<sup id="a1">[1](#f1)</sup>
+Je suis. J.W. Laissez-moi vous écrire, car j’ai moi aussi besoin d’aide. <sup id="a1">[1](#f1)</sup>
 
 Vous avez donné beaucoup de temps à ces autres esprits, et j’avais peur que vous vous arrêtiez avant que je puisse écrire ; mais maintenant que j’écris, je sens que vous me donnerez l’occasion de vous dire combien j’ai besoin de votre aide et quels sont mes problèmes.
 

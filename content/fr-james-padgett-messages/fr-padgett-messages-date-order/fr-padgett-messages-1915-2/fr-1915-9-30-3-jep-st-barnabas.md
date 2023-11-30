@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Barnabé dit que M. Padgett est le favori du Maître sur terre<sup id="a1">[1](#f1)</sup>
+### Barnabé dit que M. Padgett est le favori du Maître sur terre <sup id="a1">[1](#f1)</sup>
 
 St Barnabé - reçu par James Padgett le 30 Septembre 1915, Washington, USA.
 

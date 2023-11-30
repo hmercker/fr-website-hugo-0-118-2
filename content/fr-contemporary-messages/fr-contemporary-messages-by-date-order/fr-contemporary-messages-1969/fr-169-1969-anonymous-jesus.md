@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
-*"Garde Tes enfants en harmonie les uns avec les autres, Père, garde-les forts dans leur but - fais que chacun ici ce soir, ceux qui sont vus et ceux qui ne sont pas vus par les yeux humains, soit renouvelé et revitalisé par la gloire de Ton amour. Père, protège ces enfants afin que dans les jours à venir, ils puissent aller de l'avant en sachant qu'ils sont protégés et forts dans leur but et sages dans leur sagesse"*.
+*« Garde Tes enfants en harmonie les uns avec les autres, Père, garde-les forts dans leur but - fais que chacun ici ce soir, ceux qui sont vus et ceux qui ne sont pas vus par les yeux humains, soit renouvelé et revitalisé par la gloire de Ton amour. Père, protège ces enfants afin que dans les jours à venir, ils puissent aller de l'avant en sachant qu'ils sont protégés et forts dans leur but et sages dans leur sagesse »*.
 
 Je viens ce soir, mes frères et sœurs, ressentant une grande paix et une grande harmonie au milieu de vous, et pour vous adresser quelques mots d'encouragement. Oui, mes amis, nous sommes tous unis dans cette œuvre merveilleuse. Rien n'est plus grand que d'être un serviteur qui essaie d'aider les autres à trouver le chemin du bonheur et le chemin de leur salut.
 

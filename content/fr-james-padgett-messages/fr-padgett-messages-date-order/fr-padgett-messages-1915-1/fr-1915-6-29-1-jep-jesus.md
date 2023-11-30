@@ -27,10 +27,9 @@ Jean était un homme de nature très affectueuse et fut avec moi durant mon mini
 
 Eh bien, vous devez arrêter, mais n’oubliez pas que je suis avec vous et que je vous aime.
 
-Votre ami et frère, Jésus.<sup id=”a1”>[1](#f1)</sup>
-<small>
+Votre ami et frère, Jésus.
 
-<large id=”f1”> Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :*[↩](#a1)
+**Note :** Concernant sa vie, sa naissance et sa mission, Jésus s'est également exprimé dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
@@ -40,5 +39,3 @@ Jésus | [Description de la naissance et de la vie de Jésus jusqu’à l’épo
 Jésus | [Jésus se réfère à la prophétie sur la fin du monde (Matthieu 24).](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-5-20-1-jep-jesus/)  | 20 Mai 1918
 Jésus | [4ème Révélation : Jésus annonce Sa Messianité.](/fr-samuels-messages/fr-revelations/fr-rev-4-1955-5-25-samuels-jesus/)  | 25 Mai 1955
 Jésus | [5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie.](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/)  | 14 Juin 1955
-
-

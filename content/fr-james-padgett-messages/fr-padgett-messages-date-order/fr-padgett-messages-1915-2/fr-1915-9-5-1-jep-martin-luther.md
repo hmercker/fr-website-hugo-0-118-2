@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs<sup id="a1">[1](#f1)</sup>
+### Martin Luther rejette l’expiation déléguée. La bible est pleine de contradictions et d’erreurs <sup id="a1">[1](#f1)</sup>
 
 Martin Luther - reçu par James Padgett le 5 Septembre 1915, Washington, USA.
 
@@ -25,17 +25,15 @@ Donc, pour comprendre les vraies vérités de Dieu et la relation de l’homme a
 
 J’écrirai aussi parfois et je vous transmettrai le résultat de mes instructions et de mes connaissances telles que je les ai reçues depuis que je suis ici. Je n’écrirai plus ce soir.
 
-Votre frère en Christ, Martin Luther.<sup id=”a2”>[2](#f2)</sup>
-<small>
+Votre frère en Christ, Martin Luther.
 
-1. <large id="f1"> Ce message est également publié dans le volume II à la page 199 et dans le volume IV, à la page 391. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)
-
-2. <large id="f2"> *Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :*[↩](#a2)
+**Note :** Martin Luther s'est exprimé, dans les messages suivants, au sujet des corrections apportées à la doctrine Chrétienne traditionnelle :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
 Martin Luther | [Ce que l’homme devrait savoir afin d’éprouver les esprits.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-19-1-jep-martin-luther/)  | 19 Octobre 1915
 Martin Luther |  [Martin Luther sur les cérémonies religieuses.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-29-1-jep-martin-luther/) | 29 Juin 1916
 Martin Luther | [Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-31-1-jep-martin-luther) | 31 Janvier 1917
+<small>
 
-
+1. <large id="f1"> Ce message est également publié dans le volume II à la page 199 et dans le volume IV, à la page 391. Pour plus de détails, [vous pouvez consulter, en anglais, cette page](https://new-birth.net/padgetts-messages/duplicates-of-the-messages/)[↩](#a1)

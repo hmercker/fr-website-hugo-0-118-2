@@ -19,7 +19,7 @@ Son savoir consistait à ne pas savoir ce qu’il y avait à savoir. Il avait ce
 
 J’ai vite constaté que sa capacité d’apprentissage était limitée par l’horizon de ce qu’il ne savait pas, c’est-à-dire qu’il pensait que comme il savait tout, il n’y avait rien dans tout l’univers de Dieu qui lui restait à apprendre.
 
-C’était le plus grand cas d’un homme qui possédait toutes les connaissances que j’ai jamais rencontré. Dès le début de notre conversation, j’ai vu que la seule façon de traiter avec lui était de lui laisser croire qu’il était le grand mental qu’il croyait être, et je me suis donc posé en quelqu’un qui lui était inférieur sur le plan intellectuel, et qui était prêt à s’asseoir aux pieds de Gamaliel<sup id="a1">[1](#f1)</sup> pour apprendre.
+C’était le plus grand cas d’un homme qui possédait toutes les connaissances que j’ai jamais rencontré. Dès le début de notre conversation, j’ai vu que la seule façon de traiter avec lui était de lui laisser croire qu’il était le grand mental qu’il croyait être, et je me suis donc posé en quelqu’un qui lui était inférieur sur le plan intellectuel, et qui était prêt à s’asseoir aux pieds de Gamaliel <sup id="a1">[1](#f1)</sup> pour apprendre.
 
 Il a commencé à me parler de son merveilleux esprit et des grandes connaissances qu’il possédait et m’a dit qu’il se sentait très seul dans le monde des esprits, car il ne trouvait personne de compétent pour discuter de sujets que seuls les esprits de sa grandeur pouvaient saisir et comprendre.
 
@@ -49,9 +49,7 @@ Je dois donc dire que je te suis redevable de m’avoir mis en contact avec un t
 
 J’avais l’intention d’écrire sur un autre sujet ce soir, mais comme je pensais que tu serais intéressé de connaître le résultat de notre entretien, j’ai conclu de te le dire plutôt que d’écrire sur l’autre sujet. Je n’écrirai donc pas plus, car d’autres esprits attendent d’écrire. Alors, mon cher garçon et partenaire, je suis ton ami et frère aimant, comme toujours.
 
-A. G. Ridle.
+A. G. Riddle.
 <small>
 
-1. <large id="f1"> **Gamaliel l’Ancien, ou Rabbi Gamaliel Ier**, était une autorité de premier plan au sein du Sanhédrin au milieu du premier siècle. Petit-fils du grand maître Juif Hillel l’Ancien, il est mort vingt ans avant la destruction du deuxième temple de Jérusalem. Il a eu un fils, qu’il a appelé Siméon, du nom de son père, et une fille, dont la fille (c’est-à-dire la petite-fille de Gamaliel) a épousé un prêtre nommé Simon ben Nathanael. Le nom Gamaliel est la forme grecque du nom hébreu qui signifie récompense de Dieu.[↩](#a1)
-
-Dans la tradition Chrétienne, Gamaliel est célébré comme un Pharisien docteur en droit juif, qui fut le maître de l’apôtre Paul ; l’auteur du livre des Actes des Apôtres dépeint Gamaliel avec beaucoup de respect. (Source : Wikipedia) (G.J.C.)
+1. <large id="f1"> **Gamaliel l’Ancien, ou Rabbi Gamaliel Ier**, était une autorité de premier plan au sein du Sanhédrin au milieu du premier siècle. Petit-fils du grand maître Juif Hillel l’Ancien, il est mort vingt ans avant la destruction du deuxième temple de Jérusalem. Il a eu un fils, qu’il a appelé Siméon, du nom de son père, et une fille, dont la fille (c’est-à-dire la petite-fille de Gamaliel) a épousé un prêtre nommé Simon ben Nathanael. Le nom Gamaliel est la forme grecque du nom hébreu qui signifie récompense de Dieu. Dans la tradition Chrétienne, Gamaliel est célébré comme un Pharisien docteur en droit juif, qui fut le maître de l’apôtre Paul ; l’auteur du livre des Actes des Apôtres dépeint Gamaliel avec beaucoup de respect. (Source : Wikipedia) (G.J.C.)[↩](#a1)

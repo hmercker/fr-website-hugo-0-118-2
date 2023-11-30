@@ -17,11 +17,11 @@ J’étais avec toi et cette petite âme sœur du Dr. et elle était ravie d’�
 
 C’est un bon garçon et je suis vraiment désolé pour lui de la manière que tu le connais. Mais il connaîtra bientôt le changement dont je t’ai parlé. Sois avec lui autant que possible, car il aura besoin de ta sympathie et de ta confiance et se sentira parfois très seul, bien qu’il éprouvera aussi un certain soulagement pour certaines des choses qui l’inquiétaient.
 
-Je pense aussi à bébé<sup id=”a1”>[1](#f1)</sup> et je suis avec elle car elle a besoin de toi et j’espère que bientôt vous serez tous ensemble. En fait, je sais que tu seras très affectueux et aimable avec elle.
+Je pense aussi à bébé <sup id="a1">[1](#f1)</sup> et je suis avec elle car elle a besoin de toi et j’espère que bientôt vous serez tous ensemble. En fait, je sais que tu seras très affectueux et aimable avec elle.
 
 Oui, je vais essayer de l’influencer de la manière dont tu as parlé, et je pense que je peux réussir. Aie l’espoir qu’elle fera ce que tu voudras. Je vous aime tout de tout mon cœur et je prie pour que vous soyez heureux. Je ne dois plus écrire ce soir. Embrasse-moi, va te coucher et lève-toi tôt le matin. Alors, bonne nuit, mon chéri.
 
 Ta vraie et bien-aimée, Hélène.
 <small>
 
-1. <large id=”f1”> L'expression « bébé » se réfère à Nita Padgett, la fille de James et Hélène Padgett brusquement décédée le 20 Juin 1918.[↩](#a1)
+1. <large id="f1"> L'expression « bébé » se réfère à Nita Padgett, la fille de James et Hélène Padgett brusquement décédée le 20 Juin 1918.[↩](#a1)

@@ -13,7 +13,7 @@ Jésus - reçu par James Padgett le 6 Janvier 1918, Washington, USA.
 
 C’est moi, Jésus.
 
-Eh bien, mon frère, je suis heureux de vous dire que nous avons répondu à votre communion avec le Père ce soir. Son amour a afflué dans votre âme en grande abondance. Son Esprit Saint a apporté l’Amour en merveilleuse abondance et votre âme en est maintenant remplie, et l’influence de ce Grand Amour travaille dans votre âme, et vous réalisez sa présence. Si vous méditez et désirez ardemment et priez le Père comme vous l’avez fait ce soir, votre âme sera bientôt si remplie de cet Amour que vous recevrez la connaissance que vous avez une quasi-union avec Lui et vous serez conscient de la possession d’une partie de Sa Divinité dont nous vous avons écrit. La pluie pentecôtiste viendra à vous comme elle l’a fait à mes disciples dans les jours qui ont suivi mon départ ; et je serai avec vous aussi comme je l’ai été avec eux, et la puissance et l’Essence Divine vous seront données pour que vous puissiez manifester la présence merveilleuse de cet Amour comme ils l’ont pu. 
+Eh bien, mon frère, je suis heureux de vous dire que nous avons répondu à votre communion avec le Père ce soir. Son amour a afflué dans votre âme en grande abondance. Son Esprit Saint a apporté l’Amour en merveilleuse abondance et votre âme en est maintenant remplie, et l’influence de ce Grand Amour travaille dans votre âme, et vous réalisez sa présence. Si vous méditez et désirez ardemment et priez le Père comme vous l’avez fait ce soir, votre âme sera bientôt si remplie de cet Amour que vous recevrez la connaissance que vous avez une quasi-union avec Lui et vous serez conscient de la possession d’une partie de Sa Divinité dont nous vous avons écrit. La pluie pentecôtiste viendra à vous comme elle l’a fait à mes disciples dans les jours qui ont suivi mon départ ; et je serai avec vous aussi comme je l’ai été avec eux, et la puissance et l’Essence Divine vous seront données pour que vous puissiez manifester la présence merveilleuse de cet Amour comme ils l’ont pu.
 
 Vous devez donc prier longtemps et longuement, et votre expérience de ce soir vous a donné un avant-goût de ce qui vous attend. Il n’y a rien dans le monde qui puisse prendre la place de cet Amour dans sa puissance pour t’approcher et vous mettre en relation avec le Père. Toutes les croyances et fois dans n’importe quelle autre chose ne suffiront pas. Le sacrifice et la douleur à cause du péché, les souffrances par procuration et les médiateurs, ne permettront pas la transformation, parce que c’est seulement une conjonction entre cet Amour Divin et votre âme qui est capable de vous amener dans cette relation au Père, et de vous procurez la conscience résultante que vous avez partagée, et que vous possédez, dans une certaine mesure, sa nature Divine dans l’Amour.
 
@@ -23,15 +23,14 @@ Je veux maintenant que vous pensiez plus que jamais à l’importance de votre t
 
 Ce soir, je n’écrirai pas plus, mais j’écrirai bientôt comme je l’ai dit. Ayez la foi et sachez que vous avez été choisi pour faire le travail, et que sur vous repose la responsabilité qui n’incombe à aucun autre homme. Avec mon amour et les bénédictions du Père, je vous souhaite une bonne nuit.
 
-Votre frère et ami, Jésus.<sup id="a1">[1](#f1)</sup>
-<small>
+Votre frère et ami, Jésus.
 
-1. <large id="f1"> *Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :*[↩](#a1)
+**Note :** Jésus s'est également exprimé sur le sujet de la prière dans les messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Conseils donnés par Jésus sur la participation au service religieux.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-2-jep-jesus/) |  29 Août 1915
-Jésus | [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/)  | 28 Décembre 1915
-Jésus | [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/)  | 16 Mai 1916 
-Jésus |  [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude. La prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/) | 09 Juillet 1917
-Jésus | [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/)   | 19 Septembre 2020
+Jésus | [Conseils donnés par Jésus sur la participation au service religieux](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-2-jep-jesus/) | 29 Août 1915
+Jésus | [Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-28-3-jep-jesus/) | 28 Décembre 1915
+Jésus | [Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-16-1-jep-jesus/) | 16 Mai 1916
+Jésus | [Le résultat de l’obtention de l’Amour Divin en supprimant l’inquiétude - la prière est une aide merveilleuse lorsqu’elle est offerte avec les vrais désirs de l’âme et trouvera toujours une réponse.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-9-1-jep-jesus/) | 09 Juillet 1917
+Jésus | [Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-9-19-1-jep-jesus/) | 19 Septembre 1920

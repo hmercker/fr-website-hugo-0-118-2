@@ -11,7 +11,7 @@ weight:
 
 Inayat Khan  - reçu par Jimbeau Walsh le 20 Février 2023, Nashville, TN, USA.
 
-C’est moi votre frère dans l’Amour de Dieu. Je suis Inayat Khan. Je reviens pour parler des chants et des danses, des arts et de la musique des sphères. Sur le plan terrestre, il existe une grande variété de musique, mais pas une grande variété de musique céleste canalisée par les médiums. Les chansons d’amour sont omniprésentes, elles cherchent l’amour, désespèrent de l’amour perdu, exaltent les joies de l’amour et ainsi de suite. 
+C’est moi votre frère dans l’Amour de Dieu. Je suis Inayat Khan. Je reviens pour parler des chants et des danses, des arts et de la musique des sphères. Sur le plan terrestre, il existe une grande variété de musique, mais pas une grande variété de musique céleste canalisée par les médiums. Les chansons d’amour sont omniprésentes, elles cherchent l’amour, désespèrent de l’amour perdu, exaltent les joies de l’amour et ainsi de suite.
 
 Il y a des chansons que vous appelez le blues et partout dans le monde, ces chansons permettent aux musiciens et aux chanteurs d’exprimer le désir profond du cœur de s’élever au-dessus de ses problèmes. Quel est leur but ? S’élever au-dessus du blues, bien sûr.
 

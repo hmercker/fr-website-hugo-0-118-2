@@ -104,7 +104,7 @@ White Cloud | [L'importance de la voix directe](/fr-contemporary-messages/fr-con
 St Paul | [Un message de bienvenue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-125-1969-anonymous-st-paul/) |   1969
 Albert Einstein | [L'énergie de l'atmosphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-126-1969-anonymous-albert-einstein/) |   1969
 André | [Centre dans la ville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-127-1969-anonymous-andrew/) |   1969
-Joan d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-d'arc/) |   1969
+Joan d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-darc/) |   1969
 St Paul | [Soyez purs dans vos pensées et dans votre vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-129-1969-anonymous-st-paul/) |   1969
 Augustin | [Désir d'être en harmonie avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-130-1969-anonymous-augustine/) |   1969
 Jésus | [La plus grande bénédiction que l'homme puisse recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-131-1969-anonymous-jesus/) |   1969

@@ -11,7 +11,7 @@ weight:
 
 Ralph Waldo Emerson - reçu par James Padgett le 6 Mars 1919, Washington, USA.
 
-Je suis Emerson.<sup id="a1">[1](#f1)</sup>
+Je suis Emerson. <sup id="a1">[1](#f1)</sup>
 
 Permettez-moi d’écrire ce soir sur un sujet qui est important pour l’humanité et que si peu de mortels connaissent ou conçoivent dans leurs enseignements et leur philosophie. Je suis un de ceux qui habitent la sixième sphère, où la pureté primitive du premier homme est retrouvée et où le péché ou l’aliénation de Dieu n’a pas d’existence. Vous ne le savez peut-être pas, mais c’est un fait, la pureté de cette sphère est telle que les âmes des hommes ne trouvent que ce qui rend l’homme semblable à Dieu, et le rend heureux et satisfait de son existence et des attributs et de la nature divine avec lesquels il a été créé et que Dieu, dans l’infinité de ses pouvoirs, a décrété que l’homme devait posséder et dont il devait jouir au maximum de ses capacités.
 

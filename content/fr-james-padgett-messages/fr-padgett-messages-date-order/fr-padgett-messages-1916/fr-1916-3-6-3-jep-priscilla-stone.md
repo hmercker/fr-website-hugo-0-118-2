@@ -21,7 +21,7 @@ Ses sœurs sont ici, lui envoient aussi leur amour et veulent qu’il sache qu�
 
 Alors que nous ressentons tous le grand désir de progression spirituelle qui fait défaut à notre frère, qu’il n’est pas très heureux et que ses actes tendent à le détourner des voies qui le rendraient heureux et plus en accord avec la volonté du Père, il souffre vraiment parfois à cause de sa condition spirituelle. Pourtant, nous ne sommes pas vraiment malheureuses, parce que nous savons que ce n’est que temporaire et que, tôt ou tard, nos prières et notre influence auront leur effet, qu’il réalisera qu’il y a quelque chose de plus important, pour la vie et la mort, que les simples choses matérielles de la terre.
 
-Eh bien, je ne sais pas si je dois écrire plus ce soir, d’autant plus qu’il y a une petite fille<sup id="a1">[1](#f1)</sup> ici qui est très impatiente d’écrire, et qui est presque égoïste dans son désir de lui dire, à Leslie, comme elle l’appelle, qu’elle l’aime de plus en plus.
+Eh bien, je ne sais pas si je dois écrire plus ce soir, d’autant plus qu’il y a une petite fille <sup id="a1">[1](#f1)</sup> ici qui est très impatiente d’écrire, et qui est presque égoïste dans son désir de lui dire, à Leslie, comme elle l’appelle, qu’elle l’aime de plus en plus.
 
 Alors, je vous remercie et je vous souhaite une bonne nuit.
 
@@ -45,7 +45,7 @@ Je l’aime de tout mon cœur, et j’ai tellement hâte qu’il me voie, comme 
 Tout comme votre Hélène (la femme de M. Padgett) qui essaie d’atteindre ce but, car elle m’aime tant et veut que je sois heureuse, alors que je ne le suis peut-être pas. Alors, en vous remerciant, je vous dirai – dites à mon chéri que je suis son propre amour,
 Mary.
 
-J’ai (Leslie R Stone) ensuite demandé – A quel frère, qui manquait de développement de l’âme, ma mère a t-elle fait référence . Ce qui suit a été écrit par ma mère à travers M. Padgett. *« J’ai entendu ce que Leslie a dit, et je veux dire qu’il s’agit du frère qui est au Canada et qui est devenu soldat<sup id="a2">[2](#f2)</sup>. Je parle de lui parce qu’il se peut qu’il saisisse plus tôt l’occasion de se tourner vers Dieu, alors qu’il est sur terre, et cette occasion est une chose essentielle pour son état d’âme, qui le rassurera lorsqu’il passera. »* J’ai alors demandé à ma mère d’écrire son nom, mais les conditions n’étaient pas favorables suite à l’intervention d’esprits indésirables, qui voulaient écrire.
+J’ai (Leslie R Stone) ensuite demandé – A quel frère, qui manquait de développement de l’âme, ma mère a t-elle fait référence . Ce qui suit a été écrit par ma mère à travers M. Padgett. *« J’ai entendu ce que Leslie a dit, et je veux dire qu’il s’agit du frère qui est au Canada et qui est devenu soldat <sup id="a2">[2](#f2)</sup>. Je parle de lui parce qu’il se peut qu’il saisisse plus tôt l’occasion de se tourner vers Dieu, alors qu’il est sur terre, et cette occasion est une chose essentielle pour son état d’âme, qui le rassurera lorsqu’il passera. »* J’ai alors demandé à ma mère d’écrire son nom, mais les conditions n’étaient pas favorables suite à l’intervention d’esprits indésirables, qui voulaient écrire.
 
 Leslie R. Stone.
 <small>

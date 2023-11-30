@@ -9,7 +9,7 @@ weight:
 ---
 ### William Stone est heureux que Jésus ait choisi son fils, Leslie, pour accomplir un travail spécial au nom du Royaume et il ne doit pas douter
 
-William Stone - reçu par James Padgett le 3 Octobre 1915<sup id="a1">[1](#f1)</sup>, Washington, USA.
+William Stone - reçu par James Padgett le 3 Octobre 1915 <sup id="a1">[1](#f1)</sup>, Washington, USA.
 
 Je suis son père.
 

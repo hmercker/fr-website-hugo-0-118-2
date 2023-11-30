@@ -23,4 +23,4 @@ Maintenant, pensez à cette scène, et je vous en dirai plus demain, si vous tro
 
 Et Il est avec vous aussi, comme avec nous. Il ne vient pas de manière imagée, mais en réalité, dans le plan terrestre obscur, et y apporte également Sa bénédiction, Sa gloire et Sa beauté. Mais là, elles sont invisibles, sauf partiellement et pour un petit nombre de personnes – invisibles en raison du sombre nuage de péché qui entoure le monde, tel que nous le voyons, et du manque de foi pour regarder et croire. Pourtant, Il est avec vous. Ouvrez Lui votre cœur à Lui et vous aurez, comme nous, ce qu’Il apporte et veut vous donner. †
 
-Extrait du livre : The Highlands of Heaven .. Life beyond the veil (Les Hauts Lieux du Ciel … « La vie au-delà du voile ») volume 2 ; pages 135-137
+**Extrait du livre :** The Highlands of Heaven .. Life beyond the veil (Les Hauts Lieux du Ciel … « La vie au-delà du voile ») volume 2 ; pages 135-137

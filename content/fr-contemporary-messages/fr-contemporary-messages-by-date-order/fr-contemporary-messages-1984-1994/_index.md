@@ -37,7 +37,7 @@ Jésus | [Le grand réseau de communication.](/fr-contemporary-messages/fr-conte
 Jésus | [Assistance parmi les esprits dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-7-27-1-dl-jesus/) | 27 Juillet 1987
 Jésus | [Foi et guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-8-18-1-dl-jesus/) | 18 Août 1987
 Jésus | [Écriture automatique et impression de pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-8-31-1-dl-jesus/) | 31 Août 1987
-Jésus | [Qui est l'auteur de "Nouveaux enseignements pour une humanité en éveil" ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-9-9-1-dl-jesus/) | 9 Septembre 1987
+Jésus | [Qui est l'auteur de « Nouveaux enseignements pour une humanité en éveil » ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-9-9-1-dl-jesus/) | 9 Septembre 1987
 Jésus | [Le levain de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-11-12-1-dl-jesus/) | 12 Novembre 1987
 Jésus | [Sans amour, je suis comme une cymbale qui tinye](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-17-1-dl-jesus/) | 17 Décembre 1987
 Jésus | [Le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-31-1-dl-jesus/) | 31 Décembre 1987

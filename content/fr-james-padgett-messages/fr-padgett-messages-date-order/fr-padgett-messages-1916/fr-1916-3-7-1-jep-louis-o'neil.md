@@ -20,7 +20,7 @@ Votre femme m’a beaucoup aidé et c’est un esprit merveilleusement beau et r
 
 Je vois un certain nombre de mes vieux amis, mais je suis désolé de dire que beaucoup d’entre eux sont dans l’obscurité et la souffrance. Lyscomb est dans une très mauvaise condition et n’a pas progressé jusqu’à présent, bien que j’aie essayé de l’aider un peu, mais comme vous le savez, il avait un tempérament dogmatique et omniscient sur terre, donc il a les mêmes qualités ici, et il est difficile de lui faire voir les réalités différemment de ce qu’il pense qu’elles sont ou devraient être.
 
-Vous savez peut-être qu’il se rend fréquemment dans ses anciens lieux de prédilection dans le quartier où il a passé tant d’heures à boire et qu’il continue à boire comme il le pense et semble tirer une sorte de satisfaction de la tromperie et qu’il ne semble pas enclin à tourner ses pensées vers quelque chose de plus élevé.<sup id="a1">[1](#f1)</sup>
+Vous savez peut-être qu’il se rend fréquemment dans ses anciens lieux de prédilection dans le quartier où il a passé tant d’heures à boire et qu’il continue à boire comme il le pense et semble tirer une sorte de satisfaction de la tromperie et qu’il ne semble pas enclin à tourner ses pensées vers quelque chose de plus élevé. <sup id="a1">[1](#f1)</sup>
 
 Je vous dis que pour ces esprits qui rejoignent ce monde, insatisfaits ou sans être libérés, les appétits de la terre sont intenses et il est si triste qu’il les ait autant que lorsqu’il est passé. Mais un jour, j’espère qu’il s’éveillera à la véritable condition de son existence et à la nécessité d’éloigner ses pensées de ces réalités et de rechercher les choses qui lui permettront de sortir de son horrible obscurité.
 

@@ -23,7 +23,7 @@ Je sais que cela peut sembler étrange et incroyable pour vous et impossible en 
 
 J’écris ceci, parce que je veux que vous, et le monde, sachiez que cet Amour est en attente pour l’humanité tout entière, et qu’il n’y a aucun pécheur, aussi terrible soit-il, qu’il ne peut pas transformer en un Ange Divin des Cieux Célestes de Dieu. Je ne vais pas écrire plus maintenant, sauf pour dire que chaque fois que vous lirez à mon sujet, n’oubliez que je ne suis plus le Juif Errant mais l’enfant racheté du péché et de l’erreur et très aimé par ce même Jésus que j’ai traité si cruellement.
 
-Avec tout mon amour je vais vous dire bonne nuit. Je signerai comme je suis connu, Le Juif Errant.<sup id=”a1”>[1](#f1)</sup>
+Avec tout mon amour je vais vous dire bonne nuit. Je signerai comme je suis connu, Le Juif Errant. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> [Le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-21-2-jep-st-john/) Jean a commenté ce message.[↩](#a1)
+1. <large id="f1"> [Le même jour](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-6-21-2-jep-st-john/) Jean a commenté ce message.[↩](#a1)

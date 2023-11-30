@@ -25,9 +25,7 @@ Nate dit : Le Dr Stone savait tout sur le monde des esprits et a essayé de nous
 
 Oui, maintenant je vois des esprits brillants et une personne qui dit être Mme Stone vient me voir et me dit qu’elle va m’aider et que je dois l’accompagner. Je vais l’accompagner. Bonne nuit.
 
-Mère Plummer, épouse de Nathan Plummer.<sup id=”a1”>[1](#f1)</sup>
+Mère Plummer, épouse de Nathan Plummer. <sup id="a1">[1](#f1)</sup>
 <small>
 
-1. <large id=”f1”> J’ai écrit que M. et Mme Plummer ont maintenant progressé vers une vie spirituelle supérieure grâce à l’aide que M. Plummer a reçue et à sa réception de l’Amour Divin. Mme Plummer a été aidée par Mme Stone et, comme cela s'est passé il y a 44 ans, je suis sûre qu’elle a également reçu l’Amour Divin du Pèreafin de leur permettre à tous deux de vivre dans les Cieux Célestes.(Dr Leslie R. Stone).*[↩](#a1)
-
-
+1. <large id="f1"> J’ai écrit que M. et Mme Plummer ont maintenant progressé vers une vie spirituelle supérieure grâce à l’aide que M. Plummer a reçue et à sa réception de l’Amour Divin. Mme Plummer a été aidée par Mme Stone et, comme cela s'est passé il y a 44 ans, je suis sûre qu’elle a également reçu l’Amour Divin du Pèreafin de leur permettre à tous deux de vivre dans les Cieux Célestes.(Dr Leslie R. Stone).*[↩](#a1)

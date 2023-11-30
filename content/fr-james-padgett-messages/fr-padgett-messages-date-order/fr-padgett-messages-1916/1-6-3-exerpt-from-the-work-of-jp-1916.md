@@ -128,7 +128,7 @@ La résurrection des morts enseignée par le Maître, qui constitue une pierre a
 
 En effet, Jésus était la résurrection et la vie ; et moi, Paul, qui suis le bénéficiaire de cette résurrection, suis au courant que les habitants du monde spirituel qui n'ont jamais reçu cette résurrection sont toujours dans un état de mort. En effet, dans la mesure où l'acquisition de l'Amour Divin du Père et la conscience de l'immortalité sont concernées, je déclare devant vous que ce que j'ai essayé de décrire comme étant la résurrection de la mort est la Vraie Résurrection.
 
-*[Paul - 8 Février 1916](/fr-james-padgett-messages\fr-padgett-messages-date-order\fr-padgett-messages-1916\fr-1916-2-8-1-jep-paul-of-tarsus/)*
+*[Paul - 8 Février 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-8-1-jep-paul-of-tarsus/)*
 
 #### L'évolution de l'âme dans son amour naturel - 1ère partie
 
@@ -232,7 +232,7 @@ La tâche de l'Esprit Saint n'est pas de réveiller l'âme de l'homme pour qu'il
 
 Jusqu'à ce que cet éveil se produise, l'âme est véritablement morte en ce qui concerne la conscience de l'existence de la vérité de son salut. Et cette mort signifie un maintien dans les pensées et la conduite pécheresses et mauvaises qui ne peuvent que conduire à la damnation et à la mort pour de longues années dans le futur.
 
-*[Jésus - 2 Mars 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916\fr-1916-3-2-1-jep-jesus/)*
+*[Jésus - 2 Mars 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-2-1-jep-jesus/)*
 
 #### Le premier fruit de la résurrection
 
@@ -332,7 +332,7 @@ Lorsqu'ils assument une telle position et deviennent possédés par une telle co
 
 Chaque homme et chaque femme devrait s'efforcer d'atteindre cet amour qui lui permettra d'entrer dans les sphères Célestes divines et ne pas attendre d'entrer dans le monde spirituel car il est beaucoup plus facile de débuter ce voyage sur la terre plutôt que d‘attendre sa venue dans le monde spirituel.  
 
-*[Jean - 26 Mai 1916](/fr-james-padgett-messages/r-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-26-1-jep-st-john/)*
+*[Jean - 26 Mai 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-26-1-jep-st-john/)*
 
 #### Que se passe-t-il lorsqu'une personne meurt ?
 
@@ -652,7 +652,7 @@ Si les hommes, pour un moment, pensaient que Dieu est le Dieu de l’Amour et qu
 
 L'homme a reçu le libre arbitre d'utiliser de manière juste ou pécheresse, et Dieu n'impose pas Son contrôle sur cette utilisation. Mais la volonté est soumise à la loi, qu'elle soit bien ou mal exercée, et il y a des châtiments ou des récompenses selon que la loi a été violée ou obéie.
 
-*[Jésus - 24 Décembre 1916](/fr-james-padgett/messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-24-1-jep-jesus/)*
+*[Jésus - 24 Décembre 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-24-1-jep-jesus/)*
 
 #### La loi de réparation
 
