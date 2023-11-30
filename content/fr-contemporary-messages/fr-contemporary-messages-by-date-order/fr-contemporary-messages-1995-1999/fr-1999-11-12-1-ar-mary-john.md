@@ -11,7 +11,7 @@ weight:
 
 Marie & Jean - reçu par Amada Reza le 12 Novembre 1999, Aptos, Californie, USA.
 
-Je suis ici avec toi, ma chère sœur en Christ, et je suis ton amie et ta tutrice, Marie, la mère de Jésus, et une adepte de mon fils dans l’union de l’âme avec celle de notre Grand et Aimant Père. Je suis très heureuse d’avoir l’opportunité d’écrire en réponse à la question de M___ et je veux l’assurer qu’il a, en effet, en sa possession une portion de l’Amour Divin.
+Je suis ici avec toi, ma chère sœur en Christ, et je suis ton amie et ta tutrice, Marie, la mère de Jésus, et une adepte de mon fils dans l’union de l’âme avec celle de notre Grand et Aimant Père. Je suis très heureuse d’avoir l’opportunité d’écrire en réponse à la question de M____ et je veux l’assurer qu’il a, en effet, en sa possession une portion de l’Amour Divin.
 
 Cet Amour est la Substance de l’Âme de Dieu, et lorsqu’Il vient à l’âme qui cherche sincèrement à le recevoir, Il commence à transformer la nature et les qualités mêmes de cette âme en une nouvelle création, immortelle et semblable en qualité au Grand et Miséricordieux Père. Si vous pouvez croire ce que je vous dis, que vous possédez cet Amour à un certain degré, et que vous reconnaissez que vous êtes ignorant de sa présence et de son activité dans votre conscience, savez-vous alors que cet Amour fonctionne de manière à provoquer la transformation de l’intérieur vers l’extérieur ?
 

@@ -1,17 +1,17 @@
 ---
-title: "Qui est l'auteur de 'Nouveaux enseignements pour une humanité en éveil' ?"
+title: "Qui est l'auteur de « Nouveaux enseignements pour une humanité en éveil ? »"
 menu_title: ""
-description: "Qui est l'auteur de 'Nouveaux enseignements pour une humanité en éveil' ?"
+description: "Qui est l'auteur de « Nouveaux enseignements pour une humanité en éveil ? »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True
 weight:
 ---
-### Qui est l'auteur de "Nouveaux enseignements pour une humanité en éveil" ?
+### Qui est l'auteur de « Nouveaux enseignements pour une humanité en éveil ? »
 
 Jésus - reçu par Révérend Dave Lampron le 9 Septembre 1987.
 
-*[Très cher Maître, Jésus, comme je suis sûr que vous le savez déjà, le Révérend V.D. a porté un nouveau livre <sup id="a1">[1](#f1)</sup> à l'attention de J____, prétendument communiqué par vous par l'écriture automatique, intitulé "New Teachings for an Awakening Humanity". Jusqu'à présent, nous n'avons eu aucune indication de votre part que vous étiez effectivement l'auteur d'un tel livre, mais le Révérend V. D. et nous pensons qu'il est important pour nous de savoir si vous, un autre esprit, ou peut-être juste un mortel lui-même est le véritable auteur de cet ouvrage. Nos membres pourraient bien nous interroger à ce sujet.*
+*[Très cher Maître, Jésus, comme je suis sûr que vous le savez déjà, le Révérend V.D. a porté un nouveau livre <sup id="a1">[1](#f1)</sup> à l'attention de J____, prétendument communiqué par vous par l'écriture automatique, intitulé « New Teachings for an Awakening Humanity ». Jusqu'à présent, nous n'avons eu aucune indication de votre part que vous étiez effectivement l'auteur d'un tel livre, mais le Révérend V. D. et nous pensons qu'il est important pour nous de savoir si vous, un autre esprit, ou peut-être juste un mortel lui-même est le véritable auteur de cet ouvrage. Nos membres pourraient bien nous interroger à ce sujet.*
 
 **Alors, cher Maître, si vous aviez l'amabilité de le faire, pourriez-vous répondre à la question bien posée du Révérend V.D. ? Est-ce que Jésus de la Bible, Maître des Cieux Célestes, et leader de la Foundation Church of Divine Truth est le véritable et réel auteur du livre : Nouveaux Enseignements pour une Humanité en Réveil ? Et, si vous le désirez, veuillez ajouter toute information supplémentaire que vous pensez être importante pour nous en ce moment, que ce soit en rapport avec le livre ou avec toute autre pensée que vous pourriez avoir pour nous aujourd'hui.*
 
@@ -38,4 +38,4 @@ Je crois que c'est tout ce que je souhaite dire sur ce sujet particulier pour le
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> Un autre ouvrage qui a faussement prétendu être de Jésus est le célèbre "A Cour en Miracles". Cette information a été révélée assez récemment, [et est annotée ici](****** mediumship *******).[↩](#a1)
+1. <large id="f1"> Un autre ouvrage qui a faussement prétendu être de Jésus est le célèbre « A Cour en Miracles ». Cette information a été révélée assez récemment, [et est annotée ici](/11-fr-mediumship/).[↩](#a1)

@@ -40,4 +40,3 @@ Je crois que j’ai exprimé tout ce que je souhaitais dire pour l’instant. So
 Alors, jusqu’à notre prochaine communication, je vous laisse avec mon amour et mes bénédictions.
 
 Votre frère et ami, Jésus.
-

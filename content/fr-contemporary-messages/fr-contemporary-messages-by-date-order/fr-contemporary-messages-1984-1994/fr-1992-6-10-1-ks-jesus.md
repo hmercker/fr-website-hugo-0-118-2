@@ -21,7 +21,7 @@ Jésus - reçu par Kathryn Stokes le 10 Juin 1992, Santa Cruz, Californie, USA.
 
 *Je prie pour un grand afflux de Ton Amour Divin dans mon âme. Je prie pour que mes pensées soient aimantes et attentionnées et que mes intentions soient toujours d'accomplir dans ma vie votre volonté. Amen.]*
 
-Je suis ici maintenant pour écrire, ma chère sœur en Christ, et nous travaillons avec ce qu'on appelle un "catch 22" sur terre en ce moment, ce qui signifie qu'il est très difficile de convaincre quelqu'un de l'exactitude et de la clarté d'un médium par l'utilisation de moyens médiumniques. Mais je vais apporter à la situation toute la clarté dont je suis capable. Je suis votre ami et frère en Esprit - l'esprit de l'Amour Divin de Dieu manifesté dans mon âme, Jésus de la Bible et Maître des Cieux Célestes.
+Je suis ici maintenant pour écrire, ma chère sœur en Christ, et nous travaillons avec ce qu'on appelle un « catch 22 » sur terre en ce moment, ce qui signifie qu'il est très difficile de convaincre quelqu'un de l'exactitude et de la clarté d'un médium par l'utilisation de moyens médiumniques. Mais je vais apporter à la situation toute la clarté dont je suis capable. Je suis votre ami et frère en Esprit - l'esprit de l'Amour Divin de Dieu manifesté dans mon âme, Jésus de la Bible et Maître des Cieux Célestes.
 
 Comme vous le voyez d'après votre propre expérience actuelle, lorsqu'une personne décide que nous ne sommes pas ce que nous prétendons être, il n'y a aucun moyen de le prouver à qui que ce soit ; mais ce n'est que par ses propres prières sincères et prolongées pour connaître la Vérité, et par l'application de la Vérité dans sa vie, qu'elle pourra résoudre sa confusion.
 
