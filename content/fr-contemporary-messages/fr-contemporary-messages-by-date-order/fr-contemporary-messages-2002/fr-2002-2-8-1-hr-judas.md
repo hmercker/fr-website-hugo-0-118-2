@@ -67,6 +67,10 @@ Et c’est alors que Jésus est entré pour la deuxième fois dans la maison de 
 
 Avec cela, je terminerai mon message. Je te souhaite une belle journée.
 
-Ton frère céleste, Judas.
+Ton frère Céleste, Judas.
+
+![](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
+
+Simon
 
 © Geoff Cutler 2013

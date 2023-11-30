@@ -29,13 +29,13 @@ Aujourd’hui, tu as lu dans le livre *[« le Pèlerin de Compostelle » de Paul
 
 Il y a une part de vérité dans ses paroles, mais il y a aussi quelques erreurs. Bientôt, je consacrerai un message à ce sujet, sur les formes de l’amour, leur mauvaise traduction dans de nombreuses versions de la Bible et sur la transformation de l’amour. Néanmoins, en dépit de  tous ses défauts, il est utile de poursuivre la lecture de ce livre.
 
-> Quand nous renonçons à nos rêves et trouvons la paix, nous traversons une période de tranquillité. Mais les rêves morts commencent à pourrir en nous et infectent notre environnement tout entier. Nous devenons cruels envers ceux qui nous entourent, et puis nous commençons à diriger cette cruauté contre nous-mêmes. C’est alors que la maladie et les psychoses se développent. Ce que nous avons voulu éviter de combattre – la déception et la défaite – deviennent le seul héritage de notre lâcheté. Et un beau jour, les morts, les rêves corrompus rendent l’air difficile à respirer, et nous recherchons effectivement la mort qui peut nous libérer de nos certitudes, de notre travail et de la paix terrible de nos dimanches après-midi.
+> *Quand nous renonçons à nos rêves et trouvons la paix, nous traversons une période de tranquillité. Mais les rêves morts commencent à pourrir en nous et infectent notre environnement tout entier. Nous devenons cruels envers ceux qui nous entourent, et puis nous commençons à diriger cette cruauté contre nous-mêmes. C’est alors que la maladie et les psychoses se développent. Ce que nous avons voulu éviter de combattre – la déception et la défaite – deviennent le seul héritage de notre lâcheté. Et un beau jour, les morts, les rêves corrompus rendent l’air difficile à respirer, et nous recherchons effectivement la mort qui peut nous libérer de nos certitudes, de notre travail et de la paix terrible de nos dimanches après-midi.*
 
 Voilà ce que les messages de James Padgett appellent *« pour se reposer dans l’assurance que fournissent les croyances »*. L’auteur a bien compris cela, et c’est pourquoi il encourage ses lecteurs à rêver, à combattre et à se remettre en question, bref, qu’ils soient eux-mêmes et pas ce que d’autres attendent qu’ils soient.
 
 C’est une vérité profonde. Il faut dire à chacun : Suivez votre chemin, écoutez votre voix intérieure, soyez fidèle à vous-même et faites tout ce que vous jugez correct, sans crainte. Si vous faites tout cela dans l’amour, vous avez certainement trouvé votre voie sûre.
 
-« Combats le bon combat de la foi, saisis la vie éternelle, à laquelle tu as été appelé, et pour laquelle tu as fait une belle confession en présence d’un grand nombre de témoins. »
+*« Combats le bon combat de la foi, saisis la vie éternelle, à laquelle tu as été appelé, et pour laquelle tu as fait une belle confession en présence d’un grand nombre de témoins. »*
 
 Ainsi la Bible l’exprime.
 

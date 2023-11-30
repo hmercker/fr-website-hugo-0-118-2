@@ -39,7 +39,7 @@ Judas - reçu par H____ le 17 Janvier 2002, Cuenca, Équateur.
 > Mais j’ai remarqué que pendant les périodes les plus difficiles de ma vie ll y avait seulement un ensemble d’empreintes dans le sable. 
 <br>
 <br>
-> Pourquoi, quand j’ai eu le plus besoin de toi, tu n’étais pas là pour moi ? » Jésus répondit : « Les fois où tu as vu qu’un seul ensemble d’empreintes de pas  C’est quand je te portais. »
+> *« Pourquoi, quand j’ai eu le plus besoin de toi, tu n’étais pas là pour moi ? »* Jésus répondit : *« Toutes les fois où tu as vu qu’un seul ensemble d’empreintes de pas, c’est lorsque je te portais. »*
 
 Oui, je t’ai fait rappeler ces paroles. Parce que tu as un problème non résolu.
 

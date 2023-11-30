@@ -35,15 +35,12 @@ Jésus a enseigné un Dieu personnel, rempli d’amour, ouvert et accessible à 
 
 Et c’est très important de garder cela à l’esprit, également en ces temps modernes. Lors de la divulgation de ces messages, il est nécessaire de le mettre en avant, comme le fit Jésus. Il n’y a aucune utilité de discuter de l’existence ou non de la Trinité, de la conception virginale ou non, ou de discuter des dogmes et croyances en général. La chose la plus importante sur laquelle il faut mettre l’accent concerne la relation personnelle de l’homme avec son Père Céleste, la possibilité de communiquer avec lui, par le biais d’une profonde et émouvante prière. Parce qu’une fois que les gens commencent à prier correctement, du plus profond de leur âme, la réponse du Père arrivera sous la forme de Son Amour merveilleux. La graine est plantée, cette petite graine de moutarde, qui peut se développer pour former une énorme usine, où les oiseaux du ciel construisent leurs nids. Mais afin de démontrer d’une façon convaincante, la puissance de la prière,  vous devez être des exemples : Alors, soyez des exemples !
 
-Mark, je tiens à saisir cette occasion pour te remercier pour tous tes efforts infatigables au nom du Royaume. Tu as eu des perceptions très vives. Utilise les sans crainte. N’oublie pas que nous sommes avec toi et que nous te guidons dans tes appréciations. Aie plus confiance en toi, parce que ton pouvoir de distinguer les choses est plus grand que tu le crois.
+Marc, je tiens à saisir cette occasion pour te remercier pour tous tes efforts infatigables au nom du Royaume. Tu as eu des perceptions très vives. Utilise les sans crainte. N’oublie pas que nous sommes avec toi et que nous te guidons dans tes appréciations. Aie plus confiance en toi, parce que ton pouvoir de distinguer les choses est plus grand que tu le crois.
 
 Le Maître a dit : *« Celui qui boit de ma bouche deviendra comme moi; Je dois moi-même »* – c’est-à-dire le Christ – *« devenir cette personne, et les choses cachées lui seront révélés. »*
 
 Sur ces belles paroles, je vais te dire au revoir. Ce fut un thème intéressant, parce que la parabole de la graine de moutarde contient l’âme des enseignements de Jésus. Notre instrument est la prière et comme Marie, la mère de Jésus, dit : *« Tous ceux qui prient sont ouverts à la volonté de Dieu dans leurs cœurs et témoignent avec joie de l’amour de Dieu. »*
 
 Merci pour le temps que tu m’as accordé et de m’avoir donné l’occasion d’exprimer mes pensées, ton frère dans l’esprit, Judas.
-
-
-8 Les Cieux Célestes, selon les messages de James Padgett, sont situés au-delà de la 7ème Sphère Spirituelle et sont seulement habités par ceux qui sont « nés à nouveau en esprit ». Dans des communications ultérieures Judas rentre en détail sur les caractéristiques de chacune des 7 sphères plus basses qui sont celles où nous nous retrouvons après notre mort. Ce sujet est introduit dans le message suivant.
 
 © Geoff Cutler 2013

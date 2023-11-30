@@ -90,6 +90,18 @@ C’est à l’humanité de s’élever au-delà de cette condition humaine et d
 Merci, âmes bien-aimées. Que Dieu vous bénisse profondément de Son Amour. Mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Ces questions ont été posées auparavant avec des informations légèrement différentes. Peut-être que l’apport humain des médiums est la cause de la différence ? Ou peut-être que le sujet est simplement un peu fluide ? 1. [Jésus parle de l’avortement et de l’abandon d’enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/), 2. [Jésus parle de l’avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/), 3. [Quand l’âme s’incarne-t-elle ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/)[↩](#a1)
+1. <large id=”f1”> Ces questions ont été posées auparavant avec des informations légèrement différentes. Peut-être que l’apport humain des médiums est la cause de la différence ? Ou peut-être que le sujet est simplement un peu flou ?[↩](#a1)
 
-2. <large id=”f2”> Là encore, d’autres médiums ont eu une saveur quelque peu différente de la mort assistée. D’autres messages sur le suicide et la mort assistée sont disponibles ici : 1. [Suicide assisté et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/), 2. [Jésus : Sur le suicide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/)[↩](#a2)
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jésus | [Jésus parle de l’avortement et de l’abandon des enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/) | 4 Mars 2007
+Jésus | [L'Avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/) | 30 Juin 1985
+Jésus | [Message annuel en transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/) |  Juin 1999
+
+2. <large id=”f2”> Là encore, d’autres médiums ont eu une compréhesion quelque peu différente de la mort assistée. D’autres messages sur le suicide et la mort assistée sont disponibles ci-dessous :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jésus | [Sur le suicide.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
+Judas | [Aide au suicide et symboles chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
+

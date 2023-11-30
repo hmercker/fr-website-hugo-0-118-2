@@ -15,11 +15,11 @@ Mon cher frère H____ ,
 
 Plusieurs jours se sont écoulés sans possibilité pour moi de transmettre un message. J’espère que tu progresseras et te stabiliseras. J’ai encore beaucoup à communiquer.
 
-Dans mon dernier message, j’ai dit que je parlerai des idées de Jésus sur l’esclavage, et pourquoi ces enseignements n’ont pas été intégrés dans les Évangiles.
+[Dans mon dernier message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-28-1-hr-judas/), j’ai dit que je parlerai des idées de Jésus sur l’esclavage, et pourquoi ces enseignements n’ont pas été intégrés dans les Évangiles.
 
 [Il y a quelque temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-18-1-hr-judas/), j’ai écrit :
 
-> Le lendemain soir, Buni, accompagné de plusieurs fonctionnaires qui lui servaient de gardes du corps, est venu à la maison de Joseph afin de parler avec Jésus.
+> *Le lendemain soir, Buni, accompagné de plusieurs fonctionnaires qui lui servaient de gardes du corps, est venu à la maison de Joseph afin de parler avec Jésus.*
 
 C’est vrai, tel est le message que j’ai présenté sur la rencontre de Nicodème et de Jésus. Rappelle-toi cette phrase.
 
@@ -35,21 +35,22 @@ Bien entendu, le prix d’un esclave sur les marchés de Jérusalem variait beau
 
 Pour ajouter une « difficulté supplémentaire » aux gens riches, la loi mosaïque prescrivait qu’ils devaient libérer leurs esclaves après six années de servitude.
 
-> Si tu achètes un esclave Hébreu, il servira six années ; mais la septième, il sortira libre, sans rien payer. (Exode21:2)
+> *Si tu achètes un esclave Hébreu, il servira six années ; mais la septième, il sortira libre, sans rien payer.* [Exode21:2](https://saintebible.com/exodus/21-2.htm)
+
 Ils ne considéraient certainement pas l’esclavage comme une bonne affaire.
 
 Les esclaves qui travaillaient dans les maisons urbaines de la classe riche, comme dans le cas de Nicodème, devaient souvent subvenir aux besoins de leur propre famille, ils avaient des femmes et des enfants. Lorsque les six années de servitude étaient terminées, les esclaves abandonnaient leur maître, avec leurs épouses.
 
-La loi dit :
+[La loi dit](https://saintebible.com/exodus/21-3.htm)
 
-> S’il est entré seul, il sortira seul ; s’il avait une femme, sa femme sortira avec lui.
+> *S’il est entré seul, il sortira seul ; s’il avait une femme, sa femme sortira avec lui.*
 <br>
 <br>
-> Si son maître lui avait donné une femme, et qu’elle lui avait donné des fils ou des filles ; la femme et ses enfants seront à son maître, et il sortira par lui-même. »
+> *Si son maître lui avait donné une femme, et qu’elle lui avait donné des fils ou des filles ; la femme et ses enfants seront à son maître, et il sortira par lui-même. »*
 
 Ceci, bien sûr, constituait, dans de nombreux cas, une situation grave pour l’esclave qui aimait sa famille et ne voulait pas l’abandonner. Et il n’avait pas d’argent pour acheter sa liberté. Néanmoins, la loi lui offrait l’alternative suivante :
 
-> Mais si l’esclave dit, j’aime mon maître, ma femme et mes enfants ; Je ne vais pas sortir libre alors son maître le conduira à Dieu, et l’amènera à la porte ou au montant de la porte ; et son maître lui percera l’oreille avec un poinçon ; et il le servira pour toujours.
+> *Mais si l’esclave dit, j’aime mon maître, ma femme et mes enfants ; Je ne vais pas sortir libre alors son maître le conduira à Dieu, et l’amènera à la porte ou au montant de la porte ; et son maître lui percera l’oreille avec un poinçon ; et il le servira pour toujours.*
 
 Avec cet acte désespéré, le pauvre esclave pouvait garder sa famille, mais il perdait sa liberté pour toujours.
 
@@ -63,27 +64,27 @@ Des scènes similaires à celle de la visite de Nicodème se sont produites fré
 
 Oui, je sais que tu espérais entendre que Jésus avait attaqué l’esclavage de front. Mais cela ne s’est jamais produit. Tout d’abord, il n’a pas existé en Palestine sous la forme que tu as à l’esprit. Deuxièmement, l’esclavage était une institution reconnue et réglementée par la loi mosaïque, considérée comme la parole même du Seigneur. Cependant, l’enseignement de Jésus, l’enseignement de l’amour inconditionnel, qualifiait, implicitement, l’esclavage comme incompatible avec le chemin vers Dieu.
 
-On ne retrouve dans la Bible que quelques rudiments de la dure critique sociale du Maître dans la Bible, parce que les dirigeants Chrétiens, se sentant mal à l’aise du fait de certaines allusions, ont en grande partie, effacé ce qu’il avait dit. Cependant, dans la lettre du frère du Maître, tu peux encore entendre l’écho de la voix même du Maître. (Jacques 2:2-10, approximativement.)
+On ne retrouve dans la Bible que quelques rudiments de la dure critique sociale du Maître dans la Bible, parce que les dirigeants Chrétiens, se sentant mal à l’aise du fait de certaines allusions, ont en grande partie, effacé ce qu’il avait dit. Cependant, dans la lettre du frère du Maître, tu peux encore entendre l’écho de la voix même du Maître. [Jacques 2:2-10, approximativement.](https://saintebible.com/james/2-2.htm)
 
 *« Supposons qu’un homme vienne, dans votre réunion, bien habillé et avec un anneau d’or à son doigt, et qu’un autre homme, évidemment pauvre, arrive en vêtements usés. Si, tournant vos regards vers celui qui porte l’habit magnifique, vous lui dites : *« Toi, assieds-toi ici à cette place d’honneur ! »* et si vous dites au pauvre : *« Toi, tiens-toi là debout ! »* Ou bien : *« Assieds-toi à mes pieds sur le sol ! »*  Ne faites-vous pas en vous-mêmes une distinction, et ne jugez-vous pas sous l’inspiration de mauvaises pensées ? »*
 
-« Écoutez, mes frères bien-aimés : Dieu n’a-t-il pas choisi les pauvres aux yeux du monde, pour qu’ils soient riches en la foi et héritiers du royaume qu’il a promis à ceux qui l’aiment ? Si vous vous comportez comme je l’ai suggéré, c’est le pauvre homme que vous avilissez ! Regardez autour de vous. Ne sont-ce pas les riches qui vous oppriment et qui vous traînent devant les tribunaux ? Ne sont-ce pas eux qui outragent le beau nom que vous portez ? »
+« *Écoutez, mes frères bien-aimés : Dieu n’a-t-il pas choisi les pauvres aux yeux du monde, pour qu’ils soient riches en la foi et héritiers du royaume qu’il a promis à ceux qui l’aiment ? Si vous vous comportez comme je l’ai suggéré, c’est le pauvre homme que vous avilissez ! Regardez autour de vous. Ne sont-ce pas les riches qui vous oppriment et qui vous traînent devant les tribunaux ? Ne sont-ce pas eux qui outragent le beau nom que vous portez ? »*
 
-« Si vous obéissez à la Loi Royale, exprimée par les écritures, « Tu aimeras ton prochain comme toi-même » vous faites bien. Mais si vous acceptez ces insidieuses distinctions de s’infiltrer, vous commettez un péché, vous êtes condamnés par la Loi comme des transgresseurs. Car quiconque observe toute la loi, mais pèche contre un seul commandement, devient coupable de tous. » 
+« Si vous obéissez à la Loi Royale, exprimée par les écritures, *« Tu aimeras ton prochain comme toi-même »* vous faites bien. Mais si vous acceptez ces insidieuses distinctions de s’infiltrer, vous commettez un péché, vous êtes condamnés par la Loi comme des transgresseurs. Car quiconque observe toute la loi, mais pèche contre un seul commandement, devient coupable de tous. » 
 
 Ceci est un détail très précis dont nous discuterons à une autre occasion.
 
-« En effet, celui qui a dit : « Tu ne commettras pas l’adultère » a également dit, « Tu ne tueras point ». Or, si tu ne commets point d’adultère, mais que tu commettes un meurtre, tu deviens transgresseur de la Loi.
+« En effet, celui qui a dit : *« Tu ne commettras pas l’adultère »* a également dit, *« Tu ne tueras point »*. Or, si tu ne commets point d’adultère, mais que tu commettes un meurtre, tu deviens transgresseur de la Loi.
 
 Parlez et agissez comme devant être jugés par une loi de liberté. A celui qui juge sans  miséricorde, il ne sera pas fait miséricorde.  La miséricorde triomphe du jugement.
 
-Mes frères, à quoi sert-il à quelqu’un de dire qu’il a la foi, s’il n’a pas les œuvres ? Cette sorte de foi peut-elle sauver toute âme ? Si un frère ou une sœur sont nus et manquent de la nourriture, et l’un de vous dit « Allez en paix, chauffez-vous et rassasiez-vous ! » et que vous ne leur donniez pas ce qui est nécessaire au corps, à quoi cela sert-il ?
+Mes frères, à quoi sert-il à quelqu’un de dire qu’il a la foi, s’il n’a pas les œuvres ? Cette sorte de foi peut-elle sauver toute âme ? Si un frère ou une sœur sont nus et manquent de la nourriture, et l’un de vous dit *« Allez en paix, chauffez-vous et rassasiez-vous ! »* et que vous ne leur donniez pas ce qui est nécessaire au corps, à quoi cela sert-il ?
 
 Il en est ainsi de la foi : si elle n’a pas les œuvres, elle n’a aucun sens.
 
-Quelqu’un peut vous dire : « Toi, tu as la foi ; et moi, j’ai les œuvres. » Tout ce que vous pouvez faire c’est de me montrer votre foi sans les œuvres, et moi, je vous montrerai la foi par mes œuvres.  Vous croyez qu’il y a un seul Dieu, c’est très bien. En enfer, les démons le croient aussi, et ils tremblent ! Ainsi, mon cher myope, ne vois-tu pas que la foi sans les œuvres est vide de sens et inutile ?…»
+Quelqu’un peut vous dire : *« Toi, tu as la foi ; et moi, j’ai les œuvres. »* Tout ce que vous pouvez faire c’est de me montrer votre foi sans les œuvres, et moi, je vous montrerai la foi par mes œuvres.  Vous croyez qu’il y a un seul Dieu, c’est très bien. En enfer, les démons le croient aussi, et ils tremblent ! Ainsi, mon cher myope, ne vois-tu pas que la foi sans les œuvres est vide de sens et inutile ?…»
 
-A cause de cette déclaration, cette lettre a presque été exclue du canon des Protestants qui proclament « la justification par la foi. »
+A cause de cette déclaration, cette lettre a presque été exclue du canon des Protestants qui proclament *« la justification par la foi. »*
 
 Jésus n’a pas appelé les gens à se retirer de ce monde, mais à aider activement, à travailler assidûment pour améliorer la situation du monde, ton monde. C’est un appel à tous, afin que tous fassent un effort pour créer un monde où la vie vaut la peine d’être vécue pour tout un chacun.
 

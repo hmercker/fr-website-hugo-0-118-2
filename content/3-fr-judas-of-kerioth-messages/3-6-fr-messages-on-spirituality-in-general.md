@@ -28,13 +28,13 @@ Judas | [Que pouvons-nous faire pour compenser les effets du mal ?](/fr-contempo
 Judas | [Islam et Mohammed](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-18-1-hr-judas/) | 18 Septembre 2001
 Judas | [Les Âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-24-1-hr-judas/) | 24 Septembre 2001
 Judas | [Parties innocentes au terrorisme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-1-1-hr-judas/) | 1 Octobre 2001
-Judas | [Aide au suicide et symboles chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
+Judas | [Aide au suicide et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
 Judas | [La justification de la violence et les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-hr-judas/) | 6 Octobre 2001
 Judas | [Le livre d’Urantia, la Trinité et la canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-12-1-hr-judas/) | 12 Octobre 2001
 Judas | [L’unicité de la perception et l’objectif de l’harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-14-1-hr-judas/) | 14 Octobre 2001
 Judas | [Réalisez vos désirs – la loi du désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-16-1-hr-judas/) | 16 Octobre 2001
 Judas | [Perfection, l’amour et la loi du désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-22-1-hr-judas/) | 22 Octobre 2001
-Judas | [Justice et repression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-23-1-hr-judas/) | 23 Octobre 2001
+Judas | [Justice et répression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-23-1-hr-judas/) | 23 Octobre 2001
 Jean Marc | [Jean Marc sur la foi et la recherche intérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-29-1-hr-john-mark/) | 29 Octobre 2001
 Judas | [L’amour et le cœur de chair](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-30-1-hr-judas/) | 30 Octobre 2001
 Judas | [Esprit contre âme et les modèles actuels de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-1-hr-judas/) | 4 Novembre 2001
@@ -46,7 +46,7 @@ Judas | [Le souhait de la mort](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [Ce gros livre !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-11-1-hr-judas/) | 11 Décembre 2001
 Judas | [Le poids de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-14-1-hr-judas/) | 14 Décembre 2001
 Judas | [Les fêtes religieuses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/) | 17 Décembre 2001
-Judas | [Le Peuple Elu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-2-1-hr-judas/) | 2 Janvier 2002
+Judas | [Le Peuple Élu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-2-1-hr-judas/) | 2 Janvier 2002
 Judas | [Autres êtres et le but de ces messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-7-1-hr-judas/) | 7 Janvier 2002
 Judas | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-11-1-hr-judas/) | 11 Janvier 2002
 Judas | [Construire l’harmonie avec humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-14-1-hr-judas/) | 14 Janvier 2002

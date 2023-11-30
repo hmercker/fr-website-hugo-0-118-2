@@ -1,13 +1,13 @@
 ---
-title: "La sixième sphere"
+title: "La sixième sphère"
 menu_title: ""
-description: "La sixième sphere"
+description: "La sixième sphère"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True
 weight:
 ---
-### La sixième sphere
+### La sixième sphère
 
 Judas - reçu par H___  le 27 Septembre 2001, Cuenca, Équateur.
 
@@ -39,13 +39,13 @@ Mon cher frère, j’aime le portrait que tu as dessiné d’André. Oui, il res
 
 André travaille beaucoup avec les mortels. Et je lui dois beaucoup, oui, en fait je lui dois tout. Durant tout le temps de ma progression vers les Cieux Célestes, il m’a accompagné et aidé sans relâche. Nous nous visitons toujours fréquemment, bien que nous ne vivions pas dans le même lieu.
 
-Il est temps de dire au revoir. Le temps est orageux, alors il vaut mieux arrêter ton ordinateur. Je suis heureux que ta [galerie de portraits](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/) prenne déjà forme. Très prochainement, je te projetterai une autre image de l’un de mes anciens compagnons et tu seras en mesure d’utiliser, une fois de plus, tes talents d’artiste.
+Il est temps de dire au revoir. Le temps est orageux, alors il vaut mieux arrêter ton ordinateur. Je suis heureux que ta [galerie de portraits](/3-fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/) prenne déjà forme. Très prochainement, je te projetterai une autre image de l’un de mes anciens compagnons et tu seras en mesure d’utiliser, une fois de plus, tes talents d’artiste.
 
 Puisse Dieu te bénir toujours.
 
 Ton frère en Christ, Judas.
 
-![](/fr-judas-of-kerioth-messages/fr-andrew-large.jpg)
+![](/3-fr-judas-of-kerioth-messages/fr-andrew-large.jpg)
 
 André
 

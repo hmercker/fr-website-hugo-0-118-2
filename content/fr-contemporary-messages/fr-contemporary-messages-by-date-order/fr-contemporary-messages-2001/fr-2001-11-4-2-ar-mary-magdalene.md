@@ -21,7 +21,7 @@ Quand tu regardes dans le miroir, tu  vois un visage avec lequel tu as vécu pen
 
 Quand tu regardes dans le visage du monde, tu vois que beaucoup abandonnent la belle image de l’âme, et assument le visage que ces plaisirs et promesses terrestres servent ou ne parviennent pas à leur apporter. Tu constateras qu’ils sont incapables de voir la nature de ton âme, te jugeant par des choses telles que la couleur de peau, le style de vie, et ton statut en tant que citoyenne du monde.
 
-Est-ce que tu les crois quand ils démontrent la haine et la violence envers toi et les autres êtres humains? Non, tu comprends qu’ils n’ont pas réveillé cette âme puissante qui peut voir la bonté dans d’autres. Souvent, cela exige que tu te lèves seule contre ta famille et tes amis. Peut-être, ils se retirent, dans leur peur, dans une réalité physique dans laquelle tout le monde trouve du réconfort: Ne fais confiance à rien, sauf ce qui est familier.
+Est-ce que tu les crois quand ils démontrent la haine et la violence envers toi et les autres êtres humains ? Non, tu comprends qu’ils n’ont pas réveillé cette âme puissante qui peut voir la bonté dans d’autres. Souvent, cela exige que tu te lèves seule contre ta famille et tes amis. Peut-être, ils se retirent, dans leur peur, dans une réalité physique dans laquelle tout le monde trouve du réconfort: Ne fais confiance à rien, sauf ce qui est familier.
 
 Lorsque tu peux faire confiance à la vérité de ton âme, tu peux croire à la vérité de chaque âme – tu peux y voir l’image que Dieu y a mis. Oui, certains peuvent se détourner du miroir de l’amour que Dieu tient pour eux, mais ils sont qui ils sont – les enfants de Dieu.
 

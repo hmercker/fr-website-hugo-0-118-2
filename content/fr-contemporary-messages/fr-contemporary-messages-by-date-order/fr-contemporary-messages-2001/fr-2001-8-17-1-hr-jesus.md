@@ -13,7 +13,7 @@ Jésus - reçu par H____ le 17 Août 2001, Cuenca, Équateur.
 
 C’est moi, Jésus.
 
-J’ai observé que tu avais passé la journée entière à réfléchir au message transmis au mois de Juin dernier; et, principalement, à la partie où j’ai parlé de la voix intérieure, en rapport à la question posée par Geoff. Cela m’a beaucoup  impressionné. Tu t’es demandé si toi aussi tu pourrais développer cette capacité – la capacité d’entendre clairement ta « propre voix intérieure ». J’écris « propre voix intérieure » entre guillemets, car, en fait, ce n’est pas ta voix, elle semble venir de ton intérieur, mais en fait c’est une voix d’origine externe – c’est notre voix, la voix des esprits.
+J’ai observé que tu  avais passé la journée entière à réfléchir au message transmis [au mois de Juin dernier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-30-1-ar-jesus/); et, principalement, à la partie où j’ai parlé de la voix intérieure, en rapport à la question posée par Geoff. Cela m’a beaucoup  impressionné. Tu t’es demandé si toi aussi tu pourrais développer cette capacité – la capacité d’entendre clairement ta *« propre voix intérieure *». J’écris *« propre voix intérieure »* entre guillemets, car, en fait, ce n’est pas ta voix, elle semble venir de ton intérieur, mais en fait c’est une voix d’origine externe – c’est notre voix, la voix des esprits.
 
 Toutes les personnes ont la capacité de percevoir cette voix intérieure et en fait, tout le monde l’entend, mais dans la plupart des cas, ils ne l’écoutent pas. Et il y a trois raisons pour cela. Tout d’abord, il est difficile de la distinguer de tes propres pensées, parce que nous, les esprits, devons utiliser les instruments que l’homme met à notre disposition, c’est à dire son esprit. Et dans cet esprit, nous formulons les réponses ou les suggestions que nous voulons transmettre. Bien sûr, cette voix ne se manifeste pas distinctement et puisqu’elle est originaire de ton cerveau, tout comme tes pensées font partie de ton mental, avec cette exception que cette voix fut implantée en toi, imprimée en toi, comme en ce moment je te transmets ces pensées.
 
@@ -42,5 +42,11 @@ Mon cher frère, nous sommes impatients d’obtenir ce contact étroit avec toi,
 Réfléchis à tout ceci, écoute -moi, et que Dieu vous bénisse tous.
 
 Jésus.
+
+<u>Remarque</u> : Une cautre ommunication lus claire sur cette question a été reçue par un autre médium de l'Amour Divin 
+
+> *« À mesure que vous tracez ce chemin entre vous et Dieu, Sa Volonté devient évidente. Elle n’est ni masquée ni étouffée par la condition humaine ou par vos propres entreprises conscientes. Au contraire, à mesure que vous mettez de côté ces choses de votre esprit, le canal vers Dieu s’ouvre, ainsi la conscience consciente de la présence de Dieu et du désir de communiquer avec vous devient évidente et facile à obtenir. Cela commence par un murmure, quelque chose de très subtil en effet, mais parfois, Dieu peut vous parler aussi clairement que je le fais aujourd'hui et comme Dieu l'a fait avec moi lorsque je parcourais la Terre. »*
+
+Source : message reçu par Al Fike [le 13 Octobre 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-2-af-jesus/)
 
 *© Geoff Cutler 2013*

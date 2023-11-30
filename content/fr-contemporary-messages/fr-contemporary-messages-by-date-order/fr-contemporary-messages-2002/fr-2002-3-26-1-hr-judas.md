@@ -23,9 +23,9 @@ Immédiatement, une délégation de Juifs se rendit à Césarée, résidence de 
 
 Pilate n’avait pas provoqué intentionnellement les Juifs, mais son traitement de l’affaire témoignait plutôt de son manque de préparation et de son ignorance totale des coutumes du pays qu’il devait administrer. Cependant, bien entendu, l’incident n’a pas augmenté sa considération pour les Juifs. Pilate ne pouvait pas comprendre que les bannières qui n’avaient pas causé un scandale à Césarée incitent des réactions de colère de la part de la population de Jérusalem. Mais bien entendu, Césarée était une ville totalement romanisée ayant une culture totalement différente de Jérusalem. Le préfet ne savait pas cela. En bref, Pilate a changé les troupes avec leurs bannières, et la paix régna à nouveau.
 
-Un autre incident provoqué par Pilate fut celui des boucliers honoraires. C’était une habitude très répandue dans l’antiquité de placer des boucliers en or sur les bâtiments administratifs, tels que la Forteresse Antonia à Jérusalem, en l’honneur de l’empereur. Habituellement, ces boucliers comportaient un portrait de l’empereur et une inscription. Mais Pilate avait déjà appris quelque chose. Les boucliers qu’il a envoyé ne comportaient aucun portrait afin de ne pas offenser les Juifs, pour lesquels toute reproduction d’une personne ou d’un animal constitue une infraction aux dix commandements. Dans Exode 20:4 et Deutéronome 5:8 on peut lire :
+Un autre incident provoqué par Pilate fut celui des boucliers honoraires. C’était une habitude très répandue dans l’antiquité de placer des boucliers en or sur les bâtiments administratifs, tels que la Forteresse Antonia à Jérusalem, en l’honneur de l’empereur. Habituellement, ces boucliers comportaient un portrait de l’empereur et une inscription. Mais Pilate avait déjà appris quelque chose. Les boucliers qu’il a envoyé ne comportaient aucun portrait afin de ne pas offenser les Juifs, pour lesquels toute reproduction d’une personne ou d’un animal constitue une infraction aux dix commandements. Dans [Exode 20:4](https://saintebible.com/exodus/20-4.htm) et [Deutéronome 5:8](https://saintebible.com/deuteronomy/5-8.htm) on peut lire :
 
-> Tu ne te feras point d’image taillée, ni de représentation quelconque des choses qui sont en haut dans les cieux, qui sont en bas sur la terre, et qui sont dans les eaux plus bas que la terre.
+> *Tu ne te feras point d’image taillée, ni de représentation quelconque des choses qui sont en haut dans les cieux, qui sont en bas sur la terre, et qui sont dans les eaux plus bas que la terre.*
 
 C’est pourquoi les boucliers de Pilate ont seulement montré l’inscription :
 
@@ -51,9 +51,8 @@ Et puisque tu es très curieux, je te dirai que Pilate vit maintenant dans les c
 
 Je voudrais ajouter quelques mots sur l’histoire du « procès » du Maître. Je ne m’étendrai pas dessus, cela je le ferai au moment approprié.
 
-L’histoire de l’Évangile montrant Pilate comme une personne bénigne, désireuse de remettre
-
-Jésus en liberté, est tout simplement fausse. Elle fut écrite, ou modifiée, alors qu’il existait des tensions déjà considérables entre Juifs (et Judéo-chrétiens) et l’église Païenne. Le but de cette « modification » fut d’incriminer les Juifs de la responsabilité de la mort du Maître, comme des « meurtriers de Dieu, » criant « que son sang soit sur nous et sur nos enfants ! » Tu dois comprendre, aussi, qu’il aurait été très risqué pour les chrétiens d’attaquer leurs souverains romains ouvertement, en les accusant du meurtre du Maître.
+L’histoire de l’Évangile montrant Pilate comme une personne bénigne, désireuse de remettre 
+Jésus en liberté, est tout simplement fausse. Elle fut écrite, ou modifiée, alors qu’il existait des tensions déjà considérables entre Juifs (et Judéo-chrétiens) et l’église Païenne. Le but de cette *« modification »* fut d’incriminer les Juifs de la responsabilité de la mort du Maître, comme des *« meurtriers de Dieu, »* criant *« que son sang soit sur nous et sur nos enfants ! »* Tu dois comprendre, aussi, qu’il aurait été très risqué pour les chrétiens d’attaquer leurs souverains romains ouvertement, en les accusant du meurtre du Maître.
 
 C’était donc Pilate : essayant de garder le pays calme, mais par intérim, avec beaucoup de  brutalité quand son intérêt personnel était en jeu.
 

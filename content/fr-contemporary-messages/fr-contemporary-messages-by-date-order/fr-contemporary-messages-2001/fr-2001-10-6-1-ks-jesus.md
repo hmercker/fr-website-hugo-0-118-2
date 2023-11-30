@@ -29,7 +29,7 @@ De nombreuses personnes dans le monde n'agissent pas par la foi en la puissance 
 
 Oui, je suis toujours là, et je suis l'un de vos nombreux anges gardiens dont le travail consiste à veiller sur vous et à vous protéger autant que possible des influences négatives, mais lorsque vous tombez dans un marasme, vous vous laissez aller à des pensées inférieures et vous leur permettez de vous abattre au point de vous décourager et de vous faire peur.
 
-Le nom de l'ange Céleste n'a pas vraiment d'importance, ce qui compte c'est que vous recevez votre message d'une âme qui réside dans les Cieux Célestes, et qui vous donnera la vérité, et vous guidera dans une direction ascendante.
+Le nom de l'ange Céleste n'a pas vraiment d'importance, ce qui compte c'est que vous receviez votre message d'une âme qui réside dans les Cieux Célestes, et qui vous donnera la vérité, et vous guidera dans une direction ascendante.
 
 Nous savons que les êtres humains aiment utiliser leur capacité de raisonnement et comprendre les choses, qu'ils s'intéressent aux événements historiques et qu'ils veulent savoir ce qui s'est réellement passé. Peu importe les efforts que nous déployons pour dépeindre les événements tels que nous nous en souvenons, il y a toujours des divergences, des interprétations erronées et des "tournures" données à la narration du récit.
 

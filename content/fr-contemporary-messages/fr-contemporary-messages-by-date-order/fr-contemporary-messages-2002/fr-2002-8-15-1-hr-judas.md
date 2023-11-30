@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 15 Août 2002, Cuenca, Équateur.
 
-Mon cher H____ , j’ai l’intention de continuer avec l’histoire de Jésus dans l’ordre chronologique. Néanmoins, nous pouvons, bien entendu, insérer un message sur un passage controversé du Nouveau Testament chaque fois que des doutes sérieux apparaissent. Aujourd’hui, en réponse à la question du Révérend, je veux parler de la Première Épître aux Corinthiens, une lettre de Paul de Tarse et surtout, du chapitre 7. Paul écrit : (1 Corinthiens 7:1-7)
+Mon cher H____ , j’ai l’intention de continuer avec l’histoire de Jésus dans l’ordre chronologique. Néanmoins, nous pouvons, bien entendu, insérer un message sur un passage controversé du Nouveau Testament chaque fois que des doutes sérieux apparaissent. Aujourd’hui, en réponse à la question du Révérend, je veux parler de la Première Épître aux Corinthiens, une lettre de Paul de Tarse et surtout, du chapitre 7. Paul écrit : [1 Corinthiens 7:1-7](https://saintebible.com/1_corinthians/7-1.htm)
 
 > Maintenant je voudrais aborder les questions soulevées dans votre lettre. C’est un bon principe pour un homme de n’avoir aucun contact physique avec les femmes. Néanmoins, étant donné que les liaisons occasionnelles sont si répandues, permettons que chaque homme ait sa propre femme et chaque femme son propre mari. Le mari doit donner à sa femme ce qui lui revient comme sa femme et la femme doit être aussi équitable envers son mari. La femme n’a plus de droits sur son propre corps, mais les partage avec son mari. De la même manière, le mari partage ses droits personnels avec sa femme.
 <br>
@@ -25,18 +25,18 @@ Jusqu’ici, je pense qu’il n’est pas nécessaire d’apporter un quelconque
 
 > Ne pouvons-nous pas voyager avec une femme chrétienne comme les autres messagers, comme les autres frères chrétiens et comme Céphas ?
 
-Revenons à notre passage. Paul continue : (1 Corinthiens 7:8-11)
+Revenons à notre passage. Paul continue : [1 Corinthiens 7:8-11](https://saintebible.com/1_corinthians/7-8.htm)
 
 > A ceux qui ne sont pas mariés et aux veuves, je dis qu’il leur est bon de rester comme moi. Mais s’ils ne peuvent se maîtriser, qu’ils se marient. Il est préférable pour eux de se marier plutôt qu’être torturé par un désir insatisfait.
 <br>
 <br>
 > A ceux qui sont mariés, j’ordonne, non pas moi, mais le Seigneur, que la femme ne se sépare point de son mari… Mais si elle est séparée, qu’elle demeure sans se marier ou qu’elle se réconcilie avec son mari, un mari ne doit pas répudier sa femme.
 
-En fait, c’est Paul et pas le Seigneur, qui commande cela, mais c’est une bonne recommandation, du moins celle de la réconciliation. Le triste sujet du divorce a déjà été traité dans une autre partie. Il est nécessaire de noter, toutefois, que les interprétations spécifiant que Paul faisait référence à l’indissolubilité du mariage reconnu par « l’Église » et qu’il a accordé le divorce aux personnes qui se sont converties au Christianisme, « parce qu’avec le baptême, elles ont gagné une nouvelle vie et, par conséquent, une nouvelle liberté » sont absurdes. Une telle église n’existait tout simplement pas alors… (1 Corinthiens 7:12-14)
+En fait, c’est Paul et pas le Seigneur, qui commande cela, mais c’est une bonne recommandation, du moins celle de la réconciliation. Le triste sujet du divorce a déjà été traité dans une autre partie. Il est nécessaire de noter, toutefois, que les interprétations spécifiant que Paul faisait référence à l’indissolubilité du mariage reconnu par « l’Église » et qu’il a accordé le divorce aux personnes qui se sont converties au Christianisme, « parce qu’avec le baptême, elles ont gagné une nouvelle vie et, par conséquent, une nouvelle liberté » sont absurdes. Une telle église n’existait tout simplement pas alors… [1 Corinthiens 7:12-14](https://saintebible.com/1_corinthians/7-12.htm)
 
 > Aux autres, ce n’est pas le Seigneur, c’est moi qui dis : Si un frère a une femme non-croyante, et qu’elle consente à habiter avec lui, qu’il ne la répudie point. Une femme dans une position similaire ne devrait pas quitter son mari. Car le mari non-croyant est sanctifié par la femme, et la femme non-croyante est sanctifiée par le frère chrétien qu’elle a marié. Sinon, vos enfants porteraient les stigmates du paganisme, tandis que maintenant ils sont consacrés à Dieu.
 
-En fait, le texte original ne dit pas « Sinon, vos enfants porteraient les stigmates du paganisme  » mais « sinon vos enfants seraient impurs » et il ne dit pas « alors qu’ils sont maintenant consacrés à Dieu » mais « tandis que maintenant ils sont saints. » Cependant, la traduction traduit correctement le sens de ce que Paul a voulu exprimer. Plus tard, nous parlerons un petit peu de l’historique qui a conduit Paul à écrire ces mots. (1 Corinthiens 7:15-19)
+En fait, le texte original ne dit pas « Sinon, vos enfants porteraient les stigmates du paganisme  » mais « sinon vos enfants seraient impurs » et il ne dit pas « alors qu’ils sont maintenant consacrés à Dieu » mais « tandis que maintenant ils sont saints. » Cependant, la traduction traduit correctement le sens de ce que Paul a voulu exprimer. Plus tard, nous parlerons un petit peu de l’historique qui a conduit Paul à écrire ces mots. [1 Corinthiens 7:15-19](https://saintebible.com/1_corinthians/7-15.htm)
 
 > Mais si le partenaire non-croyant décide de se séparer, alors qu’il y ait une séparation. Le frère ou la sœur ne sont pas liés dans ces cas-là. Pourtant Dieu nous a appelés à vivre en paix, car comment, vous qui êtes une femme, pouvez savoir si vous serez en mesure, ou non, de sauver votre mari ? Et il en va de même pour vous qui êtes un mari.  
 <br>

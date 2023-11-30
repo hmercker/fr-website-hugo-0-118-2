@@ -49,19 +49,19 @@ Nous sommes maintenant au mois de Septembre de l’année 25 AD. Il existe déj�
 
 Si tu pouvais écrire ici l’histoire, telle  qu’elle figure dans le Nouveau Testament, ce serait une aide pour mes explications.
 
-> Alors il commença à leur dire : Aujourd’hui cette parole de l’Écriture, que vous venez d’entendre, est accomplie. 
+> *Alors il commença à leur dire : Aujourd’hui cette parole de l’Écriture, que vous venez d’entendre, est accomplie.* 
 <br>
 <br>
-> Et tous lui ont rendu témoignage et se sont interrogés sur les mots gracieux qui sortaient de sa bouche. Et ils ont dit, n’est-il  pas le fils de ce Joseph ?
+> *Et tous lui ont rendu témoignage et se sont interrogés sur les mots gracieux qui sortaient de sa bouche. Et ils ont dit, n’est-il  pas le fils de ce Joseph ?*
 <br>
 <br>
-> Jésus leur dit : Sans doute vous me citerez ce proverbe : Médecin, guéris-toi toi-même ; et vous me direz : Fais ici, dans ta patrie, tout ce que nous avons appris que tu as fait à Capharnaüm. Mais, ajouta-t-il, je vous le dis en vérité, aucun prophète n’est bien reçu dans sa patrie. Mais je vous dire une vérité, Au temps du prophète Élie, lorsque la sécheresse et la famine ont sévi pendant trois ans et demi, il y avait beaucoup de veuves en Israël ; pourtant Élie n’a été envoyé vers aucune d’entre elles, mais bien à une veuve étrangère, de la ville de Sarepta, dans le pays de Sidon. Il y avait aussi plusieurs lépreux en Israël du temps d’Élisée, le prophète ; et cependant aucun d’eux ne fut purifié, si ce n’est Naaman le Syrien.
+> *Jésus leur dit : Sans doute vous me citerez ce proverbe : Médecin, guéris-toi toi-même ; et vous me direz : Fais ici, dans ta patrie, tout ce que nous avons appris que tu as fait à Capharnaüm. Mais, ajouta-t-il, je vous le dis en vérité, aucun prophète n’est bien reçu dans sa patrie. Mais je vous dire une vérité, Au temps du prophète Élie, lorsque la sécheresse et la famine ont sévi pendant trois ans et demi, il y avait beaucoup de veuves en Israël ; pourtant Élie n’a été envoyé vers aucune d’entre elles, mais bien à une veuve étrangère, de la ville de Sarepta, dans le pays de Sidon. Il y avait aussi plusieurs lépreux en Israël du temps d’Élisée, le prophète ; et cependant aucun d’eux ne fut purifié, si ce n’est Naaman le Syrien.*
 <br>
 <br>
-> En entendant cela, ils furent tous remplis de colère dans la synagogue, et s’étant levés, ils le poussèrent hors de la ville, et le menèrent jusqu’au sommet de la montagne, sur laquelle leur ville était bâtie, pour le précipiter.
+> *En entendant cela, ils furent tous remplis de colère dans la synagogue, et s’étant levés, ils le poussèrent hors de la ville, et le menèrent jusqu’au sommet de la montagne, sur laquelle leur ville était bâtie, pour le précipiter.*
 <br>
 <br>
-> Mais Jésus, passant au milieu d’eux, s’en alla. (Du chapitre 4 de l’Évangile selon Luc)
+> *Mais Jésus, passant au milieu d’eux, s’en alla.* [Du chapitre 4, versets 21 à 30, de l’Évangile selon Luc](https://www.aelf.org/bible/Lc/4)
 
 Je pense que tu peux déjà imaginer ce qui s’est passé. Tu  as grandi dans un petit village. Tu sais comment y sont les choses. Joseph n’avait jamais parlé ouvertement que son fils devrait-être le Messie. Bien sûr, il a parlé avec ses enfants, et les enfants ne savent pas garder un secret. Ils l’ont partagé avec leurs amis qui l’ont dit à leurs parents. Tout le monde a ainsi été informé des idées extravagantes de Joseph, mais personne ne les a commentées ouvertement.
 
@@ -71,7 +71,7 @@ En fait, la plupart sont restés silencieux, mais il y en a toujours certains qu
 
 Ce n’était pas un blasphème que de se proclamer le Messie. Beaucoup l’ont fait avant Jésus et aussi par la suite. Mais Dieu punit les faux Messies de la peine de mort. Et Jésus serait le Messie ? Ridicule ! Il n’avait aucune expérience militaire, il n’avait pas le soutien de la classe politique, non, ça ne pouvait tout simplement pas être le cas.
 
-*« Nous avons même entendu parler de tes exploits, de tes guérisons à Capharnaüm, Mais comme c’est étrange, tu ne nous montre riens  de tes capacités ici. »*
+*« Nous avons même entendu parler de tes exploits, de tes guérisons à Capharnaüm, Mais comme c’est étrange, tu ne nous montres rien  de tes capacités ici. »*
 
 *« Aucun prophète n’est accepté dans son propre pays »*, répondit Jésus.
 
@@ -85,9 +85,9 @@ Et comment la famille de Jésus a-t-elle réagi ? Est-ce que Joseph s’est lev�
 
 Tu dois comprendre que tu ne dois pas prendre littéralement les mots de cette controverse. Toutefois, cependant tu vas facilement comprendre comment les événements se sont développés.
 
-Des années plus tard, alors que Jésus poursuivait simplement son activité, les choses ont changé à Nazareth. Beaucoup de Juifs de Nazareth ont embrassé la foi nouvelle, et le village est devenu l’un des fiefs du Judéo-christianisme, gardant les enseignements de Jésus à l’état pur. Avec la fin du Judaïsme en Palestine, après la révolte menée par Bar Kokhba an temps de l’empereur Hadrien, la communauté Judéo-chrétienne a également disparu. Jamais elle n’a pu se manifester à nouveau, poursuivie, de manière similaire, autant  par les Juifs que par l’Église Romaine.
+Des années plus tard, alors que Jésus poursuivait simplement son activité, les choses ont changé à Nazareth. Beaucoup de Juifs de Nazareth ont embrassé la foi nouvelle, et le village est devenu l’un des fiefs du Judéo-christianisme, gardant les enseignements de Jésus à l’état pur. Avec la fin du Judaïsme en Palestine, après la révolte menée par Bar Kokhba an temps de l’empereur Hadrien, la communauté Judéo-Chrétienne a également disparu. Jamais elle n’a pu se manifester à nouveau, poursuivie, de manière similaire, autant  par les Juifs que par l’Église Romaine.
 
-Les supposées malédictions annoncées dans le Nouveau Testament par Jésus contre plusieurs des villes proches du lac de Génésareth sont le reflet fidèle de ces persécutions. Tous ces lieux contenaient de fortes communautés Judéo-chrétiennes. Mais de cela, nous avons déjà parlé.
+Les supposées malédictions annoncées dans le Nouveau Testament par Jésus contre plusieurs des villes proches du lac de Génésareth sont le reflet fidèle de ces persécutions. Tous ces lieux contenaient de fortes communautés Judéo-Chrétiennes. Mais de cela, nous avons déjà parlé.
 
 C’est tout pour aujourd’hui. Je tiens seulement à dire à D____ qu’il ne doit pas s’inquiéter pour ses questions. Comme tu le vois, le sujet du peuple élu traverse toute la Bible comme un fil rouge. Nombre de questions peuvent être traitées dans le contexte de notre histoire. Et si ce n’est pas le cas, il n’y aura aucun problème à l’interrompre de temps à autre. Il est certainement très intéressant de connaître l’histoire de Jésus. Mais en fait, nous sommes là pour t’aider à résoudre tes problèmes actuels. Et ce sera toujours un plaisir de le faire.
 

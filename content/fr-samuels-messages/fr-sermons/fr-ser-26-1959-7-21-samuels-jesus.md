@@ -28,7 +28,7 @@ Maintenant ce n’est pas une histoire, comme le pensent certains commentateurs 
 > *« Quand Israël était jeune, je l’aimais, Et j’appelai Mon fils hors d’Égypte. Mais ils se sont éloignés de ceux qui les appelaient : Ils ont sacrifié aux Baals et offert de l’encens aux idoles.…. C’est moi qui guidai les pas d’Ephraïm, Le soutenant par ses bras; Et ils n’ont pas vu que je les guérissais.… Je les tirai avec des liens d’humanité, avec des cordages d’amour,  Je fus pour eux comme celui qui aurait relâché le joug près de leur bouche, Et je leur présentai de la nourriture.… Ils ne retourneront pas au pays d’Égypte; Mais l’Assyrien sera leur roi, Parce qu’ils ont refusé de revenir à moi. »* 
 <br>
 <br>
-> *« Que ferai-je de toi, Ephraïm ? > Dois-je te livrer, Israël ? 
+> *« Que ferai-je de toi, Ephraïm ? Dois-je te livrer, Israël ? 
 <br>
 <br>
 > Te traiterai-je comme Adma ?  Te rendrai-je semblable à Tseboïm ? 

@@ -45,7 +45,7 @@ Mais je voudrais revenir au problème de la langue. Dans un [message reçu par l
 
 J’ai dit sans danger, parce que je ne fais pas allusion à la substitution du mot « mortel » pour le mot « riche ». En araméen, chameau se dit « gamla », mais « gamla » signifie aussi la corde ou le câble. Cela a déjà été expliqué, mais c’est un bel exemple de comment le traducteur a choisi la mauvaise correspondance de mot parmi plusieurs possibilités.
 
-Regardons un autre exemple. Dans Luc 14:26, nous lisons :
+Regardons un autre exemple. [Dans Luc 14:26](https://saintebible.com/luke/24-26.htm), nous lisons :
 
 > Si quelqu’un vient à moi, s’il ne hait pas son père, sa mère, sa femme, ses enfants, ses frères, et ses sœurs, et même sa propre vie, il ne peut être mon disciple.
 
@@ -59,13 +59,13 @@ Cela n’a aucun sens, non plus, sous la forme sous laquelle je l’ai reproduit
 
 Il s’agit d’un autre exemple typique où le traducteur a choisi à tort parmi les traductions possibles. Ce n’est pas le seul problème.
 
-Les mots Araméens permettaient parfois un excellent jeu de mots, lequel a totalement disparu dans la traduction, produisant quelques déclarations très controversées, qui ne figuraient pas de cette façon dans l’original. Dans Matthieu 19:12 nous lisons :
+Les mots Araméens permettaient parfois un excellent jeu de mots, lequel a totalement disparu dans la traduction, produisant quelques déclarations très controversées, qui ne figuraient pas de cette façon dans l’original. [Dans Matthieu 19:12](https://saintebible.com/matthew/19-12.htm) nous lisons :
 
-> Car il y a des eunuques, qui sont nés ainsi du ventre de leur mère : et il y a des eunuques qui ont été faits eunuques d’hommes : et il y aura les eunuques, qui se seront fait eunuques pour le Royaume de l’amour du ciel. Celui qui est capable de le recevoir, qu’il le reçoive.
+> Car il y a des eunuques, qui sont nés ainsi du ventre de leur mère : et il y a des eunuques qui ont été faits eunuques d’hommes : et il y aura les eunuques, qui se seront fait eunuques pour le Royaume de l’Amour du Ciel. Celui qui est capable de le recevoir, qu’il le reçoive.
 
 Cela est également traité par Jésus dans un [message reçu par le Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-16-1955-9-27-samuels-jesus/). Mais j’ai voulu aller un peu plus profondeur, parce qu’une fois de plus, nous trouvons un mot Araméen avec un double sens. Dans un autre cas, nous trouvons le mot eunuque dans les Actes des Apôtres :
 
-> Et voici, un Éthiopien, un eunuque, ministre de Candace, reine d’Éthiopie, et surintendant de tous ses trésors, venu à Jérusalem pour adorer ….
+> *Et voici, un Éthiopien, un eunuque, ministre de Candace, reine d’Éthiopie, et surintendant de tous ses trésors, venu à Jérusalem pour adorer ….*
 
 Ici, nous voyons le cas absurde qu’un eunuque éthiopien est venu à Jérusalem pour l’adoration dans le Temple du Seigneur. Selon la Torah, les eunuques ne pouvaient en aucun cas se convertir au Judaïsme, par conséquent, cet éthiopien n’a pas pu être un prosélyte et les Juifs castrés étaient exclus du Temple et de toute Assemblée religieuse.
 

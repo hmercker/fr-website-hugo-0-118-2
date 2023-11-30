@@ -61,7 +61,11 @@ Jésus avait pris le gant jeté par les Pharisiens.
 
 Jésus a souri et déclara doucement :
 
-*« Comment, alors, pouvez-vous m’expliquer que David fut inspiré par l’Esprit de l’appeler Seigneur ? Il dit : Le Seigneur a dit à mon Seigneur, assieds-toi à ma droite, jusqu’à ce que j’ai mis  tes ennemis sous tes pieds.  Si David l’appelle Seigneur, comment peut-il être son fils ? Croyez-vous vraiment qu’un père appelle son fils « Seigneur ? »*
+*Comment, alors, pouvez-vous m’expliquer que David fut inspiré par l’Esprit de l’appeler Seigneur ?* [Il dit](https://saintebible.com/psalms/110-1.htm) :
+
+> *« Le Seigneur a dit à mon Seigneur, assieds-toi à ma droite, jusqu’à ce que j’ai mis  tes ennemis sous tes pieds. »*
+
+*Si David l’appelle Seigneur, comment peut-il être son fils ? Croyez-vous vraiment qu’un père appelle son fils « Seigneur ? »* 
 
 Les Pharisiens stupéfaits avalèrent leur salive et balbutièrent en quête d’une réponse. Ils étaient pris dans un grand dilemme. Ils pouvaient soit admettre que le Messie ne pouvait pas simplement être un descendant de David, soit reconnaître que David n’avait pas écrit ce Psaume. Alors l’auteur du Psaume, un serviteur de David, aurait écrit : L’Éternel (Dieu) dit : mon Seigneur (David). Dans le cas contraire, si David était l’auteur du Psaume, le sens serait que l’Éternel (Dieu) dise : mon Seigneur (le Messie). Cette dernière version, toutefois, était exactement ce que les Pharisiens enseignaient habituellement. Enfin, l’un d’eux a ouvert sa bouche et a répondu :
 

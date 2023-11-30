@@ -29,3 +29,4 @@ Je suis, votre frère en Christ, Judas.<sup id=”a1”>[1](#f1)</sup>
 <small>
 
 1. <large id=”f1”> En 2001, un médium de l’Amour Divin a commencé à recevoir des messages de Judas, qui a délivré environ 180 messages. Ces documents peuvent être lus [ici](/3-fr-judas-of-kerioth-messages/3-2-fr-judas-messages-by-date/).[↩](#a1)
+

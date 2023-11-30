@@ -47,11 +47,11 @@ Judas | [Sens caché des paraboles de Jésus](/fr-contemporary-messages/fr-conte
 Judas | [Sur l’Amour Divin et le passé de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-26-1-hr-judas/) | 26 Août 2001
 Judas | [L’esprit de vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-27-1-hr-judas/) | 27 Août 2001
 Judas | [Interférence de l’homme avec l’Esprit de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-28-1-hr-judas/) | 28 Août 2001
-Judas | [Communications avec des esprits célestes ou non](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-29-1-hr-judas/) | 29 Août 2001
+Judas | [Communications avec des esprits Célestes ou non](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-29-1-hr-judas/) | 29 Août 2001
 Judas | [La Loi de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-29-2-hr-judas/) | 29 Août 2001
 Judas | [Homosexualité et âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas/) | 30 Août 2001
 Judas | [La parabole de la graine de moutarde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-31-1-hr-judas/) | 31 Août 2001
-Judas | [Les créatures célestes perdent-elles leur individualité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-2-1-hr-judas/) | 2 Septembre 2001
+Judas | [Les créatures Célestes perdent-elles leur individualité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-2-1-hr-judas/) | 2 Septembre 2001
 Judas | [La fermeture des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-3-1-hr-judas/) | 3 Septembre 2001
 Judas | [La mort de Judas et son passage dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-5-1-hr-judas/) | 5 Septembre 2001
 Judas | [Expérience de Judas des enfers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-6-1-hr-judas/) | 6 Septembre 2001
@@ -66,9 +66,9 @@ Judas | [La troisième sphère](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [Écoute ta voix intérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-21-1-hr-judas/) | 21 Septembre 2001
 Judas | [La Quatrième Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-23-1-hr-judas/) | 23 Septembre 2001
 Judas | [Les Âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-24-1-hr-judas/) | 24 Septembre 2001
-Judas | [La cinquième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
-Judas | [La sixième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
-Judas | [La septième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
+Judas | [La cinquième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
+Judas | [La sixième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
+Judas | [La septième spèere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
 Judas | [Divorce, les douze apôtres et les douze tribus d’Israël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-29-1-hr-judas/) | 29 Septembre 2001
 Joseph | [La prière, la meilleure préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-30-1-ks-joseph/) | 30 Septembre 2001
 Judas | [Parties innocentes au terrorisme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-1-1-hr-judas/) | 1 Octobre 2001
@@ -76,7 +76,7 @@ Judas | [Joseph se marie avec Marie et retourne à Bethléem](/fr-contemporary-m
 Judas | [Parallèles entre la Galilée à l’époque de Jésus et aujourd’hui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-3-2-hr-judas/) | 3 Octobre 2001
 Judas | [La naissance de Jésus à Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-4-1-hr-judas/) | 4 Octobre 2001
 Judas | [La fuite en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-1-hr-judas/) | 5 Octobre 2001
-Judas | [Aide au suicide et symboles chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
+Judas | [Aide au suicide et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
 Jésus | [L'amour et la vérité doivent passer en premier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-ks-jesus/) | 6 Octobre 2001
 Judas | [La justification de la violence et les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-2-hr-judas/) | 6 Octobre 2001
 Judas | [L’éducation de Jésus en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) | 8 Octobre 2001
@@ -88,7 +88,7 @@ Judas | [L’unicité de la perception et l’objectif de l’harmonie](/fr-cont
 Judas | [Le jeune Jésus, Marie et Joseph sont de retour à Nazareth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-15-1-hr-judas/) | 15 Octobre 2001
 Judas | [Réalisez vos désirs – la loi du désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-16-1-hr-judas/) | 16 Octobre 2001
 Judas | [Perfection, l’amour et la loi du désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-22-1-hr-judas/) | 22 Octobre 2001
-Judas | [Justice et repression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-23-1-hr-judas/) | 23 Octobre 2001
+Judas | [Justice et répression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-23-1-hr-judas/) | 23 Octobre 2001
 Judas | [La révolte des contribuables en 6 après J.-C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-25-1-hr-judas/) | 25 Octobre 2001
 Jean Marc | [Jean Marc sur la foi et la recherche intérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-29-1-hr-john-mark/) | 29 Octobre 2001
 Judas | [L’amour et le cœur de chair](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-30-1-hr-judas/) | 30 Octobre 2001

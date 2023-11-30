@@ -1,13 +1,13 @@
 ---
-title: "Jésus rencontre la famille Zebedee"
+title: "Jésus rencontre la famille Zébédée"
 menu_title: ""
-description: "Jésus rencontre la famille Zebedee"
+description: "Jésus rencontre la famille Zébédée"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True
 weight:
 ---
-### Jésus rencontre la famille Zebedee
+### Jésus rencontre la famille Zébédée
 
 Judas - reçu par H____ le 15 Février 2002, Cuenca, Équateur.
 
@@ -15,7 +15,7 @@ Bonjour, mon cher frère. Comme je te l’ai promis hier, je suis ici, désireux
 
 En fait les deux frères ne sont pas nés à Capharnaüm, mais dans un autre village sur la rive opposée du lac, à Bethsaïde. C’est intéressant de voir comment les auteurs de thèmes bibliques peignent Pierre comme le prototype d’un Galiléen, ce qu’il n’était absolument pas. Bethsaïde n’appartenait pas à la Galilée, mais à la tétrarchie de Philippe. Cependant, ils parlaient le même dialecte du Nord comme des galiléens « authentiques », et la frontière entre les tétrarchies d’Antipas et Philippe étaient comme une frontière entre les provinces, étant donné que les deux territoires appartenaient à l’Empire romain.
 
-Après le petit déjeuner, Pierre a dit à Jésus  qu’ils devraient aller à bord de son bateau pour traverser le lac. Il voulait lui présenter quelques amis importants de leur village natal. Jésus avait déjà entendu parler d’une famille riche qui y vivait, propriétaire de plusieurs bateaux de pêche. Et donc, les trois hommes mirent à l’eau le bateau de Pierre et il a commencé à franchir la courte distance vers la rive opposée.
+Après le petit déjeuner, Pierre a dit à Jésus qu’ils devraient aller à bord de son bateau pour traverser le lac. Il voulait lui présenter quelques amis importants de leur village natal. Jésus avait déjà entendu parler d’une famille riche qui y vivait, propriétaire de plusieurs bateaux de pêche. Et donc, les trois hommes mirent à l’eau le bateau de Pierre et il a commencé à franchir la courte distance vers la rive opposée.
 
 Bethsaïde présentait mieux que Capharnaüm. Hérode Philippe avait restauré et construit ce lieu, et c’est peut-être injuste de l’appeler un village. C’était vraiment une petite ville. La plus grande maison appartenait à la famille de Zébédée, un homme riche qui possédait plusieurs bateaux de pêche, terres, oliveraies, vignes, etc.. Et c’est exactement vers cette maison que Pierre a guidé Jésus.
 
@@ -29,7 +29,7 @@ Si parmi tout le peuple rassemblé il y en avait un qui a plus ou moins compris 
 
 Zébédée expliqua comment ses deux fils, Jacques et Jean s’étaient rapprochés de l’idéologie des Zélotes, les militants radicaux, dont le but était l’expulsion des Romains de Palestine et le rétablissement d’une théocratie parmi les Juifs. Comme l’expliqua Zébédée, il a également fraternisé avec cette idée, mais il ne pouvait pas tolérer les méthodes utilisées. Le mouvement zélote avait dégénéré en groupes de bandits de tous niveaux, qui semaient la terreur, non seulement parmi les étrangers, mais aussi parmi leur propre peuple, assassinant souvent des personnes pour des raisons personnelles, pour s’enrichir, pour gagner des privilèges, pour une raison quelconque, et déguisant ces actes comme des meurtres politiques, présentant des fausses accusations, etc..
 
-Zébédée dit alors « Rien de bon ne peut naître du mal ». « J’ai fait beaucoup d’efforts pour convaincre mes fils qu’ils n’avaient fait le bon choix. Beaucoup de gens ici dans notre ville ont rejoint secrètement ces groupes radicaux. Heureusement, il me semble que j’ai réussi à éloigner mes fils de ce dangereux courant et d’éveiller en eux une pensée spirituelle recherchant  d’où le bien peut vraiment naître. »
+Zébédée dit alors *« Rien de bon ne peut naître du mal »*. *« J’ai fait beaucoup d’efforts pour convaincre mes fils qu’ils n’avaient fait le bon choix. Beaucoup de gens ici dans notre ville ont rejoint secrètement ces groupes radicaux. Heureusement, il me semble que j’ai réussi à éloigner mes fils de ce dangereux courant et d’éveiller en eux une pensée spirituelle recherchant  d’où le bien peut vraiment naître. »*
 
 Il expliqua que ses fils, Jacques et Jean, sont très impulsifs, facilement inflammables comme des allumettes comme tu le dirais aujourd’hui, et c’est pourquoi des personnes les avaient surnommé les « Boanerges » ou « fils du tonnerre ». De même les deux autres invités, Simon et Philippe, avaient appartenu à des groupes radicaux, mais tout comme les « Boanerges », ils avaient été en mesure de couper les liens avec le mal et d’éveiller en eux quelque intérêt spirituel. Ils utilisaient toujours l’expression Simon « le Zélote ».
 

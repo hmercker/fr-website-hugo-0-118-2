@@ -9,11 +9,13 @@ weight:
 ---
 ### Le bien qui se cache
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/spiritualite36.jpg)
+
 Judas - reçu par H____ le 3 Avril 2003, Cuenca, Équateur.
 
 Jésus, ayant levé les yeux, vit les riches qui mettaient leurs offrandes dans le tronc. Il vit aussi une pauvre veuve, qui y mettait deux petites pièces, et il dit :
 
-> Je vous le dis en vérité, cette pauvre veuve a mis plus que tous les autres; car c’est de leur superflu que tous ceux-là ont mis des offrandes dans le tronc, mais elle a mis de son nécessaire, tout ce qu’elle avait pour vivre. - Luc 21: 1-4
+> Je vous le dis en vérité, cette pauvre veuve a mis plus que tous les autres; car c’est de leur superflu que tous ceux-là ont mis des offrandes dans le tronc, mais elle a mis de son nécessaire, tout ce qu’elle avait pour vivre. - [Luc 21: 1-4](https://saintebible.com/luke/21-1.htm)
 
 Cette histoire t’a toujours profondément impressionné. Il est en effet fascinant de voir l’œil vif de Jésus, toujours prêt à remarquer, à tout moment, les bonnes choses.
 
@@ -25,9 +27,9 @@ Hier, tu as vu, dans les nouvelles, un rapport sur le terrible glissement de ter
 
 Un vieux portier de marché, le plus pauvre parmi les pauvres, a également laissé sa contribution pour aider les victimes. Il avait fait don de ses vieilles chaussures basses, de sorte quelles puissent être envoyées sur le site de la catastrophe. Puis le vieil homme est parti, pieds nus, prosterné et vidé de son énergie.
 
-Ce fut un acte d’amour que quelques photographes ont pu, « par hasard », prendre. Combien y a t-il – chaque jour, chaque minute, chaque seconde – d’actes dont les téléspectateurs ne seront jamais informés.
+Ce fut un acte d’amour que quelques photographes ont pu, « par hasard », prendre. **Combien y a t-il – chaque jour, chaque minute, chaque seconde – d’actes dont les téléspectateurs ne seront jamais informés.**
 
-La guerre peut remplir les nouvelles avec 24 heures d’information continue. Tu peux regarder les rapports quotidiens de la criminalité. Cependant très peu d’espace et de temps est consacré pour informer de la bonté des gens – une bonté qui existe encore, forte et vigoureuse, et cette bonté forme « les nouvelles de Dieu. »
+La guerre peut remplir les nouvelles avec 24 heures d’information continue. Tu peux regarder les rapports quotidiens de la criminalité. Cependant très peu d’espace et de temps est consacré pour informer de la bonté des gens – une bonté qui existe encore, forte et vigoureuse, et cette bonté forme *« les nouvelles de Dieu. »*
 
 Le monde n’est pas aussi mauvais que les médias le présentent. Garde à l’esprit que le monde, aujourd’hui, est meilleur qu’il ne l’était à l’époque de Jésus – bien que tu ne le croies peut-être pas. Il n’y a aucune raison de se sentir abattu, effrayé, ou horrifié.
 

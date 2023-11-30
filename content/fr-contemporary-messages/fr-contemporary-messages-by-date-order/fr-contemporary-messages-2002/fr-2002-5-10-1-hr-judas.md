@@ -31,7 +31,7 @@ Je demande, quelle est la base de la relation entre l’homme et Dieu ? Avant de
 
 2. La mort de chaque homme est une mort de Dieu, et lorsque le dernier homme sera mort, Dieu ne ressuscitera pas.
 
-Ici, j’aurais aimé lire une définition de ce qu’est la mort. Oui, je comprends que l’auteur veut exprimer que Dieu est le fruit de l’esprit humain, vivant uniquement dans cet esprit, comme un fantôme ou une projection. Et lorsque l’homme meurt – et ici, il est clair qu’il parle d’une mort définitive, de « cessation d’existence » –alors l’existence de Dieu, va elle aussi se terminer, parce que l’esprit qui l’a nourrie n’existe plus. Ceci, implicitement, a déjà été mentionné dans la première déclaration.
+Ici, j’aurais aimé lire une définition de ce qu’est la mort. Oui, je comprends que l’auteur veut exprimer que Dieu est le fruit de l’esprit humain, vivant uniquement dans cet esprit, comme un fantôme ou une projection. Et lorsque l’homme meurt – et ici, il est clair qu’il parle d’une mort définitive, de « cessation d’existence » – alors l’existence de Dieu, va elle aussi se terminer, parce que l’esprit qui l’a nourrie n’existe plus. Ceci, implicitement, a déjà été mentionné dans la première déclaration.
 
 3. Les hommes pardonnent tout à Dieu et moins ils le connaissent, plus ils lui pardonnent. 
 
@@ -67,7 +67,7 @@ Cela, il peut le demander lorsqu’il sera près du Père, pourvu que cette ques
 
 Il y a quelques jours nous avons parlé de « l’autre ». Le problème de l’analyse supposée de Dieu est, dans son essence, le problème de « l’autre » que l’homme ignore, et sur lequel il projette ses propres attentes. Dieu ne pardonne pas, car l’homme ne pardonne pas, Dieu fait des erreurs, parce que l’homme fait des erreurs, etc. Et il semble tellement difficile de trouver des caractéristiques d’amour en Dieu, alors que l’homme lui-même n’a pas cette propriété.
 
-Dans les temps anciens, quand l’humanité était difficilement capable d’extraire le fer du minerai rouge, il semble pardonnable qu’elle ait attribué à Dieu tout ce qu’elle ne comprenait pas. C’est aussi compréhensible que les hommes aient cherché à justifier leurs actions par le recours à Dieu, c’est à dire que « Dieu leur a ordonné » de faire cela ou cette chose, par exemple, d’anéantir l’ensemble de la population des villes conquises.
+Dans les temps anciens, quand l’humanité était difficilement capable d’extraire le fer du minerai rouge, il semble pardonnable qu’elle ait attribué à Dieu tout ce qu’elle ne comprenait pas. C’est également compréhensible que les hommes aient cherché à justifier leurs actions par le recours à Dieu, c’est à dire que « Dieu leur a ordonné » de faire cela ou cette chose, par exemple, d’anéantir l’ensemble de la population des villes conquises.
 
 À l’heure actuelle, il est incompréhensible que des personnes intelligentes appliquent les mêmes critères que ceux de l’âge du Bronze pour évaluer les écritures anciennes.
 

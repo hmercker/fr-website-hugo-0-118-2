@@ -13,7 +13,7 @@ Judas - reçu par H____ le 7 Août 2002, Cuenca, Équateur.
 
 Mon cher ami, je suis très heureux d’avoir trouvé l’occasion, une fois de plus, de te délivrer un message. Le sujet d’aujourd’hui est très inhabituel, mais, lorsque j’ai vu hier comment tu lisais, pour la centième fois, la phrase…
 
-> [Les églises d’aujourd’hui ne peuvent pas inspirer l’homme](/fr-samuels-messages/fr-sermons/fr-ser-1-1957-7-16-samuels-jesus/) 105 à chercher l’amour de Dieu, parce qu’elles ne comprennent plus, et elles n’ont pas, pendant de longs siècles, compris, que l’Amour de Dieu gagné par l’âme humaine à travers la prière tournée vers Lui pour Sa venue est le Moyen et le seul Moyen du salut de l’homme.
+> [Les églises d’aujourd’hui ne peuvent pas inspirer l’homme](/fr-samuels-messages/fr-sermons/fr-ser-1-1957-7-16-samuels-jesus/) à chercher l’Amour de Dieu, parce qu’elles ne comprennent plus, et elles n’ont pas, pendant de longs siècles, compris, que l’Amour de Dieu gagné par l’âme humaine à travers la prière tournée vers Lui pour Sa venue est le Moyen et le seul Moyen du salut de l’homme.
 
 … J’ai décidé de consacrer quelques commentaires à cette question. J’espère que tu seras assez réceptif pour saisir ce que j’ai l’intention de transmettre. Ce message ne sera pas très long, pour la partie que je te communiquerai, mais je voudrais te demander d’y coller quelques citations que tu as trouvées sur Internet. Commençons par une déclaration de l’Encyclopédie Catholique :
 
@@ -75,7 +75,7 @@ Eh bien, cela n’est pas très intéressant, non plus, pour Jean Calvin. Mainte
 > J’avais pris la décision de ne plus écrire sur les Juifs ou contre eux. Mais depuis que j’ai appris que ces gens misérables et maudits ne cessent de nous leurrer, nous les Chrétiens, j’ai publié ce petit livre, afin de compter parmi ceux qui s’opposent à de telles activités toxiques de la part des Juifs et d’avertir les Chrétiens d’être sur leurs gardes contre eux. Je n’aurais pas cru qu’un Chrétien puisse être dupé par les Juifs au point de se sentir coupable de leur exil et de leur misère. Cependant, le diable est le dieu du monde, et, partout où la parole de Dieu est absente il a une tâche facile, non seulement avec les faibles mais aussi avec les forts. Que Dieu nous vienne en aide. Amen. [Martin Luther, Introduction sur les Juifs et Leurs Mensonges, 1543]
 <br>
 <br>
-> Il ne les appelle pas les enfants d’Abraham, mais une race de vipères [Mathieu  3-7] Oh, c’était trop insultant pour le sang noble et la race d’Israël, et ils ont déclaré : il a un démon  [Mathieu 11:18]. Notre Seigneur les appelle aussi une race de vipères; en outre, dans [Jean 8 : 39,44], il déclare : Si vous étiez des enfants d’Abraham, vous feriez ce qu’Abraham a fait… Vous avez pour père le diable. C’était intolérable pour eux d’entendre qu’ils n’étaient pas les enfants d’Abraham mais ceux du diable, ni ne peuvent supporter d’entendre cela aujourd’hui. [Martin Luther, Introduction sur les Juifs et Leurs Mensonges, 1543]
+> Il ne les appelle pas les enfants d’Abraham, mais une race de vipères [Mathieu  3-7](https://saintebible.com/matthew/3-7.htm) Oh, c’était trop insultant pour le sang noble et la race d’Israël, et ils ont déclaré : il a un démon  [Mathieu 11:18](https://saintebible.com/matthew/11-18.htm). Notre Seigneur les appelle aussi une race de vipères; en outre, dans [Jean 8 : 39,44](https://saintebible.com/john/8-39.htm), il déclare : Si vous étiez des enfants d’Abraham, vous feriez ce qu’Abraham a fait… Vous avez pour père le diable. C’était intolérable pour eux d’entendre qu’ils n’étaient pas les enfants d’Abraham mais ceux du diable, ni ne peuvent supporter d’entendre cela aujourd’hui. [Martin Luther, Introduction sur les Juifs et Leurs Mensonges, 1543]
 <br>
 <br>
 > Dans leurs cœurs,  ils demeurent nos meurtriers quotidiens et nos ennemis assoiffés de sang. Leurs prières et malédictions apportent des preuves de cela, à l’instar de nombreuses histoires qui concernent la torture des enfants et toutes sortes de crimes pour lesquels ils ont souvent été brûlés sur le bûcher ou bannis. [Martin Luther, Introduction sur les Juifs et Leurs Mensonges, 1543]
@@ -90,7 +90,7 @@ Eh bien, cela n’est pas très intéressant, non plus, pour Jean Calvin. Mainte
 > Les idiots, les boiteux, les aveugles, les muets, sont des hommes chez qui les diables se sont établis et tous les médecins qui soignent ces infirmités, bien qu’ils procèdent à partir de causes naturelles, sont des lourdauds ignorants. [Martin Luther]
 <br>
 <br>
-> Le diable, quand il veut nous tromper, peut assumer complètement la forme humaine, nous pouvons bien coucher avec ce qui semble être une femme, de vraie chair et de sang, et pourtant pendant tout ce temps  » c’est seulement le diable sous la forme d’une femme.  » C’est la même chose avec les femmes, qui peuvent penser que l’homme qui est au lit avec eux, c’est seulement le diable; et… le résultat de cette connexion est souvent un diablotin d’obscurité, moitié mortel, moitié diable… [Martin Luther]
+> Le diable, quand il veut nous tromper, peut assumer complètement la forme humaine, nous pouvons bien coucher avec ce qui semble être une femme, de vraie chair et de sang, et pourtant pendant tout ce temps  *« c’est seulement le diable sous la forme d’une femme.  »* C’est la même chose avec les femmes, qui peuvent penser que l’homme qui est au lit avec eux, c’est seulement le diable; et… le résultat de cette connexion est souvent un diablotin d’obscurité, moitié mortel, moitié diable… [Martin Luther]
 <br>
 <br>
 > Nous sommes fautifs de ne pas les tuer (les Juifs). [Martin Luther, Introduction sur les Juifs et Leurs Mensonges, 1543]
@@ -99,7 +99,7 @@ Eh bien, cela n’est pas très intéressant, non plus, pour Jean Calvin. Mainte
 > Il ne faut pas contester les Hérétiques, mais les condamner sans précédent, qu’ils périssent alors par le feu, les fidèles devraient poursuivre le mal à sa source et baigner leurs têtes dans le sang des évêques Catholiques et du Pape, qui est le diable déguisé. [Martin Luther, Riffel, Kirchengeschichte]
 <br>
 <br>
-> Si je devais baptiser un Juif, je l’emmènerais jusqu’au pont de l’Elbe, lui accrocherais une pierre autour du cou et le pousserais avec ces mots « Je te baptise au nom d’Abraham. [Martin Luther, l’ancêtre spirituel de Hitler de Peter F. Weiner (1985, Gustav Broukal Press)]
+> Si je devais baptiser un Juif, je l’emmènerais jusqu’au pont de l’Elbe, lui accrocherais une pierre autour du cou et le pousserais avec ces mots « Je te baptise au nom d’Abraham. » [Martin Luther, l’ancêtre spirituel de Hitler de Peter F. Weiner (1985, Gustav Broukal Press)]
 <br>
 <br>
 > Si les paysans sont en rébellion ouverte, alors ils sont hors de la Loi de Dieu. Donc laissez tous ceux qui sont conscients les réduire, les frapper et les tuer (ceux qui se rebellent ouvertement ou secrètement), en se souvenant qu’il n’y a rien de plus venimeux, de plus nuisible ou diabolique qu’un rebelle. C’est exactement comme tuer un chien enragé. » [Martin Luther]

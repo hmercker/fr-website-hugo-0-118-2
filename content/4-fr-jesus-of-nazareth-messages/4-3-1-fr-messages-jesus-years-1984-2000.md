@@ -49,13 +49,11 @@ Jésus | [Jésus : La vérité et le voyage vers la perfection.](/fr-contemporar
 Jésus | [Atlantide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-10-18-1-dl-jesus/) | 18 Octobre 1988
 Jésus | [l'humanité commence à voir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-16-1-dl-jesus/) | 16 Janvier 1989
 Jésus | [Un espoir pour l'âme perdue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-22-1-ks-jesus/) | 22 Janvier 1989
-"Jésus | [Le porteur de bonnes nouvelles
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-3-24-1-dl-jesus/) | 24 Mars 1989"
+Jésus | [Le porteur de bonnes nouvelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-3-24-1-dl-jesus/) | 24 Mars 1989
 Jésus | [Jésus : L’importance de développer la nature d’amour.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-4-9-1-ks-jesus/) | 9 Avril 1989
 Jésus | [Le flux et reflux de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-10-1-1-dl-jesus/) | 1 Octobre 1989
 Jésus | [Pas à pas, le Royaume de Dieu se construit avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-10-1-1-ks-jesus/) | 1 Octobre 1989
-"Jésus | [La dissémination de la vérité et la réincarnation
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-1-10-1-dl-jesus/) | 10 Janvier 1990"
+Jésus | [La dissémination de la vérité et la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-1-10-1-dl-jesus/) | 10 Janvier 1990
 Jésus | [Gérer le legs d'une église](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-3-15-1-dl-jesus/) | 15 Mars 1990
 Jésus | [Confirmation de l'ordination](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-5-6-1-dl-jesus/) | 6 Mai 1990
 Jésus | [Insertions de volume](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-12-30-1-ar-jesus/) | 30 Décembre 1990
@@ -68,9 +66,7 @@ Jésus | [Pourquoi Jésus n’apparaît-il pas aux gens aujourd’hui, comme il 
 Jésus | [Le problème avec les Eglises](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-10-20-1-ks-jesus/) | 20 Octobre 1996
 Jésus | [Jésus répond à des questions sur Rembrant et Marc Chagall, donnant un aperçu de la vie dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-1-12-1-ks-jesus/) | 12 Janvier 1997
 Jésus | [Conseils sur la guérison... Commentaires sur les livres censés être écrits par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-2-1-1-ks-jesus/) | 1 Février 1997
-"Jésus | [
-Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse...
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-4-1-1-ks-jesus/) | 1 Avril 1997"
+Jésus | [Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse...](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-4-1-1-ks-jesus/) | 1 Avril 1997
 Jésus | [Avancer dans ce monde et dans l'autre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-5-17-1-ks-jesus/) | 17 Mai 1997
 Jésus | [Le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-6-1-dl-jesus/) | 6 Octobre 1997
 Jésus | [Beaucoup de travail en perspective](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-11-24-1-dl-jesus/) | 24 Novembre 1997

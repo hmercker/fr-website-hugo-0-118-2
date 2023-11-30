@@ -41,7 +41,7 @@ La retraite de Tibère à Capri s’est produite en l’an 26, exactement l’an
 
 Tibère a seulement essayé deux fois de  revenir à Rome, mais dans les deux occasions, alors qu’il était déjà proche, il s’est retourné et s’est dirigé vers le sud. Finalement, en l’an 37, Tibère est mort dans la ville de Misène, dans le sud de l’Italie, dans une villa de campagne de luxe qui avait autrefois appartenu au célèbre Lucius Licinius Lucullus, l’homme riche connu pour ses banquets opulents.
 
-Je crois que cela est suffisant sur Tibère. La chose importante est qu’il a laissé tout le pouvoir entre les mains de Lucius Aelius Sejanus. Et nous analyserons ce personnage dans notre prochain message.
+Je crois que cela est suffisant sur Tibère. La chose importante est qu’il a laissé tout le pouvoir entre les mains de Lucius Aelius Sejanus. Et nous analyserons ce personnage [dans notre prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-22-1-hr-judas/).
 
 À bientôt mon ami. Passe une bonne journée, remplie de bénédictions.
 

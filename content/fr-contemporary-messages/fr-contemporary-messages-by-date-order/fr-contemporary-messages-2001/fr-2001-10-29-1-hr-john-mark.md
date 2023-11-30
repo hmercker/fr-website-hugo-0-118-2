@@ -11,7 +11,7 @@ weight:
 
 Jean Marc - reçu par H____ le 29 Octobre 2001, Cuenca, Équateur.
 
-[Judas:]
+*[Judas :]*
 
 S’il te plaît, calme-toi, H____ , tout va bien. Oui, je sais, tu as vu un autre esprit, un garçon et un homme adulte. Oui, ils sont un seul et même esprit. Nous avons essayé de projeter ces images dans ton esprit, et il est ici maintenant. Je sais aussi que tu n’as pas bien reçu l’image de l’adulte, mais tu vas la recevoir. Il est ici maintenant et souhaite transmettre un message, pas directement pour toi, mais pour l’un de tes amis. Mais c’est un message précieux pour toi et pour tout le monde. Laisse-le parler. Tu ne seras pas déçu.
 
@@ -74,3 +74,5 @@ Oui, je l’appelle Jean et pas Marc. Jean ou Johann était son vrai nom. Lorsqu
 OK, je vais aussi te dire au revoir. Ce fut un message extérieur à notre calendrier, mais il fut utile.
 
 Nous continuerons demain. Jusqu’alors, avec mes bénédictions, ton frère en esprit, Judas de Kerioth
+
+© Geoff Cutler 2013

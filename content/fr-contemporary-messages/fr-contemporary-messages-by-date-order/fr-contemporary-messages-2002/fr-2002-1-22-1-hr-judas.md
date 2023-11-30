@@ -21,7 +21,7 @@ Tu n’as pas besoin de t’excuser. Cependant, je te conseille, si tu veux vrai
 
 Mais je vais répéter le début de mon message, car tu te rappelles seulement qu’il traitait de l’expression :
 
-> En vérité, je vous le dis, si vous ne vous convertissez pas et si vous ne devenez pas comme des petits enfants, vous n’entrerez pas dans le royaume des cieux.
+> *En vérité, je vous le dis, si vous ne vous convertissez pas et si vous ne devenez pas comme des petits enfants, vous n’entrerez pas dans le Royaume des Cieux.*
 
 La raison pour laquelle j’ai l’intention de délivrer un message sur ce sujet est l’avis que tu as exprimé que les enfants ont un contact beaucoup plus naturel avec les esprits, mais que cette médiumnité innée se perd ou est réprimée à cause de l’influence de la société adulte.
 
@@ -35,7 +35,7 @@ En fait, c’est au sujet de ce que tu as lu dans le message par le biais de M__
 
 *[H : Je suppose que tu fais [référence à celui-ci](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-5-2-jep-ann-rollins/) :]*
 
-> Et la sixième sphère est la plus prolifique en matière d’épreuve, en ce sens que bon nombre de ces esprits sont réveillés à la nécessité de chercher l’évolution de leur âme. Étant donné que certains de ces esprits sont là depuis longtemps ils commencent à se rendre compte de cette limitation à leur bonheur mental. Et, aussi étrange que cela puisse paraître pour toi, ils font souvent leur premier pas en appelant les souvenirs de leur enfance, quand on leur enseignait et qu’ils croyaient que Dieu les aimait, et que Son Amour était la plus grande chose dans le monde entier. Tu vois ici illustré, d’une manière dont tu n’aurais probablement jamais pensé, la parole de Jésus : « à moins que vous ne deveniez des petits enfants, vous ne pourrez pas entrer dans le Royaume des cieux.
+> Et la sixième sphère est la plus prolifique en matière d’épreuve, en ce sens que bon nombre de ces esprits sont réveillés à la nécessité de chercher l’évolution de leur âme. Étant donné que certains de ces esprits sont là depuis longtemps ils commencent à se rendre compte de cette limitation à leur bonheur mental. Et, aussi étrange que cela puisse paraître pour toi, ils font souvent leur premier pas en appelant les souvenirs de leur enfance, quand on leur enseignait et qu’ils croyaient que Dieu les aimait, et que Son Amour était la plus grande chose dans le monde entier. Tu vois ici illustré, d’une manière dont tu n’aurais probablement jamais pensé, la parole de Jésus : *« à moins que vous ne deveniez des petits enfants, vous ne pourrez pas entrer dans le Royaume des Cieux.*
 
 Correct. Je me réfère exactement à celle-ci.
 

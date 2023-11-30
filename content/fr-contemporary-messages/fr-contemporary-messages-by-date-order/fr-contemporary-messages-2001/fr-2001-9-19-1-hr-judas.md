@@ -21,7 +21,7 @@ Les événements, qui sont sur le point d’avoir lieu, seront des événements 
 
 Mais maintenant nous allons oublier cette triste situation et parler de la troisième sphère.
 
-Tu te souviens comment les esprits dans la dernière étape de la deuxième sphère arrivent à la prise de conscience qu’ils doivent accomplir un travail afin de venir en aide aux autres. Ils appellent ce travail une tâche « d’expiation », car, selon leur compréhension, c’est un travail qu’ils doivent effectuer en partie pour racheter leurs péchés et en partie pour rembourser l’aide qu’ils ont eux-mêmes reçue, et, qu’en fait, ils continuent à recevoir.
+Tu te souviens comment les esprits dans la dernière étape de la deuxième sphère arrivent à la prise de conscience qu’ils doivent accomplir un travail afin de venir en aide aux autres. Ils appellent ce travail une tâche *« d’expiation »*, car, selon leur compréhension, c’est un travail qu’ils doivent effectuer en partie pour racheter leurs péchés et en partie pour rembourser l’aide qu’ils ont eux-mêmes reçue, et, qu’en fait, ils continuent à recevoir.
 
 Les esprits de la troisième sphère sont pleinement qualifiés pour accorder leur aide aux esprits des sphères inférieures. Tu te souviens que Jésus a expliqué, par l’intermédiaire de M. Padgett et du Dr. Samuels, que le fait que les esprits les plus développés aident les esprits moins développés constitue une loi. Dans son [commentaire sur la Bible d’Oahspe](/fr-samuels-messages/fr-revelations/fr-rev-21-1955-10-17-samuels-jesus/), il dissipe la superstition que la guerre existe dans le monde des esprits et plus particulièrement entre les habitants des différentes sphères, et il met en avant le principe de l’entraide.
 

@@ -43,19 +43,19 @@ C’est exactement cette frustration, résultant de *« l’ouverture de l’œi
 
 Je vais écrire à nouveau [ce que je t’ai déjà écrit il y a plusieurs mois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-5-1-hr-judas/) :
 
-> Lorsque tu parviens à te convertir à cette attitude, celle d’aller au Père, dans une partie de ta vie, ta spiritualité ne sera plus comme des montagnes russes, avec des hauts et des bas. Te rappelles-tu ce que tu as lu dans le [message de Marie Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) à Amada Reza ?
+> Lorsque tu parviens à te convertir à cette attitude, celle d’aller au Père, dans une partie de ta vie, ta spiritualité ne sera plus comme des montagnes russes, avec des hauts et des bas. Te rappelles-tu ce que tu as lu dans [le message de Marie Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) à Amada Reza ?
 <br>
 <br>
-> C’est extraordinaire que tu réalises que ta nature spirituelle est ta vraie nature ; tu ne seras pas autant affecté par le monde physique, toujours sujet à des changements, par rapport à celui qui place toute sa confiance dans les soi-disant réalités.
+> *C’est extraordinaire que tu réalises que ta nature spirituelle est ta vraie nature ; tu ne seras pas autant affecté par le monde physique, toujours sujet à des changements, par rapport à celui qui place toute sa confiance dans les soi-disant réalités.*
 <br>
 <br>
-> Si tu recherches la stabilité, repose toi sur des choses qui sont stables.
+> *Si tu recherches la stabilité, repose toi sur des choses qui sont stables.*
 
 La route vers le Père est une route lisse si tu sais comment demander Son aide. Ce n’est pas un chemin jonché de décombres où tu tombes de nid-de-poule en nid-de-poule. Les nids-de-poule sont les produits de ton esprit.
 
 C’est exactement cette insatisfaction que tu ressens, qui constitue le carburant pour progresser dans le monde des esprits. Ici, sur terre, tu auras peut-être l’impression que tu tournes en rond, sans progresser, mais n’oublie pas: Déjà maintenant, en ce moment même, tu entreprends un voyage parallèle dans le vaste monde des esprits.
 
-C’est fantastique de recevoir l’Amour du Père, mais c’est seulement une partie de l’ouvrage. Il ne suffit pas d’être un « consommateur », tu dois activer cet amour en toi, parce que seulement de cette façon, tu peux conserver ta spiritualité sur un niveau constant et tes « yeux de frustration » deviendront des « yeux d’amour. »
+C’est fantastique de recevoir l’Amour du Père, mais c’est seulement une partie de l’ouvrage. Il ne suffit pas d’être un « consommateur », tu dois activer cet amour en toi, parce que seulement de cette façon, tu peux conserver ta spiritualité sur un niveau constant et tes*« yeux de frustration »* deviendront des *« yeux d’amour. »*
 
 Que ta journée soit remplie de bénédictions.
 

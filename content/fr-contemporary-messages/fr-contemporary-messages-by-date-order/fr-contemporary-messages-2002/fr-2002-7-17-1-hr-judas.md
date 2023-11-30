@@ -60,13 +60,13 @@ Te souviens-tu de cela ?
 > Un temps de guerre et un temps de paix.
 <br>
 <br>
-> Ecclésiaste 3 1:9
+> [Ecclésiaste 3 1:9](https://saintebible.com/ecclesiastes/3-1.htm)
 
 Oui, pour chaque chose, il y a une saison. Je sais distinguer quand il est temps de te parler et quand tu as besoin d’être seul.
 
-Ah, B____ ! Il se trompe en disant que je t’ai abandonné. Combien de fois t’ai-je dit que je suis toujours avec toi ? Même si tu ne me vois pas, même si tu ne veux pas me parler, je suis là, encore plus quand tu te sens bien et que tu as besoin de ma présence. Je suis là et je serai toujours là. Le fait que tu ne me perçoives pas ou que tu ne veuilles pas me percevoir ne change rien au  fait que je suis présent.
+Ah, B____ ! Il se trompe en disant que je t’ai abandonné. Combien de fois t’ai-je dit que je suis toujours avec toi ? Même si tu ne me vois pas, même si tu ne veux pas me parler, je suis là, encore plus quand tu te sens bien et que tu as besoin de ma présence. Je suis là et je serai toujours là. Le fait que tu ne me perçoives pas ou que tu ne veuilles pas me percevoir ne change rien au fait que je suis présent.
 
-Je trouve étrange que tu te sentes coincé. Crois-tu que Dieu existe ? Crois-tu que Dieu est bon, qu’il est pur Amour? Crois-tu que Ses intentions pour l’humanité sont les plus pure? Crois-tu qu’Il destine toutes les personnes à une fin heureuse ? Le crois-tu seulement ou en as-tu aussi la certitude ?
+Je trouve étrange que tu te sentes coincé. Crois-tu que Dieu existe ? Crois-tu que Dieu est bon, qu’il est pur Amour ? Crois-tu que Ses intentions pour l’humanité sont les plus pure ? Crois-tu qu’Il destine toutes les personnes à une fin heureuse ? Le crois-tu seulement ou en as-tu aussi la certitude ?
 
 C’est ce qu’on appelle la foi, ce dont nous avons déjà parlé plusieurs fois. Mais je te le demande, sachant tout cela avec certitude, que dois-tu savoir de plus afin de te se sentir heureux ? Avons-nous oublié de communiquer quelque chose d’important ?
 

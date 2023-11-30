@@ -69,7 +69,7 @@ Maintenant, va et écris ce que je t’ai dit. Et n’oublie pas, même si tu ne
 
 (Rires de Judas) Oui et non, car le caractère change. Mais c’est vrai, mon personnage sur terre était un peu comme le tien, à ce qu’il semble. Très impulsif, impatient, irritable même, peu d’humilité, sachant tout mieux, encore mieux que le Maître… mais je ne vais pas énumérer tous les points négatifs, je ne veux pas que tu sois effrayé. Les hommes ont leurs défauts, mais fixe toi un objectif, si tu veux vraiment travailler à ta perfection.
 
-Je t’aime et je prends soin de toi.
+Je t’aime et je prendrai soin de toi.
 
 Ton frère, Judas.
 

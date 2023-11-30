@@ -23,7 +23,7 @@ Dans le même esprit, lorsqu’ils ont réalisé que le Messie, selon les écrit
 
 Mais je t’ai dit que le meurtre des enfants et la fuite de la famille en Égypte se sont réellement passés. Il est vrai que Mathieu lui-même n’a pas écrit cela dans son Évangile. Cependant, bien que ce fut ajouté plus tard, cela repose sur des faits réels. Il y a eu beaucoup de traditions au sujet de Jésus qui, quelques décennies après sa mort, ont été intégrées dans l’histoire de l’Évangile, avec des embellissements, des distorsions, etc.. Mais beaucoup de ces histoires reposent sur des faits réels.
 
-Lorsque Joseph, Marie et l’enfant Jésus sont allés en Égypte, il y avait, en théorie, plusieurs destinations possibles. La ville avec la plus grande population Juive en dehors de la Palestine était Alexandrie, où la science et les arts ont prospéré. Mais outre cette imposante ville et capitale de la province romaine d’Égypte, il y avait beaucoup d’autres centres Juifs dans ce pays, comme sur l’île Éléphantine ou près d’Héliopolis <sup id="a1">[1](#f1)</sup>. Et c’est précisément vers cette ville que s’est dirigé Joseph. Dans sa périphérie vivaient des membres de sa famille, aussi il espérait y trouver de l’aide et prendre, lui et sa famille, un nouveau départ.
+Lorsque Joseph, Marie et l’enfant Jésus sont allés en Égypte, il y avait, en théorie, plusieurs destinations possibles. La ville avec la plus grande population Juive en dehors de la Palestine était Alexandrie, où la science et les arts ont prospéré. Mais outre cette imposante ville et capitale de la province romaine d’Égypte, il y avait beaucoup d’autres centres Juifs dans ce pays, comme sur l’île Éléphantine ou près d’Héliopolis<sup id="a1">[1](#f1)</sup>. Et c’est précisément vers cette ville que s’est dirigé Joseph. Dans sa périphérie vivaient des membres de sa famille, aussi il espérait y trouver de l’aide et prendre, lui et sa famille, un nouveau départ.
 
 Tu as fait  des recherches sur le contexte de cette histoire pas très connue, aussi je propose que tu partages ce que tu as découvert.
 
@@ -71,9 +71,9 @@ Que Dieu te bénisse.
 
 Judas.
 
-![](/fr-judas-of-kerioth-messages/fr-matthaeus_large.jpg)
+![](/3-fr-judas-of-kerioth-messages/fr-matthaeus_large.jpg)
 
-*St Matthieu*
+        *St Matthieu*
 
 © Geoff Cutler 2013
 <small>

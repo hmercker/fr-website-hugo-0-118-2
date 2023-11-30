@@ -21,7 +21,7 @@ Comme je l’ai expliqué dans les messages précédents, tous les mortels poss�
 
 Maintenant, la question est, comment est choisi le guide d’une personne ?
 
-Le principe fondamental dans ce processus est, une fois de plus, la Loi de l’Attraction. Quand les gens décident d’aller de l’avant avec la spiritualité Catholique, ils recevront un esprit de la même inclinaison, mais avec un développement plus élevé, afin de leur offrir aide et service. La même chose arrive avec les Luthériens, les Méthodistes, les Baptistes, les Bouddhistes, les Musulmans, etc. En d’autres termes, la décision de l’approfondissement de la spiritualité ne signifie pas qu’un esprit de la voie Céleste sera affecté directement à cette direction. Toutefois, lorsque les gens prennent vraiment intérêt dans cette voie, et quand ils prient pour l’Amour Divin du Père, alors c’est un esprit de cette inclinaison qui les accompagne. Ce n’est pas nécessairement un esprit des Cieux Célestes. Cela peut être un esprit avancé de la cinquième ou même de la septième sphère. Tout dépend de l’affinité existant entre le guide et celui qui est guidé.
+Le principe fondamental dans ce processus est, une fois de plus, la Loi de l’Attraction. Lorsque  les gens décident d’aller de l’avant avec la spiritualité Catholique, ils recevront un esprit de la même inclinaison, mais avec un développement plus élevé, afin de leur offrir aide et service. La même chose arrive avec les Luthériens, les Méthodistes, les Baptistes, les Bouddhistes, les Musulmans, etc. En d’autres termes, la décision de l’approfondissement de la spiritualité ne signifie pas qu’un esprit de la voie Céleste sera affecté directement à cette direction. Toutefois, lorsque les gens prennent vraiment intérêt dans cette voie, et quand ils prient pour l’Amour Divin du Père, alors c’est un esprit de cette inclinaison qui les accompagne. Ce n’est pas nécessairement un esprit des Cieux Célestes. Cela peut être un esprit avancé de la cinquième ou même de la septième sphère. Tout dépend de l’affinité existant entre le guide et celui qui est guidé.
 
 Les guides ne sont pas toujours en charge d’un seul mortel. Ils peuvent s’occuper de plusieurs mortels en même temps, comme dans mon cas. Tu n’es pas le seul dont j’ai la charge, il y en d’autres qui bénéficient de mes efforts. Tous les esprits Célestes ne travaillent pas comme guides, beaucoup ont d’autres fonctions. Tout dépend de l’inclinaison et des aptitudes individuelles.
 
@@ -55,7 +55,7 @@ Tu trouveras parfois que, lorsque tu écoutes ta voix intérieure et t’aventur
 
 Parie sur Dieu, mon cher frère et prie pour son amour. Tu verras comment un équilibre étonnant se formera entre tes nécessités matérielles et spirituelles. Une symbiose se construira entre les facettes du monde des mortels, et que, de cette façon, tu trouveras la paix et le bonheur.
 
-N’oublie pas, la spiritualité est toujours une attitude. Il n’est pas question de connaissance, mais de mode de vie.
+*N’oublie pas, la spiritualité est toujours une attitude. Il n’est pas question de connaissance, mais de mode de vie.*
 
 Puisse Dieu te bénir toujours.
 

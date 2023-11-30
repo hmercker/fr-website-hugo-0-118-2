@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 4 Novembre 2001, Cuenca, Équateur.
 
-Mon cher frère H____ , plusieurs jours se sont écoulés depuis notre dernière rencontre. Une fois de plus tu as repris  l’habitude de ne pas me consacrer suffisamment de temps afin que je puisse délivrer mes messages. Je comprends très bien que tu veuilles, minutieusement, tout savoir mais c’est mon devoir de t’informer que tu fais erreur.
+Mon cher frère H____ , plusieurs jours se sont écoulés depuis notre dernière rencontre. Une fois de plus tu as repris l’habitude de ne pas me consacrer suffisamment de temps afin que je puisse délivrer mes messages. Je comprends très bien que tu veuilles, minutieusement, tout savoir mais c’est mon devoir de t’informer que tu fais erreur.
 
 Je fais référence à ton intérêt récent pour la psychologie et la psychanalyse. Tu penses être en mesure de trouver beaucoup de réponses sur la médiumnité, ou plutôt, sur la réception des messages et sur la manière dont ces messages sont traités dans le cerveau, quelles sont les influences qui peuvent conduire à une distorsion de ces messages et s’il y a quelque valeur cachée en eux, formulée sous une forme symbolique, qui ne serait pas, à première vue, visible.
 

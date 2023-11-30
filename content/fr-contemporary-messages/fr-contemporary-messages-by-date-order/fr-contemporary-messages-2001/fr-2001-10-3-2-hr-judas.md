@@ -15,7 +15,7 @@ Judas - reçu par H____ le 3 Octobre 2001, Cuenca, Équateur.
 
 Bonjour, H____ , je suis vraiment heureux que nous ayons trouvé l’occasion pour délivrer un autre message. Bien que ce ne soit pas un récit sur la vie de Jésus, je voudrais profiter de cette occasion pour parler, plus en détail, des événements qui sont survenus, en Galilée, à l’époque où Marie et Joseph ont fui, et tracer des parallèles à la situation actuelle.
 
-Galilée se dit en Hébreu « gelil ha goyim », ce qui signifie « district des peuples» ou « quartier des gentils ». Et c’est vrai, la plupart de la population n’était pas juive, c’était des Gentils. Il y avait des gens de tous les coins du monde, des Juifs, bien sûr, des Phéniciens, des Syriens, des Arabes, des Babyloniens, des grecs, des Celtes, des Romains et beaucoup d’autres. En fait, cette région appartenait à Israël depuis seulement 200 ans.
+Galilée se dit en Hébreu « gelil ha goyim », ce qui signifie *« district des peuples »* ou *« quartier des gentils »*. Et c’est vrai, la plupart de la population n’était pas juive, c’était des Gentils. Il y avait des gens de tous les coins du monde, des Juifs, bien sûr, des Phéniciens, des Syriens, des Arabes, des Babyloniens, des grecs, des Celtes, des Romains et beaucoup d’autres. En fait, cette région appartenait à Israël depuis seulement 200 ans.
 
 Le Judaïsme en Galilée était donc très libéral, et les liens avec le Temple de Jérusalem, même s’ils ont existé, n’ont pas eu la même force qu’en Judée.
 
@@ -39,7 +39,7 @@ J’appelle cette phase, la phase de la vérité. Il est nécessaire d’appeler
 
 C’est vrai, c’est une entreprise dangereuse. Il y a de nombreux pays où l’expression de la vérité comporte des risques élevés, où elle peut coûter très cher. Oui, si l’humanité veut améliorer sa situation, elle a besoin de valeur, d’énormément de valeur. Cela signifie laver le linge sale à la lumière du public. Cela causera de la honte, oui, cela exigera du caractère et de la grandeur, plus de grandeur que cette mauvaise attitude d’incitation à la guerre et au massacre. Tout cela sera un processus long et douloureux, et il ne constitue que la première étape. L’humanité a déjà vécu des milliers d’années en dysharmonie, et cela ne va pas changer du jour au lendemain. Il faut du temps, cela exige de la force et fera des victimes.
 
-Les politiciens et les soldats, qui veulent tuer des terroristes, évidemment ne voient pas ou ne veulent pas voir que la deuxième génération de terroristes a déjà grandi. Il y a une vieille et pas très souvent appliquée sagesse : « La violence provoque la violence », ou comme le prophète Osée l’a exprimée : « Car ils ont semé le vent, et ils récolteront la tempête. »
+Les politiciens et les soldats, qui veulent tuer des terroristes, évidemment ne voient pas ou ne veulent pas voir que la deuxième génération de terroristes a déjà grandi. Il y a une vieille et pas très souvent appliquée sagesse : *« La violence provoque la violence »*, ou comme le prophète Osée l’a exprimée : *« Car ils ont semé le vent, et ils récolteront la tempête. »*
 
 Il est nécessaire de briser ce cycle de la violence, et il est nécessaire de le casser maintenant. Il est dit que les marécages de la corruption doivent être asséchés. C’est vrai. Je veux amplifier cela encore plus, il est nécessaire d’assécher les marais de la dysharmonie. Et pour ce faire, il est essentiel d’abord de voir ces marais, d’admettre leur existence et de dire la vérité, ceci est la première étape.
 

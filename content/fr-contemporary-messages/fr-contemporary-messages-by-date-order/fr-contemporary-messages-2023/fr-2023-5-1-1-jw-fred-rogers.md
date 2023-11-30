@@ -20,6 +20,4 @@ Tant de gens transitent vers la vie spirituelle en ayant besoin d’amour, de so
 Que Dieu bénisse chacun de vous. Je suis votre frère et ami en Christ sur le chemin Céleste vers le royaume de Dieu. Je suis Fred Rogers. Allez dans la joie et la paix.
 <small>
 
-1. <large id=”f1”> [Voir Exode 20 : 5-6](https://saintebible.com/exodus/20-5.htm) *« Tu ne te prosterneras point devant elles, et tu ne les serviras point; car moi, l’Éternel, ton Dieu, je suis un Dieu jaloux, qui[ punis ]l’iniquité des pères sur les enfants jusqu’à la troisième et la quatrième génération de ceux qui me haïssent, et qui fais miséricorde jusqu’en mille générations à ceux qui m’aiment et qui gardent mes commandements. »*[↩](#a1)
-
-Note 1 : 
+1. <large id="f1"> [Voir Exode 20 : 5-6](https://saintebible.com/exodus/20-5.htm) *« Tu ne te prosterneras point devant elles, et tu ne les serviras point; car moi, l’Éternel, ton Dieu, je suis un Dieu jaloux, qui[ punis ]l’iniquité des pères sur les enfants jusqu’à la troisième et la quatrième génération de ceux qui me haïssent, et qui fais miséricorde jusqu’en mille générations à ceux qui m’aiment et qui gardent mes commandements. »*[↩](#a1)

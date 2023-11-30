@@ -46,7 +46,7 @@ Je suppose que je le suis aussi. Que pensez-vous que cela puisse être ?
 
 *[L’Amour du Père est d’une substance différente de tous les autres amours que vous trouverez. Le sien est de Sa Substance. Tous les autres ne sont qu’une image sans la Substance. Lorsque vous priez le Père d’être rempli de Son Amour, il commencera éventuellement à entrer dans le tissu même de votre être et vous serez transformé en un être, tout en restant vous, qui a l’apparence de la lumière. Peut-être pourriez-vous dire : comme la Lumière du Père. Regardez autour de vous maintenant et vous verrez un esprit très lumineux. Demande à aller avec lui et demandez-lui de vous parler de l’Amour Divin du Père, de Sa Substance, et de la façon dont il a commencé à me transformer – même si je suis encore un mortel et à peine parfait.]*
 
-D’accord, je vais aller avec (je vois que vous avez du mal à le croire) A. G. Riddle, que vous aimez beaucoup, je le vois. Et je vais écouter ce qu’il dit.
+D’accord, je vais faire avec (je vois que vous avez du mal à le croire) A. G. Riddle, que vous aimez beaucoup, je le vois. Et je vais écouter ce qu’il dit.
 
 *[Et n’oubliez pas l’action : la prière, la recherche de l’expiation, et la demande de Son Amour. Et bien que nous ne nous soyons jamais rencontrés de notre vivant, et que j’ai du mal à croire qu’il soit si proche de moi : Pourtant, à mon avis, AGR est l’un des meilleurs interlocuteurs.]*
 

@@ -41,7 +41,7 @@ Jésus de la Bible et Maître des Cieux Célestes.
 
 Note 1 : J'ai reçu des informations qui remettent en question l'exactitude de ce nom, et il semblerait que ce ne soit probablement pas le cas. En médiumnité, la réception précise des noms et des dates est très difficile. Voici le commentaire dans son intégralité :
 
-> Lorsque j’ai essayé de chercher le roi de Judée mentionné (Rékah de Judée), je n’ai trouvé personne portant ce nom ou même un nom qui lui ressemblait beaucoup. Par ailleurs, en prenant en compte la première phrase du paragraphe suivant, qui se lit :
+> *« Lorsque j’ai essayé de chercher le roi de Judée mentionné (Rékah de Judée), je n’ai trouvé personne portant ce nom ou même un nom qui lui ressemblait beaucoup. Par ailleurs, en prenant en compte la première phrase du paragraphe suivant, qui se lit :
 <br>
 <br>
 > En fait, ces principautés étaient tellement contrariées par la passivité de la Judée à cette époque (environ 738 av. J.-C.) qu’elles décidèrent d’attaquer Jérusalem. Comme je l’ai mentionné dans mon premier sermon sur Isaïe, Achaz, fils de Jotham, était sur le trône de Judée.
@@ -50,6 +50,6 @@ Note 1 : J'ai reçu des informations qui remettent en question l'exactitude de c
 > Il semble donc qu’Achaz était alors roi de Judée et non un roi nommé Rékah. Et qui plus est : il est très peu probable que Rezin de Syrie conspire avec un roi de Judée, réputé passif.
 <br>
 <br>
-> Alors, j'ai commencé à regarder autour de moi, et ce que j'ai découvert, c'est que Rezin avait effectivement conspiré contre Juda en se rangeant du côté de l'Égypte, et il l'avait fait avec un roi israélite nommé Pékah, un nom qui ressemble beaucoup au nom de Rékah. Donc, je conclus que la mention de Rékah de Judée me semble être un lapsus de la plume et devrait se lire : Rékah d’Israël. (Source : jvsjohn)
+> Alors, j'ai commencé à regarder autour de moi, et ce que j'ai découvert, c'est que Rezin avait effectivement conspiré contre Juda en se rangeant du côté de l'Égypte, et il l'avait fait avec un roi israélite nommé Pékah, un nom qui ressemble beaucoup au nom de Rékah. Donc, je conclus que la mention de Rékah de Judée me semble être un lapsus de la plume et devrait se lire : Rékah d’Israël. »* (Source : jvsjohn)
 ​
 

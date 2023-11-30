@@ -19,7 +19,7 @@ Lorsque j’ai appelé à la porte, j’ai trouvé Jésus rassemblé avec ses di
 
 Mais pour continuer dans l’ordre, ce fut Pierre qui m’a reçu et accueilli dans la maison. Il m’a conduit au Maître qui était assis avec les autres disciples sur la terrasse de la maison. Quand il m’a vu, il a souri et a demandé: *« Qui es-tu ? »*
 
-*« Je suis Judas, de la ville de Kerioth dans le sud de la Judée. Je suis à ta recherche. »*
+*« Je suis Judas, de la ville de Kerioth dans le sud de la Judée. Je suis à votre recherche. »*
 
 *« Tu me cherches ? Pourquoi ? »*
 

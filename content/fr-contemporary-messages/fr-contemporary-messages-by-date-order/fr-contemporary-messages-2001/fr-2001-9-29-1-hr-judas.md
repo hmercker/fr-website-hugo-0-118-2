@@ -15,7 +15,7 @@ Bonjour, mon cher frère. Je suis Judas. Oui, je sais que tu n’étais pas cert
 
 Je voudrais parler aujourd’hui de plusieurs questions.
 
-La première question, que j’ai l’intention de traiter, concerne le divorce. Tu sais très bien que Jésus a délivré, au [Dr Samuels, un message détaillé sur le divorce](/fr-samuels-messages/fr-revelations/fr-rev-13-3-6-january-1955-samuels-jesus/), expliquant ce que Matthieu a écrit sur le sujet.25 En pratique, ce message a dit tout ce qui peut être dit, que le divorce est toujours un symptôme d’inharmonie, reflétant un manque de purification de l’amour naturel et, ce qui est très important de garder à l’esprit, que la seule justification de l’existence ou la continuation du mariage est l’amour entre les époux.
+La première question, que j’ai l’intention de traiter, concerne le divorce. Tu sais très bien que Jésus a délivré, au [Dr Samuels, un message détaillé sur le divorce](/fr-samuels-messages/fr-revelations/fr-rev-13-3-6-january-1955-samuels-jesus/), expliquant ce que Matthieu a écrit sur le sujet. En pratique, ce message a dit tout ce qui peut être dit, que le divorce est toujours un symptôme d’inharmonie, reflétant un manque de purification de l’amour naturel et, ce qui est très important de garder à l’esprit, que la seule justification de l’existence ou la continuation du mariage est l’amour entre les époux.
 
 Je tiens à ajouter que le mariage est une institution humaine, établissant certaines règles et sécurités dans la société, et qu’il n’est pas une institution Divine. Avec cela je veux dire que la simple vie commune de deux personnes sans un certificat de mariage constitue aussi un mariage sous les yeux de Dieu, parce qu’il est supposé remplir la même fonction et assumer les mêmes obligations. Le certificat de mariage est un document vide si le comportement des époux ne reflète pas l’engagement de l’amour qu’ils ont conclu en se promettant fidélité et vie ensemble, pour le meilleur et le pire, jusqu’à leur mort.
 
@@ -27,7 +27,7 @@ Parfois les gens semblent croire que le divorce est comme un remède, mais en fa
 
 Mais, lorsque le mal est déjà fait, il faut au moins profiter de cette occasion pour  méditer et analyser l’état de ton amour naturel. Tu trouveras sûrement beaucoup à travailler, même si tu peux sentir que tu es la partie innocente dans ce divorce. N’analyse pas le blâme de l’autre, analyse ta propre contribution au problème et détermine où tu te situes vraiment dans ta spiritualité. La purification de l’âme nécessite un travail, elle exige une action. Et seulement alors, tu peux éviter la prochaine erreur préprogrammée. Prie. Peu importe ce qui est arrivé, n’arrête jamais d’aimer. Lorsque tu perds l’amour, tu perds tout.
 
-Mais changeons de sujet, quand j’ai lu l’idée de Geoff sur la [Galerie des Apôtres](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/), j’ai souri.
+Mais changeons de sujet, quand j’ai lu l’idée de Geoff sur la [Galerie des Apôtres](/3-fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/)<sup id="a1">[1](#f1)</sup>, j’ai souri.
 
 Cher Geoff, il n’y a jamais eu douze apôtres. Tu sais les apôtres étaient simplement les plus intimes disciples de Jésus, mais nous ne pouvons pas déterminer leur nombre. Je te conseille de lire les parties pertinentes des quatre Évangiles, où les douze apôtres sont réellement mentionnés, tu remarqueras alors que l’énumération des noms ne coïncide pas.
 
@@ -37,19 +37,19 @@ Le nombre douze est un nombre mythique, exprimant la perfection. Une partie impo
 
 Le livre dit :
 
-> Et j’entendis le nombre de ceux qui avaient été marqués du sceau, cent quarante-quatre mille, de toutes les tribus des fils d’Israël :
+> *Et j’entendis le nombre de ceux qui avaient été marqués du sceau, cent quarante-quatre mille, de toutes les tribus des fils d’Israël :*
 <br>
 <br>
-> De la tribu de Juda ils étaient douze mille. De la tribu de Ruben ils étaient douze mille. De la tribu de Gad ils étaient douze mille.
+> *De la tribu de Juda ils étaient douze mille. De la tribu de Ruben ils étaient douze mille. De la tribu de Gad ils étaient douze mille.*
 <br>
 <br>
-> De la tribu d’Aser ils étaient douze mille. De la tribu de Nephtalim ils étaient douze mille. De la tribu de Manassé ils étaient douze mille.
+> *De la tribu d’Aser ils étaient douze mille. De la tribu de Nephtalim ils étaient douze mille. De la tribu de Manassé ils étaient douze mille.*
 <br>
 <br>
-> De la tribu de Siméon ils étaient douze mille. De la tribu de Lévi ils étaient douze mille. De la tribu d’Issachar ils étaient douze mille.
+> *De la tribu de Siméon ils étaient douze mille. De la tribu de Lévi ils étaient douze mille. De la tribu d’Issachar ils étaient douze mille.*
 <br>
 <br>
-> De la tribu de Zabulon ils étaient douze mille. De la tribu de Joseph ils étaient douze mille. De la tribu de benjamin ils étaient douze mille.
+> *De la tribu de Zabulon ils étaient douze mille. De la tribu de Joseph ils étaient douze mille. De la tribu de benjamin ils étaient douze mille.*
 
 Douze fois douze font cent quarante-quatre, c’est plus que parfait, c’est la perfection magnifiée. Les scribes qui ont formulé ce texte furent heureux lorsqu’ils révisèrent les tribus d’Israël une fois de plus : 1 Juda, 2. Ruben, 3. Gad, 4. Aser, 5. Nephtali, 6. Manassé, 7. Siméon, 8. Levi, 9. Issachar, 10. Zabulon, 11. Joseph, 12. Benjamin. C’était parfait !!!
 
@@ -68,3 +68,7 @@ Dors bien et n’oublie pas que je suis avec toi.
 Avec mon amour, ton frère, Judas.
 
 © Geoff Cutler 2013
+<small>
+
+1. <large id="f1'"> <u>Note de l’éditeur original</u> : Pour anticiper la réception les 12 images, j’avais créé une page web avec 12 emplacements. Je n’avais communiqué à personne ce fait. Judas apparemment avait regardé par-dessus mes épaules. Malheureusement toutes les images promises ne sont pas matérialisées, mais nous avons néanmoins les portraits de 9 apôtres plus celui de Pilate. Mon portrait favori est celui de Jacques parce qu’il ressemble beaucoup à Jésus..[↩](#a1)
+

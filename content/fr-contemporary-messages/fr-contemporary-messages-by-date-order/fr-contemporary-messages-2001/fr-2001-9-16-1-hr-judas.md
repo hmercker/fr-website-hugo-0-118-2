@@ -1,13 +1,13 @@
 ---
-title: "La seconde sphere"
+title: "La seconde sphère"
 menu_title: ""
-description: "La seconde sphere"
+description: "La seconde spèere"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True
 weight:
 ---
-### La seconde sphere
+### La seconde sphère
 
 Judas - reçu par H____ le 16 Septembre 2001, Cuenca, Équateur.
 
@@ -45,7 +45,7 @@ Les esprits qui décident finalement de poursuivre la voie vers la Divinité en 
 
 Oui, il y en a et même il y en a un bon nombre d’entre eux. Tout repose sur le développement de leur âme. Comme je l’ai dit, la grande majorité arrive sur les plans terrestres, principalement dans la zone crépusculaire, mais beaucoup ont suffisamment de développement pour vivre dans la seconde sphère. Ce sont les mortels qui ont compris que ce n’est pas le matérialisme qui mène à la réalisation, et qui se sont consacrés au développement spirituel à cent pour cent.
 
-Et comme le dit la chanson : « Et la fête, que nous avions pensé sans fin, touche également, comme toute chose, à sa fin. »
+Et comme le dit la chanson : *« Et la fête, que nous avions pensé sans fin, touche également, comme toute chose, à sa fin. »*
 
 Vient alors le jour où, pour tous les habitants de la deuxième sphère, leur environnement ne peut plus offrir quoi que ce soit de nouveau, et où leur progression stagne. Comme tu l’auras compris, ce domaine se compose d’un grand nombre de divers niveaux et plans, mais, un jour, chaque esprit arrive au niveau supérieur. Alors, il y a plus rien pour eux qu’ils puissent faire ou apprendre. Ils sont prêts pour leur transition vers un nouveau monde. Mais afin d’effectuer, une fois de plus, cette transition, un changement profond se produit dans la conscience de ces esprits.
 

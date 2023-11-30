@@ -26,7 +26,7 @@ Judas | [Le fils prodigue](/fr-contemporary-messages/fr-contemporary-messages-by
 Judas | [Le vrai sens des paroles de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-19-1-hr-judas/) | 19 Février 2002
 Judas | [Les noces de Cana](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-3-1-hr-judas/) | 3 Mars 2002
 Judas | [Levez-vous et soyez comptés (2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-16-1-hr-judas/) | 16 Avril 2002
-Judas | [L’administrateur infidel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-19-1-hr-judas/) | 19 Avril 2002
+Judas | [L’administrateur infidèle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-19-1-hr-judas/) | 19 Avril 2002
 Judas | [Le bon Samaritain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-3-1-hr-judas/) | 3 Mai 2002
 Judas | [La Parabole de l’amandier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-27-1-hr-judas/) | 27 Janvier 2003
 Judas | [La parabole du bois pourri](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-31-1-hr-judas/) | 31 Janvier 2003
