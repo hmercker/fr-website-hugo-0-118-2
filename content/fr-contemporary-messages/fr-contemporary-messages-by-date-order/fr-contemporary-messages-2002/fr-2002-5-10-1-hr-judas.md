@@ -25,8 +25,7 @@ Comme dernière et facile ressource, l’enquêteur analyse les écritures ancie
 
 L’écrivain portugais, José Saramago, récompensé par le prix Nobel de littérature, un homme brillant qui possède une grande maîtrise de la langue, a consacré beaucoup de temps à ses études Bibliques et il a formulé ses propres conclusions. Il a même réinterprété les Évangiles, en conservant l’essence de l’histoire biblique, mais en y ajoutant une bonne dose de « réalisme. » Dans son travail, nous trouvons plusieurs déclarations sur Dieu qui sont des déclarations surprenantes et provocantes pour sûr, une sélection nous allons les analyser une par une.
 
-1. Dieu a besoin des hommes pour exister pleinement en tant que Dieu.
-
+1. Dieu a besoin des hommes pour exister pleinement en tant que Dieu.  
  Je demande, quelle est la base de la relation entre l’homme et Dieu ? Avant de formuler cette déclaration, il aurait été bon d’enquêter sur le fond, je pense.
 
 2. La mort de chaque homme est une mort de Dieu, et lorsque le dernier homme sera mort, Dieu ne ressuscitera pas.
