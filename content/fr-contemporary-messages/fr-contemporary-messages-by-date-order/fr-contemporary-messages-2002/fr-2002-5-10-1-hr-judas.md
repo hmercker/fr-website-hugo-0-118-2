@@ -33,9 +33,13 @@ L’écrivain portugais, José Saramago, récompensé par le prix Nobel de litt�
 
  Ici, j’aurais aimé lire une définition de ce qu’est la mort. Oui, je comprends que l’auteur veut exprimer que Dieu est le fruit de l’esprit humain, vivant uniquement dans cet esprit, comme un fantôme ou une projection. Et lorsque l’homme meurt – et ici, il est clair qu’il parle d’une mort définitive, de « cessation d’existence » –alors l’existence de Dieu, va elle aussi se terminer, parce que l’esprit qui l’a nourrie n’existe plus. Ceci, implicitement, a déjà été mentionné dans la première déclaration.
 
-3. Les hommes pardonnent tout à Dieu et moins ils le connaissent, plus ils lui pardonnent. - Moins ils le connaissent, plus ils le craignent, sans oser le blâmer pour ce qu’ils perçoivent comme « son œuvre. »
+3. Les hommes pardonnent tout à Dieu et moins ils le connaissent, plus ils lui pardonnent.
 
-4. Dieu est le silence de l’univers et l’homme le cri qui donne sens à ce silence. - Dieu est l’amour qui inonde l’univers et l’homme est comme le sel qui, peu à peu, se dissout dans l’océan de la Divinité, ce qui lui donne de la « saveur ».
+ Moins ils le connaissent, plus ils le craignent, sans oser le blâmer pour ce qu’ils perçoivent comme « son œuvre. »
+
+4. Dieu est le silence de l’univers et l’homme le cri qui donne sens à ce silence.
+
+ Dieu est l’amour qui inonde l’univers et l’homme est comme le sel qui, peu à peu, se dissout dans l’océan de la Divinité, ce qui lui donne de la « saveur ».
 
 5. Dieu : un « tout » arraché du néant, après quoi il ne reste guère plus que le néant. - Une fois de plus, l’athée se trahit lui-même, poussé par un désir inconnu à chercher Dieu, mais dont l’esprit a été pris au piège par l’encre des livres.
 
