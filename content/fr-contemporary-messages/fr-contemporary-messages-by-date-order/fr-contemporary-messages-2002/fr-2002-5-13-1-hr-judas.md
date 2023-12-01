@@ -19,7 +19,7 @@ C’est un message simple mais il peut apparaître très compliqué, surtout qua
 
 Tout d’abord, concentrons-nous sur les quelques questions, qui nous ont été posées.
 
-#### Sur la Trinité
+#### 1. Sur la Trinité
 
 À plusieurs reprises, nous avons communiqué que cette constellation mystérieuse, communément appelée la « Trinité », n’existe pas. La doctrine de la Trinité, en fait, a son origine dans un différend entre plusieurs branches de l’église primitive. Il y a déjà quelques mois, j’ai consacré une partie d’un message à cette doctrine, en me référant à l’Épître aux Éphésiens. Maintenant, cher H____ , écris ici les points suivant : cela économisera de l’énergie, que nous serons en mesure d’utiliser avec beaucoup plus de profit pour les autres parties de notre message.
 
