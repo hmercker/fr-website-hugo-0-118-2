@@ -13,7 +13,7 @@ Judas - reçu par H____ le 13 Mai 2002, Cuenca, Équateur.
 
 Je salue mon cher frère A____ et son ami, le Révérend. J’ai beaucoup de respect pour tous les deux en raison de leur dévouement et de leurs efforts dans leur quête constante de la vérité, et mes mots ne suffiront pas pour exprimer mes sentiments. Je peux seulement leur envoyer mon amour et mon assurance que je les soutiendrai de toutes mes forces dans leur désir noble.
 
-Notre message est simple : <em><strong>« Dieu est Amour, et Il le partage avec tous ceux qui le désirent.»</strong></em>
+Notre message est simple : <em><strong>« Dieu est Amour, et Il le partage avec tous ceux qui le désirent. »</strong></em>
 
 C’est un message simple mais il peut apparaître très compliqué, surtout quand on prend en considération que, mis à part ce message central, nous formulons également beaucoup de déclarations que nous appelons aussi « Vérités », mais qui en même temps sont en contradiction avec ce que les gens croient généralement. Cependant, de ce conflit, nous parlerons dans la deuxième partie de ce message, qui, comme je te préviens déjà maintenant, mon cher frère H____ , sera très long.
 
