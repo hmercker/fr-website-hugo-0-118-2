@@ -20,7 +20,7 @@ Judas - reçu par H____ le 2 Avril 2002, Cuenca, Équateur.
 > Cependant les nouvelles de sa guérison se répandirent partout et d’énormes foules se  rassemblèrent pour entendre Jésus et être guéries de leurs maladies.
 <br>
 <br>
-> Mais il s’échappa discrètement vers des lieux déserts afin de prier. (Luc 5 : 12-16)
+> Mais il s’échappa discrètement vers des lieux déserts afin de prier. [Luc 5 : 12-16](https://saintebible.com/luke/5-12.htm)
 
 Mon cher ami, je veux discuter avec toi du passage auquel tu pensais hier.
 
@@ -30,20 +30,18 @@ La guérison des malades ne faisait pas partie de la mission du Maître. Il l’
 
 Cependant, la guérison des maladies, en particulier de la soi-disant « lèpre », eut d’autres conséquences. La lèpre, dont la Bible parle, n’est pas exactement ce qui est compris comme la lèpre aujourd’hui. Aujourd’hui, elle est connue comme une maladie lente et destructrice qui endommage les nerfs superficiels, avant la peau et les vaisseaux sanguins, conduisant dans certains cas à d’extrêmes et horribles malformations. La « lèpre » de la Bible a été définie dans les Écritures Hébraïques, notamment dans le livre du Lévitique. Mais cette description brute, pas tout à fait appropriée, a conduit à l’inclusion d’autres maladies non contagieuses et moins dangereuses sous le vocable de la lèpre, ce qui eut des conséquences désastreuses pour les pauvres gens qui en ont souffert.
 
-Tout d’abord, le lépreux n’était pas autorisé à vivre dans les villes, du moins pas dans des endroits clos. Lorsque les gens venaient à rencontrer un lépreux, ils devaient crier : « Impur ! Impur ! » pour éviter l’infection. Les lépreux devaient porter des vêtements déchirés et couvrir leur barbe et leur bouche. Ils ne recevaient jamais de salutations, parce que la salutation signifiait non seulement une pression rapide des mains, mais une étreinte. Ils vivaient comme des parias, rejetés par la société.
+Tout d’abord, le lépreux n’était pas autorisé à vivre dans les villes, du moins pas dans des endroits clos. Lorsque les gens venaient à rencontrer un lépreux, ils devaient crier : *« Impur ! Impur ! »* pour éviter l’infection. Les lépreux devaient porter des vêtements déchirés et couvrir leur barbe et leur bouche. Ils ne recevaient jamais de salutations, parce que la salutation signifiait non seulement une pression rapide des mains, mais une étreinte. Ils vivaient comme des parias, rejetés par la société.
 
 Mais le pire de tout est que les Juifs croyaient que la lèpre était une punition de Dieu. Le lépreux, par conséquent, était un pécheur de la pire catégorie. Et les lépreux eux-mêmes croyaient cela, parce qu’ils avaient été éduqués ainsi. Tu peux facilement imaginer les dommages psychologiques que cela leur causaient.
 
-> *[H : Voir 2 Chroniques 26 : 20 :*
+> *[H : Voir [2 Chroniques 26 : 20](https://saintebible.com/2_chronicles/26-20.htm) :*
 <br>
 <br>
 > *Le souverain sacrificateur Azaria et tous les sacrificateurs portèrent les regards sur lui, et voici, il avait la lèpre au front. Ils le mirent précipitamment dehors, et lui-même se hâta de sortir, parce que l’ÉTERNEL l’avait frappé.]*
 
-Tu sais que la véritable lèpre ne guérit pas spontanément. Mais comme je l’ai dit, étaient
+Tu sais que la véritable lèpre ne guérit pas spontanément. Mais comme je l’ai dit, étaient considérés comme des lépreux ceux qui souffraient d’autres maladies, par exemple du psoriasis. Et certains de ces cas furent vraiment guéris. Je veux juste préciser ici que le lépreux décrit ci-dessus souffrait vraiment véritablement de la lèpre. Mais la guérison, à l’instar du miracle de Jésus, ou dans des cas spontanés, n’était pas suffisante pour permettre à ces pauvres gens de rentrer dans la société. Un processus compliqué était nécessaire pour déclarer leur « pureté ». Entre autres, un prêtre devait examiner la personne malade. Si tu veux tu peux reproduire ici toute la procédure requise par la Loi de Moïse.
 
-considérés comme des lépreux ceux qui souffraient d’autres maladies, par exemple du psoriasis. Et certains de ces cas furent vraiment guéris. Je veux juste préciser ici que le lépreux décrit ci-dessus souffrait vraiment véritablement de la lèpre. Mais la guérison, à l’instar du miracle de Jésus, ou dans des cas spontanés, n’était pas suffisante pour permettre à ces pauvres gens de rentrer dans la société. Un processus compliqué était nécessaire pour déclarer leur « pureté ». Entre autres, un prêtre devait examiner la personne malade. Si tu veux tu peux reproduire ici toute la procédure requise par la Loi de Moïse.
-
-> *[H : Dans le livre du Lévitique 14:19-32, nous pouvons lire ce qui suit :*
+> *[H : Dans le livre du [Lévitique 14:19-32](https://saintebible.com/leviticus/14-19.htm), nous pouvons lire ce qui suit :*
 <br>
 <br>
 > Puis le sacrificateur offrira le sacrifice d’expiation; et il fera l’expiation pour celui qui se purifie de sa souillure. Ensuite il égorgera l’holocauste.*
@@ -81,7 +79,7 @@ considérés comme des lépreux ceux qui souffraient d’autres maladies, par ex
 <br>
 > *Telle est la loi pour la purification de celui qui a une plaie de lèpre, et dont les ressources sont insuffisantes.]*
 
-Très bien, mais qu’est-ce que le traitement de la lèpre signifie ? La lèpre, comme nous l’avons vu, était considérée comme une punition de Dieu à cause des péchés des pauvres malades. Si Dieu supprimait la maladie, il enlevait aussi les péchés, c’est à dire, il leur pardonnait. Dans ce contexte, tu peux comprendre, qu’à plusieurs reprises, le Maître a mentionné le pardon du péché dans le cadre des guérisons dans le Nouveau Testament. Et Jésus, dans un [message par l’intermédiaire de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-25-3-jep-jesus/), a expliqué qu’il avait dit : Que tu saches que le fils de l’homme par la puissance de Dieu peut pardonner les péchés, je te dis « prends ton lit et marche »,92 il est clair qu’il voulait démontrer que les guérisons étaient seulement les signes visibles du pouvoir que lui avait conféré le Père Céleste.
+Très bien, mais qu’est-ce que le traitement de la lèpre signifie ? La lèpre, comme nous l’avons vu, était considérée comme une punition de Dieu à cause des péchés des pauvres malades. Si Dieu supprimait la maladie, il enlevait aussi les péchés, c’est à dire, il leur pardonnait. Dans ce contexte, tu peux comprendre, qu’à plusieurs reprises, le Maître a mentionné le pardon du péché dans le cadre des guérisons dans le Nouveau Testament. Et Jésus, dans un [message par l’intermédiaire de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-25-3-jep-jesus/), a expliqué qu’il avait dit : Que tu saches que le fils de l’homme par la puissance de Dieu peut pardonner les péchés, je te dis *« prends ton lit et marche »,* il est clair qu’il voulait démontrer que les guérisons étaient seulement les signes visibles due pouvoir que lui avait conféré le Père Céleste.
 
 Ces nombreuses guérisons attisèrent finalement la préoccupation des prêtres du Temple, parce que, bien qu’il soit vrai que Jésus n’ait pas dit qu’il pardonnait les péchés, il est également vrai que, selon la croyance populaire, la lèpre était un symptôme du péché, un châtiment infligé par le Seigneur, et par conséquent, Jésus avait tellement d’influence sur le Seigneur, ou une relation tellement excellente avec Lui, que Dieu lui-même l’écoutait, supprimant la peine – et donc, pardonnait les péchés – lorsque Jésus Lui demandait de le faire.
 
@@ -89,9 +87,9 @@ Tragiquement, les prêtres du Temple n’avaient pas cette qualité, ce qui leur
 
 Par la suite, nous verrons la tactique que le clergé Juif utilisera pour discréditer le Maître, avec un succès très limité, soit dit en passant.
 
-Pour terminer ce message, je tiens à ajouter quelques informations sur l’un des amis importants du Maître. J’ai déjà expliqué que Jésus, lors de sa visite à Jérusalem, avait souvent passé la nuit à Béthanie, dans la maison de son ami Lazare. Toutefois, dans le même village, vivait un autre ami du Maître, que la Bible appelle « Simon le lépreux. » Il y a des commentaires expliquant que Jésus avait guéri Simon, bien que la Bible ne dit rien à cet égard.
+Pour terminer ce message, je tiens à ajouter quelques informations sur l’un des amis importants du Maître. J’ai déjà expliqué que Jésus, lors de sa visite à Jérusalem, avait souvent passé la nuit à Béthanie, dans la maison de son ami Lazare. Toutefois, dans le même village, vivait un autre ami du Maître, que la Bible appelle *« Simon le lépreux. »* Il y a des commentaires expliquant que Jésus avait guéri Simon, bien que la Bible ne dit rien à cet égard.
 
-En fait, le mot araméen « garba » signifie « lépreux », et le terme « garaba » signifient fabricant de fiole ou négociant de fiole. Et telle était la profession de Simon, il n’a jamais souffert de la lèpre. En outre, c’est pourquoi la boîte d’albâtre est mentionnée dans la scène d’onction dans sa maison. Ni en Araméen ni en Hébreu les voyelles ne sont écrites, cette confusion est donc compréhensible.
+En fait, le mot araméen « garba » signifie « lépreux », et le terme « garaba » signifie fabricant de fiole ou négociant de fiole. Et telle était la profession de Simon, il n’a jamais souffert de la lèpre. En outre, c’est pourquoi la boîte d’albâtre est mentionnée dans la scène d’onction dans sa maison. Ni en Araméen ni en Hébreu les voyelles ne sont écrites, cette confusion est donc compréhensible.
 
 Très bien, maintenant nous sommes vraiment arrivés à la fin de notre message et il ne me reste rien à dire sinon au revoir.
 

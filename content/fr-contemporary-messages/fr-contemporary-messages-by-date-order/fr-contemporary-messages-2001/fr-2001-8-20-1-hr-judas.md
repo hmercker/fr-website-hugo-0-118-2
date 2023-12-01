@@ -33,7 +33,7 @@ C’est alors que j’entendis la voix me dire : «Je veux te montrer que l’â
 
 *[Ensuite, je fus à nouveau seul, avec mon cœur qui battait terriblement …]*
 
-![](/fr-judas-of-kerioth-messages/fr-judas.jpg)
+![](/3-fr-judas-of-kerioth-messages/fr-judas.jpg)
 
 Judas
 

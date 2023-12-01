@@ -36,8 +36,7 @@ Jésus | [La compassion et le don du choix](/fr-contemporary-messages/fr-contemp
 Jésus | [L'épanouissement comme attribut de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-5-14-1-ar-jesus/) | 14 Mai 2005
 Jésus | [La magie des Lois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-7-22-1-ks-jesus/) | 22 Juillet 2005
 Jésus | [Gardez le message sur l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-7-1-ks-jesus/) | 7 Octobre 2005
-"Jésus | [Planter la graine
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-12-1-db-jesus/) | 12 Octobre 2005"
+Jésus | [Planter la graine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-12-1-db-jesus/) | 12 Octobre 2005
 Jésus | [La Terre Mère réagit-elle à la négativité humaine ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-11-1-ks-jesus/) | 11 Novembre 2005
 Jésus | [Journée de la joie de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-13-2-na-jesus/) | 13 Décembre 2005
 Jésus | [Le moment éternel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-10-1-ar-jesus/) | 10 Juin 2006
@@ -45,8 +44,7 @@ Jésus | [Jésus commente le message de Henry James.](/fr-contemporary-messages/
 Jésus | [Jésus commente les messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-22-1-fab-jesus/) | 22 Juin 2006
 Jésus | [Jésus commente le Mouvement Amour Divin/Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-27-1-fab-jesus/) | 27 Juin 2006
 Jésus | [Jésus commente la présence Juive dans les messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-3-1-fab-jesus/) | 3 Juillet 2006
-"Jésus | [Les plaisirs physiques sont bons
-](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-30-1-fab-jesus/) | 30 Juillet 2006"
+Jésus | [Les plaisirs physiques sont bons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-30-1-fab-jesus/) | 30 Juillet 2006
 Jésus | [Jésus commente le langage masculin dans les Messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-9-24-1-fab-jesus/) | 24 Septembre 2006
 Jésus | [Jésus et le Talmud - La parabole](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-9-27-1-fab-jesus/) | 27 Septembre 2006
 Jésus | [Jésus et le Talmud](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-9-27-2-fab-jesus/) | 27 Septembre 2006
@@ -84,8 +82,7 @@ Jésus | [Jésus parle de l’avortement et de l’abandon des enfants.](/fr-con
 Jésus | [L'utilisation d'un langage dur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-7-1-fab-jesus/) | 7 Mars 2007
 Jésus | [L'inconscient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-22-1-fab-jesus/) | 22 Mars 2007
 Jésus | [Canalisation sur la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-26-1-fab-jesus/) | 26 Mars 2007
-"Jésus | [
-Tendre l'autre joue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-27-1-fab-jesus/) | 27 Mars 2007"
+Jésus | [Tendre l'autre joue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-27-1-fab-jesus/) | 27 Mars 2007
 Jésus | [Les races de l'humanité, et la diversité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-2-fab-jesus/) | 7 Juillet 2007
 Jésus | [Meher Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-4-fab-jesus/) | 7 Juillet 2007
 Jésus | [Un espoir pour l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-26-1-fab-jesus/) | 26 Juillet 2007

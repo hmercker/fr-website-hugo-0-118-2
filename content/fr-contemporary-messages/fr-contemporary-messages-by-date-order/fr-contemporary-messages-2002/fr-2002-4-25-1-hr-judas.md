@@ -19,7 +19,7 @@ Un jour, Jésus nous annonça que nous devions rejoindre l’autre côté de la 
 
 Le Nouveau Testament mentionne cette excursion dans les trois évangiles synoptiques. Marc place l’histoire dans le contexte de la narration où Jésus apaise la tempête qui menaçait de faire chavirer le bateau dans lequel nous mourions de peur, tandis que Jésus dormait. Un jour, j’expliquerai cet événement plus en détail, même s’il a déjà été traité dans un [message à M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-30-1-jep-st-peter/).
 
-Le récit biblique dans Marc 5:1-20 continue ainsi :
+Le récit biblique dans [Marc 5:1-20](https://saintebible.com/mark/5-1.htm) continue ainsi :
 
 > Ils arrivèrent sur l’autre bord de la mer, dans le pays des Gadaréniens.
 <br>

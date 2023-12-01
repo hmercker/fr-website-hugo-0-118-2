@@ -29,9 +29,9 @@ Comme je l’ai indiqué précédemment, la lecture des Saintes Écritures n’�
 
 Quelques semaines avant Simchat Torah, l’un des derniers chapitres de la dernière partie du livre du Deutéronome est lu dans les synagogues, traitant de l’Alliance de Dieu avec Abraham, ainsi que de la libération des Hébreux de leur captivité, quand ils reviendront de toutes les régions du monde où ils ont été dispersés.
 
-Le chapitre correspondant des prophètes est le chapitre 61 d’Isaïe, qui traite également de la libération des captifs.
+Le chapitre correspondant des prophètes est [le chapitre 61 d’Isaïe](https://saintebible.com/isaiah/61-1.htm ), qui traite également de la libération des captifs.
 
-> L’esprit du Seigneur, l’Éternel, est sur moi, Car l’Éternel m’a oint pour prêcher la bonne nouvelle aux malheureux. Il m’a envoyé pour guérir ceux qui ont le cœur brisé, pour proclamer aux captifs la liberté, et aux prisonniers la délivrance ……
+> *L’esprit du Seigneur, l’Éternel, est sur moi, Car l’Éternel m’a oint pour prêcher la bonne nouvelle aux malheureux. Il m’a envoyé pour guérir ceux qui ont le cœur brisé, pour proclamer aux captifs la liberté, et aux prisonniers la délivrance …… *
 
 C’était exactement ce que Jésus voulait annoncer ouvertement, et c’est pourquoi il est revenu à Nazareth ce samedi du mois de Septembre de l’an 25, demandant le privilège de réciter ces inestimables versets dans la synagogue, proclamant ainsi publiquement pour la première fois son ministère comme le Messie pour l’humanité.
 
@@ -45,7 +45,7 @@ Dans ce message, tu peux lire :
 
 Je demande : Qui a augmenté le nombre initial de 30 puis de 45 jours ? Quand et où cela s’est-il produit ?
 
-Toutefois, je tiens à attirer ton attention sur ce qui suit : le Dr. Samuels donne, pour la date de la mort de Jésus, le 18 Mars de l’an 29 <sup id="a1">[1](#f1)</sup>. Cette date est correcte, un vendredi noir pour nous tous. Maintenant, en prenant le nombre de jours du ministère de Jésus, 1172 soit dit en passant, on peut alors calculer le début du ministère public du Maître. Cela nous donne le 1er janvier de l’année 26, un mardi.
+Toutefois, je tiens à attirer ton attention sur ce qui suit : le Dr. Samuels donne, pour la date de la mort de Jésus, le 18 Mars de l’an 29<sup id="a1">[1](#f1)</sup>. Cette date est correcte, un vendredi noir pour nous tous. Maintenant, en prenant le nombre de jours du ministère de Jésus, 1172 soit dit en passant, on peut alors calculer le début du ministère public du Maître. Cela nous donne le 1er janvier de l’année 26, un mardi.
 
 Dans le même message, il est expliqué que le 1er janvier de l’année 26, Pilate a profané le Temple de Jérusalem avec ses normes idolâtres, une profanation qui a duré une semaine.
 
@@ -62,4 +62,4 @@ Votre ami Céleste, Judas.
 © Geoff Cutler 2013
 <small>
 
-1. <large id="f1"> Un message reçu par le Dr. Samuels le 17 Mai 1955. Ce message confirme simplement le mois de Mars. Mais un [second message](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/) reçu le 20 Décembre 1954 indique l’année.[↩](#a1)
+1. <large id="f1"> Un message reçu par le Dr. Samuels le 17 Mai 1955. Ce message confirme simplement le mois de Mars. Mais un [second message](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/) reçu le 20 Décembre 1954 indique l’année 29.[↩](#a1)

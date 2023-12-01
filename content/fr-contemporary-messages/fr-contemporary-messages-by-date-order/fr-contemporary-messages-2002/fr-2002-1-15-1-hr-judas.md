@@ -35,11 +35,11 @@ La foi active est celle d’une expérience continue, revigorée et élargie. La
 
 Toute la difficulté est de commencer ce processus, mais ce n’est pas un processus qui se poursuit automatiquement. Il exige notre effort. Mais précisément dès que la prière cesse d’être une obligation et devient un désir, une expérience merveilleuse, un moment de paix et de bonheur, alors, à ce moment-là, l’âme a gagné la bataille.
 
-La question de M____ adresse spécifiquement le verset 1 du chapitre 11 de la Lettre aux Hébreux :
+La question de M____ adresse spécifiquement [le verset 1 du chapitre 11 de la Lettre aux Hébreux](https://saintebible.com/hebrews/11-1.htm) :
 
-> Maintenant la foi est la substance des choses espérées, l’évidence des choses non vues.
+> *Maintenant la foi est la substance des choses espérées, l’évidence des choses non vues.*
 
-Le mot qui génère des problèmes est la « substance » ou « hypostase » dans le texte original. M____ explique à juste titre que le mot signifie substance (en traduction littérale), ou bien fondamental, mais tout autant quelque chose  qui est  substantiel ou le socle, quelque chose de concret. En français, il est également possible de traduire les deux parties du mot « hypostase » littéralement, comme « se tenant en dessous. » Néanmoins est-il exact que la foi détient aussi la compréhension des choses perçues ?
+Le mot qui génère des problèmes est la « substance » ou « hypostase » dans le texte original. M____ explique à juste titre que le mot signifie substance (en traduction littérale), ou bien fondamental, mais tout autant quelque chose qui est  substantiel ou le socle, quelque chose de concret. En français, il est également possible de traduire les deux parties du mot « hypostase » littéralement, comme « se tenant en dessous. » Néanmoins est-il exact que la foi détient aussi la compréhension des choses perçues ?
 
 Ce n’est pas nécessairement le cas. Prenons par exemple le fait que tu perçois l’Amour de Dieu. Tu l’as vécu, tu essaies de le vivre continuellement parce qu’il fait partie de ta foi. Tu en as la perception et l’expérience. Mais le comprends-tu aussi ? Certainement pas. La compréhension est une fonction pour laquelle la foi ouvre la voie. Bien sûr, avec l’augmentation de notre foi, notre compréhension augmente également. Mais la foi et la compréhension ne sont pas la même chose. La foi est plus grande. Elle ouvre un champ, un monde que nous pouvons explorer et étudier. Nous avons la certitude que ce monde est là, il existe, il n’y a aucun doute à ce sujet. Telle est la fonction de la foi.
 

@@ -45,4 +45,6 @@ Avec cela, je te dis au revoir. Que Dieu bénisse l’humanité tout entière, e
 
 Ton frère en Christ, Judas.
 
+<u>Note</u> : Remarque Ce message n'aborde pas la question de la fin de la vie dans la mesure où cette vie n'a aucune chance d'éviter une mort imminente par maladie terminale et où la qualité de vie est absente. Nous n’avons jusqu’à présent (Octobre 2023) reçu aucun enseignement à ce sujet. Cependant, nous avons un cas où une amie qui a suivi le chemin de l'Amour Divin dans une certaine mesure, pendant quelques années, a été autorisée à mettre fin à ses jours au Canada et nous a envoyé un message après son décès indiquant qu'elle n'a subi aucune conséquence de cette décision. En général, le suicide est une très mauvaise décision et s’accompagne de conséquences spirituelles importantes après la mort.
+
 © Geoff Cutler 2013

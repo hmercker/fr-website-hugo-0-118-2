@@ -15,7 +15,7 @@ Nous sommes un lundi de Pâques, mon cher frère : je vais traiter d’un sujet 
 
 *[H : Tu fais allusion à la pièce de monnaie dans la bouche du poisson ?]*
 
-Exactement. Insère ici le texte tel qu’il est présenté dans la Bible. (Matthieu 17:24-27)
+Exactement. Insère ici le texte tel qu’il est présenté dans la Bible. [Matthieu 17:24-27](https://saintebible.com/matthew/17-24.htm)
 
 > Lorsqu’ils arrivèrent à Capharnaüm, ceux qui percevaient les deux drachmes s’adressèrent à Pierre, et lui dirent : Votre maître ne paie-t-il pas les deux drachmes ?
 <br>
@@ -75,7 +75,7 @@ En outre – et maintenant, je vais répondre à la question ci-dessus à l’é
 
 En d’autres termes, ils recueillaient un huitième en plus de l’impôt. Certains payaient dans la devise appropriée, par conséquent, l’excédent perçu s’élevait à plus ou moins 10 % des recettes fiscales totales. S’ils recueillaient environ 30 tonnes d’argent, les changeurs facturaient en sus 3 tonnes d’argent par an. Ces changeurs de monnaie était des employés d’Anna et de ses sbires, et ce revenu de 3 tonnes d’argent étaient le leur, cet argent n’allait pas dans les fonds de Temple. Ce n’était pas une mauvaise affaire.
 
-Mais maintenant, revenons à Capharnaüm. Dans le port du village, où ils avaient dressé leur stand, les collecteurs d’impôts ont posé la question moqueuse à Pierre : « Hé, Pierre, es-tu certain que ton Maître paiera l’impôt ? » Ils évoquaient la tension entre Jésus et la maison d’Anna. Et le pauvre Pierre n’était plus si sûr, cependant, il a répondu : *« Bien-sûr. Quelle question stupide ! »*
+Mais maintenant, revenons à Capharnaüm. Dans le port du village, où ils avaient dressé leur stand, les collecteurs d’impôts ont posé la question moqueuse à Pierre : *« Hé, Pierre, es-tu certain que ton Maître paiera l’impôt ? »* Ils évoquaient la tension entre Jésus et la maison d’Anna. Et le pauvre Pierre n’était plus si sûr, cependant, il a répondu : *« Bien-sûr. Quelle question stupide ! »*
 
 Jésus nous a alors expliqué qu’il payait simplement l’impôt parce qu’il ne voulait pas scandaliser les gens. Il savait que Dieu n’avait pas besoin de cet argent. Cependant, le Temple formait une institution centrale de la société et de la religion Hébraïque. L’argent était utilisé à des fins multiples : en dehors de l’évidence, c’est-à-dire, pour payer les salaires des nombreuses personnes qui travaillaient dans le Temple, pour fournir les fonds pour l’entretien et la réparation du Temple et autres obligations, y compris toutes ces choses nécessaires pour un fonctionnement religieux régulier, les taxes étaient dépensées pour les travaux publics, telles que, par exemple, la réparation des rues et des routes et pour l’entretien des bâtiments publics, il était utilisé à des fins sociales. Jésus a dit que le bien commun justifiait le sacrifice. Il y avait une déviation des fonds et un enrichissement éhonté de certains responsables, nous le savions tous. Mais l’alternative de ne pas payer n’était pas la façon de résoudre ce problème.
 

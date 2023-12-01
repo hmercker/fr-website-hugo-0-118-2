@@ -17,7 +17,7 @@ Pendant la journée, alors que j’avais envie d’être en contact avec Judas, 
 
 Que se passait-il ? Est-ce que Judas a changé sa façon de communiquer avec moi ?
 
-*« C’est une expérience », dit la voix. « Tu as raison, c’est une nouvelle forme de communication. »*
+*« C’est une expérience »*, dit la voix. *« Tu as raison, c’est une nouvelle forme de communication. »*
 
 *« D’une certaine façon, je crois que je connais cette sensation, »* répondis-je. *« C’est arrivé quand j’ai perçu tes pensées qui semblaient si évidentes et merveilleuses, mais lorsque j’ai essayé de les capturer sur papier, j’ai perdu beaucoup de leur contenu. Mais maintenant, ce n’est pas une pensée unique, mais plusieurs… une « structure mentale », si je peux m’exprimer ainsi. »*
 

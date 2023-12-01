@@ -13,13 +13,13 @@ Judas - reçu par H____ le 19 Juin 2002, Cuenca, Équateur.
 
 Tiède.. Oui tu  m’as bien entendu. J’ai dit tiède. Le monde est tiède, les hommes sont tièdes, tu es tiède.
 
-Tu vois les anges Célestes, rayonnant de lumière et de chaleur, sont comme un fer chauffé au rouge, mais tu es tiède. Et nous, par rapport à Dieu, nous sommes comme des lucioles par rapport au soleil. Dieu est la « chaleur du monde. »
+Tu vois les anges Célestes, rayonnant de lumière et de chaleur, sont comme un fer chauffé au rouge, mais tu es tiède. Et nous, par rapport à Dieu, nous sommes comme des lucioles par rapport au soleil. Dieu est la *« chaleur du monde. »*
 
 Nous ne te le reprochons pas parce que nous ne nous attendons pas à ce que tu émettes plus de chaleur humaine. T’attends-tu à ce qu’un enfant de six ans maîtrise le calcul intégral ? Lorsque les enfants dessinent leur premier portrait, un simple cercle avec deux points pour les yeux, un trait pour le nez et un autre pour la bouche, avec les jambes et les bras qui dépassent directement à partir de la tête, sans reproduire un corps, ils le trouvent merveilleux et bien fait. Mais au cours de leur développement, ils ne l’aiment plus. Ils apprennent à voir plus de détails, et ils apprennent à mieux gérer le crayon.
 
 Il en est de même avec l’amour. Demain tu ne te contenteras plus de ton attitude tiède d’aujourd’hui, tu essaieras d’ajouter plus de chaleur à ta vie.
 
-Considère l’échange sur « la violence justifiée » que tu as commencé. Ce n’est pas vrai que nous tournons autour du pot. Très clairement, et à plusieurs reprises, nous avons établi que nous n’avons jamais justifié la violence, dans aucune circonstance. C’est l’idéal auquel nous devrions aspirer. Mais tu es un enfant, et le développement de ton âme ne te permet pas de vivre un idéal pour lequel on a besoin de beaucoup d’amour, beaucoup plus que tu en as.
+Considère l’échange sur *« la violence justifiée »* que tu as commencé. Ce n’est pas vrai que nous tournons autour du pot. Très clairement, et à plusieurs reprises, nous avons établi que nous n’avons jamais justifié la violence, dans aucune circonstance. C’est l’idéal auquel nous devrions aspirer. Mais tu es un enfant, et le développement de ton âme ne te permet pas de vivre un idéal pour lequel on a besoin de beaucoup d’amour, beaucoup plus que tu en as.
 
 Tu n’es pas parfait, dans le sens absolu. Dans le sens relatif, tu es parfait lorsque tu agis selon ton état d’âme, sans perdre de vue le fait qu’il y a encore plus au-delà de ton horizon. Et lorsque tu essayes de te développer et que finalement tu incorpores ce qui, il y a peu de temps, était toujours hors de ta portée, tu agis alors ensuite dans une plus grande harmonie.
 

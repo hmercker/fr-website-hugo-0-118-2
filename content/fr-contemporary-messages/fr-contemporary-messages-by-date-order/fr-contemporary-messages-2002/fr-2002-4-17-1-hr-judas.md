@@ -23,7 +23,7 @@ Jésus nous a expliqué que les doctrines en elles-mêmes ne causent pas de domm
 
 Comparant les doctrines avec de la nourriture, Jésus a expliqué :
 
-> Ne comprenez-vous pas que tout ce qui entre dans la bouche va dans le ventre, puis est jeté dans les lieux secrets ?  Mais ce qui sort de la bouche vient du cœur, et c’est ce qui souille l’homme.…(Mathieu 15:17)
+> *Ne comprenez-vous pas que tout ce qui entre dans la bouche va dans le ventre, puis est jeté dans les lieux secrets ?  Mais ce qui sort de la bouche vient du cœur, et c’est ce qui souille l’homme.*[Mathieu 15:17-18](https://saintebible.com/matthew/15-17.htm)
 
 Approfondissant le sujet, il a nous fait remarquer qu’il existe une loi supérieure, la Loi de l’Amour, et que chacun a cette loi qui brûle dans son âme. Cette loi nous sert de ligne directrice. Sans connaissance de cette loi, il serait impossible aux hommes de trouver leur chemin. Dans chaque cas, lorsque les hommes violent cette loi, profondément à l’intérieur, dans leur cœur, ils le savent.
 

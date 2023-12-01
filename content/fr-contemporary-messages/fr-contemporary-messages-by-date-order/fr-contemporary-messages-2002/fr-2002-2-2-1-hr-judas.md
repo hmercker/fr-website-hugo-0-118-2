@@ -45,7 +45,7 @@ Après la mort du maître, il est revenu avec les autres disciples en Galilée, 
 
 J’ai déjà mentionné une fois que la Galilée fut un centre ferme du Judéo-christianisme primitif. Et cela s’est produit en grande partie grâce au travail silencieux de Nathanaël. Cana, Nazareth, les villages au bord du lac, tous deviendraient des centres du Christianisme.
 
-Nathanaël a vécu suffisamment longtemps pour connaître les premières persécutions à l’encontre de certains chrétiens, ceux que l’on appelle les Hellénistes, à Jérusalem. Il apprit la mort de ses amis, Jacques et Jean, les fils de Zébédée, mais peu de temps après, il est décédé d’une mort naturelle, en paix, dans le sein de sa famille.
+Nathanaël a vécu suffisamment longtemps pour connaître les premières persécutions à l’encontre de certains Chrétiens, ceux que l’on appelle les Hellénistes, à Jérusalem. Il apprit la mort de ses amis, Jacques et Jean, les fils de Zébédée, mais peu de temps après, il est décédé d’une mort naturelle, en paix, dans le sein de sa famille.
 
 Dans sa circonscription, il avait accompli ce que les gens manquent tellement : Le paradis sur terre. Un paradis non basé sur la richesse, mais sur l’amour et la compréhension.
 
@@ -53,7 +53,7 @@ Néanmoins, comme toutes les choses sur terre, ce paradis n’a pas duré étern
 
 *[H : En quelle année Nathanaël est-il mort ?]*
 
-Sa mort a eu lieu en l’an 48. Il était âgé de 59 ans. Comme tu l’auras compris, je n’ai pas été un témoin oculaire de ces événements ni de la rencontre, entre Nathanaël et Jésus, que je viens de décrire. Cependant c’est ce que Nathanaël m’a raconté.
+Il est mort en l’an 48. Il était âgé de 59 ans. Comme tu l’auras compris, je n’ai pas été un témoin oculaire de ces événements ni de la rencontre, entre Nathanaël et Jésus, que je viens de décrire. Cependant c’est ce que Nathanaël m’a raconté.
 
 Et avec cette courte histoire, mon cher ami, je vais te dire au revoir. Je vais reprendre mon récit de la vie et des enseignements du maître.
 
@@ -62,3 +62,5 @@ Que Dieu te bénisse.
 Judas.
 
 © Geoff Cutler 2013
+
+![](/3-fr-judas-of-kerioth-messages/fr-nathanael_small.jpg)

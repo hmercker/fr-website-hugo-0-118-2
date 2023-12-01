@@ -21,9 +21,9 @@ Judas | [Le manque d’espoir dans les Enfers.](/fr-contemporary-messages/fr-con
 Judas | [Sortir de l’enfer.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-6-1-hr-judas/) | 6 Février 2003
 Judas | [La zone crépusculaire et Summerland](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-8-1-hr-judas/) | 8 Septembre 2001
 Judas | [Diverses questions concernant le passage vers l’au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-9-1-hr-judas/) | 9 Septembre 2001
-Judas | [La seconde sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
+Judas | [La seconde sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
 Judas | [La troisième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-19-1-hr-judas/) | 19 Septembre 2001
 Judas | [La Quatrième Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-23-1-hr-judas/) | 23 Septembre 2001
-Judas | [La cinquième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
-Judas | [La sixième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
-Judas | [La septième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
+Judas | [La cinquième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
+Judas | [La sixième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
+Judas | [La septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001

@@ -40,7 +40,7 @@ André lui jeta un regard réprobateur, comme pour dire : *« Tais-toi, vieux gr
 
 Il  demanda  aux frères Zébédée de les rejoindre avec leur bateau, et nous partîmes.
 
-Luc rapporte dans son Évangile :
+[Luc rapporte dans son Évangile](https://saintebible.com/luke/5-4.htm) :
 
 > Un jour, Jésus se trouvait au bord du lac de Génésareth et la foule se pressait autour de lui pour entendre la parole de Dieu.
 <br>
@@ -80,7 +80,7 @@ C’est la raison pour laquelle Pierre éprouvait de l’admiration envers Jésu
 
 [Jésus a écrit au Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-18-6-9-13-22-december-1954-samuels-jesus/) :
 
-> Par ailleurs j’ai demandé à mes disciples du  lac de Génésareth de jeter leurs filets en un certain endroit afin d’effectuer une grosse prise, ce qu’ils firent, et cela s’est produit à la suite de ma connaissance psychique qu’un grand banc de poissons venait d’atteindre cette zone du lac et mes disciples, notamment Simon Pierre, furent particulièrement impressionnés.
+> *Par ailleurs j’ai demandé à mes disciples du  lac de Génésareth de jeter leurs filets en un certain endroit afin d’effectuer une grosse prise, ce qu’ils firent, et cela s’est produit à la suite de ma connaissance psychique qu’un grand banc de poissons venait d’atteindre cette zone du lac et mes disciples, notamment Simon Pierre, furent particulièrement impressionnés.*
 
 Toutefois, pour conclure cet épisode, dans le dernier verset il est dit : Alors ils ramenèrent les barques à terre, laissèrent tout et le suivirent *[Jésus]*. Ce n’est pas vrai. Maintenant, nous avions vraiment beaucoup de travail avec le lavage, l’éviscération et la vente du poisson avant que le soleil ne soit trop haut.
 

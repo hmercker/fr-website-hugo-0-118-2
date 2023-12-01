@@ -19,7 +19,7 @@ Dans ma dernière communication, je t’ai expliqué comment nous nous sommes é
 
 Eh bien, il est arrivé que les gens ont assiégé la maison pendant quelques heures. Pendant ce temps, nous étions pleins de curiosité et d’étonnement et nous demandions au Maître comment il avait accompli cette merveille. Alors qu’il s’apprêtait à répondre à notre question, nous avons entendu un bruit étrange et troublant sur le toit de la maison.
 
-Le cœur de l’histoire peut être reproduit de cette façon (selon Luc 5:17-20) :
+Le cœur de l’histoire peut être reproduit de cette façon [selon Luc 5:17-20](https://saintebible.com/luke/5-17.htm) :
 
 > Rapidement, certains hommes sont arrivés transportant un paralytique sur un petit lit et ils ont sans cesse essayé de l’amener devant Jésus.
 <br>
@@ -49,8 +49,7 @@ Le cœur de l’histoire peut être reproduit de cette façon (selon Luc 5:17-20
 
 Maintenant, [M. Padgett a reçu l’explication suivante](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-25-3-jep-jesus/), attribuée par erreur à la scène de la piscine de Bethesda :
 
-En ce qui concerne l’acte de guérison que j’ai exécuté à la piscine de Bethesda, il m’est attribué les paroles suivantes : *« qu’est ce qui est le plus facile à dire, « prend ton lit et marche » ou à Dieu de pardonner vos péchés ? »* Eh bien, c’est la façon dont elle est rapportée, mais ce n’est pas ce que j’ai dit. En fait, j’ai dit : *« Afin que tu saches que le fils de l’homme par la puissance de Dieu peut pardonner les péchés, je te le dis, *« prend ton lit et marche »*. Ce fut seulement comme l’instrument de Dieu, en montrant à l’homme le chemin de Son Amour Divin, que j’ai pu apporter le pardon du péché, et non
-
+En ce qui concerne l’acte de guérison que j’ai exécuté à la piscine de Bethesda, il m’est attribué les paroles suivantes : *« qu’est ce qui est le plus facile à dire, « prend ton lit et marche » ou à Dieu de pardonner vos péchés ? »* Eh bien, c’est la façon dont elle est rapportée, mais ce n’est pas ce que j’ai dit. En fait, j’ai dit : *« Afin que tu saches que le fils de l’homme par la puissance de Dieu peut pardonner les péchés, je te le dis, *« prend ton lit et marche »*. Ce fut seulement comme l’instrument de Dieu, en montrant à l’homme le chemin de Son Amour Divin, que j’ai pu apporter le pardon du péché, et non 
 par ma propre puissance. Si Dieu ne pardonnait pas, je ne le pourrais pas non plus et aucun autre homme ne le pourrait.
 
 Eh bien, mon ami, puisque tu connais le fond de l’histoire, tu comprends qu’il n’y avait ni « scribes » ni « Pharisiens » présents. Personne n’a accusé Jésus de blasphème à cette occasion. Au contraire, tout le monde était heureux, même si certains étaient amers faute d’avoir pu obtenir leur propre guérison. L’amertume, cependant, a été guérie les jours suivants lorsque Jésus a de nouveau marché librement dans les rues de Capharnaüm en guérissant et en prêchant.

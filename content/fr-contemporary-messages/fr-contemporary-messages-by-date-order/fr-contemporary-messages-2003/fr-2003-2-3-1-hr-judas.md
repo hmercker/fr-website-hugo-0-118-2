@@ -19,7 +19,7 @@ Je vais te le dire. Il s’agit de la confiance en Dieu. La mienne est absolue, 
 
 Tout ce matérialisme, toutes ces préoccupations, qui sont même parfois ridicules, ont leurs racines dans le fait que les gens croient qu’ils ont à se soucier de tout et qu’ils doivent même prendre soin des aspects les plus triviaux de leur vie. Bien sûr, une telle attitude ne peut conduire qu’à la frustration et la peur. Je t’ai déjà dit que la peur est le vide de l’âme; c’est le manque de foi en Dieu. Ceci implique également le manque de confiance.
 
-Jésus a dit : *« Laissez les petits enfants, et ne les empêchez pas de venir à moi. Car le Royaume des Cieux est pour ceux qui leur ressemblent ! »* Il avait de bonnes raisons de le dire.
+Jésus a dit : *« Laissez les petits enfants, et ne les empêchez pas de venir à moi. Car le Royaume des Cieux est pour ceux qui leur ressemblent ! »* [Matthieu 19-14](https://saintebible.com/matthew/19-14.htm). Il avait de bonnes raisons de le dire.
 
 Pour les enfants, leurs parents sont des personnes de confiance absolue. Leurs parents, croient-ils, ne connaissent pas le mal, leur sagesse est absolue, et ils savent tout faire. Dans leur jeune et petit esprit, les enfants considèrent les adultes, en particulier leurs parents, presque comme des dieux. Et ils ont une confiance absolue en eux – au début. Ensuite, malheureusement, ils se rendent compte de la faillibilité de leurs parents et leur foi en eux, qui semblait d’abord inébranlable, tombe en morceaux. Ce sont peut-être les moments les plus difficiles et les plus traumatisants dans la vie d’un jeune être humain. Beaucoup dépendent de la manière dont cette phase difficile est surmontée, et c’est exactement à ce moment que la foi infantile dans le Bon et le tout-puissant Dieu reçoit également un coup dur.
 
@@ -54,7 +54,7 @@ Faire confiance à Dieu signifie vivre dans le Ciel, même dans les situations l
 > Oui, si je marche dans la vallée de l’ombre de la mort, je ne crains aucun mal : car Tu es avec moi ;
 <br>
 <br>
-> Ta houlette et ton bâton me consolent.
+> Ta houlette et ton bâton me consolent. [Psaume 23](https://oratoiredulouvre.fr/spiritualite/psaumes-prier/psaume-23-leternel-est-mon-berger-je-ne-manque-de-rien)
 
 Que Dieu te bénisse.
 

@@ -45,7 +45,7 @@ Jésus n’a jamais vu Dieu avec ses yeux matériels ou éthérés, comme nous p
 
 Souviens-toi comment tu percevais Dieu juste récemment. L’as-tu ressenti ? J’ai des doutes. Mais maintenant, c’est différent, bien que tu sois toujours un homme aveugle parmi les aveugles. Cependant, parfois, les yeux de ton âme osent s’ouvrir un peu.
 
-Lorsque l’âme humaine reçoit l’Amour de Dieu, Son Essence, elle devient une âme divine. C’est ce que nous appelons la transformation de l’âme, culminant exactement au moment où ce processus consomme les derniers vestiges de l’âme naturelle, dans la Nouvelle Naissance. Ensuite, l’âme divine continue à intégrer toujours plus d’Amour de Dieu, mais la transformation du profane dans le Divin est déjà accomplie. Un autre processus de transformation suit100, que je n’ose pas décrire maintenant. Tu ne comprends toujours pas les bases, alors laissons ces enseignements avancés pour un autre moment quand tu auras la capacité de les digérer.
+Lorsque l’âme humaine reçoit l’Amour de Dieu, Son Essence, elle devient une âme divine. C’est ce que nous appelons la transformation de l’âme, culminant exactement au moment où ce processus consomme les derniers vestiges de l’âme naturelle, dans la Nouvelle Naissance. Ensuite, l’âme divine continue à intégrer toujours plus d’Amour de Dieu, mais la transformation du profane dans le Divin est déjà accomplie. Un autre processus de transformation suit, que je n’ose pas décrire maintenant. Tu ne comprends toujours pas les bases, alors laissons ces enseignements avancés pour un autre moment quand tu auras la capacité de les digérer.
 
 J’ai une âme transformée. Cependant, je ne peux partager cette Substance Immortelle avec toi. Mon Âme veut t’aider, elle t’aime, elle offre toute son énergie pour recharger tes « faibles », batteries mais elle ne peut pas partager sa propre essence avec toi. Je suis un individu et comme le mot le dit, je ne peux pas me diviser afin de partager mon bonheur avec toi même si j’aimerais le faire.
 
@@ -53,7 +53,7 @@ En revanche, Dieu fait exactement cela en permanence. De Son âme richement stru
 
 Nous en savons très peu sur Sa Personnalité, mais un seul mot suffit pour décrire ce que nous savons vraiment pour sûr: Il est AMOUR.
 
-Dieu dégage de l’énergie et la Substance, comme je l’ai dit, la communication avec Lui est seulement possible d’âme à Âme, sans mots. Ce que Dieu te dit, tu ne le perçois pas comme des mots, mais comme une « connaissance interne positive. » Oui, c’est la foi.
+Dieu dégage de l’énergie et la Substance, comme je l’ai dit, la communication avec Lui est seulement possible d’âme à Âme, sans mots. Ce que Dieu te dit, tu ne le perçois pas comme des mots, mais comme une *« connaissance interne positive. »* Oui, c’est la foi.
 
 Dieu n’est pas un fantôme flou, car avec cette expression, une fois de plus, le langage trahit son incapacité à décrire la nature de ce qui est spirituel.
 

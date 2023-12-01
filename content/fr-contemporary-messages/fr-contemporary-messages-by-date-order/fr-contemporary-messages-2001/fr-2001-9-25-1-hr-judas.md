@@ -1,13 +1,13 @@
 ---
-title: "La cinquième sphere"
+title: "La cinquième sphère"
 menu_title: ""
-description: "La cinquième sphere"
+description: "La cinquième sphère"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True
 weight:
 ---
-### La cinquième sphere
+### La cinquième sphère
 
 Judas - reçu par H____ le 25 Septembre 2001, Cuenca, Équateur.
 
@@ -17,7 +17,7 @@ Ma préoccupation a été la description du développement qui prend place dans 
 
 Je t’ai dit comment les esprits de la quatrième sphère se débarrassent de tous leurs liens terrestres. C’est seulement alors qu’ils deviennent des esprits mûrs, des vrais habitants du monde spirituel; ils sont alors seulement à 100 % des êtres spirituels. La terre, pour ces esprits, ne présente plus aucun intérêt, sauf s’il y a d’autres esprits incarnés qui ont besoin de leur aide.
 
-Anne Rollins <sup id="a1">[1](#f1)</sup> a déclaré que les sphères du monde spirituel peuvent être classées selon le type de développement qu’elles offrent. Il y a des sphères qui favorisent le développement de l’âme par l’intermédiaire de la purification de l’amour naturel. Ce sont les deuxième, quatrième et sixième sphères. Il y a d’autres sphères qui encouragent le développement de l’Amour Divin. Ce sont la troisième, la cinquième et la septième sphère.
+Anne Rollins<sup id="a1">[1](#f1)</sup> a déclaré que les sphères du monde spirituel peuvent être classées selon le type de développement qu’elles offrent. Il y a des sphères qui favorisent le développement de l’âme par l’intermédiaire de la purification de l’amour naturel. Ce sont les deuxième, quatrième et sixième sphères. Il y a d’autres sphères qui encouragent le développement de l’Amour Divin. Ce sont la troisième, la cinquième et la septième sphère.
 
 Maintenant, dans la cinquième sphère, nous sommes dans l’une de ces sphères de l’âme, comme elles sont aussi appelées. Elles offrent de grandes possibilités pour obtenir l’Amour de Dieu, et les esprits « naturels » n’y passent pas beaucoup de temps. Nous allons analyser cela un peu plus en détail.
 
@@ -47,3 +47,8 @@ Avec tout mon amour, je suis ton frère en Christ, Judas, un esprit des Cieux C�
 <small>
 
 1. <large id="f1"> La grand-mère de James Padgett. Elle fut une communicante très prolifique.[↩](#a1)
+
+![](/3-fr-judas-of-kerioth-messages/fr-andrew-large)
+
+                    André
+

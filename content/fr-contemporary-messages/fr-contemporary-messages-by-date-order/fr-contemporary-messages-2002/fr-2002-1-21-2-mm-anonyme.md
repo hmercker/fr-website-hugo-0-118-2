@@ -19,7 +19,7 @@ Anonyme - reçu par MM le 21 Janvier 2002, Medellan, Colombia.
 
 *Père Dieu, si c'est Ton désir et que je peux recevoir un message, je suis prêt à le faire. Fais que je réussisse et que ce soit pour Ton plus grand honneur et le bien de nos âmes. Préserve-moi de toute influence négative et donne-moi Ta paix, dont nous avons tant besoin dans ce pays, la Colombie, en Argentine, en Équateur, au Brésil, dans toute l'Amérique latine, en Asie, en Amérique, en Afrique, en Océanie, en Europe.*
 
-*Aide-nous, Père céleste. Je Te remercie mille fois pour les bienfaits que Tu me donnes.*
+*Aide-nous, Père Céleste. Je Te remercie mille fois pour les bienfaits que Tu me donnes.*
 
 *Anges guides de mon âme, je suis ici prêt, s'il vous plaît et si je peux le faire, alors commençons.]*
 
@@ -79,7 +79,7 @@ Oui, tu es déjà entrée dans ta maison. Tu as ton guide gracieux et tu as éco
 
 Oui, c'est la condition de l'âme. Et chaque fois, l'intensité de l'Amour sera plus grande, au fur et à mesure que la condition de votre âme s'améliorera.
 
-Tu as lu un message de Judas par l'intermédiaire de H., selon lequel tu reçois en fonction de ce que vous donnez. C'est cela, donner ce que l'on reçoit, chère M____ . Tu donnes ce que tu as reçu. Je parle de nos impressions et de nos messages, grâce auxquels, sans aucun doute, tu te sens mieux dans ta vie, et tu comprends le monde différemment. Ce n'est pas si compliqué, n'est-ce pas ?
+Tu as lu un message de Judas par l'intermédiaire de H., selon lequel tu reçois en fonction de ce que tu donnes. C'est cela, donner ce que l'on reçoit, chère M____ . Tu donnes ce que tu as reçu. Je parle de nos impressions et de nos messages, grâce auxquels, sans aucun doute, tu te sens mieux dans ta vie, et tu comprends le monde différemment. Ce n'est pas si compliqué, n'est-ce pas ?
 C'est facile, simplement parce que c'est ce que nous sommes vraiment. Si nous agissons simplement comme nous sommes tous, de petites âmes semblables à la Grande Âme, source de vie, alors nous atteindrons, petit à petit, notre maison, et nous nous comprendrons mieux.
 
 Oui, envois ce message à H____ . Il saura quoi faire.

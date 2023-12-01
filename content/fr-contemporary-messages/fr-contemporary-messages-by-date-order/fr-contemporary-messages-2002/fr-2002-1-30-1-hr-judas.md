@@ -17,7 +17,7 @@ Mon cher frère, nous avons déjà expliqué cela précédemment. Nous avons ég
 
 Tu sais aussi que tu as besoin de la foi pour obtenir l’Amour de Dieu, et l’obtention de cet Amour, à son tour, augmente ta foi. Et le point de départ de ce mouvement circulaire ou réciproque, pour cette spirale où notre âme monte toujours plus haut vers le sommet où Il vit, est cette foi primitive, innée dans l’âme, que Dieu existe, qu’Il est Amour, et qu’il veut que nous nous tournions vers Lui.
 
-Il y a un autre facteur à ce processus : les aspirations de l’âme. Elles sont nécessaires pour obtenir l’Amour de notre Père céleste, et elles naissent de la foi. Nous pouvons dire que la forme primitive de ces nostalgies est également implantée dans l’âme, en même temps que la foi primitive. Dans un premier temps, l’âme est consciente d’elle-même, et elle est consciente de l’existence de la Grande Âme de Dieu, et elle aspire à communiquer avec cette âme, et plus encore, à s’unir totalement avec Elle.
+Il y a un autre facteur à ce processus : les aspirations de l’âme. Elles sont nécessaires pour obtenir l’Amour de notre Père Céleste, et elles naissent de la foi. Nous pouvons dire que la forme primitive de ces nostalgies est également implantée dans l’âme, en même temps que la foi primitive. Dans un premier temps, l’âme est consciente d’elle-même, et elle est consciente de l’existence de la Grande Âme de Dieu, et elle aspire à communiquer avec cette âme, et plus encore, à s’unir totalement avec Elle.
 
 Dans les moments de désespoir, les aspirations de l’âme percent et montent en flèche vers Dieu. Et Dieu envoie Sa réponse, il envoie son Amour. Malheureusement, cet éclair de l’âme disparaît souvent et retombe dans l’oubli, lorsque la situation change.
 
@@ -37,7 +37,7 @@ Maintenant, mon cher H____ , ce matin, tu as écrit une lettre à M____ , et tu 
 
 *[H : J’ai cité ce qui suit:*
 
-> *Vous me demandez comment je suis devenu un fou. Cela m’arriva ainsi : Un jour, longtemps avant que de nombreux dieux fussent nés, je m’éveillai d’un profond sommeil et trouvai  que tous mes masques avaient été volés – les sept masques que j’ai façonnés et portés dans sept vies – je courus sans masque dans les rues bondées en criant, « Voleurs ! Voleurs ! Aux maudits voleurs ! »*
+> *Vous me demandez comment je suis devenu un fou. Cela m’arriva ainsi : Un jour, longtemps avant que de nombreux dieux fussent nés, je m’éveillai d’un profond sommeil et trouvai que tous mes masques avaient été volés – les sept masques que j’avais façonnés et portés dans sept vies – je courus sans masque dans les rues bondées en criant, « Voleurs ! Voleurs ! Aux maudits voleurs ! »*
 <br>
 <br>
 > *Les hommes et les femmes se moquaient de moi et quelques-uns s’enfuyaient vers leurs maisons en ayant peur de moi.*

@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par James Padgett le 1er Décembre 1916, Washington, USA.
 
-C’est moi, Judas <sup id="a1">[1](#f1)</sup>. Je ne dirai que quelques mots ce soir, car je vois que vous n’êtes pas en mesure d’écrire un long message.
+C’est moi, Judas<sup id="a1">[1](#f1)</sup>. Je ne dirai que quelques mots ce soir, car je vois que vous n’êtes pas en mesure d’écrire un long message.
 
 Je veux dire que chaque fois que vous laissez les pensées de votre mental matériel contrôler votre conscience spirituelle, le résultat est que vous souffrez d’un obscurcissement des facultés de l’âme, et, en conséquence, d’une impossibilité d’entrer en relation avec les esprits supérieurs, leur condition de vérité élevée et le bonheur qui accompagne nécessairement l’association de ces esprits avec votre essence spirituelle. Vous comprendrez donc l’importance de garder les pensées purement mentales qui sont créées par l’exercice des cinq sens, et des facultés de raisonnement qui en découlent, subordonnées aux perceptions de l’âme qui découlent de la condition d’harmonie de cette âme avec les vérités du Père.
 

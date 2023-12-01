@@ -51,11 +51,11 @@ Et quant à l’éveil de la conscience, elle a remarqué :
 
 Et ici tu te souviens ce que tu as lu au sujet de l’esprit subconscient dans les messages de James Padgett. C’est ce qu’Hélène a expliqué à son mari, [lorsqu’en écrivant à travers lui](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-8-1-jep-helen-padgett/), elle a déclaré :
 
-> Oublie l’idée que tu écris des choses qui émanent de ce qu’on appelle parfois ton esprit subconscient, tu n’as pas d’esprit subconscient, et les philosophes qui enseignent une telle idée ne connaissent pas les lois de l’esprit. L’esprit est seulement la preuve spirituelle que des pensées se rassemblent dans le cerveau, mais n’appartiennent pas vraiment à cette chose matérielle que les  » sages  » appellent le subconscient ou l’esprit.
+> *Oublie l’idée que tu écris des choses qui émanent de ce qu’on appelle parfois ton esprit subconscient, tu n’as pas d’esprit subconscient, et les philosophes qui enseignent une telle idée ne connaissent pas les lois de l’esprit. L’esprit est seulement la preuve spirituelle que des pensées se rassemblent dans le cerveau, mais n’appartiennent pas vraiment à cette chose matérielle que les  » sages  » appellent le subconscient ou l’esprit.*
 
-Riddle, un ami de M. Padgett, [lui a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-16-1-jep-ag-riddle/) :
+Monsieur Riddle, un ami de M. Padgett, [lui a écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-16-1-jep-ag-riddle/) :
 
-> Il n’y a rien de tel que l’esprit subconscient, le seul esprit que tu as est celui qui te permet d’exprimer ce que tu connais vraiment de tes propres pensées qui ne dépendent pas de ce que les autres peuvent infuser dans ton cerveau comme je le fais maintenant, mais qui ont leur origine dans ton cerveau sans être produites par des esprits extérieurs. Ce qu’on appelle l’esprit subconscient est simplement une chose imaginaire utilisée par les scientifiques pour indiquer qu’ils n’ont aucun meilleur nom pour l’appeler. Il n’est pas une partie de toi-même ou de ton cerveau, mais seulement l’image que ces sages utilisent pour ce qu’ils ne sont pas en mesure d’expliquer.
+> *Il n’y a rien de tel que l’esprit subconscient, le seul esprit que tu as est celui qui te permet d’exprimer ce que tu connais vraiment de tes propres pensées qui ne dépendent pas de ce que les autres peuvent infuser dans ton cerveau comme je le fais maintenant, mais qui ont leur origine dans ton cerveau sans être produites par des esprits extérieurs. Ce qu’on appelle l’esprit subconscient est simplement une chose imaginaire utilisée par les scientifiques pour indiquer qu’ils n’ont aucun meilleur nom pour l’appeler. Il n’est pas une partie de toi-même ou de ton cerveau, mais seulement l’image que ces sages utilisent pour ce qu’ils ne sont pas en mesure d’expliquer.*
 
 Très bien. Maintenant, je vais mettre en avant mes impressions.
 
@@ -85,7 +85,7 @@ Oui, Jésus est ici ; l’as-tu vu? Il est ici parce que le sujet est très impo
 
 Tout d’abord, essaie d’atteindre l’harmonie dans ton « subconscient », en t’accordant aux sources adéquates. Luc [a écrit ces sages paroles](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-30-1-jep-st-luke/) :
 
-> Bien que le Satan personnel n’existe pas, l’idée véhiculée par la nécessité de l’attacher afin d’amener ce millénaire est cependant vraie et s’applique à la relation réelle des hommes à ces mauvais esprits, sauf que, dans ce dernier cas, il n’est pas nécessaire ou même possible de les attacher mais de les assouplir – ce qui consiste à desserrer leur rapport avec ou leur influence sur les hommes car, lorsque ceci est fait, les hommes deviennent, en quelque sorte, libres, et ces mauvais esprits, bien  que toujours présents, se trouvent sans pouvoir.
+> *Bien que le Satan personnel n’existe pas, l’idée véhiculée par la nécessité de l’attacher afin d’amener ce millénaire est cependant vraie et s’applique à la relation réelle des hommes à ces mauvais esprits, sauf que, dans ce dernier cas, il n’est pas nécessaire ou même possible de les attacher mais de les assouplir – ce qui consiste à desserrer leur rapport avec ou leur influence sur les hommes car, lorsque ceci est fait, les hommes deviennent, en quelque sorte, libres, et ces mauvais esprits, bien  que toujours présents, se trouvent sans pouvoir.*
 
 Pour ce faire, tu dois prier.
 

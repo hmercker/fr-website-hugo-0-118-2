@@ -29,19 +29,19 @@ Lorsqu’une âme reçoit l’Amour du Père, elle entre nécessairement dans le
 
 Jésus l’a expliqué dans des mots un peu plus simples, moins théoriques et avec plus d’illustration pratique, nous pouvons même trouver quelques exemples de ces explications dans la Bible. Dans ce document, nous pouvons lire :
 
-> Il en sera comme d’un homme qui, partant pour un voyage, appela ses serviteurs, et leur remit ses biens.
+> *Il en sera comme d’un homme qui, partant pour un voyage, appela ses serviteurs, et leur remit ses biens.*
 <br>
 <br>
-> Il donna cinq talents à l’un, deux à l’autre, et un au troisième, à chacun selon sa capacité, et il partit. Aussitôt celui qui avait reçu les cinq talents s’en alla, les fit valoir, et il gagna cinq autres talents. De même, celui qui avait reçu les deux talents en gagna deux autres. Celui qui n’en avait reçu qu’un alla faire un creux dans la terre, et cacha l’argent de son maître.
+> *Il donna cinq talents à l’un, deux à l’autre, et un au troisième, à chacun selon sa capacité, et il partit. Aussitôt celui qui avait reçu les cinq talents s’en alla, les fit valoir, et il gagna cinq autres talents. De même, celui qui avait reçu les deux talents en gagna deux autres. Celui qui n’en avait reçu qu’un alla faire un creux dans la terre, et cacha l’argent de son maître.*
 <br>
 <br> 
-> Longtemps après, le maître de ces serviteurs revint, et leur fit rendre compte. Celui qui avait reçu les cinq talents s’approcha, en apportant cinq autres talents, et il dit : Seigneur, tu m’as remis cinq talents; voici, j’en ai gagné cinq autres. Son maître lui dit: C’est bien, bon et fidèle serviteur; tu as été fidèle en peu de chose, je te confierai beaucoup; entre dans la joie de ton maître. Celui qui avait reçu les deux talents s’approcha, en apportant deux autres talents, et il dit : Seigneur, tu m’as remis deux talents; voici, j’en ai gagné deux autres. Son maître lui dit: C’est bien, bon et fidèle serviteur; tu as été fidèle en peu de chose, je te confierai beaucoup; entre dans la joie de ton maître.
+> *Longtemps après, le maître de ces serviteurs revint, et leur fit rendre compte. Celui qui avait reçu les cinq talents s’approcha, en apportant cinq autres talents, et il dit : Seigneur, tu m’as remis cinq talents; voici, j’en ai gagné cinq autres. Son maître lui dit: C’est bien, bon et fidèle serviteur; tu as été fidèle en peu de chose, je te confierai beaucoup; entre dans la joie de ton maître. Celui qui avait reçu les deux talents s’approcha, en apportant deux autres talents, et il dit : Seigneur, tu m’as remis deux talents; voici, j’en ai gagné deux autres. Son maître lui dit: C’est bien, bon et fidèle serviteur; tu as été fidèle en peu de chose, je te confierai beaucoup; entre dans la joie de ton maître.*
 <br>
 <br>
-> Celui qui n’avait reçu qu’un talent s’approcha ensuite, et il dit: Seigneur, je savais que tu es un homme dur, tu moissonnes où tu n’as pas semé, et tu amasses où tu n’as pas vanné. J’ai eu peur, et je suis allé cacher ton talent dans la terre; voici, prends ce qui est à toi.
+> *Celui qui n’avait reçu qu’un talent s’approcha ensuite, et il dit: Seigneur, je savais que tu es un homme dur, tu moissonnes où tu n’as pas semé, et tu amasses où tu n’as pas vanné. J’ai eu peur, et je suis allé cacher ton talent dans la terre; voici, prends ce qui est à toi.*
 <br>
 <br>
-> Son maître lui répondit : Serviteur méchant et paresseux, tu savais que je moissonne où je n’ai pas semé, et que j’amasse où je n’ai pas vanné ; Il te fallait donc remettre mon argent aux banquiers, et, à mon retour, j’aurais retiré ce qui est à moi avec un intérêt. Ôtez-lui donc le talent, et donnez-le à celui qui a les dix talents. Car on donnera à celui qui a, et il sera dans l’abondance, mais à celui qui n’a pas on ôtera même ce qu’il a.
+> *Son maître lui répondit : Serviteur méchant et paresseux, tu savais que je moissonne où je n’ai pas semé, et que j’amasse où je n’ai pas vanné ; Il te fallait donc remettre mon argent aux banquiers, et, à mon retour, j’aurais retiré ce qui est à moi avec un intérêt. Ôtez-lui donc le talent, et donnez-le à celui qui a les dix talents. Car on donnera à celui qui a, et il sera dans l’abondance, mais à celui qui n’a pas on ôtera même ce qu’il a.*
 
 Cette parabole fut vraiment utilisée par Jésus, sous une forme similaire, pas exactement de cette façon. Elle traite de beaucoup d’argent. Un talent équivaut à 3 000 shekels, chaque shekel avait une valeur de 4 deniers, c’est-à-dire le salaire de 4 jours ouvrables. Un talent correspond à 10 000 jours de travail, ou 33 ans. Une somme impressionnante, les auditeurs de Jésus ont donc été impressionnés.
 

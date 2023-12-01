@@ -29,21 +29,23 @@ S’il fallait classer les apôtres en types intellectuel et émotionnel, on pou
 
 Les paroles du Maître ont beaucoup impressionné Simon, comme elles ont impressionné chacun d’entre nous, même si nous ne comprenions pas toutes leurs implications. Nous avions tous rêvé de l’avènement du « Royaume » mais ici sur terre, avec Jésus comme Roi. Mais, comme tu le sais très bien, l’avenir fut très différent.
 
-Les nombreux miracles, que le Maître a effectués, nous ont presque laissé l’impression de la « toute-puissance » de Jésus, et je crois que si je n’avais pas trahi le Maître, Simon l’aurait fait, tôt ou tard, pour l’obliger à démontrer son pouvoir infini. En quelque sorte, nous étions tous coupables « d’avoir des oreilles mais de ne pas être à l’écoute. »
+Les nombreux miracles, que le Maître a effectués, nous ont presque laissé l’impression de la « toute-puissance » de Jésus, et je crois que si je n’avais pas trahi le Maître, Simon l’aurait fait, tôt ou tard, pour l’obliger à démontrer son pouvoir infini. En quelque sorte, nous étions tous coupables *« d’avoir des oreilles mais de ne pas être à l’écoute. »*
 
-La mort du Maître fut une catastrophe pour l’ensemble du mouvement, avec le grand danger de mettre un terme, une fois pour toutes, aux travaux que le Maître avait commencés. C’est seulement grâce à ses apparitions, à plusieurs reprises et plus fréquentes que celles rapportées par la Bible, que l’embryon d’une « Église Chrétienne »  a réussi à survivre et principalement en raison des événements de la Pentecôte que je n’ai pas expérimentée et dont, malheureusement, je n’ai pas été témoin.
+La mort du Maître fut une catastrophe pour l’ensemble du mouvement, avec le grand danger de mettre un terme, une fois pour toutes, aux travaux que le Maître avait commencés. C’est seulement grâce à ses apparitions, à plusieurs reprises et plus fréquentes que celles rapportées par la Bible, que l’embryon d’une *« Église Chrétienne »*  a réussi à survivre et principalement en raison des événements de la Pentecôte que je n’ai pas expérimentée et dont, malheureusement, je n’ai pas été témoin.
 
 La diversité de caractère des premiers disciples de Jésus, bien sûr, a provoqué, entre eux, des tensions et finalement un groupe de « libéraux » s’est formé autour de Pierre et Jean et un autre groupe de « conservateurs » s’est formé autour de Jacques et Simon.
 
-Simon est resté à Jérusalem jusqu’à ce que l’autorité de Jacques comme évêque de « l’église centrale » se soit consolidée, il alors dit au revoir à son ami et s’est concentré sur son travail de missionnaire. La légende raconte que Simon a prêché l’Évangile en Mauritanie, en Afrique et même en Grande-Bretagne, où il fut crucifié en 74 après J.-C.
+Simon est resté à Jérusalem jusqu’à ce que l’autorité de Jacques comme évêque de *« l’église centrale »* se soit consolidée, il alors dit au revoir à son ami et s’est concentré sur son travail de missionnaire. La légende raconte que Simon a prêché l’Évangile en Mauritanie, en Afrique et même en Grande-Bretagne, où il fut crucifié en 74 après J.-C.
 
-Ce n’est pas vraiment correct. En fait, Simon se rendit en Afrique, en passant par la Sicile, où il fonda la première communauté chrétienne qui, plus tard, gagnerait beaucoup d’importance. De la province romaine d’Afrique, voyagea plus loin vers l’Ouest, traversa la Numidie et finalement arriva en Mauritanie, qui, à cette époque, était composée de la partie Nord de ce qui est  l’Algérie et le Maroc d’aujourd’hui. Là, il se consacra à la prédication jusqu’à sa mort. Il mourut,  relativement jeune, avant sa cinquantième année, de causes naturelles.
+Ce n’est pas vraiment correct. En fait, Simon se rendit en Afrique, en passant par la Sicile, où il fonda la première communauté Chrétienne qui, plus tard, gagnerait beaucoup d’importance. De la province romaine d’Afrique, voyagea plus loin vers l’Ouest, traversa la Numidie et finalement arriva en Mauritanie, qui, à cette époque, était composée de la partie Nord de ce qui est  l’Algérie et le Maroc d’aujourd’hui. Là, il se consacra à la prédication jusqu’à sa mort. Il mourut, relativement jeune, avant sa cinquantième année, de causes naturelles.
 
 Les régions où Simon avait prêché l’Évangile ont très vite succombé à l’influence de l’Église des Gentils, plus tard, lors de l’invasion des tribus germaniques, elles deviendront un rempart contre l’Arianisme. Aujourd’hui il ne subsiste pas grand chose du travail de Simon. La conquête de l’Islam a tout balayé.
 
 Avec cette courte biographie, j’espère avoir un peu satisfait ta curiosité. Petit à petit, je livrerai des informations supplémentaires sur toutes les personnes du cercle de Jésus. Il est regrettable que presque rien n’ait été transmis à leur sujet et que le peu qui ait survécu ne soit que des légendes de valeur douteuse.
 
 Que Dieu te bénisse.
+
+![](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 
 Judas.
 

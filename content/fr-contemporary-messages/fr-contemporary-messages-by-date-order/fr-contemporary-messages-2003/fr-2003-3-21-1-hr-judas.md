@@ -39,10 +39,5 @@ Je continuerai mon message plus tard.
 
 Judas.
 
-______________________________
-
-117 Voir le message donné par David le 20 Mars 2003 à travers P.J.R : http://new-birth.net/contemporary/pjr1.htm.
-
-
 
 © Geoff Cutler 2013

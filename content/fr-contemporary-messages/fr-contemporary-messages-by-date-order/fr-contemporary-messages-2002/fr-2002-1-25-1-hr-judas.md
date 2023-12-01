@@ -13,7 +13,7 @@ Judas - reçu par H____ le 25 Janvier 2002, Cuenca, Équateur.
 
 Bonjour, mon frère. Je vois que tu es un peu inquiet.
 
-*[H : Pas vraiment inquiet, mais un peu confus. Avant-hier et hier j’ai essayé de recevoir ton message, mais sans le moindre succès. Je me suis préparé, j’ai réservé un bon moment pour toi, à midi, quand je ne suis pas endormi, j’ai même eu l’impression que tu parlerais sur « la haine qui devient compassion dans l’au-delà », ou quelque chose comme ça, mais lorsque j’ai vraiment essayé de recevoir, il n’y avait rien, que le silence. Je ne comprends pas cela.]*
+*[H : Pas vraiment inquiet, mais un peu confus. Avant-hier et hier j’ai essayé de recevoir ton message, mais sans le moindre succès. Je me suis préparé, j’ai réservé un bon moment pour toi, à midi, quand je ne suis pas endormi, j’ai même eu l’impression que tu parlerais sur *« la haine qui devient compassion dans l’au-delà »*, ou quelque chose comme ça, mais lorsque j’ai vraiment essayé de recevoir, il n’y avait rien, que le silence. Je ne comprends pas cela.]*
 
 Eh bien, mon cher ami, bien que tu pensais être en bonne condition, ce n’était pas vrai. C’est pourquoi je n’ai pas cherché à transmettre un message. Aujourd’hui, tu es en meilleure forme, cependant ta condition ne me permet pas de transmettre le message que j’avais prévu. Je voulais parler de l’amour naturel et de sa purification. Cependant, aujourd’hui, ce n’est pas le jour approprié pour le faire. Au lieu de cela, je vais communiquer un autre message.
 

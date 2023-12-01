@@ -1,13 +1,13 @@
 ---
-title: "Communications avec des esprits célestes ou non"
+title: "Communications avec des esprits Célestes ou non"
 menu_title: ""
-description: "Communications avec des esprits célestes ou non"
+description: "Communications avec des esprits Célestes ou non"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True
 weight:
 ---
-### Communications avec des esprits célestes ou non
+### Communications avec des esprits Célestes ou non
 
 Judas - reçu par H____ le 29 Août 2001, Cuenca, Équateur.
 

@@ -21,7 +21,7 @@ Il est vrai que tous les hommes ont, dans une certaine mesure, le don de médium
 
 [J’ai moi-même écrit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-1-1-hr-judas/),
 
-> Le plus important à propos de la communication des messages, c’est l’Amour. Les messages en eux-mêmes ne sont rien de plus que des béquilles le long du chemin.
+> *Le plus important à propos de la communication des messages, c’est l’Amour. Les messages en eux-mêmes ne sont rien de plus que des béquilles le long du chemin.*
 
 Et dans mon [dernier message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-25-1-hr-judas/), j’ai répété que tout le monde pourrait mettre le message de Jésus à l’épreuve. Et ce message ne dit pas seulement que Dieu nous offre Son Amour et que nous pouvons obtenir cet amour, mais aussi que l’Amour Divin apporte la foi et élargit notre perception de l’âme. En d’autres termes, il permet aux mortels de communiquer avec leurs guides au plus haut niveau.
 

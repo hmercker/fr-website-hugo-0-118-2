@@ -49,13 +49,13 @@ Il y a plusieurs façons, en fonction des goûts et des commodités, de bien mé
 
 Tu es l’un de ces intellectuels qui ont besoin de preuve pour tout. Mais ne t’inquiète pas, ce n’est pas mauvais, continue juste de cette façon. C’est une façon légitime d’approcher la vérité. Ce n’est pas la manière la plus facile, ni la manière la plus rapide, mais elle est légitime. Réfléchis y bien, ceux qui croient sans nécessité de preuve ont la même connaissance d’âme. C’est ce que la foi est, il n’y a aucune nécessité d’ajuster leur mental matériel à cette connaissance profonde et absolue. Dans ton cas, le conflit entre l’esprit et l’âme se poursuit, mais tu ne te rends pas compte que ton esprit perd du terrain tous les jours.
 
-Maintenant, alors que  je suis sur le point de te quitter, je tiens à te dire que j’aime bien la façon dont tu as dessiné mon portrait. J’étais un peu plus mince, mais c’est une bonne image. Merci. Tu as également reçu une vision d’André. Peut-être pourras-tu, un jour, [peindre une galerie de portraits de tous les apôtres?](/fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/) Ce serait certainement très attrayant.
+Maintenant, alors que  je suis sur le point de te quitter, je tiens à te dire que j’aime bien la façon dont tu as dessiné mon portrait. J’étais un peu plus mince, mais c’est une bonne image. Merci. Tu as également reçu une vision d’André. Peut-être pourras-tu, un jour, [peindre une galerie de portraits de tous les apôtres?](/3-fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/) Ce serait certainement très attrayant.
 
-![](/fr-judas-of-kerioth-messages/fr-judas.jpg)
+![](/3-fr-judas-of-kerioth-messages/fr-judas.jpg)
 
 Judas de Kérioth
 
-Dis à M____ que l’ange qu’elle a dessiné n’est pas le produit d’un processus de « dessin automatique », mais le résultat d’un dessin inspiré. Son ange gardien a vraiment imprimé en elle cette image, ce qui l’a beaucoup aidée, et continuera de l’aider à s’élever au niveau du monde des esprits et surtout de son ange. Nous pouvons nous présenter sous des formes diverses, et les ailes symbolisent notre agilité. Elle a dessiné le cœur rayonnant, l’âme transformée, et je veux juste lui dire que son ange gardien vit avec moi dans le Royaume Céleste.
+Dis à M____ que l’ange qu’elle a dessiné n’est pas le produit d’un processus de *« dessin automatique »*, mais le résultat d’un dessin inspiré. Son ange gardien a vraiment imprimé en elle cette image, ce qui l’a beaucoup aidée, et continuera de l’aider à s’élever au niveau du monde des esprits et surtout de son ange. Nous pouvons nous présenter sous des formes diverses, et les ailes symbolisent notre agilité. Elle a dessiné le cœur rayonnant, l’âme transformée, et je veux juste lui dire que son ange gardien vit avec moi dans le Royaume Céleste.
 
 Dis à Mar____ que si elle a eu l’impression que je suis avec elle, elle ne s’est pas  trompée. Elle a reçu les impressions que je lui ai envoyées, et, ultérieurement, elle saura comment les recevoir plus clairement.
 

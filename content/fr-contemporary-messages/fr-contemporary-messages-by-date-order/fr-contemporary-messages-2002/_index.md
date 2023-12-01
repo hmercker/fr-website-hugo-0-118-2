@@ -37,7 +37,7 @@ Judas | [Le baptême de Jésus](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [Le retour à Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | 5 Février 2002
 Judas | [Jésus rencontre Simon Pierre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-8-1-hr-judas/) | 8 Février 2002
 Judas | [Vivre dans ce monde, sans en faire partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-14-1-hr-judas/) | 14 Février 2002
-Judas | [Jésus rencontre la famille Zebedee](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) | 15 Février 2002
+Judas | [Jésus rencontre la famille Zébédée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) | 15 Février 2002
 Judas | [Le fils prodigue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-18-1-hr-judas/) | 18 Février 2002
 Judas | [Le vrai sens des paroles de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-19-1-hr-judas/) | 19 Février 2002
 Judas | [Judas et Jean le Baptiste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-20-1-hr-judas/) | 20 Février 2002
@@ -70,7 +70,7 @@ PSR | [L’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-
 Judas | [Levez-vous et soyez comptés (1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-15-1-hr-judas/) | 15 Avril 2002
 Judas | [Levez-vous et soyez comptés (2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-16-1-hr-judas/) | 16 Avril 2002
 Judas | [Levez-vous et soyez comptés (3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-17-1-hr-judas/) | 17 Avril 2002
-Judas | [L’administrateur infidel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-19-1-hr-judas/) | 19 Avril 2002
+Judas | [L’administrateur infidèle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-19-1-hr-judas/) | 19 Avril 2002
 PSR | [Difficultés à atteindre le Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-24-1-pjr-psr/) | 24 Avril 2002
 Judas | [Les démons jetés dans les porcs ? Jésus prêche aux païens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-25-1-hr-judas/) | 25 Avril 2002
 Judas | [Médiumnité et la valeur des messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-28-1-hr-judas/) | 28 Avril 2002

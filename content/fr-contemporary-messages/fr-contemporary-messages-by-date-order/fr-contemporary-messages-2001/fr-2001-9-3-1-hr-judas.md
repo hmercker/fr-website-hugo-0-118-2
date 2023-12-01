@@ -37,7 +37,7 @@ Je vais répondre à cela très directement : **Les cieux célestes se fermeront
 
 Tu te souviens qu’il y a un délai de grâce pour ceux dont les âmes sœurs vivent dans les Cieux Célestes. Elles sont gratifiées d’un temps supplémentaire pour obtenir l’Amour Divin. Tu te souviens aussi que ces âmes qui ont déjà obtenu une petite partie de l’Amour de Dieu auront toujours la possibilité d’en obtenir plus à travers toute l’éternité.
 
-Si tu y réfléchis, tu peux voir que le Père a la facilité de retirer, sélectivement, le privilège de recevoir Sa Substance. C’est pourquoi je ne peux pas te dire s’il y aura un jour précis où ce privilège sera retiré de toutes les âmes en manque d’Amour Divin, ou si cela se produira graduellement, à savoir, s’Il retirera le privilège à certaines âmes, tandis que d’autres âmes continueront d’en bénéficier.
+Si tu y réfléchis, tu peux voir que le Père a la facilité de retirer, sélectivement, le privilège de recevoir Sa Substance<sup id=”a1”>[1](#f1)</sup>. C’est pourquoi je ne peux pas te dire s’il y aura un jour précis où ce privilège sera retiré de toutes les âmes en manque d’Amour Divin, ou si cela se produira graduellement, à savoir, s’Il retirera le privilège à certaines âmes, tandis que d’autres âmes continueront d’en bénéficier.
 
 Parfois, tu as pensé qu’il était injuste que les âmes qui ont vécu sur terre il y a 5000 ans ont bénéficié de temps pour se décider alors que d’autres âmes, qui se sont incarnées il y a relativement peu de temps, doivent se décider plus « rapidement ». Je ne veux pas m’étendre une fois de plus sur le terme de «juste», mais en fait nous ne savons pas si le Père accorde le même terme à chaque âme. Mais une chose est sûre : Chaque âme bénéficiera de suffisamment d’opportunités, et aucune âme ne pourra se plaindre d’un traitement « injuste ».
 
@@ -60,5 +60,8 @@ Maintenant, tu es somnolent. Le temps est venu de se dire au revoir. Je pense qu
 Dors maintenant et dors en paix. Je veillerai sur toi, la bénédiction de Dieu est sur toi.
 
 Bonne nuit, cher frère, Judas.
+<small>
+
+1. <large id=”f1”> Mon opinion personnelle sur la question, c’est qu’il est impossible de répondre à cette question clairement et succinctement dans le cadre des notions limitées qui sont présentées dans les messages de James Padgett. Cependant, le Livre d’Urantia a une explication très simple pour cette question, basée sur l’abandon par leur Ajusteur de Pensée, d’une personne, qui ne désire pas la fusion. Que ceci se produise, est évident, selon ces sources, en raison de l’existence des Ajusteurs de Pensée qui ont guidé plus d’un mortel. Des communications reçues après cette série émise par Judas ont confirmé que le concept d’Ajusteur de Pensée et d’Amour Divin sont des concepts différents, les deux d’importance égale pour comprendre les processus qui se produisent.[↩](#a1)
 
 © Geoff Cutler 2013

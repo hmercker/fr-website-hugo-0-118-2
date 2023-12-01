@@ -13,7 +13,7 @@ weight:
 
 Moïse - reçu par Amada Reza le 7 Avril 2002, Aptos, Californie, USA.
 
-Je suis ici avec toi, ma chère sœur en Christ, et je suis Moïse de l’Ancien Testament. Je suis venu à l’instigation de notre Maître, Jésus, car il voit que tu es en état de recevoir un peu de ce que je voudrais écrire – et c’est le sujet des Hébreux qui sont le « peuple élu ».
+Je suis ici avec toi, ma chère sœur en Christ, et je suis Moïse de l’Ancien Testament. Je suis venu à l’instigation de notre Maître, Jésus, car il voit que tu es en état de recevoir un peu de ce que je voudrais écrire – et c’est le sujet des Hébreux qui sont le *« peuple élu ».*
 
 Tu comprends qu’à l’époque où je vivais sur terre, le développement de l’âme collective de l’humanité n’était pas très avancé, et nous luttions en tant que groupe social de personnes dans notre tentative de vivre en harmonie les uns avec les autres. L’amour naturel était le seul pouvoir dont nous disposions pour rester unis et nous concentrer sur l’entraide dans les moments difficiles, mais cet amour n’était pas suffisant pour surmonter les maux qui existaient dans le cœur et l’esprit de tous les peuples, Hébreux ou non.
 

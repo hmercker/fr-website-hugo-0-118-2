@@ -33,7 +33,7 @@ La Bible indique aussi les régions qui, plus tard, ont été occupées par les 
 
 Nous n’avons pas besoin, maintenant, de savoir si cette histoire est correcte ou non, parce que les conclusions du professeur s’appuient également sur l’histoire biblique, sans la soumettre à une enquête critique.
 
-Grâce à l’histoire biblique, nous savons que, des siècles après la prise de possession de Canaan, les grandes tribus ont absorbé les plus petites, les gros poissons ont avalé les plus petits. Siméon a disparu en Juda, et nous pouvons dire la même chose de Benjamin, qui même à l’époque du Nouveau Testament,  a poursuivi officiellement la séparation. Paul de Tarse était de cette tribu.
+Grâce à l’histoire biblique, nous savons que, des siècles après la prise de possession de Canaan, les grandes tribus ont absorbé les plus petites, les gros poissons ont avalé les plus petits. Siméon a disparu en Juda, et nous pouvons dire la même chose de Benjamin, qui même à l’époque du Nouveau Testament, a poursuivi officiellement la séparation. Paul de Tarse était de cette tribu.
 
 Les Lévites furent expulsés du Royaume du Nord avant sa destruction par les Assyriens. Par conséquent, le Royaume de Juda au sud comprenait les tribus de Juda, Siméon, Benjamin et Levi. Ils ont regroupé jusqu’à quatre tribus parmi les treize. Combien subsistent ? Pour l’amour de Dieu, qui sont les 10 tribus perdues ?
 

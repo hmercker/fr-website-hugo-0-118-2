@@ -88,7 +88,7 @@ Eh bien, mon frère, je vois que la réprimande de M____ fut fructueuse. Elle sa
 
 Lorsque tu parviens à te convertir à cette attitude, celle d’aller au Père, dans une partie de ta vie, ta spiritualité ne sera plus comme des montagnes russes, avec des hauts et des bas. Te rappelles-tu ce que tu as lu dans le [message de Marie Madeleine à Amada Reza](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) ?
 
-> C’est extraordinaire si tu réalises que ta nature spirituelle est ta vraie nature; tu ne seras pas autant affecté par le monde physique, toujours sujet à des changements, par rapport à celui qui place toute sa confiance dans les soi-disant réalités.
+> *C’est extraordinaire si tu réalises que ta nature spirituelle est ta vraie nature; tu ne seras pas autant affecté par le monde physique, toujours sujet à des changements, par rapport à celui qui place toute sa confiance dans les soi-disant réalités.*
 
 Si tu recherches la stabilité, repose toi sur des choses qui sont stables.
 

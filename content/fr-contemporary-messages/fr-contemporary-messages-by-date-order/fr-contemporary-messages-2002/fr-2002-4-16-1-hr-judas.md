@@ -17,7 +17,7 @@ Le message d’aujourd’hui n’est pas du tout dans l’ordre chronologique. J
 
 L’année 26, comme tu l’as vu jusqu’ici, fut une année très heureuse pour Jésus. Il a pu rassembler, peu à peu, un groupe solide de disciples, il a conquis les cœurs de tout le village de Capharnaüm, son village, ses enseignements et sa renommée ont commencé à se répandre partout dans le pays, jusqu’à Jérusalem.
 
-Deux ans après, la situation était très différente. La réussite suscite souvent l’envie des autres. Les bons enseignements poussent toujours les autres à chercher ce qui est mauvais ou erroné en eux et s’ils ne peuvent pas le trouver, ils l’inventent. Une vie honnête et de bonnes paroles peuvent apparaître comme une menace pour ceux dont les vies et le comportement déformés contrastent encore plus en comparaison. C’était l’époque où beaucoup de groupes de Juifs, de Pharisiens et d’autres, ont lancé leur entreprise pour discréditer Jésus. Ils se sont alors exprimés ainsi : « Tu es possédé par des démons. Tu es un Samaritain (une insulte sérieuse). Tu es un mamzer (un bâtard, une insulte très sérieuse selon la loi). »
+Deux ans après, la situation était très différente. La réussite suscite souvent l’envie des autres. Les bons enseignements poussent toujours les autres à chercher ce qui est mauvais ou erroné en eux et s’ils ne peuvent pas le trouver, ils l’inventent. Une vie honnête et de bonnes paroles peuvent apparaître comme une menace pour ceux dont les vies et le comportement déformés contrastent encore plus en comparaison. C’était l’époque où beaucoup de groupes de Juifs, de Pharisiens et d’autres, ont lancé leur entreprise pour discréditer Jésus. Ils se sont alors exprimés ainsi : *« Tu es possédé par des démons. Tu es un Samaritain (une insulte sérieuse). Tu es un mamzer (un bâtard, une insulte très sérieuse selon la loi). »*
 
 Naturellement, nous étions très inquiets de l’hostilité croissante, et nous avons discuté de ce problème avec le Maître.
 
@@ -25,17 +25,17 @@ Jésus, comme nous avons vu, avait l’habitude d’exposer ses enseignements so
 
 Dans le Nouveau Testament tu peux lire des phrases comme celles-ci :
 
-> Je suis le pain de vie. L’homme qui vient à moi n’aura jamais faim et l’homme qui croit en moi n’aura jamais soif. (Jean 6:35)
+> *Je suis le pain de vie. L’homme qui vient à moi n’aura jamais faim et l’homme qui croit en moi n’aura jamais soif.*[Jean 6:35](https://saintebible.com/john/6-35.htm)
 <br>
 <br>
-> Quiconque boit de cette eau aura encore soif (Jean 4:13)
+> *Quiconque boit de cette eau aura encore soif.* [Jean 4:13](https://saintebible.com/john/4-13.htm)
 <br>
 <br>
-> Le Royaume des Cieux est semblable à du levain qu’une femme a pris et mis dans trois mesures de farine, jusqu’à ce que la pâte soit toute levée. (Matthieu 13:33)
+> Le Royaume des Cieux est semblable à du levain qu’une femme a pris et mis dans trois mesures de farine, jusqu’à ce que la pâte soit toute levée. [Matthieu 13:33](https://saintebible.com/matthew/13-33.htm)
 
 *« Gardez vos yeux ouverts »*, leur a dit Jésus, *« et gardez-vous avec soin du levain des Pharisiens et des Sadducéens ! Comment ne comprenez-vous pas que ce n’est pas au sujet de pain que je vous ai parlé ? Gardez-vous du levain des Pharisiens et des Sadducéens. »*
 
-Alors ils comprirent que ce n’était pas du levain du pain qu’il avait dit de se garder, mais de l’enseignement des Pharisiens et des Sadducéens. (Matthieu 16:6-12)
+Alors ils comprirent que ce n’était pas du levain du pain qu’il avait dit de se garder, mais de l’enseignement des Pharisiens et des Sadducéens. [Matthieu 16:6-12](https://saintebible.com/matthew/16-6.htm)
 
 Dans ces phrases simples, tu peux facilement identifier des concepts importants :
 
@@ -47,9 +47,9 @@ Le pain de vie, c’est-à-dire, les enseignements du Maître, qui nous entretie
 
 Et puis, la levure des Pharisiens et des Sadducéens. Eh bien, cette formule *« des Pharisiens et des Sadducéens »* ou *« des Pharisiens et des Scribes »* est une citation monolithique et stéréotypée d’un temps postérieur, lorsque les adversaires de Jésus ont été symbolisés au moyen de cette expression. Mais de nouveau, Jésus compare ses enseignements à de la levure ou à de la nourriture. Les gens comprenaient cela.
 
-Dans une autre partie du Nouveau Testament tu peux lire :
+Dans une autre partie du Nouveau Testament [Matthieu 15:11](https://saintebible.com/matthew/15-11.htm)tu peux lire :
 
-> Ce n’est pas ce qui entre dans la bouche qui souille l’homme. Mais ce qui sort de la bouche, c’est ce qui souille l’homme. Ne comprenez-vous pas que tout ce qui entre dans la bouche va dans le ventre, puis est jeté dans les lieux secrets ? Mais ce qui sort de la bouche vient du cœur et de l’esprit, et c’est ce qui souille l’homme.
+> *Ce n’est pas ce qui entre dans la bouche qui souille l’homme. Mais ce qui sort de la bouche, c’est ce qui souille l’homme. Ne comprenez-vous pas que tout ce qui entre dans la bouche va dans le ventre, puis est jeté dans les lieux secrets ? Mais ce qui sort de la bouche vient du cœur et de l’esprit, et c’est ce qui souille l’homme.*
 
 Ici encore, la nourriture est le symbole pour des enseignements. D’ailleurs, ce verset n’est pas au sujet de la consommation de porc et de crevettes, ou au sujet de nourriture pure ou impure. Cela n’avait jamais été un sujet de discussion. C’est au sujet des enseignements. Maintenant, un jour de l’année 28, nous étions rassemblés avec le Maître et…
 

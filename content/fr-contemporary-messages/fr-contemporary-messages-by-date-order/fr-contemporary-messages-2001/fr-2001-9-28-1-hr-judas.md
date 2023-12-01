@@ -1,13 +1,13 @@
 ---
-title: "La septième sphere"
+title: "La septième sphère"
 menu_title: ""
-description: "La septième sphere"
+description: "La septième sphère"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True
 weight:
 ---
-### La septième sphere
+### La septième sphère
 
 Judas - reçu par H____ le 28 Septembre 2001, Cuenca, Équateur.
 

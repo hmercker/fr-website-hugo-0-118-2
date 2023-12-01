@@ -23,7 +23,7 @@ Cependant Jésus avait, dans son âme, un morceau de Ciel, sa présence vibrait 
 
 Une grande partie de cette énergie initiale a été perdue; la force a été déviée et pervertie. Cependant, nous pouvons encore la sentir, et si l’on compare  les sociétés d’aujourd’hui avec celles de l’antiquité, nous voyons des indications très claires du changement, des changements longs et tortueux, mais, en tout état de cause, des changements.
 
-Il s’agit de la « dynamique de l’amour. » Chaque décision qui nous rapproche de l’harmonie, rend plus facile pour nous de prendre, à l’avenir, les bonnes décisions. La dynamique de l’amour est un contrepoids à la dynamique du mal. Et les situations que nous observons sont le résultat du jeu de pouvoir entre les deux.
+Il s’agit de la *« dynamique de l’amour. »* Chaque décision qui nous rapproche de l’harmonie, rend plus facile pour nous de prendre, à l’avenir, les bonnes décisions. La dynamique de l’amour est un contrepoids à la dynamique du mal. Et les situations que nous observons sont le résultat du jeu de pouvoir entre les deux.
 
 Le mal se nourrit par le biais de nos désirs, lesquels servent en général des intérêts très égoïstes. Le pouvoir des hommes de projeter leur capacité de raisonnement est un élément très dangereux, ils ne se contentent plus d’assurer leur survie, ils veulent plus et toujours plus, ils passent de la survie à une vie de luxe à n’importe quel prix. Aussi, au lieu de céder à leurs peurs ou de les diriger, ils les dissimulent et tentent de les compenser, menaçant et intimidant les autres personnes ayant la veine intention de décharger leurs propres peurs sur le dos des autres.
 
