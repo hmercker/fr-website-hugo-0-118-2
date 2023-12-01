@@ -34,26 +34,35 @@ L’écrivain portugais, José Saramago, récompensé par le prix Nobel de litt�
   Ici, j’aurais aimé lire une définition de ce qu’est la mort. Oui, je comprends que l’auteur veut exprimer que Dieu est le fruit de l’esprit humain, vivant uniquement dans cet esprit, comme un fantôme ou une projection. Et lorsque l’homme meurt – et ici, il est clair qu’il parle d’une mort définitive, de « cessation d’existence » –alors l’existence de Dieu, va elle aussi se terminer, parce que l’esprit qui l’a nourrie n’existe plus. Ceci, implicitement, a déjà été mentionné dans la première déclaration.
 
 3. Les hommes pardonnent tout à Dieu et moins ils le connaissent, plus ils lui pardonnent.  
+<br/>
   Moins ils le connaissent, plus ils le craignent, sans oser le blâmer pour ce qu’ils perçoivent comme « son œuvre. »
 
 4. Dieu est le silence de l’univers et l’homme le cri qui donne sens à ce silence.  
+<br/>
   Dieu est l’amour qui inonde l’univers et l’homme est comme le sel qui, peu à peu, se dissout dans l’océan de la Divinité, ce qui lui donne de la « saveur ».
 
 5. Dieu : un « tout » arraché du néant, après quoi il ne reste guère plus que le néant.  
+<br/>
   Une fois de plus, l’athée se trahit lui-même, poussé par un désir inconnu à chercher Dieu, mais dont l’esprit a été pris au piège par l’encre des livres.
 
 6. Dieu dit : n’adore pas cette pierre, cet arbre, cette montagne; ce sont tous de faux dieux. Je suis le seul vrai Dieu. Saramago commente : Dieu, pauvre garçon, est en train de tomber dans le péché flagrant d’orgueil.  
+<br/>
   Oh, Dieu, pauvre camarade… si l’orgueil est un péché, qui l’a commis ?
 
-7. Il faut être Dieu pour aimer tellement le sang. - Certainement, c’est une conclusion justifiée, compte tenu de l’histoire de l’Ancien Testament, et la mission de Jésus, comme les orthodoxes l’expliquent, lavant nos péchés par son sang.
+7. Il faut être Dieu pour aimer tellement le sang.  
+<br/>
+ Certainement, c’est une conclusion justifiée, compte tenu de l’histoire de l’Ancien Testament, et la mission de Jésus, comme les orthodoxes l’expliquent, lavant nos péchés par son sang.
 
 8. La tradition Juive considère la loi reçue au Sinaï comme un contrat entre le peuple et Dieu. Saramago affirme qu’un contrat décent devrait exprimer et harmoniser la volonté des deux parties. *« Je ne crois pas que l’on peut affirmer que tel est le cas : Dieu a imposé ses conditions et les hommes ont dû les accepter. »*  
+<br/>
   Ils les ont acceptées, parce que c’était les règles de base pour vivre ensemble, qui, par ailleurs, avaient été formulées beaucoup plus tôt dans d’autres cultures. Le « Code d’Hammourabi » établit des commandements très similaires, sans la participation supposée de Dieu. Si Dieu est juste la projection de l’esprit humain, pourquoi devrions-nous accuser le « fantôme » de ce sur lequel l’homme s’est entendu?
 
 9. Avant Jésus, les hommes étaient déjà capables de pardonner, mais pas les dieux. Le pardon est humain.  
+<br />
   Il est vrai, Dieu ne pardonne pas, Il aime. Dieu n’est pas justice, Il est amour. Accusé et juge, l’homme sera tous les deux en même temps.
 
 10. Quand viendra le jour, ô Seigneur, quand viendras-tu à nous et admettras-tu tes erreurs en face de tous les hommes ?  
+<br />
   Cela, il peut le demander lorsqu’il sera près du Père, pourvu que cette question soit encore valide pour lui et pas seulement un souvenir honteux d’un passé lointain.
 
 Il y a quelques jours nous avons parlé de « l’autre ». Le problème de l’analyse supposée de Dieu est, dans son essence, le problème de « l’autre » que l’homme ignore, et sur lequel il projette ses propres attentes. Dieu ne pardonne pas, car l’homme ne pardonne pas, Dieu fait des erreurs, parce que l’homme fait des erreurs, etc. Et il semble tellement difficile de trouver des caractéristiques d’amour en Dieu, alors que l’homme lui-même n’a pas cette propriété.
