@@ -43,7 +43,7 @@ Il n’y a qu’un seul Dieu. L'Esprit Saint appartient à Dieu, il fait partie 
 
 Je ne crois pas qu’il soit nécessaire d’en dire plus pour le moment, parce que nous allons aborder à nouveau ce sujet au moment approprié, lorsque nous nous concentrerons sur l’histoire des premiers siècles de l’église Chrétienne primitive.
 
-#### Sur l’Apocalypse de Jean, et plus particulièrement sur le chapitre 13
+#### 2. Sur l’Apocalypse de Jean, et plus particulièrement sur le chapitre 13
 
 Il y a déjà une série de messages sur le [livre de l’Apocalypse](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-2-jep-st-john/), où il a été expliqué clairement que cet ouvrage, écrit initialement par Jean, a été maltraité et trafiqué par un certain nombre d’auteurs. Tu peux encore reconnaître son origine Sémite, en raison du terrible style grec dans lequel il a été écrit et à la grande quantité de Sémitismes. Cependant, l’œuvre apocalyptique – c’est-à-dire, la révélation originale – est devenue un ouvrage mystique, sujet à l’occultisme et aux jeux de nombres cabalistiques. Il n’apporte rien à la foi.
 
@@ -61,7 +61,7 @@ Avec un peu d’effort les personnes peuvent arriver au résultat qu’elles sou
 
 Cet aspect particulier de l’Apocalypse a conduit beaucoup de docteurs de l’église primitive à rejeter l’inclusion de ce livre dans le canon de la Bible. C’est seulement suite de beaucoup d’efforts et de combats que l’Apocalypse fait dorénavant partie du Nouveau Testament, pour les églises principales. Cependant, toutes les églises ne le reconnaissent pas.
 
-#### L’Eucharistie célébrée dans les églises
+#### 3. L’Eucharistie célébrée dans les églises
 
 La commémoration du moment où Jésus a partagé pour la dernière fois le pain et le vin avec ses disciples, remonte en effet aux origines de la Chrétienté. C’était une réunion des croyants, pour commémorer ce moment et partager un repas dans l’amour et l’amitié. Pour cette raison, les anciens ont appelé cette réunion « agape », en utilisant le mot grec pour « amour ».
 
