@@ -25,9 +25,11 @@ Comme dernière et facile ressource, l’enquêteur analyse les écritures ancie
 
 L’écrivain portugais, José Saramago, récompensé par le prix Nobel de littérature, un homme brillant qui possède une grande maîtrise de la langue, a consacré beaucoup de temps à ses études Bibliques et il a formulé ses propres conclusions. Il a même réinterprété les Évangiles, en conservant l’essence de l’histoire biblique, mais en y ajoutant une bonne dose de « réalisme. » Dans son travail, nous trouvons plusieurs déclarations sur Dieu qui sont des déclarations surprenantes et provocantes pour sûr, une sélection nous allons les analyser une par une.
 
-1. Dieu a besoin des hommes pour exister pleinement en tant que Dieu. \ Je demande, quelle est la base de la relation entre l’homme et Dieu ? Avant de formuler cette déclaration, il aurait été bon d’enquêter sur le fond, je pense.
+1. Dieu a besoin des hommes pour exister pleinement en tant que Dieu.
+Je demande, quelle est la base de la relation entre l’homme et Dieu ? Avant de formuler cette déclaration, il aurait été bon d’enquêter sur le fond, je pense.
 
-2. La mort de chaque homme est une mort de Dieu, et lorsque le dernier homme sera mort, Dieu ne ressuscitera pas. - Ici, j’aurais aimé lire une définition de ce qu’est la mort. Oui, je comprends que l’auteur veut exprimer que Dieu est le fruit de l’esprit humain, vivant uniquement dans cet esprit, comme un fantôme ou une projection. Et lorsque l’homme meurt – et ici, il est clair qu’il parle d’une mort définitive, de « cessation d’existence » –alors l’existence de Dieu, va elle aussi se terminer, parce que l’esprit qui l’a nourrie n’existe plus. Ceci, implicitement, a déjà été mentionné dans la première déclaration.
+2. La mort de chaque homme est une mort de Dieu, et lorsque le dernier homme sera mort, Dieu ne ressuscitera pas.
+Ici, j’aurais aimé lire une définition de ce qu’est la mort. Oui, je comprends que l’auteur veut exprimer que Dieu est le fruit de l’esprit humain, vivant uniquement dans cet esprit, comme un fantôme ou une projection. Et lorsque l’homme meurt – et ici, il est clair qu’il parle d’une mort définitive, de « cessation d’existence » –alors l’existence de Dieu, va elle aussi se terminer, parce que l’esprit qui l’a nourrie n’existe plus. Ceci, implicitement, a déjà été mentionné dans la première déclaration.
 
 3. Les hommes pardonnent tout à Dieu et moins ils le connaissent, plus ils lui pardonnent. - Moins ils le connaissent, plus ils le craignent, sans oser le blâmer pour ce qu’ils perçoivent comme « son œuvre. »
 
