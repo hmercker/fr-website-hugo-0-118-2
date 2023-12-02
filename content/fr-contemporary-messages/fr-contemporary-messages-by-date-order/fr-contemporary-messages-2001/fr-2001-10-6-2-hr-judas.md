@@ -43,9 +43,9 @@ Notre cher D____ pose la question suivante :
 
 *Si ces deux propositions sont, en effet, vraies, il semblerait qu’une des deux situations a prévalu sur le plan mortel :*
 
-*1 – Soit l’âme non encore incarnée avait la particularité d’être composée de deux hommes ou de deux femmes ou :*
+*1. Soit l’âme non encore incarnée avait la particularité d’être composée de deux hommes ou de deux femmes ou :*
 
-*2 – Si l’âme non encore incarnée présente toujours une division masculin/féminin, alors le mâle a une âme sœur masculine en dehors de son homologue féminine originelle, et son homologue féminine a une âme sœur féminine en dehors de son homologue masculine originelle.*
+*2. Si l’âme non encore incarnée présente toujours une division masculin/féminin, alors le mâle a une âme sœur masculine en dehors de son homologue féminine originelle, et son homologue féminine a une âme sœur féminine en dehors de son homologue masculine originelle.*
 
 *Y a-t-il d’autres possibilités alternatives ? Qui s’appliquent ci-dessus, sinon ? »*
 

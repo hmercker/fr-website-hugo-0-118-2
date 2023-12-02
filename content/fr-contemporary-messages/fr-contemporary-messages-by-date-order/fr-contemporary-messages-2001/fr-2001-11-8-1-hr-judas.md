@@ -99,4 +99,4 @@ Judas.
 © Geoff Cutler 2013
 <small>
 
-1. <large id="f1"> <u>Note du webmaster (Geoff Cutler) du site "New-Birth.net</u> : Bien que je concède que ces idées soient entourées de concepts abstraits, particulièrement dans le cas de l’entité Orthodoxe Chrétienne appelée «Le diable», je ne crois pas personnellement qu’il n’y a jamais eu un esprit nommé « Satan », pas plus que je n’accepte l’idée de la non existence des ordres angéliques. Mais, de nouveau, ces choses ne sont pas importantes.[↩](#a1)
+1. <large id="f1"> **Note du webmaster (Geoff Cutler) du site New-Birth.net :** Bien que je concède que ces idées soient entourées de concepts abstraits, particulièrement dans le cas de l’entité Orthodoxe Chrétienne appelée «Le diable», je ne crois pas personnellement qu’il n’y a jamais eu un esprit nommé « Satan », pas plus que je n’accepte l’idée de la non existence des ordres angéliques. Mais, de nouveau, ces choses ne sont pas importantes.[↩](#a1)

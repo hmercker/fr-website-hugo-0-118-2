@@ -17,7 +17,7 @@ Nous parlons de l’oubli, et nous nous rappelons alors certains esprits, comme 
 
 Je sais que tu as déjà tiré tes propres conclusions, cependant je voudrais délivrer ce message, parce que dernièrement tu as beaucoup réfléchi à ce sujet. Par ailleurs il est nécessaire d’expliquer, minutieusement, certains sujets, parce que l’expiation et le pardon sont des thèmes centraux dans les enseignements du Maître.
 
-Quand les gens meurent, ils perdent leur corps physique, mais leur esprit reste intact. Tu sais cela déjà. Plus encore, l’esprit spirituel est plus vif, totalement éveillé, et il n’y a pas l’oubli comme sur la terre. Il est bon de se [rappeler ce qu’a écrit Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/) :38
+Quand les gens meurent, ils perdent leur corps physique, mais leur esprit reste intact. Tu sais cela déjà. Plus encore, l’esprit spirituel est plus vif, totalement éveillé, et il n’y a pas l’oubli comme sur la terre. Il est bon de se [rappeler ce qu’a écrit Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/)
 
 > Les hommes peuvent créer, mais ils ne peuvent pas détruire – je me réfère maintenant à leurs actions et à leurs pensées. Alors que sur la terre, ils peuvent oublier et soulager leur conscience en oubliant, pourtant, quand ils arrivent dans le monde des esprits, ils doivent rendre des comptes, les lois inexorables qui sont vraiment leurs juges et bourreaux leur montrent qu’il n’y a pas une telle chose comme l’oubli – et comme il a été dit, ils ont oublié d’oublier.
 

@@ -62,8 +62,8 @@ Maintenant il est temps de s’arrêter. Ce fut un plaisir de transmettre ce mes
 Puisse Dieu te bénir toujours.
 
 Ton ami et frère, Matthieu.
-<small>
-
-1. <large id="f1"> Le portrait de Mathieu est donné lors du message : « [la fuite en Égypte](content\fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2001\fr-2001-10-5-1-hr-judas.md) » communiqué le 05 Octobre 2001.[↩](#a1)
 
 © Geoff Cutler 2013
+<small>
+
+1. <large id="f1"> Le portrait de Mathieu est donné lors du message : « [la fuite en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-1-hr-judas/) » communiqué le 05 Octobre 2001.[↩](#a1)
