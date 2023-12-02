@@ -17,9 +17,9 @@ Mais comme vous le voyez, nous ne sommes pas toujours capables de vous protéger
 
 Le doute de soi serait considéré comme un « choix erroné » de la part d’une personne. Le manque d’amour de soi est un « accident » parce que ces choix tendent à démontrer le manque de foi en la puissance de l’amour de Dieu pour vous guider à la maison.
 
-Lorsque vous restez concentré sur Dieu et son grand Amour pour vous, il n’y a pas de place pour le doute. Vous avez fait cette déclaration, mais souvent vous ne la vivez pas. *« Comment pouvons-nous connaître la Vérité et ne pas toujours y croire ? »* C’est parce que vous croyez encore que c’est à vous de faire les choses, même celles que vous n’avez pas les moyens d’accomplir. Nous pouvons très bien imaginer que si vous pouviez, si vous pensiez être physiquement capable de construire l’annexe à votre maison, vous essayeriez de le faire. Et c’est parce que c’est devenu un modèle dans votre pensée, un reliquat d’années passées, lorsque la seule façon d’accomplir quelque chose était d’être celui qui le faisait. 
+Lorsque vous restez concentré sur Dieu et son grand Amour pour vous, il n’y a pas de place pour le doute. Vous avez fait cette déclaration, mais souvent vous ne la vivez pas. *« Comment pouvons-nous connaître la Vérité et ne pas toujours y croire ? »* C’est parce que vous croyez encore que c’est à vous de faire les choses, même celles que vous n’avez pas les moyens d’accomplir. Nous pouvons très bien imaginer que si vous pouviez, si vous pensiez être physiquement capable de construire l’annexe à votre maison, vous essayeriez de le faire. Et c’est parce que c’est devenu un modèle dans votre pensée, un reliquat d’années passées, lorsque la seule façon d’accomplir quelque chose était d’être celui qui le faisait.
 
-Maintenant que vous pouvez vous détendre et faire confiance aux pouvoirs en place pour vous guider et vous apporter les choses dont vous avez besoin, vous pouvez vous permettre de changer cette attitude. 
+Maintenant que vous pouvez vous détendre et faire confiance aux pouvoirs en place pour vous guider et vous apporter les choses dont vous avez besoin, vous pouvez vous permettre de changer cette attitude.
 
 En fait, le fonctionnement de la loi vous permet de réaliser que lorsque vous vous détendez et que vous vous en remettez à Dieu, cette attitude très importante sera le catalyseur qui vous permettra d’attirer plus facilement ce dont vous avez besoin pour vous épanouir.
 
@@ -34,6 +34,7 @@ Vous pouvez avoir foi dans le pouvoir de l’Amour de Dieu pour vous guérir. Vo
 Ne soyez pas pressés. Savourez les moments. Lorsque vous agirez ainsi, vous trouverez une plus grande tranquillité et une plus grande harmonie dans chacune de vos activités.
 
 Vous ne devriez pas avoir à ressentir à un moment ou à un autre « Je veux me dépêcher et faire ceci » pour un quelconque projet. Vous devriez y mettre tout votre amour et être reconnaissant de l’opportunité que vous avez de donner votre amour de cette façon. Si, pour une raison quelconque, vous ne vous sentez pas à la hauteur de la tâche pour le moment, vous pouvez peut-être trouver un autre projet sur lequel travailler pendant un certain temps et revenir à celui-là lorsque vous serez en meilleure harmonie avec lui.
+
 Ainsi, comme vous le voyez, vous comprenez ces choses mais vous ne vous appliquez pas toujours de la manière la plus utile pour votre épanouissement et votre joie dans tous les cas.
 
 Sachez que Dieu non seulement vous aime au-delà de toute compréhension, mais qu’il vous fournit les moyens de faire tout cela paisiblement et harmonieusement. Aucune pression n’est nécessaire. L’anxiété est une chose de l’esprit matériel. Mettez-vous en marche, mon ami. Agissez selon votre foi. Vous en avez beaucoup, mais lorsque vous vous poussez au-delà des limites de vos mouvements d’amour, vous vous attirez des ennuis.

@@ -37,7 +37,7 @@ Tu t’interrogeais également sur la création des animaux dans le monde des es
 
 Le corps spirituel n’exige pas l’esprit de vie, car il est comme une « extension matérielle » de l’âme. Il est toujours en construction, si cette expression est admise, et pour cette raison il reflète l’état d’âme. L’esprit et les sens, qui ont leur siège dans le corps spirituel, sont également sujets à ce changement continu. Dans l’âme non-divine, ces fonctions continuent fortement, parce que l’âme continue d’utiliser et de faire confiance à ces fonctions du corps éthérique, tandis que dans le cas de l’âme Divine, l’ascendance de cette âme est si forte que l’esprit et les sens du corps éthérique se fanent, puisque l’âme ne les utilise plus ni n’a besoin d’eux. Le corps spirituel dans le monde Céleste, finalement « dégénère » et ne devient plus qu’un simple appendice de l’âme, il n’existe pratiquement plus et n’a plus d’autre fonction que celle du maintien de l’individualité. C’est une des raisons pour laquelle je t’ai dit que nous ne pouvons pas nous présenter comme nous sommes vraiment, parce que tu ne pourrais pas nous percevoir, nous devons plutôt nous créer la forme dans laquelle nous voulons que tu nous voies.
 
-Eh bien, mon cher frère, le message n’était pas très fluide et lisse, mais je suis heureux du fruit de nos efforts. Il fut notre première tentative, et tu as bien reçu ce que je voulais communiquer. Pour toi, ce fut également une expérience agréable, et bien que tes doigts n’ont pas «automatiquement» survolé le clavier, nous avons évité le danger d’omettre des pièces.
+Eh bien, mon cher frère, le message n’était pas très fluide et lisse, mais je suis heureux du fruit de nos efforts. Il fut notre première tentative, et tu as bien reçu ce que je voulais communiquer. Pour toi, ce fut également une expérience agréable, et bien que tes doigts n’ont pas « automatiquement » survolé le clavier, nous avons évité le danger d’omettre des pièces.
 
 Nous utiliserons cette méthode plus fréquemment, quand tu en exprimeras le désir et lorsque notre connexion le permettra.
 
@@ -53,4 +53,3 @@ Judas.
 <small>
 
 1. <large id="f1"> Je crois qu’il y a un autre très important facteur, en fait un élément critique qui est aussi impliqué ici, mais comme ce sujet n’a jamais été abordé dans les messages reçus par James Padgett, Judas n’en a pas parlé. C’est un sujet qui est abordé dans le livre d’Urantia sous le titre *« Ajusteur de pensée »*, ou, comme je le comprends, *« L’Esprit Saint »*.[↩](#a1)
-

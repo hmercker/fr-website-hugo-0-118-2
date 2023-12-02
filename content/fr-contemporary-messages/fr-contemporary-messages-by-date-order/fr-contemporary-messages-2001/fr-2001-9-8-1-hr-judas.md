@@ -57,4 +57,4 @@ Passe une bonne journée et profite de ta visite. J’espère que demain nous no
 
 Que Dieu te bénisse, ton frère en Christ, qui veille toujours sur toi, Judas.
 
-*© Geoff Cutler 2013*
+© Geoff Cutler 2013

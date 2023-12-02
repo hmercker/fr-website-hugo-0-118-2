@@ -1,13 +1,13 @@
 ---
-title: "La guérison (Suite)."
+title: "La guérison (Suite)"
 menu_title: ""
-description: "La guérison (Suite)."
+description: "La guérison (Suite)"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True
 weight:
 ---
-### La guérison (Suite).
+### La guérison (Suite)
 
 Jésus - reçu par Amada Reza le 23 Janvier 2001, Aptos, Californie, USA.
 
@@ -18,6 +18,7 @@ Je suis très heureux d’avoir l’occasion de vous écrire au sujet de la gué
 Comme vous le savez, mes disciples, sur terre, étaient des hommes simples qui n’avaient pas un grand développement spirituel ou moral, leur éducation était très primitive par rapport à la connaissance que vous avez aujourd’hui à votre disposition. Mais ils possédaient un vrai désir de me servir et, en raison de leur amour pour moi et leur Dieu, ils ont été bénis par l’Esprit Saint en si grande abondance que, grâce à leur foi, ils ont pu être des instruments de guérison et des maîtres de vérité.
 
 Il est important de reconnaître aussi que la foi des gens du peuple dans ces actes d’Amour et de bonté bénis par Dieu était suffisante pour permettre aux forces du bien de se manifester à travers ces prétendus miracles. Ils étaient conscients des pouvoirs dont disposaient de toute évidence ces hommes qui suivaient mes enseignements, et ils acceptaient la vérité de ce pouvoir sans poser de questions.
+
 La simplicité de leur vie était telle que les pièges mentaux de l’incrédulité et du doute n’étaient pas tant les ennemis gênants de leur éveil spirituel. C’était plutôt la maîtrise de leurs pensées pour survivre aux rigueurs de la vie, et le fait de savoir s’ils s’alignaient sur leur nature animale et ses instincts de base plutôt que sur leur nature d’âme qui s’éveillait lentement par l’amour et la foi. Le contraste entre ces forces était quelque peu frappant, car l’oppression de l’esprit humain était très répandue parmi mon peuple, et ils ont choisi la liberté spirituelle à la servitude physique. En s’alignant sur ces forces du bien qu’ils pouvaient voir travailler dans la vie de mes disciples, ils évoquaient aussi le fonctionnement des lois supérieures qui sont une partie essentielle de la guérison.
 
 Comme D____ l’a noté, la volonté de Dieu joue un rôle dans la façon dont ces forces agissent et si la guérison se produit ou non. Même aujourd’hui, vous trouverez des cas isolés de guérisons miraculeuses où le canal d’une telle guérison n’a aucune disposition particulière à guérir. Il va de soi que Dieu est présent dans la manière dont les dons de l’esprit se manifestent à travers l’âme humaine, car l’âme de l’homme est créée pour être soumise à l’ordre de Ses Lois. Vous voyez les dons se manifester par la création des nombreuses bonnes œuvres et qualités qui améliorent vos vies – ainsi Dieu, par Ses Lois, exerce Son Influence sur l’âme de Son enfant créé.
@@ -35,4 +36,3 @@ Oui, nous sommes vos frères célestes qui aident et soutiennent votre force spi
 Ces dons d’amour, vous ne vous les envierez pas les uns les autres, mais vous vous réjouirez en eux comme un puissant chœur d’Amour.
 
 Je vous aime, mes disciples du Christ, et je suis votre frère et ami, Jésus, qui vous aime et vous sert dans l’Amour Divin.
-

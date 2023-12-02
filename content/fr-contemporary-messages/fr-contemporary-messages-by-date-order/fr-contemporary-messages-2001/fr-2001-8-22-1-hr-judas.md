@@ -37,7 +37,7 @@ Lorsque la personne ainsi favorisée ne saisit pas l’occasion, les prières so
 
 Tu sais ce que veut dire la perception de l’âme, mais tu n’as jamais pensé que ces perceptions servent non seulement à acquérir des connaissances spirituelles, mais servent aussi pour une meilleure orientation dans la « vraie vie », telle que tu l’expérimentes maintenant ici sur terre. Elles servent exactement pour reconnaître et distinguer les possibilités réelles, pour profiter d’elles et éviter les dangers imminents.
 
-Aujourd’hui, tu as répondu à une femme aigrie, qui se plaignait de tout et rendait Dieu responsable de toute l’injustice. Et sa seule pensée est : « Quand ces méchants seront-ils punis ? » Elle veut fuir son pays, quitter le matérialisme, comme elle l’appelle, et elle veut travailler dans un pays du tiers monde comme assistante en développement.
+Aujourd’hui, tu as répondu à une femme aigrie, qui se plaignait de tout et rendait Dieu responsable de toute l’injustice. Et sa seule pensée est : *« Quand ces méchants seront-ils punis ? »* Elle veut fuir son pays, quitter le matérialisme, comme elle l’appelle, et elle veut travailler dans un pays du tiers monde comme assistante en développement.
 
 Tu lui a répondu correctement en lui expliquant que si sa motivation n’était que la fuite, elle connaîtrait une grande déception, car le matérialisme règne partout, mais si sa motivation était la réponse à une pulsion intérieure, elle devait la suivre.
 
@@ -51,7 +51,7 @@ Tout d’abord, tu dois donner, afin de recevoir. Tu dois demander, et tu dois a
 
 Nous avons une merveilleuse relation aujourd’hui, et je suis si heureux.
 
-Nous répondons maintenant à ta question suivante : « La Loi de compensation n’agit-elle que sur la condition actuelle de l’âme, ou aussi sur les méfaits commis dans le passé ? »
+Nous répondons maintenant à ta question suivante : *« La Loi de compensation n’agit-elle que sur la condition actuelle de l’âme, ou aussi sur les méfaits commis dans le passé ? »*
 
 Eh bien, la réponse est que la loi de l’indemnisation prend toujours soin de l’état actuel de l’âme. Mais l’effet de la loi ne commence pas seulement à l’entrée de l’âme dans le monde des esprits.
 

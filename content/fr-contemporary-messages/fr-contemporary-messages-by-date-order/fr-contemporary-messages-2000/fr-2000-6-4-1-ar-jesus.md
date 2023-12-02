@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Amada Réza le 4 Juin 2000, Aptos, Californie, USA.
 
-*[Cher Dieu, remplis-moi de Ton Amour pour élever mes pensées vers Toi et Tes anges. Je veux être un instrument de Ton Amour pour canaliser un message d'encouragement à notre frère, M__, qui demande si c'est Ta Volonté et si Jésus soutiendrait son désir, de traduire les volumes en Néerlandais. Je prie pour être protégé de l'influence des esprits inférieurs, et je demande la foi en la puissance de Ton Amour pour me guérir et faire de moi un meilleur instrument. Je Vous aime. Amen.]*
+*[Cher Dieu, remplis-moi de Ton Amour pour élever mes pensées vers Toi et Tes anges. Je veux être un instrument de Ton Amour pour canaliser un message d'encouragement à notre frère, M____, qui demande si c'est Ta Volonté et si Jésus soutiendrait son désir, de traduire les volumes en Néerlandais. Je prie pour être protégé de l'influence des esprits inférieurs, et je demande la foi en la puissance de Ton Amour pour me guérir et faire de moi un meilleur instrument. Je Vous aime. Amen.]*
 
 Je suis ici avec toi maintenant, ma chère sœur, et je suis ton frère en Christ, Jésus, et je suis ton ami et Maître qui t'aime et sert notre Père Céleste pour apporter à Ses enfants la vérité de l'Amour Divin.
 
@@ -21,7 +21,7 @@ Dieu aime ses enfants. L'amour est la raison pour laquelle Il a créé l'univers
 
 Lorsqu'il a donné à Sa plus haute création le don du libre arbitre, il l'a fait parce qu'il nous a créés à Son image. Nos âmes sont à l'image de Sa grande âme. C'est ce que nous sommes - des âmes, dans un corps de chair - et je veux que vous compreniez que cet amour que Dieu a pour vous est à votre portée. Il attend si patiemment et si amoureusement comme un parent qui attend que son enfant se reconnaisse en lui.
 
-Tu as envie que cet Amour te comble. Tu as envie que Dieu te regarde et te dise : "Tu es mon fils". Tu es Son fils. C'est la vérité et tu le sais dans ton cœur au point que tu ne le laisserais jamais partir de ta vie, tu ne le rejetterais pas comme quelque chose dont tu n'as pas besoin. Il est ton Père, Elle est ta Mère, et nous sommes des enfants de Dieu.
+Tu as envie que cet Amour te comble. Tu as envie que Dieu te regarde et te dise : « Tu es mon fils ». Tu es Son fils. C'est la vérité et tu le sais dans ton cœur au point que tu ne le laisserais jamais partir de ta vie, tu ne le rejetterais pas comme quelque chose dont tu n'as pas besoin. Il est ton Père, Elle est ta Mère, et nous sommes des enfants de Dieu.
 
 C'est ce que nous cherchons et ce que nous avons trouvé. Cet amour de Dieu est notre accomplissement. Sa promesse est le plus grand espoir de notre avenir et nous sommes heureux de voir cet amour se répandre dans le monde comme une couverture réconfortante de paix, de pardon, de tolérance et de joie.
 

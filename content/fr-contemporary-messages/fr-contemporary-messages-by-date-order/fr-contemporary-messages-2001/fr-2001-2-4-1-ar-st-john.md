@@ -27,7 +27,7 @@ Les cinq sens ne résident pas dans le corps physique, mais dans le corps spirit
 
 Par le biais des yeux, des oreilles, de la bouche, du nez et de la peau, notre environnement physique se déversait dans ces orifices en tant qu’entrée, et nous pouvions donc percevoir notre monde. Mais, la perception, ayant existé avant notre incarnation, doit alors s’étendre bien au-delà du physique, et dans l’environnement spirituel dans lequel nous nous trouvons.
 
-Tu as ce don A____ . Nous te demandons maintenant de l’utiliser pour compenser ce que tu ne peux pas  » voir  » – c’est-à-dire ton environnement physique illusoire – par ce que tu peux voir – la vérité, l’Esprit de Dieu manifesté dans ce monde.
+Tu as ce don A____ . Nous te demandons maintenant de l’utiliser pour compenser ce que tu ne peux pas  « voir » – c’est-à-dire ton environnement physique illusoire – par ce que tu peux voir – la vérité, l’Esprit de Dieu manifesté dans ce monde.
 
 Poursuis ton aspiration à être l’instrument d’amour et de guérison de Dieu. Aie la foi qu’Il te gardera près de Lui, et que l’action de Ses lois d’amour les plus élevées apportera l’ordre et la providence que vous recherchez pour toi-même et ta famille.
 
@@ -41,4 +41,4 @@ S’il te plaît, reste avec nous dans ton amour et ta foi. Tu ne douteras pas d
 
 Je suis Aigle Blanc, ton frère et ami dans la Vue Divine.
 
-*Note : Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu’il a communiqué à travers James Padgett [ici](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/).*
+**Note :** Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu’il a communiqué à travers James Padgett [ici](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/).

@@ -27,7 +27,7 @@ Je vous aime, mes chers frères et sœurs, et je dirai que je prie depuis de nom
 
 *[Est-ce que T. sera capable de se souvenir de l’esprit des animaux dans le monde des esprits ?]*
 
-T___, je tiens à vous assurer que Dieu aime toutes ses créatures. Il est conscient de celles-ci, et chacune d’entre elles, Il l’aime. Il est difficile d’imaginer, n’est-ce pas, qu’Il puisse se souvenir même de la plus petite fourmi, mais il en est ainsi parce que Sa merveilleuse création remplit un but dans Son Plan d’Amour.
+T____, je tiens à vous assurer que Dieu aime toutes ses créatures. Il est conscient de celles-ci, et chacune d’entre elles, Il l’aime. Il est difficile d’imaginer, n’est-ce pas, qu’Il puisse se souvenir même de la plus petite fourmi, mais il en est ainsi parce que Sa merveilleuse création remplit un but dans Son Plan d’Amour.
 
 Chacun d’entre nous a un rôle à jouer dans l’harmonie de sa volonté, et c’est pour cette raison que son Esprit créateur bénit la naissance et la mort de tous les êtres vivants. Lorsque toi, chère sœur qui prie pour que la Substance de Son Amour remplisse ton âme, tu tournes ton amour vers ces créatures dont tu te soucies tant, elles sont assurément doublement bénies.
 

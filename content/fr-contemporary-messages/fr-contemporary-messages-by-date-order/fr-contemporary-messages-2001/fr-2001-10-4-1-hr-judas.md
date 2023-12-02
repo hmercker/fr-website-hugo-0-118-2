@@ -63,7 +63,7 @@ Eh bien, mon frère, je te dis maintenant au revoir. Je te souhaite une journée
 
 Ton frère en esprit, Judas.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-joseph-large.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-joseph-large.jpg)
 
 *Joseph alors qu'il était un jeune père*
 

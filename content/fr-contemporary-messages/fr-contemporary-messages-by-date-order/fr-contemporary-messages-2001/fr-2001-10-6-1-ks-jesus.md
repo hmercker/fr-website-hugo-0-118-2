@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Kathryn Stokes le 6 Octobre 2001, Santa Cruz, Californie, USA.
 
-*[Ai-je perçu une pensée "Je suis ici maintenant pour écrire" ? Si oui, je suis disposé et, je l'espère, capable de recevoir clairement vos pensées.]*
+*[Ai-je perçu une pensée « Je suis ici maintenant pour écrire » ? Si oui, je suis disposé et, je l'espère, capable de recevoir clairement vos pensées.]*
 
 Oui, nous sommes souvent avec toi et nous n'en avons pas l'occasion, sauf lorsque nous influençons ta prise de notes sur les événements et les plans de la journée, mais nous avons beaucoup de choses que nous souhaitons transmettre, non seulement comme conseils, mais aussi comme louanges et encouragements.
 
@@ -31,7 +31,7 @@ Oui, je suis toujours là, et je suis l'un de vos nombreux anges gardiens dont l
 
 Le nom de l'ange Céleste n'a pas vraiment d'importance, ce qui compte c'est que vous receviez votre message d'une âme qui réside dans les Cieux Célestes, et qui vous donnera la vérité, et vous guidera dans une direction ascendante.
 
-Nous savons que les êtres humains aiment utiliser leur capacité de raisonnement et comprendre les choses, qu'ils s'intéressent aux événements historiques et qu'ils veulent savoir ce qui s'est réellement passé. Peu importe les efforts que nous déployons pour dépeindre les événements tels que nous nous en souvenons, il y a toujours des divergences, des interprétations erronées et des "tournures" données à la narration du récit.
+Nous savons que les êtres humains aiment utiliser leur capacité de raisonnement et comprendre les choses, qu'ils s'intéressent aux événements historiques et qu'ils veulent savoir ce qui s'est réellement passé. Peu importe les efforts que nous déployons pour dépeindre les événements tels que nous nous en souvenons, il y a toujours des divergences, des interprétations erronées et des « tournures » données à la narration du récit.
 
 L'esprit est une énergie de l'âme ; une âme non développée aura un esprit sous-développé ; elle peut utiliser sa raison à un degré limité, mais insiste généralement pour dire qu'elle a raison, voire que sa raison est sans faille. Mais, c'est une question de degré. Une personne peut avoir raison ou être correcte jusqu'à un certain point, jusqu'à ce qu'elle soit développée pour comprendre ou saisir un certain concept, alors elle entre dans le domaine de la spéculation, et quand vous avez plusieurs milliards de personnes qui font des spéculations sur ce qu'ils ont décidé être la vérité, alors vous allez avoir une grande variété d'opinions et d'interprétations de l'histoire, de l'événement, et de l'histoire de ce qui s'est passé il y a des éons.
 

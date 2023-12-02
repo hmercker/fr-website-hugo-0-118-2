@@ -35,7 +35,7 @@ Toutes les pratiques religieuses sont encore exercées dans les différentes sph
 
 Tu devrais donc être reconnaissante d’avoir désiré connaître la vérité et d’avoir été prête à abandonner les fausses croyances, avant même d’être prête à entrer dans la phase suivante de ta vie. Lorsqu’une personne prie sincèrement pour que l’Amour Divin de Dieu transforme son âme, cela équivaut à désirer passer d’un être humain à un ange, à désirer développer le plus haut potentiel de son âme et donc à permettre à la sagesse de l’âme de prendre l’ascendant sur les croyances limitées de l’esprit.
 
-Il s’agit d’un processus de croissance qui prend plus de temps à accomplir pour certains que pour d’autres ; mais commencer à emprunter la voie divine du développement spirituel est l’étape principale. 
+Il s’agit d’un processus de croissance qui prend plus de temps à accomplir pour certains que pour d’autres ; mais commencer à emprunter la voie divine du développement spirituel est l’étape principale.
 
 Continuer est la suivante, et finalement vous atteindrez un point où les fausses croyances disparaîtront complètement et où la vérité résidera dans votre âme avec l’amour et la foi.
 

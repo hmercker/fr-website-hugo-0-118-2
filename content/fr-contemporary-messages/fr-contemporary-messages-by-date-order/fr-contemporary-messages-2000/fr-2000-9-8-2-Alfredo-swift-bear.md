@@ -11,7 +11,7 @@ weight:
 
 Swift Bear - reçu par Alfredo le 8 Septembre 2000, Séville, Espagne.
 
-*[Question : Pourquoi y a-t-il tant de gens qui doutent de l’existence de Dieu ?]**
+*[Question : Pourquoi y a-t-il tant de gens qui doutent de l’existence de Dieu ?]*
 
 Observez votre entourage, observez les esprits agités de ce monde, espérant trouver une réponse à tout ce qui se passe.
 
