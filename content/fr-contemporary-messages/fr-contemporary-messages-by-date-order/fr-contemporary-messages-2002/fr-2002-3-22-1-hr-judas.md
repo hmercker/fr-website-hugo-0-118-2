@@ -57,7 +57,7 @@ Mais lorsqu’ils sont arrivés au sénat, Macro a fait lire une autre lettre, l
 
 Eh Bien, mon frère, ce fut l’histoire de Séjan. Comme tu peux le voir, pendant toute la durée du ministère public du Maître, Séjan fut au sommet de sa carrière et de sa puissance. C’était lui « l’homme fort » de Rome, pas Tibère, et Pilate lui devait fidélité et non à l’empereur. Tout ceci aurait des conséquences graves pour le destin du Maître. Mais cela nous le verrons plus tard. La prochaine fois, je voudrais fournir un message semblable sur Pilate.
 
-*H : Est-ce que je peux poser une question ? Tu as dit que le nom de Pilate était Publius Pontius Pilatus. En fait, tous les livres d’histoire s’accordent pour dire que nous ne connaissons pas son prénom. Est-ce vrai que son prénom était Publius ? Sur une page Web, j’ai lu « Lucius Pontius Pilatus. »*
+*[H : Est-ce que je peux poser une question ? Tu as dit que le nom de Pilate était Publius Pontius Pilatus. En fait, tous les livres d’histoire s’accordent pour dire que nous ne connaissons pas son prénom. Est-ce vrai que son prénom était Publius ? Sur une page Web, j’ai lu « Lucius Pontius Pilatus. ]»*
 
 Son prénom était bien Publius, oui, ceci est vrai. Je me souviens très bien comment les gens se moquaient de lui, pas ouvertement, naturellement, comme le « quadruple P » Publius Pontius Pilatus Praefectus. Sur cette page Web, ils ont probablement inséré Lucius comme une allusion à Séjan, qui a eu ce nom.
 

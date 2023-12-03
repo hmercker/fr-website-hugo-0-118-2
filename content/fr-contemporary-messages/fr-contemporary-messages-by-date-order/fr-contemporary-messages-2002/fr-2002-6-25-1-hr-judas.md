@@ -46,10 +46,10 @@ Je vais écrire à nouveau [ce que je t’ai déjà écrit il y a plusieurs mois
 > Lorsque tu parviens à te convertir à cette attitude, celle d’aller au Père, dans une partie de ta vie, ta spiritualité ne sera plus comme des montagnes russes, avec des hauts et des bas. Te rappelles-tu ce que tu as lu dans [le message de Marie Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) à Amada Reza ?
 <br>
 <br>
-> *C’est extraordinaire que tu réalises que ta nature spirituelle est ta vraie nature ; tu ne seras pas autant affecté par le monde physique, toujours sujet à des changements, par rapport à celui qui place toute sa confiance dans les soi-disant réalités.*
+> C’est extraordinaire que tu réalises que ta nature spirituelle est ta vraie nature ; tu ne seras pas autant affecté par le monde physique, toujours sujet à des changements, par rapport à celui qui place toute sa confiance dans les soi-disant réalités.
 <br>
 <br>
-> *Si tu recherches la stabilité, repose toi sur des choses qui sont stables.*
+> Si tu recherches la stabilité, repose toi sur des choses qui sont stables.
 
 La route vers le Père est une route lisse si tu sais comment demander Son aide. Ce n’est pas un chemin jonché de décombres où tu tombes de nid-de-poule en nid-de-poule. Les nids-de-poule sont les produits de ton esprit.
 

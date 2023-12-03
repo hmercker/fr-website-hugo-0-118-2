@@ -31,7 +31,7 @@ Quelques semaines avant Simchat Torah, l’un des derniers chapitres de la derni
 
 Le chapitre correspondant des prophètes est [le chapitre 61 d’Isaïe](https://saintebible.com/isaiah/61-1.htm ), qui traite également de la libération des captifs.
 
-> *L’esprit du Seigneur, l’Éternel, est sur moi, Car l’Éternel m’a oint pour prêcher la bonne nouvelle aux malheureux. Il m’a envoyé pour guérir ceux qui ont le cœur brisé, pour proclamer aux captifs la liberté, et aux prisonniers la délivrance …… *
+> L’esprit du Seigneur, l’Éternel, est sur moi, Car l’Éternel m’a oint pour prêcher la bonne nouvelle aux malheureux. Il m’a envoyé pour guérir ceux qui ont le cœur brisé, pour proclamer aux captifs la liberté, et aux prisonniers la délivrance……
 
 C’était exactement ce que Jésus voulait annoncer ouvertement, et c’est pourquoi il est revenu à Nazareth ce samedi du mois de Septembre de l’an 25, demandant le privilège de réciter ces inestimables versets dans la synagogue, proclamant ainsi publiquement pour la première fois son ministère comme le Messie pour l’humanité.
 

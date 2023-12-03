@@ -17,13 +17,13 @@ Tu sais, le sujet d’aujourd’hui m’attriste presque, parce que je voudrais 
 
 Il y a quelques jours, M____ t’a envoyé un message où il te disait avoir trouvé dans les Évangiles apocryphes certaines paroles supposées de Jésus, telles que :
 
-> « Celui qui boit de ma bouche deviendra comme moi; Je dois moi-même « – c’est-à-dire le Christ – »  devenir cette personne, et les choses cachées lui seront révélées. »
+> Celui qui boit de ma bouche deviendra comme moi; Je dois moi-même « – c’est-à-dire le Christ – »  devenir cette personne, et les choses cachées lui seront révélées.
 <br>
 <br>
-> « Nous as-tu quitté et t’es-tu séparé de nous ? » Mais Jésus a dit : « Non, mais je dois rejoindre le lieu d’où je viens. Si vous souhaitez venir avec moi, venez » Tous répondirent et dirent, « Si tu nous le demandes, nous venons. » 
+> « Nous as-tu quitté et t’es-tu séparé de nous ? » Mais Jésus a dit : « Non, mais je dois rejoindre le lieu d’où je viens. Si vous souhaitez venir avec moi, venez » Tous répondirent et dirent, « Si tu nous le demandes, nous venons. »
 <br>
 <br>
-> Il a dit : « En vérité je vous le dis, personne n’entrera jamais dans le Royaume des cieux à ma demande, mais (seulement) parce que vous êtes vous-mêmes complet… Donc, je vous le dis, « Devenez complet et ne laissez aucun espace, en vous, vide »… »
+> Il a dit : « En vérité je vous le dis, personne n’entrera jamais dans le Royaume des cieux à ma demande, mais (seulement) parce que vous êtes vous-mêmes complet… Donc, je vous le dis, « Devenez complet et ne laissez aucun espace, en vous, vide. »
 
 Comme nous l’avons dit à plusieurs reprises, toutes les paroles de Jésus ne sont pas présentes dans les Évangiles canoniques, et certaines de celles qui y sont n’apparaissent pas dans leur forme originale. Même celles qui apparaissent sous leur forme originale ont perdu une grande partie, ou presque, de leur beauté originelle suite à une mauvaise traduction. En disant cela je ne pense pas à la traduction du Grec en Anglais, mais à celle faite à partir de la langue originale dans laquelle ces écrits ont été livrés, c’est à dire de l’Araméen en Grec.
 
@@ -65,7 +65,7 @@ Les mots Araméens permettaient parfois un excellent jeu de mots, lequel a total
 
 Cela est également traité par Jésus dans un [message reçu par le Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-16-1955-9-27-samuels-jesus/). Mais j’ai voulu aller un peu plus profondeur, parce qu’une fois de plus, nous trouvons un mot Araméen avec un double sens. Dans un autre cas, nous trouvons le mot eunuque dans les Actes des Apôtres :
 
-> *Et voici, un Éthiopien, un eunuque, ministre de Candace, reine d’Éthiopie, et surintendant de tous ses trésors, venu à Jérusalem pour adorer ….*
+> Et voici, un Éthiopien, un eunuque, ministre de Candace, reine d’Éthiopie, et surintendant de tous ses trésors, venu à Jérusalem pour adorer…
 
 Ici, nous voyons le cas absurde qu’un eunuque éthiopien est venu à Jérusalem pour l’adoration dans le Temple du Seigneur. Selon la Torah, les eunuques ne pouvaient en aucun cas se convertir au Judaïsme, par conséquent, cet éthiopien n’a pas pu être un prosélyte et les Juifs castrés étaient exclus du Temple et de toute Assemblée religieuse.
 

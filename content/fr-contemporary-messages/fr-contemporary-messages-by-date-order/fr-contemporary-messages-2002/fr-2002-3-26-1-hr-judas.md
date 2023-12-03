@@ -25,7 +25,7 @@ Pilate n’avait pas provoqué intentionnellement les Juifs, mais son traitement
 
 Un autre incident provoqué par Pilate fut celui des boucliers honoraires. C’était une habitude très répandue dans l’antiquité de placer des boucliers en or sur les bâtiments administratifs, tels que la Forteresse Antonia à Jérusalem, en l’honneur de l’empereur. Habituellement, ces boucliers comportaient un portrait de l’empereur et une inscription. Mais Pilate avait déjà appris quelque chose. Les boucliers qu’il a envoyé ne comportaient aucun portrait afin de ne pas offenser les Juifs, pour lesquels toute reproduction d’une personne ou d’un animal constitue une infraction aux dix commandements. Dans [Exode 20:4](https://saintebible.com/exodus/20-4.htm) et [Deutéronome 5:8](https://saintebible.com/deuteronomy/5-8.htm) on peut lire :
 
-> *Tu ne te feras point d’image taillée, ni de représentation quelconque des choses qui sont en haut dans les cieux, qui sont en bas sur la terre, et qui sont dans les eaux plus bas que la terre.*
+> Tu ne te feras point d’image taillée, ni de représentation quelconque des choses qui sont en haut dans les cieux, qui sont en bas sur la terre, et qui sont dans les eaux plus bas que la terre.
 
 C’est pourquoi les boucliers de Pilate ont seulement montré l’inscription :
 

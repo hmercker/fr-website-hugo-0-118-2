@@ -17,7 +17,7 @@ Mon cher ami, je suis très heureux d’avoir trouvé l’occasion, une fois de 
 
 … J’ai décidé de consacrer quelques commentaires à cette question. J’espère que tu seras assez réceptif pour saisir ce que j’ai l’intention de transmettre. Ce message ne sera pas très long, pour la partie que je te communiquerai, mais je voudrais te demander d’y coller quelques citations que tu as trouvées sur Internet. Commençons par une déclaration de l’Encyclopédie Catholique :
 
-> Apostasie et hérésie sont comme de criminelles rébellions contre Dieu, des crimes beaucoup plus graves que la haute trahison, le  meurtre ou l’adultère. » Mais, selon Rom., XIII, 11 sqq., les autorités laïques ont le droit de punir, particulièrement les plus graves, avec la mort; par conséquent, « les hérétiques peuvent être non seulement excommuniés, mais aussi justement (juste) mis à mort. » (Saint-Thomas, II-II, xi Q., un. 3. [L’Encyclopédie catholique, édition de 1911, Vol. 14, pages 766, 768]
+> Apostasie et hérésie sont comme de criminelles rébellions contre Dieu, des crimes beaucoup plus graves que la haute trahison, le  meurtre ou l’adultère. » Mais, selon Rom., XIII, 11 sqq., les autorités laïques ont le droit de punir, particulièrement les plus graves, avec la mort; par conséquent, « les hérétiques peuvent être non seulement excommuniés, mais aussi justement (juste) mis à mort. » - Saint-Thomas, II-II, xi Q., un. 3. [L’Encyclopédie catholique, édition de 1911, Vol. 14, pages 766, 768]
 
 Et maintenant, cher H____ , je veux que tu colles ici certaines déclarations de Saint Augustin, que je vais t’indiquer.
 

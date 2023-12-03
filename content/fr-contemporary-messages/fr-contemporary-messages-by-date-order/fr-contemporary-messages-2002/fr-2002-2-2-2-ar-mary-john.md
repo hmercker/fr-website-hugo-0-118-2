@@ -11,7 +11,7 @@ weight:
 
 Marie & Jean - reçu par Amada Reza le 2 Février 2002, Aptos, Californie, USA.
 
-*Je suis ici avec vous maintenant, ma chère sœur en Christ, et je suis votre amie et gardienne, Marie, la mère de Jésus.* Cela fait un certain temps que nous n’avons pas saisi cette occasion, et je tiens à vous remercier d’avoir accepté de prendre la plume avec moi.
+Je suis ici avec vous maintenant, ma chère sœur en Christ, et je suis votre amie et gardienne, Marie, la mère de Jésus. Cela fait un certain temps que nous n’avons pas saisi cette occasion, et je tiens à vous remercier d’avoir accepté de prendre la plume avec moi.
 
 Je voudrais transmettre un message à tous mes frères et sœurs qui font l’effort de vivre dans l’amour et l’harmonie, et je veux joindre mes prières aux vôtres pour votre succès dans la réalisation de votre amour dans votre vie quotidienne.
 

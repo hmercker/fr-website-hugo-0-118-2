@@ -63,4 +63,4 @@ Judas.
 
 © Geoff Cutler 2013
 
-![](/3-fr-judas-of-kerioth-messages/fr-nathanael_small.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-2002-nathanael_small.jpg)

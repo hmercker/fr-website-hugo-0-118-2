@@ -9,7 +9,7 @@ weight:
 ---
 ### Le peuple élu
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-moise.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-moise.jpg)
 
 Moïse - reçu par Amada Reza le 7 Avril 2002, Aptos, Californie, USA.
 

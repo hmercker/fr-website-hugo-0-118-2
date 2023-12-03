@@ -20,7 +20,7 @@ Judas - reçu par H____ le 2 Avril 2002, Cuenca, Équateur.
 > Cependant les nouvelles de sa guérison se répandirent partout et d’énormes foules se  rassemblèrent pour entendre Jésus et être guéries de leurs maladies.
 <br>
 <br>
-> Mais il s’échappa discrètement vers des lieux déserts afin de prier. [Luc 5 : 12-16](https://saintebible.com/luke/5-12.htm)
+> Mais il s’échappa discrètement vers des lieux déserts afin de prier. - [Luc 5 : 12-16](https://saintebible.com/luke/5-12.htm)
 
 Mon cher ami, je veux discuter avec toi du passage auquel tu pensais hier.
 

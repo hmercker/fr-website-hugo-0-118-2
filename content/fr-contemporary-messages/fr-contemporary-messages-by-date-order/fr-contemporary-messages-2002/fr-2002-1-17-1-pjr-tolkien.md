@@ -29,7 +29,6 @@ Donc tu comprends ? Je comprends pourquoi ta médiumnité n’est pas une activi
 
 Tolkien aimerait écrire, d’accord ?
 
-
 Mon cher P____ , je suis très heureux que vous aimiez mes œuvres. Eh bien, je comprends pour celui-là <sup id="a1">[1](#f1)</sup>. Il n’a jamais vraiment été conçu pour être une histoire.
 
 Je suis un peu perdu en essayant de faire ça. Ton mental est très actif.

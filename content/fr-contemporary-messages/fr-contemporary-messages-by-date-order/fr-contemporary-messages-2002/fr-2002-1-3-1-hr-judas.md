@@ -13,7 +13,7 @@ Judas - reçu par H____ le 3 Janvier 2002, Cuenca, Équateur.
 
 Bonjour mon ami. Je vois que tu es très détendu. Je vais te montrer un court « film ». Décris ce que tu vois.
 
-*[H: Je voie une plage, comme dans une baie, mais ce n’est pas une plage de sable telle que nous l’avons ici, mais une plage recouverte de galets, comme j’en ai vu en Grèce, à Kalamata et sur le golfe de Corinthe. Sur la plage, on peut voit un groupe d’hommes assis, quinze ou vingt ans peut-être, avec des filets. Ils parlent. Ils sont presque nus, portant seulement des pagnes ou quelque chose comme ça. Tous portent la barbe, certains ont les cheveux courts, d’autres portent des cheveux longs et amples qui atteignent presque leur dos. D’autres ont tressé leurs cheveux, formant une seule tresse épaisse dans la nuque. Il y en a un qui a sa tresse nouée, formant un chignon à l’arrière de sa tête …]*
+*[H: Je voie une plage, comme dans une baie, mais ce n’est pas une plage de sable telle que nous l’avons ici, mais une plage recouverte de galets, comme j’en ai vu en Grèce, à Kalamata et sur le golfe de Corinthe. Sur la plage, on peut voit un groupe d’hommes assis, quinze ou vingt ans peut-être, avec des filets. Ils parlent. Ils sont presque nus, portant seulement des pagnes ou quelque chose comme ça. Tous portent la barbe, certains ont les cheveux courts, d’autres portent des cheveux longs et amples qui atteignent presque leur dos. D’autres ont tressé leurs cheveux, formant une seule tresse épaisse dans la nuque. Il y en a un qui a sa tresse nouée, formant un chignon à l’arrière de sa tête…]*
 
 Nous ne sommes pas à la Méditerranée; nous sommes sur les rives du lac de Génésareth, que nous avons appelé le «Yam Kinneret.» Ils sont des pêcheurs réparant leurs filets. Ils parlent afin de se distraire en travaillant, parlent de leurs familles, de leurs enfants, de leurs querelles avec les voisins, du nouveau bordel de Magdala, de la pêche, des Romains, des impôts, bref, ils parlent de tout.
 
@@ -49,19 +49,19 @@ Nous sommes maintenant au mois de Septembre de l’année 25 AD. Il existe déj�
 
 Si tu pouvais écrire ici l’histoire, telle  qu’elle figure dans le Nouveau Testament, ce serait une aide pour mes explications.
 
-> *Alors il commença à leur dire : Aujourd’hui cette parole de l’Écriture, que vous venez d’entendre, est accomplie.* 
+> Alors il commença à leur dire : Aujourd’hui cette parole de l’Écriture, que vous venez d’entendre, est accomplie.
 <br>
 <br>
 > *Et tous lui ont rendu témoignage et se sont interrogés sur les mots gracieux qui sortaient de sa bouche. Et ils ont dit, n’est-il  pas le fils de ce Joseph ?*
 <br>
 <br>
-> *Jésus leur dit : Sans doute vous me citerez ce proverbe : Médecin, guéris-toi toi-même ; et vous me direz : Fais ici, dans ta patrie, tout ce que nous avons appris que tu as fait à Capharnaüm. Mais, ajouta-t-il, je vous le dis en vérité, aucun prophète n’est bien reçu dans sa patrie. Mais je vous dire une vérité, Au temps du prophète Élie, lorsque la sécheresse et la famine ont sévi pendant trois ans et demi, il y avait beaucoup de veuves en Israël ; pourtant Élie n’a été envoyé vers aucune d’entre elles, mais bien à une veuve étrangère, de la ville de Sarepta, dans le pays de Sidon. Il y avait aussi plusieurs lépreux en Israël du temps d’Élisée, le prophète ; et cependant aucun d’eux ne fut purifié, si ce n’est Naaman le Syrien.*
+> Jésus leur dit : Sans doute vous me citerez ce proverbe : Médecin, guéris-toi toi-même ; et vous me direz : Fais ici, dans ta patrie, tout ce que nous avons appris que tu as fait à Capharnaüm. Mais, ajouta-t-il, je vous le dis en vérité, aucun prophète n’est bien reçu dans sa patrie. Mais je vous dire une vérité, Au temps du prophète Élie, lorsque la sécheresse et la famine ont sévi pendant trois ans et demi, il y avait beaucoup de veuves en Israël ; pourtant Élie n’a été envoyé vers aucune d’entre elles, mais bien à une veuve étrangère, de la ville de Sarepta, dans le pays de Sidon. Il y avait aussi plusieurs lépreux en Israël du temps d’Élisée, le prophète ; et cependant aucun d’eux ne fut purifié, si ce n’est Naaman le Syrien.
 <br>
 <br>
-> *En entendant cela, ils furent tous remplis de colère dans la synagogue, et s’étant levés, ils le poussèrent hors de la ville, et le menèrent jusqu’au sommet de la montagne, sur laquelle leur ville était bâtie, pour le précipiter.*
+> En entendant cela, ils furent tous remplis de colère dans la synagogue, et s’étant levés, ils le poussèrent hors de la ville, et le menèrent jusqu’au sommet de la montagne, sur laquelle leur ville était bâtie, pour le précipiter.
 <br>
 <br>
-> *Mais Jésus, passant au milieu d’eux, s’en alla.* [Du chapitre 4, versets 21 à 30, de l’Évangile selon Luc](https://www.aelf.org/bible/Lc/4)
+> Mais Jésus, passant au milieu d’eux, s’en alla. - [Du chapitre 4, versets 21 à 30, de l’Évangile selon Luc](https://www.aelf.org/bible/Lc/4)
 
 Je pense que tu peux déjà imaginer ce qui s’est passé. Tu  as grandi dans un petit village. Tu sais comment y sont les choses. Joseph n’avait jamais parlé ouvertement que son fils devrait-être le Messie. Bien sûr, il a parlé avec ses enfants, et les enfants ne savent pas garder un secret. Ils l’ont partagé avec leurs amis qui l’ont dit à leurs parents. Tout le monde a ainsi été informé des idées extravagantes de Joseph, mais personne ne les a commentées ouvertement.
 

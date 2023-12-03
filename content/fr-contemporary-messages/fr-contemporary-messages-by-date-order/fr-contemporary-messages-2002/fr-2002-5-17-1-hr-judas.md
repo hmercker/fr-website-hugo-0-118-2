@@ -108,6 +108,6 @@ Que Dieu vous bénisse tous, le Révérend ne devrait pas s’inquiéter au suje
 
 Passe un agréable  week-end et reçois la bénédiction du Père, ton frère en Christ, Judas.
 
-*Note : L’utilisation ci-dessus des messages de Medjugorje n’enfreint pas les droits d’auteur qui pourraient être invoqués par le médium qui les a reçus.*
+**Note :** L’utilisation ci-dessus des messages de Medjugorje n’enfreint pas les droits d’auteur qui pourraient être invoqués par le médium qui les a reçus.
 
 © Geoff Cutler 2013

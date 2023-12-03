@@ -69,7 +69,7 @@ Avec cela, je terminerai mon message. Je te souhaite une belle journée.
 
 Ton frère Céleste, Judas.
 
-![](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 
 Simon
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Moïse partage ses expériences
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-moise2.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-moise2.jpg)
 
 Moïse - reçu par FAB le 30 Décembre 2002, Santa Cruz, Californie, USA.
 
