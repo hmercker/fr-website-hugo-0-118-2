@@ -24,6 +24,3 @@ Les gens l'ont ressenti dans mes rôles au cinéma et y ont répondu, comme vous
 Ainsi, lorsque je suis arrivée dans ce monde spirituel, il a été extrêmement difficile d'inverser ces schémas négatifs. Mais à un certain moment, j'ai finalement été capable de puiser dans ce désir de bonheur, et finalement, de le rendre réel, pour la toute première fois.
 
 Donc les deux canalisations étaient exactes.
-
-
-

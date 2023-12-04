@@ -113,7 +113,7 @@ Franklin D Roosevelt | [Les expériences d'un Président Américain](/fr-contemp
 Benjamin Franklin | [La confédération Iroquoise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-1-1-fab-benjamin-franklin/) | 1 Septembre 2008
 Jésus | [Une perspective globale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-4-1-fab-jesus/) | 4 Septembre 2008
 Uharu | [Des dispositions pour les Amérindiens dans le monde de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-4-2-fab-uharu/) | 4 Septembre 2008
-Erich Maria Remarque | [Un auteur Allemand trouve la confirmation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-5-1-fab-erich-maria-remarque/) | 5 Septembre 2008
+Erich Paul Remark | [Un auteur Allemand trouve la confirmation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-5-1-fab-erich-paul-remark/) | 5 Septembre 2008
 Jésus | [Bon changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-7-1-fab-jesus/) | 7 Septembre 2008
 Jésus | [Pré-existence des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-8-1-fab-jesus/) | 8 Septembre 2008
 Rose Kennedy | [La Famille Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-9-1-fab-rose-kennedy/) | 9 Septembre 2008
