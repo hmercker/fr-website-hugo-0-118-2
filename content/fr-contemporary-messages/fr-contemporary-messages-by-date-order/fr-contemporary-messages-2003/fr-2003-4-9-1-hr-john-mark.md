@@ -42,13 +42,13 @@ Il serait triste de penser que nous ne pouvons agir que lorsque nous sommes invi
 > Après cela, il y eut un jour de fête Juive, et Jésus monta à Jérusalem.
 <br>
 <br>
-> Or, à Jérusalem, près de la porte des brebis, il y a une piscine qui s’appelle, en Hébreu, Béthesda, et qui a cinq portiques. Sous ces portiques étaient couchés, en grand nombre, des malades, des aveugles, des boiteux, des paralytiques, qui attendaient le mouvement de l’eau;  (Ils attendaient « le  mouvement de l’eau », car un ange descendait de temps en temps dans la piscine, et agitait l’eau ; et celui qui y descendait le premier après que l’eau ait été agitée était guéri, quelle que fût sa maladie.…) Là se trouvait un homme malade depuis trente-huit ans.…
+> Or, à Jérusalem, près de la porte des brebis, il y a une piscine qui s’appelle, en Hébreu, Béthesda, et qui a cinq portiques. Sous ces portiques étaient couchés, en grand nombre, des malades, des aveugles, des boiteux, des paralytiques, qui attendaient le mouvement de l’eau;  (Ils attendaient « le  mouvement de l’eau », car un ange descendait de temps en temps dans la piscine, et agitait l’eau ; et celui qui y descendait le premier après que l’eau ait été agitée était guéri, quelle que fût sa maladie.…) Là se trouvait un homme malade depuis trente-huit ans…
 <br>
 <br>
 > Jésus, l’ayant vu couché, et sachant qu’il était malade depuis longtemps, lui dit: *« Veux-tu être guéri ? »*
 <br>
 <br>
-> *« Seigneur, lui répondit le malade, je n‘ai personne pour me jeter dans la piscine quand l’eau est agitée.  et, pendant que j’y vais, un autre descend avant moi.… »*
+> *« Seigneur, lui répondit le malade, je n‘ai personne pour me jeter dans la piscine quand l’eau est agitée.  et, pendant que j’y vais, un autre descend avant moi… »*
 <br>
 <br>
 > *« Lève-toi, »* lui dit Jésus, *« prends ton lit et marche ! »*

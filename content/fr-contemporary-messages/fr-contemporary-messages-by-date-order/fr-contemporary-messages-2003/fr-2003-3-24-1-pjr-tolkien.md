@@ -39,4 +39,4 @@ Je sais que vous avez pensé à moi de temps en temps et je suis heureux de vous
 
 Alors, en espérant que vous jugerez bon de publier ceci pour le bénéfice de ceux dont j’ai parlé, je vais m’excuser et signer de mon nom.
 
-JRR Tolkein.
+JRR Tolkien.

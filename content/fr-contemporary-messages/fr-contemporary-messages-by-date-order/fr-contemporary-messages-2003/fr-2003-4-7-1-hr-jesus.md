@@ -9,7 +9,7 @@ weight:
 ---
 ### Pourquoi Jésus a-t-il choisi Judas et Marie-Madeleine ?
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-judas-marie-madeleine.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-judas-marie-madeleine.jpg)
 
 Jésus - reçu par H____ le 7 Avril 2003, Cuenca, Équateur.
 
@@ -33,7 +33,7 @@ Marie aimait le luxe, elle aimait la sensation d’être acceptée dans les cerc
 
 Dans le cas de Matthieu, le collecteur d’impôts, les choses étaient différentes. Matthieu ne m’a pas approché, bien qu’il le souhaitait. Mais il avait peur, pas de moi, bien sûr, mais des gens qui m’entouraient, dont il pouvait sentir la haine ou le mépris  Mais j’ai pu voir le désir de Matthieu, un désir désespéré de changer sa situation; et je lui ai tendu la main pour lui donner cette traction qui l’aiderait à sortir de la tourbière où il était coincé.
 
-Il n’est pas si difficile de voir que les gens ne se comportent ni n’agissent ni ne parlent comme ils sont vraiment, mais plutôt qu’ils essaient de jouer un rôle, se montrant comme ils croient que les autres veulent les voir. Ce sont des personnes, et comme tu le sais bien, le mot personne dérive du mot latin « personare, » qui veut dire « parler à travers. » Dans le passé, la « persona » était le masque de l’acteur de théâtre, il avait pour fonction de donner à l’acteur l’apparence du personnage, une image qu’il interprétait : le méchant, le héros, le maladroit, etc. Et tous les gens interprètent, d’une manière similaire, leur rôle, et ils présentent leur masque. Mais ce que tu vois, n’est pas ce qu’ils sont vraiment …
+Il n’est pas si difficile de voir que les gens ne se comportent ni n’agissent ni ne parlent comme ils sont vraiment, mais plutôt qu’ils essaient de jouer un rôle, se montrant comme ils croient que les autres veulent les voir. Ce sont des personnes, et comme tu le sais bien, le mot personne dérive du mot latin « personare, » qui veut dire « parler à travers. » Dans le passé, la « persona » était le masque de l’acteur de théâtre, il avait pour fonction de donner à l’acteur l’apparence du personnage, une image qu’il interprétait : le méchant, le héros, le maladroit, etc. Et tous les gens interprètent, d’une manière similaire, leur rôle, et ils présentent leur masque. Mais ce que tu vois, n’est pas ce qu’ils sont vraiment…
 
 En outre, ils construisent aussi leurs masques afin de résoudre leurs problèmes et conflits internes – ce qui ne fonctionne jamais, mais tout le monde essaie de le faire. L’homme qui fut abusé ou maltraité comme garçon essaie d’infliger le même abus aux autres, se présentant comme un homme dangereux et difficile, prétendant couvrir ses propres sentiments de faiblesse, de peur, et d’infériorité. Le petit homme veut être le plus imposant parmi tous les mortels, et il part à la conquête du monde. Oui, au fond, les racines de leurs motivations sont parfois très ordinaires.
 

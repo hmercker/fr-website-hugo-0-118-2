@@ -1,13 +1,13 @@
 ---
-title: " Anxieux pour demain."
+title: "Anxieux pour demain"
 menu_title: ""
-description: " Anxieux pour demain."
+description: "Anxieux pour demain"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True
 weight:
 ---
-###  Anxieux pour demain.
+### Anxieux pour demain
 
 Jésus - reçu par PJR le 3 Septembre 2003, New York, USA.
 
@@ -15,7 +15,7 @@ Cher papa et amis,
 
 *[Anxieux à propos des changements de base de données de demain matin, j’attends avec impatience le jour où je serai dans un environnement mieux adapté à mon âme.*
 
-*Un grand merci à vous tous, et au Père, pour m’aider à rester capable de suivre aussi bien que je le fais. Fatigué et inquiet ; s’il vous plaît, restez près de moi et donnez-moi la force. *
+*Un grand merci à vous tous, et au Père, pour m’aider à rester capable de suivre aussi bien que je le fais. Fatigué et inquiet ; s’il vous plaît, restez près de moi et donnez-moi la force.*
 
 *Amour P____ .]*
 
@@ -27,4 +27,4 @@ C’est vrai ; et ce sont des questions tout simplement merveilleuses à poser, 
 
 Jésus qui, oui, est un avec le Père – tu commences à saisir ce que cela signifie.
 
-*Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Voici le [prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-8-1-pjr-various/), et voici le [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-2-1-pjr-psr/).*
+Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Voici le [prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-8-1-pjr-various/), et voici le [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-2-1-pjr-psr/).

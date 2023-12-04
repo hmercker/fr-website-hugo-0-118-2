@@ -9,7 +9,7 @@ weight:
 ---
 ### John Denver a changé de point de vue
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-john-denver2.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-john-denver2.jpg)
 
 John Denver - reçu par FAB le 23 Janvier 2003, Santa Cruz, Californie, USA.
 
@@ -35,6 +35,4 @@ Je pense que j’ai exprimé ce soir ce que je voulais dire. J’apprécie votre
 
 Sincèrement, John Denver.
 
-**Note :** *[Le premier message de John Denver.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-1-1-fab-john-denver/)*
-
-
+**Note :** [Le premier message de John Denver.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-1-1-fab-john-denver/)

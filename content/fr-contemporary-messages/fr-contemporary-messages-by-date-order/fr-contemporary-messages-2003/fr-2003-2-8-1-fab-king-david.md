@@ -30,7 +30,7 @@ J’avais donc une sensibilité à la fois à la musique et à la poésie, ce qu
 Dans le monde des esprits, bien que j’aie de nombreux souvenirs de mes bontés, je ne pouvais pas échapper aux souvenirs des dommages causés par les champs de bataille, dont je sais que j’ai été la cause. Ainsi, bien que je fusse assez spécial dans les domaines doux et délicats de la vie, j’étais aussi guerrier, et ces souvenirs m’ont suivi jusqu’ici.
 
 Eh bien, comme vous l’avez compris, j’habite les Cieux Célestes, où nous travaillons toujours à inverser et à guérir les dommages et les horreurs de la guerre. Je suis particulièrement heureux et honoré d’apporter mon aide ici, en connaissant et en comprenant ce qui pousse les mortels à commettre ces actes qui ne produisent finalement que souffrance et malheur pour celui qui les commet.
+
 Garde votre courage. Continuez à vous fier à votre guide. Sachez que le chemin est préparé pour vous, de sorte que lorsque vous viendrez ici, vous serez un esprit des plus heureux.
 
 Avec amour, David.
-

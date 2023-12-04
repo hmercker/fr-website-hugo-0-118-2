@@ -9,7 +9,7 @@ weight:
 ---
 ### Le récit de l’Exode
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-moise4-1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-moise4-1.jpg)
 
 Moïse - reçu par FAB le 9 Janvier 2003, Santa Cruz, Californie, USA.
 

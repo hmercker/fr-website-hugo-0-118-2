@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes réels
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-paysage-de-printemps3-1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-paysage-de-printemps3-1.jpg)
 
 Anonyme - reçu par PJR le 30 Mai 2003, New York City, USA.
 
@@ -78,4 +78,3 @@ Continuez comme ça et ces choses continueront. En fait, comme je l’ai dit, ce
 Comme vous pouvez le voir, de la manière dont cela s’est déroulé, je vous ai donné quelque chose que vous pouvez décider de publier. Et là, je crois que vous le ferez.
 
 Donc, à partir de maintenant et jusqu’à ce que les conditions s’y prêtent à nouveau, je vous donne mon amour et me signe, Votre ami du ciel.
-

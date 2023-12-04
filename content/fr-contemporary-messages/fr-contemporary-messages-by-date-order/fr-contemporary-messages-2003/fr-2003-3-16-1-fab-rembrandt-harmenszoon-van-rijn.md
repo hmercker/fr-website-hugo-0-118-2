@@ -9,7 +9,7 @@ weight:
 ---
 ### Rembrandt n’était pas spirituel sur terre
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-peinture-rembrandt.webp)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-peinture-rembrandt.webp)
 
 Rembrandt Harmenszoon van Rijn - reçu par FAB le 16 Mars 2003, Santa Cruz, Californie, USA.
 

@@ -27,7 +27,7 @@ Avec l’amour et les bénédictions de Dieu, nous te laissons.
 
 *Je vous aime tous.*
 
-*CC.*
+*CC.]*
 
 ##### Vent de changement
 

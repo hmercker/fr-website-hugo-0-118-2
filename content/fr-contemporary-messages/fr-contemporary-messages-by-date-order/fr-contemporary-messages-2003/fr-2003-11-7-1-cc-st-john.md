@@ -32,4 +32,4 @@ Il existe également une autre loi qui concerne la connexion et la relation entr
 Je mets fin à notre sujet à ce stade et attendrai une autre occasion. Je suis heureux que vous ayez apprécié nos moments ensemble. Portez-vous bien CC Dt priez pour l’Amour de Dieu ; c’est la seule puissance au monde qui fera de l’homme un ange.
 <small>
 
-1. <large id="f1"> La [loi du rapport et de la communication](*******The law of rapport and communication********).[↩](#a1)
+1. <large id="f1"> La [loi du rapport et de la communication](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-15-fr-the-law-of-rapport/).[↩](#a1)

@@ -39,7 +39,7 @@ Alors, réfléchis à ces mots. Ils sont pour toi. Ne prends pas la peine de les
 
 Avec tout mon amour et l’Amour du Père, Jésus, le maître.
 
-*Ce message fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Ceci est le dernier message, et voici [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-2-1-pjr-psr/).*
+Ce message fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Ceci est le dernier message, et voici [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-2-1-pjr-psr/).
 <small>
 
 1. <large id="f1"> Lui et le Père[↩](#a1)

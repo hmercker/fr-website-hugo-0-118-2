@@ -17,7 +17,7 @@ Pourquoi n’as-tu pas retranscrit ce que je t’ai dit ?
 
 Tu as suffisamment compris.
 
-*[*H : Alors c’était très court.]*
+*[H : Alors c’était très court.]*
 
 La valeur d’un message ne dépend pas de sa longueur. Écris maintenant. Je vais t’aider.
 

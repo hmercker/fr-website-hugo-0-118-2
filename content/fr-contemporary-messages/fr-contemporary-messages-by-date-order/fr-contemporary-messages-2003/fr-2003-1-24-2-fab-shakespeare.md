@@ -34,4 +34,3 @@ Je réalise que je n’ai pas beaucoup écrit dans ce message sur ma vie terrest
 Je vous remercie très sincèrement d’avoir reçu ce message.
 
 Amour, Shakespeare.
-

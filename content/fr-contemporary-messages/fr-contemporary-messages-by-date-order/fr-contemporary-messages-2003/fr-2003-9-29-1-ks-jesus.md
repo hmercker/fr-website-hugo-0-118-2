@@ -1,19 +1,19 @@
 ---
-title: "La vitesse de l’amour."
+title: "La vitesse de l’amour"
 menu_title: ""
-description: "La vitesse de l’amour."
+description: "La vitesse de l’amour"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True
 weight:
 ---
-### La vitesse de l’amour.
+### La vitesse de l’amour
 
 Jésus - reçu par Kathryn Stokes le 29 Septembre 2003, Santa Cruz, Californie, USA.
 
 *[Cher Père du Ciel,*
 
-*J’avais l’habitude de « sentir » la présence de mon ange gardien lorsque j’écrivais et que les « m » « hésitaient » au bas de chaque boucle. J’ai ressenti cette hésitation particulière il y a quelques instants, et je me demande s’il n’y a pas un esprit Céleste présent qui souhaiterait délivrer un message.*
+*J’avais l’habitude de « sentir » la présence de mon ange gardien lorsque j’écrivais et que les « m » « hésitaient » au bas de chaque boucle. J’ai ressenti cette hésitation particulière il y a quelques instants, et je me demande s’il n’y a pas un esprit Céleste présent qui souhaiterait délivrer un message.]*
 
 Je suis ici maintenant pour écrire, ma chère sœur en Christ, et je viens comme je le fais habituellement lorsque tu t’es préparée à recevoir un message de ma part.
 
