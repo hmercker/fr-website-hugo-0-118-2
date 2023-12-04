@@ -58,4 +58,4 @@ Comme le dit la vieille chanson, « Il a le monde entier entre ses mains ». Et 
 
 J’espère avoir clarifié dans votre esprit ce qui semblait être une contradiction, mais qui ne l’est pas vraiment.
 
-La [première partie de ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-24-1-fab-jesus/) a été transmise.
+**Note :** La [première partie de ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-24-1-fab-jesus/) a été transmise.

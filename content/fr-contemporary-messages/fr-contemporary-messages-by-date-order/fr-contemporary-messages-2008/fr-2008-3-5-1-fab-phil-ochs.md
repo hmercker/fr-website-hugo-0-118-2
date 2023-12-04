@@ -18,4 +18,5 @@ Oh, je suis tellement heureux maintenant ! Je n'ai plus de fardeau, et je suis l
 [Lorsque j'ai dit plus net et plus clair](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-8-1-fab-phil-ochs/) (et j'ai bien dit cela), je voulais dire que j'écris non pas essentiellement depuis la position d'un rebelle, mais depuis celle d'une âme qui a trouvé la paix et le bonheur. Et ma vision englobe tellement plus. Pour quelqu'un qui a mon type de personnalité, ce monde des esprits est un paradis, et je passe tout mon temps à remercier le Créateur de m'avoir donné la capacité de composer une musique qui L'honore.
 
 Vous pensez que vous vivrez pour voir l'accomplissement des années 1960, et je souhaite confirmer votre perception. Il est déjà là, en Amérique, seulement submergé par toute l'obscurité.
+
 Et l'obscurité se lèvera, pour révéler un pays qui trouve sa liberté et qui trouve sa naissance.

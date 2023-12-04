@@ -15,7 +15,7 @@ Je suis Henry James, Sr.
 
 C’est une telle joie d’écrire un message à la Terre. J’ai attendu si longtemps de pouvoir le faire.
 
-Vous vous demandez ce que je pense actuellement de Swedenborg. [Eh bien, j’étais présent lors de la réception des messages de James Padgett, et j’ai lu ce que [Swedenborg lui-même avait à dire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-12-23-1-jep-emmanuel-swedenborg/) <sup id="a2">[2](#f2)</sup>. Je m’étais interrogé sur beaucoup de choses qu’il avait écrites, mais j’ai toujours senti qu’il y avait une grande part de vérité.
+Vous vous demandez ce que je pense actuellement de Swedenborg. Eh bien, j’étais présent lors de la réception des messages de James Padgett, et j’ai lu ce que [Swedenborg lui-même avait à dire](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-12-23-1-jep-emmanuel-swedenborg/) <sup id="a2">[2](#f2)</sup>. Je m’étais interrogé sur beaucoup de choses qu’il avait écrites, mais j’ai toujours senti qu’il y avait une grande part de vérité.
 
 Avec le recul, je me rends compte que je n’avais pas le même sentiment de retour à la maison que celui que j’ai maintenant. La Nouvelle Naissance est maintenant ma réalité, et c’est la substance de ce que je cherchais. Mais je suis reconnaissant aux écrits de Swedenborg de m’avoir montré de nombreuses vérités, en particulier celle de la vie après la mort.
 

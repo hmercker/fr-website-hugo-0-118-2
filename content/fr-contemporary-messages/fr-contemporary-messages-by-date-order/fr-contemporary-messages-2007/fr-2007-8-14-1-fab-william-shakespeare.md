@@ -13,7 +13,7 @@ William Shakespeare - reçu par FAB le 14 Août 2007, Santa Cruz, Californie, US
 
 C'est moi, William Shakespeare.
 
-Tout d'abord, permettez-moi de clarifier ce que j'ai voulu dire dans [ma déclaration](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-12-2-fab-william-shakespeare/) : 
+Tout d'abord, permettez-moi de clarifier ce que j'ai voulu dire dans [ma déclaration](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-12-2-fab-william-shakespeare/) :
 
 *« Il [Joseph] dit que mon regret et ma souffrance pour les péchés commis dans la vie terrestre n'ont pas duré longtemps. Mais vous pensez que cela contredit le fait qu'il m'a fallu 400 ans pour atteindre la septième sphère. Ce que Joseph voulait dire, c'est que certains esprits passent des siècles et des siècles à lutter contre leurs ténèbres. »*
 

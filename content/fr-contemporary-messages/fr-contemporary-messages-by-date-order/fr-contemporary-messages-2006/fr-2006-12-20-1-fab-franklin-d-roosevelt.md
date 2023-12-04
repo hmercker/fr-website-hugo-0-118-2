@@ -46,4 +46,3 @@ Alors prenez courage, tant dans votre propre vie que dans celle de votre pays, c
 
 1. <large id="f1"> Franklin Delano Roosevelt (30 Janvier 1882 – 12 Avril 1945), souvent désigné par ses initiales FDR, était le 32e président des États-Unis. Élu pour quatre mandats, il a servi de 1933 à 1945, et est le seul président américain à avoir servi plus de deux mandats. Figure centrale du XXe siècle, il a toujours été classé comme l’un des trois plus grands présidents des États-Unis dans les enquêtes savantes. (Source : Wikipedia)
 [↩](#a1)
-

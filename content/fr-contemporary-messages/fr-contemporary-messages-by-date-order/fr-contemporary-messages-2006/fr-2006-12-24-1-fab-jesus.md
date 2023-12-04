@@ -9,7 +9,7 @@ weight:
 ---
 ### Guerre et paix et le plan de Dieu
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-lumiere-spirituelle1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-lumiere-spirituelle1.jpg)
 
 Jésus - reçu par FAB le 24 at 25 Décembre 2006, Santa Cruz, Californie, USA.
 

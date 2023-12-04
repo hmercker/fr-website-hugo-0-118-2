@@ -21,4 +21,3 @@ Vous avez raison de penser que les messages de James Padgett ne peuvent pas êtr
 <small>
 
 1. <large id="f1"> Pour ajouter aux problèmes, nous en attirons beaucoup, mais ils préfèrent marcher seuls et ils ne font tout simplement jamais surface lors des retraites ou même sur les forums de messages, donc nous avons un problème encore plus grand - celui de créer un groupe cohésif suffisamment grand et prêt à assumer une vision et un projet uniques. Que cela se soit produit en août 2015 est en soi stupéfiant.[↩](#a1)
- 

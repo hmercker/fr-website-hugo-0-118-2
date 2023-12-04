@@ -9,7 +9,7 @@ weight:
 ---
 ### Souffrances d’un industriel américain
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-andrew-carnegie.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-andrew-carnegie.jpg)
 
 Andrew Carnegie <sup id="a1">[1](#f1)</sup> - reçu par FAB le 3 Mars 2008, Santa Cruz, Californie, USA.
 
@@ -31,5 +31,4 @@ Vous dites, regardez autour de moi, et oui, je vois un esprit très brillant et 
 S’il vous plaît, priez pour moi et pensez à moi.
 <small>
 
-1. <large id="f1"> xxx[↩](#a1)
-Andrew Carnegie (25 Novembre 1835 – 11 Août 1919) était un industriel américain d’origine écossaise, un homme d’affaires, un important philanthrope, et le fondateur de la Carnegie Steel Company de Pittsburgh qui est devenue plus tard la U.S. Steel. Carnegie est connu pour avoir construit l’une des entreprises les plus puissantes et les plus influentes de l’histoire des États-Unis et, plus tard dans sa vie, pour avoir donné la plupart de ses richesses pour financer la création de nombreuses bibliothèques, écoles et universités en Amérique, en Écosse et dans d’autres pays du monde. Carnegie, un garçon pauvre doté d’une ambition féroce, d’une personnalité agréable et d’une dévotion pour le travail acharné et l’amélioration de soi, a commencé comme télégraphiste. Dans les années 1860, il avait investi dans des chemins de fer, des wagons-lits, ainsi que dans des ponts et des derricks à pétrole, et il s’est enrichi en tant que vendeur d’obligations, levant des fonds en Europe pour les entreprises américaines. (Source : Wikipedia)
+1. <large id="f1"> **Andrew Carnegie** (25 Novembre 1835 – 11 Août 1919) était un industriel américain d’origine écossaise, un homme d’affaires, un important philanthrope, et le fondateur de la Carnegie Steel Company de Pittsburgh qui est devenue plus tard la U.S. Steel. Carnegie est connu pour avoir construit l’une des entreprises les plus puissantes et les plus influentes de l’histoire des États-Unis et, plus tard dans sa vie, pour avoir donné la plupart de ses richesses pour financer la création de nombreuses bibliothèques, écoles et universités en Amérique, en Écosse et dans d’autres pays du monde. Carnegie, un garçon pauvre doté d’une ambition féroce, d’une personnalité agréable et d’une dévotion pour le travail acharné et l’amélioration de soi, a commencé comme télégraphiste. Dans les années 1860, il avait investi dans des chemins de fer, des wagons-lits, ainsi que dans des ponts et des derricks à pétrole, et il s’est enrichi en tant que vendeur d’obligations, levant des fonds en Europe pour les entreprises américaines. (Source : Wikipedia)[↩](#a1)

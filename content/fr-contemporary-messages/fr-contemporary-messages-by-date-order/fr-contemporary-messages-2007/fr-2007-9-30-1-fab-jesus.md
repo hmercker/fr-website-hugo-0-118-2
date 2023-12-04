@@ -27,7 +27,7 @@ Cette connaissance du Plan de Dieu que possédaient ces esprits n'est que logiqu
 
 Dès qu'ils ont appris l'existence de l'Amour Divin, ils ont commencé à le prier, et l'ont reçu, quand c'était possible. Mais aucun d'entre eux n'a atteint la Nouvelle Naissance avant moi.
 
-Le mot "ange", dans le message original de James Padgett, a le sens originel de "messager".
+Le mot « ange », dans le message original de James Padgett, a le sens originel de « messager ».
 
 En ce qui concerne l'Amour Divin, j'en ai toujours été le principal possesseur, mais étant mortel, j'étais soumis aux lois de la vie mortelle, et j'avais besoin de l'assistance de ces esprits d'autres manières. Ils étaient très puissants et sages, et savaient exactement comment répondre à mes besoins. Mais il fallait aussi qu'ils aient au moins une connaissance pratique de l'objectif de ma mission. Ainsi, même si Dieu était mon enseignant direct, j'étais également assisté par ce groupe, que Dieu utilisait pour subvenir à mes besoins.
 

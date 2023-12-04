@@ -11,7 +11,7 @@ weight:
 
 Martin Luther King jr <sup id="a1">[1](#f1)</sup> - reçu par FAB le 12 Janvier 2007, Santa Cruz, Californie, USA.
 
-Je suis Martin Luther King, Jr. 
+Je suis Martin Luther King, Jr.
 
 À l'approche de mon anniversaire, je voudrais que le monde sache que j'ai effectivement vu "la Terre promise" et que cette Terre promise viendra, et bientôt.
 

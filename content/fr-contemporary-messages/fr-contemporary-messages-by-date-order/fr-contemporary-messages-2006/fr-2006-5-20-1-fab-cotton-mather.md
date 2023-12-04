@@ -11,7 +11,7 @@ weight:
 
 Cotton Mather <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Mai 2006, Santa Cruz, Californie, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-cotton-mather.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-cotton-mather.jpg)
 
 Je suis Cotton Mather.
 

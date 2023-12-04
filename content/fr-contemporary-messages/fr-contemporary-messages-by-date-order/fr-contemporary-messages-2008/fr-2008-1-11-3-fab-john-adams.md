@@ -25,7 +25,7 @@ Dans votre monde contemporain, la question de la liberté, avec laquelle notre p
 Le pays survivra à des calamités telles que le Patriot Act <sup id="a3">[3](#f3)</sup>, et l'Amérique brillera comme elle était censée le faire à l'origine.
 <small>
 
-1. <large id="f1"> John Adams, Jr. (30 Octobre 1735 - 4 Juillet 1826) fut le deuxième président des États-Unis (1797-1801). Il a également été le premier vice-président des États-Unis (1789-1797). Il a été battu pour sa réélection lors de la "Révolution de 1800" par Thomas Jefferson. Adams a également été le premier président à résider dans la Maison Blanche nouvellement construite à Washington, D.C., qui a été achevée en 1800. (Source : Wikipedia)[↩](#a1)
+1. <large id="f1"> **John Adams, Jr.** (30 Octobre 1735 - 4 Juillet 1826) fut le deuxième président des États-Unis (1797-1801). Il a également été le premier vice-président des États-Unis (1789-1797). Il a été battu pour sa réélection lors de la "Révolution de 1800" par Thomas Jefferson. Adams a également été le premier président à résider dans la Maison Blanche nouvellement construite à Washington, D.C., qui a été achevée en 1800. (Source : Wikipedia)[↩](#a1)
 
 2. <large id="f2"> Les Alien and Sedition Acts sont quatre lois qui furent présentées en 1798 par les Fédéralistes au Congrès des États-Unis, lors d'une guerre navale avec la France, puis ratifiées par le président John Adams.[↩](#a2)
 

@@ -1,17 +1,17 @@
 ---
-title: "Le véritable esprit du Pardon."
+title: "Le véritable esprit du Pardon"
 menu_title: ""
-description: "Le véritable esprit du Pardon."
+description: "Le véritable esprit du Pardon"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True
 weight:
 ---
-### Le véritable esprit du Pardon.
+### Le véritable esprit du Pardon
 
 Abraham Lincoln - reçu par FAB le 31 Décembre 2005, Santa Cruz, Californie, USA
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-mount-rushmore.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-mount-rushmore.jpg)
 
 C'est moi, Abraham Lincoln.
 
@@ -23,7 +23,4 @@ Mes souhaits les plus affectueux pour une nouvelle année de bonheur et de véri
 
 Cordialement, Abraham Lincoln.
 
-[Un autre message d'Abraham Lincoln](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-2-jep-abraham-lincoln/).
-
-
-
+**Note :** [Un autre message d'Abraham Lincoln](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-2-jep-abraham-lincoln/).
