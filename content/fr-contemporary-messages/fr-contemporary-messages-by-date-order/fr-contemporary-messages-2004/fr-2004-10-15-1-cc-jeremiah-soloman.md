@@ -17,7 +17,7 @@ Voyons ce que ton amour est capable de recevoir. Dieu est avec tous et il est tr
 
 Il est souvent déconcertant d’observer le doute dans notre jeune famille lorsque leurs cris s’adressent à Dieu. Il entend toutes vos prières et ne se lasse jamais. Cela lui apporte tellement de joie quand Ses enfants l’appellent. Mais pourquoi doutent-ils qu’Il les entende ? Croyez qu’Il écoute, car Il ne peut pas faire autrement, Son amour est trop grand. Si vous croyez qu’Il répond à vos prières, vous serez en mesure de percevoir Ses réponses.
 
-Ce qu’il faut pratiquer, c’est de voir Ses actions à un « niveau supérieur de conscience ». Vous devez commencer à voir et à mesurer les choses à un niveau spirituel. Ces manifestations spirituelles sont en effet très réelles, plus que les manifestations physiques. Il suffit d’enlever le voile de ses yeux. Vous devez réaliser que les changements doivent d’abord se produire sur le plan spirituel, puis sur le plan matériel. 
+Ce qu’il faut pratiquer, c’est de voir Ses actions à un « niveau supérieur de conscience ». Vous devez commencer à voir et à mesurer les choses à un niveau spirituel. Ces manifestations spirituelles sont en effet très réelles, plus que les manifestations physiques. Il suffit d’enlever le voile de ses yeux. Vous devez réaliser que les changements doivent d’abord se produire sur le plan spirituel, puis sur le plan matériel.
 
 Car les manifestations matérielles ne valent que ce que valent leurs contreparties spirituelles.
 

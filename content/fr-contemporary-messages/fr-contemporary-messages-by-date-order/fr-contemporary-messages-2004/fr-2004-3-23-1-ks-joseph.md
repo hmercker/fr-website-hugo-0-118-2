@@ -13,7 +13,7 @@ Joseph - reçu par Kathryn Stokes le 23 Mars 2004, Santa Cruz, Californie, USA.
 
 *[Cher Père Céleste, je crois qu’un (ou plusieurs) de Tes anges tutélaires souhaite canaliser un message à Tes enfants qui vivent ici dans leur vie terrestre. Si je suis en assez bonne condition spirituelle, aimante, pour canaliser clairement leurs pensées, j’aimerais Te servir de cette façon. Je désire connaître la Vérité. Je prie pour un grand afflux de Ton merveilleux Amour transformateur en ce moment. Je prie pour être protégé des esprits négatifs. Merci pour cette opportunité bénie. Amen.]*
 
-Merci de votre volonté de servir dans ce travail important. Nous cherchons souvent des occasions d’écrire, mais les distractions de la vie terrestre font qu’il nous est difficile de trouver l’occasion de le faire. 
+Merci de votre volonté de servir dans ce travail important. Nous cherchons souvent des occasions d’écrire, mais les distractions de la vie terrestre font qu’il nous est difficile de trouver l’occasion de le faire.
 
 Comme vous le savez, nous ne transmettons pas toujours de nouvelles informations dans nos messages, bien que de petites bribes de nouvelles informations puissent se faufiler de temps en temps. Pour que les vérités spirituelles de haut niveau soient transmises clairement et absorbées par l’esprit, le développement de l’âme dans la Substance supérieure de l’Amour est nécessaire de votre part. Vous avez déjà assez d’informations pour toute votre vie ; maintenant la tâche est pour vous de grandir dans l’Amour, de l’intégrer dans votre vie quotidienne et de l’exemplifier chaque jour et de toutes les manières possibles.
 
