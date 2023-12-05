@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par FAB le 11 Juillet 2009, Santa Cruz, Californie, USA.
 
-C'est moi répondre à votre préoccupation. Vous pensez que nous, les anges, ne prenons pas de parti politique, que notre programme est au-dessus de la politique. Alors pourquoi ai-je soutenu Barack Obama ?<sup id="a1">[1](#f1)</sup>
+C'est moi répondre à votre préoccupation. Vous pensez que nous, les anges, ne prenons pas de parti politique, que notre programme est au-dessus de la politique. Alors pourquoi ai-je soutenu Barack Obama ? <sup id="a1">[1](#f1)</sup>
 Je voulais dire qu'il y a quelque chose dans son cœur qui nous attire. Il est vrai que nous ne sommes pas politiques au sens strict du terme. Un républicain est tout aussi aimé de Dieu et soumis à ses lois qu'un démocrate. Il est difficile de se détacher de l'intense partisanerie qui s'empare de votre pays en ce moment.
 
 Vous êtes conscients des parallèles avec la carrière politique d'Abraham Lincoln. Et vous êtes également conscient que le président représente un grand triomphe pour votre pays en termes d'égalité. Vous vous demandez donc ce que je pense de tout cela.

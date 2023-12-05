@@ -19,4 +19,4 @@ Je suis heureux que la lecture des mémoires de ma femme ait atténué votre mau
 
 Que vos jours soient bénis, et que notre pays prospère.
 
-***Note :*** *Ronald Reagan s'était exprimé antérieurement par un message [ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-22-1-fab-ronald-reagan/).*
+**Note :** Ronald Reagan s'était exprimé antérieurement par un message [ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-22-1-fab-ronald-reagan/).
