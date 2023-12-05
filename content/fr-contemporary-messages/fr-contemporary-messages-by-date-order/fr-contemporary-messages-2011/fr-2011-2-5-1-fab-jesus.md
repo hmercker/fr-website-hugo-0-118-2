@@ -29,5 +29,3 @@ Maintenant, la question d’Adolf Hitler vous vient à l’esprit. Vous avez pen
 Cela soulève tout le sujet de la guerre. Existe-t-il une guerre juste, une bonne guerre ? Eh bien, comme nous l’avons dit par l’intermédiaire de M. Padgett, c’est une question individuelle, et chaque personne impliquée lorsque la guerre éclate, doit rendre compte de ce qu’elle a dit et fait, et Dieu laisse l’issue aux mortels.
 
 Mais Dieu travaille toujours pour que sa vérité de droiture et d’amour prévale.
-
-

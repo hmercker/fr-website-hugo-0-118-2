@@ -11,7 +11,7 @@ weight:
 
 Keea Atta Kem - reçu par Al Fike le 16 Mai 2016, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-dreamstime_xs_4192196.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-dreamstime_xs_4192196.jpg)
 
 Je suis Keea, Keea Atta-Kem et j’ai vécu en Égypte il y a plusieurs centaines d’années et je réside maintenant dans le Royaume Céleste où résident toutes les âmes qui sont guéries et rachetées par l’Amour du Père. Nous en retirons une grande joie et nous partageons des expériences merveilleuses que je ne saurais vous décrire. Nous sommes si loin de ce plan terrestre, si loin de la référence que vous avez de vos vies, mais je vous dis à tous ceux qui suivent ce chemin et cherchent cet Amour que vous connaîtrez les gloires du Ciel, car c’est vraiment le Ciel, âmes bien-aimées.
 

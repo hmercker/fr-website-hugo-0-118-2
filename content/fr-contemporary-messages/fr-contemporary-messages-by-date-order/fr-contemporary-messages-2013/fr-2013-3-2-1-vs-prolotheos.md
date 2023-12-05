@@ -9,7 +9,7 @@ weight:
 ---
 ### Evolution
 
-**Prolotheos** - reçu par Valdir Soares <sup id=”a1”>[1](#f1)</sup> le 2 Mars 2013
+**Prolotheos** - reçu par Valdir Soares <sup id="a1">[1](#f1)</sup> le 2 Mars 2013
 
 **Prolotheos :**  *« L’évolution est un moyen par lequel les Dieux  « impriment leur dessin  » sur la création spatio-temporelle. En effet, ce n’est pas le seul moyen par lequel la création apparaît dans les Univers. Il y a la création par fiat, par génération et par évolution. L’évolution de la vie sur Urantia a commencé avec la formulation de la vie par les Porteurs de Vie, et elle se poursuivra dans les ères de Lumière et de Vie par la « synthèse » progressive de la Déité Suprême Planétaire résidente. L’évolution est un processus complexe qui ne peut être entièrement compris, même par les êtres humains qu’il produit. Malheureusement, la religion évolutionniste ne se laisse pas comprendre, tandis que l’ignorance la déforme grossièrement.
 
@@ -24,4 +24,4 @@ weight:
 *© The [11:11 Progress Group](http://www.1111ProgressGroup.com). « Le don de soi, l’illumination de la vérité et le soulagement de la souffrance sont les voies les plus nobles vers la conscience supérieure. » – Enseignant Ophelius, 2009.*
 <small>
 
-1. <large id=”f1”> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
+1. <large id="f1"> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)

@@ -17,4 +17,4 @@ Oui, le temps approche où Dieu vous guidera vers un endroit où de nombreuses p
 
 Ainsi, tout le Royaume Céleste observe ce temps sur terre, si crucial et vital pour apporter une plus grande Lumière à cet endroit, pour aider les âmes perdues à trouver la Lumière et la Vérité et pour apporter la connaissance qui est requise pour connaître la Vérité dans sa simplicité et sa puissance. Ainsi, ceux d'entre vous qui sont prêts à agir en tant qu'instruments de Dieu, quelle que soit leur capacité, leur bénédiction, leurs compétences et leurs dons, vous suivrez ce qui vous sera indiqué. Et nous guiderons et donnerons ce dont vous avez besoin dans ces grandes bénédictions.
 
-Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. 
+Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.

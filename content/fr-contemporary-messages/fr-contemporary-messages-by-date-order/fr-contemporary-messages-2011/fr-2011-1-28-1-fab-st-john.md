@@ -17,4 +17,3 @@ Oui, il y avait des gens en Terre Sainte qui parlaient le grec parce que c’ét
 <small>
 
 1. <large id="f1"> Ce sujet a déjà été partiellement évoqué dans un [précédent message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-3-1-fab-st-john/).[↩](#a1)
-

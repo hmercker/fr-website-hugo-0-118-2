@@ -11,7 +11,7 @@ weight:
 
 James Reid - reçu par Al Fike le 27 Novembre 2016, Hwaii, USA.
 
-Mes amis, c’est James, James Reid <sup id=”a1”>[1](#f1)</sup>.
+Mes amis, c’est James, James Reid <sup id="a1">[1](#f1)</sup>.
 
 Comme c’est différent de parler de ce côté de la voix. D’être un canal de cette façon, de vous parler de cette façon et combien je suis ravi d’avoir cette occasion de parler à mes amis et à toi mon ami Geoff, qui a été mon fidèle partisan et mon cher ami.
 
@@ -38,4 +38,4 @@ Et faire cela, travailler pour Dieu, travailler pour l’amour n’est pas une �
 Dieu vous bénisse, mes amis, je suis très heureux de pouvoir vous parler et j’espère que je pourrai encore parler à travers cet instrument car il a fait tomber une barrière permettant à ceux d’entre nous qui ne sont pas encore des Anges Célestes mais qui sont sur la bonne voie. de s’exprimer. Merci mes amis. Dieu vous bénit et que Son Amour coule dans vos âmes mes amis avec une grande abondance, une grande abondance. C’est votre objectif, c’est pourquoi vous vous réunissez. Pour vous aider les uns les autres dans ce grand effort, pour vous élever au-dessus des conditions de ce monde, des conditions de votre esprit et pour en venir vraiment à connaître vos âmes. Quelle merveilleuse, merveilleuse perspective de connaître vos âmes, mes amis. Je suis si heureux d’être avec vous. Sachez que je serai avec vous alors que vous continuez dans ces prières et ces efforts ensemble. Dieu vous bénisse, mes amis. James Reid vous aime et est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> C’est notre très cher ami James Reid, récemment décédé, récepteur et éditeur des Messages Richard.[↩](#a1) 
+1. <large id="f1"> C’est notre très cher ami James Reid, récemment décédé, récepteur et éditeur des Messages Richard.[↩](#a1)

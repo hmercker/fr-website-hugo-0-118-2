@@ -23,4 +23,4 @@ Il en est ainsi dans la vie, beaucoup de défis et de problèmes et de situation
 
 Dieu vous bénit, belles âmes. Vous vous réunissez parce que vous êtes attirés ensemble, vous travaillez ensemble parce que vous vous aimez les uns les autres, et en cela vous apportez un cadeau à ceux qui viennent, pour résider dans cette maison, un cadeau merveilleux. Soyez bénis pour vos efforts d’amour, soyez bénis pour votre volonté de donner par amour, de travailler par amour, de prier ensemble. Soyez bénis. Je suis Jacques et je vous aime.
 
-***Note :*** *Un petit groupe d'adeptes de l'Amour Divin était en train de réparer une maison pour la revendre.*
+**Note :** Un petit groupe d'adeptes de l'Amour Divin était en train de réparer une maison pour la revendre.

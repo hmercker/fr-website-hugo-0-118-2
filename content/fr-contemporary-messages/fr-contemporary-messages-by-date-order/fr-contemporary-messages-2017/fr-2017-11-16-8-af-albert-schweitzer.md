@@ -9,7 +9,7 @@ weight:
 ---
 ### Je suis avec vous
 
-Albert Schweitzer<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
+Albert Schweitzer <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 16 Novembre 2017, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Albert Schweitzer et moi aussi, je soutiens vos efforts et moi aussi, je souhaite parler par Voix Directe. Je parlerai dans ma propre langue à mon peuple. J'espère apporter plus de raison et de vérité à mes compatriotes, leur apprendre que l'amour est vraiment le pouvoir et la solution à de nombreux problèmes que l'on rencontre dans la vie. Je suis avec vous mes amis.
 

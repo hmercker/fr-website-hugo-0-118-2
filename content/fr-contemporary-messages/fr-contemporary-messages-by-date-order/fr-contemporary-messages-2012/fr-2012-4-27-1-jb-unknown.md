@@ -28,7 +28,7 @@ Ne me parlez pas de ces choses qui ne peuvent pas être : Parle-moi plutôt de l
 
 Et parle-moi de ce que Jésus a voulu dire quand il a écrit à James Padgett en disant :
 
-*« …vous, en votre temps, ne recevrez pas toutes les vérités de l’Infini. De nouvelles vérités viendront toujours à la connaissance des hommes, et les révélations de la vérité ne seront jamais définitives – et aucun homme ou esprit ne pourra jamais dire que sa connaissance est complète. Le progrès est la seule loi de l’univers qui existe toujours, et l’homme, lorsqu’il se met en condition, sera toujours l’objet et le sujet de cette loi.»*
+*« …vous, en votre temps, ne recevrez pas toutes les vérités de l’Infini. De nouvelles vérités viendront toujours à la connaissance des hommes, et les révélations de la vérité ne seront jamais définitives – et aucun homme ou esprit ne pourra jamais dire que sa connaissance est complète. Le progrès est la seule loi de l’univers qui existe toujours, et l’homme, lorsqu’il se met en condition, sera toujours l’objet et le sujet de cette loi. »*
 
 J’ai entendu une voix intérieure et elle a dit : L’œil n’a pas vu, ni l’oreille entendu, toutes les gloires qui attendent l’âme transformée par l’Amour Divin.
 
@@ -70,4 +70,4 @@ Le monde attend les enfants de Dieu pour montrer ce que l’Amour Divin fera et 
 
 La voix de nombreux esprits qui écoutent la voix du Père.
 
-***Note du Webmaster du site « New-Birth.Net » :*** *Il s’agit sans aucun doute d’un résultat direct des conversations sur quelques forums remettant en question la série actuelle de messages de l’Enfant de Dieu. Tout simplement parce que la convention au sein du mouvement de l’Amour Divin a soutenu que le Père ne peut pas parler directement à Ses enfants.*
+**Note du Webmaster du site « New-Birth.Net » :** Il s’agit sans aucun doute d’un résultat direct des conversations sur quelques forums remettant en question la série actuelle de messages de l’Enfant de Dieu. Tout simplement parce que la convention au sein du mouvement de l’Amour Divin a soutenu que le Père ne peut pas parler directement à Ses enfants.

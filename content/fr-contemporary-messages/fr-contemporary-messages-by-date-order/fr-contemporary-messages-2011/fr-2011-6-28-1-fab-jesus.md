@@ -1,7 +1,7 @@
 ---
-title: "le plan de Dieu"
+title: "Le plan de Dieu"
 menu_title: ""
-description: "le plan de Dieu"
+description: "Le plan de Dieu"
 date: 2022-06-01 06:00:01+00:196
 draft: False
 hidden: True

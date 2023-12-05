@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 17 Août 2015, Gibsons, Colombie-Britannique, Canada.
 
-![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-chaos-st-brieuc.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-chaos-st-brieuc.jpg)
 
 Bénis soient les enfants qui cherchent à guérir ce monde,
 Bénis soient les enfants qui aspirent à l’Amour du Père,

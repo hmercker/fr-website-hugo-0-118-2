@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Bettina le 14 Septembre 2016, Monterrey, Mexico.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-lumiere-spirituelle.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-lumiere-spirituelle.jpg)
 
 « Certaines personnes croient qu’elles ont la vérité absolue, qu’elles savent ce qui est et ce qui n’est pas. Elles ne réalisent pas que la vérité à laquelle elles croient est déterminée uniquement par leurs propres croyances, en raison de leurs expériences particulières, de ce qui leur a été enseigné, personnellement, et de ce qu’elles ont vu et appris sur leur chemin au cours de la vie.
 

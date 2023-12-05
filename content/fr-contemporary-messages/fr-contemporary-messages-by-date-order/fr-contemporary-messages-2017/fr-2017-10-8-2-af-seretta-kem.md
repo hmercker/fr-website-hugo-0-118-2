@@ -11,7 +11,7 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 8 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
-Quelle belle bénédiction Jésus vous apporte mes bien-aimés pour vous encourager dans vos efforts et votre cheminement. Maintenant je suis venu pour vous donner des instructions plus pratiques. Je vous suggère qu'à partir de maintenant et jusqu'à ce que vous vous rencontriez, vous fassiez un effort pour garder vos régimes légers, pas des aliments lourds, plus légers, certainement nutritifs. Ne vous surchargez pas. Continuez à ingérer les éléments qui ont été recommandés : phosphore, calcium et chlorophylle. 
+Quelle belle bénédiction Jésus vous apporte mes bien-aimés pour vous encourager dans vos efforts et votre cheminement. Maintenant je suis venu pour vous donner des instructions plus pratiques. Je vous suggère qu'à partir de maintenant et jusqu'à ce que vous vous rencontriez, vous fassiez un effort pour garder vos régimes légers, pas des aliments lourds, plus légers, certainement nutritifs. Ne vous surchargez pas. Continuez à ingérer les éléments qui ont été recommandés : phosphore, calcium et chlorophylle.
 
 Continuez à surveiller vos corps et à vous assurer que votre apport nutritionnel est conforme à votre compréhension intuitive de ce dont vous avez besoin. Nous vous aiderons à cet égard. Vos corps peuvent se sentir plus légers et fonctionner d'une manière qui sera utile dans votre développement pour la voix directe.
 

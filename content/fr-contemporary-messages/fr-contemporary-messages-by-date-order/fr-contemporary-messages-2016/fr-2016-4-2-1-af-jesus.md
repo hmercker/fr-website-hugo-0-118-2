@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 2 Avril 2016, Gibsons, Colombie-Britannique, Canada.
 
-Dieu vous bénisse, mes âmes bien-aimées, je viens comme un enseignant. Je suis Jésus. Je suis venu pour parler de mon ministère, pour parler de ma vie pendant que j’étais ici sur cette Terre, pour parler de l’accomplissement de ces prophéties annoncées avant ma venue, d’être le Messie <sup id=”a1”>[1](#f1)</sup>.
+Dieu vous bénisse, mes âmes bien-aimées, je viens comme un enseignant. Je suis Jésus. Je suis venu pour parler de mon ministère, pour parler de ma vie pendant que j’étais ici sur cette Terre, pour parler de l’accomplissement de ces prophéties annoncées avant ma venue, d’être le Messie <sup id="a1">[1](#f1)</sup>.
 
 Il y en a beaucoup aujourd’hui qui croient que mon message et mon but de venir sur cette Terre sont nés de mon sacrifice sur la croix, de l’effusion de mon sang, de la rédemption qui a été apportée à ceux qui croient en moi et de la puissance de mon sang. Oh, comme cette interprétation malheureuse de mon message et de ma vie a causé beaucoup de douleur et d’erreur dans le monde, car rien ne pourrait être plus éloigné de la vérité que ma mort et mon sang pouvaient sauver l’humanité.
 
@@ -48,4 +48,4 @@ Beaucoup tourneront leurs regards vers vous, mes bien-aimés, et vous leur parle
 Je suis votre ami, je suis votre frère, et je vous aime tendrement. Je suis Jésus. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous sur votre chemin et j’aide à éclairer le chemin alors que vous marchez sur cette Voie. Que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Pour une raison quelconque, ceci n’a pas été couvert à ce moment.[↩](#a1)
+1. <large id="f1"> Pour une raison quelconque, ceci n’a pas été couvert à ce moment.[↩](#a1)

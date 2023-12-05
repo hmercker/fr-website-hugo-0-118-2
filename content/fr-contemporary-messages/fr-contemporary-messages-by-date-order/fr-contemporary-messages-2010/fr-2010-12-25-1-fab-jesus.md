@@ -14,7 +14,7 @@ Jésus - reçu par FAB le 25 Décembre 2010, Berkeley, Californie, USA.
 C’est moi, Jésus.
 Vous cherchez une clarification. J'ai dit par l'intermédiaire de M. Padgett le 25 Décembre 1914 :
 
-> Quant à l'acte de guérison que j'ai accompli à la piscine de Bethsaïda, il est rapporté que j'ai dit : Est-il plus facile de dire : « Prends ton lit et marche », que de demander à Dieu de pardonner ton péché ?. 
+> Quant à l'acte de guérison que j'ai accompli à la piscine de Bethsaïda, il est rapporté que j'ai dit : Est-il plus facile de dire : « Prends ton lit et marche », que de demander à Dieu de pardonner ton péché ?.
 
 C'est ainsi que cela a été rapporté, mais ce n'est pas ce que j'ai dit. En fait, j'ai dit,
 

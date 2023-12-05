@@ -19,5 +19,3 @@ Je n’ai pas grand-chose à offrir, car je ne comprends toujours pas grand-chos
 <small>
 
 1. <large id="f1"> **Roy Harold Scherer Jr**, plus tard Roy Harold Fitzgerald (17 Novembre 1925 – 2 Octobre 1985), connu professionnellement sous le nom de Rock Hudson, était un acteur américain de cinéma et de télévision, reconnu comme un acteur principal romantique dans les années 1950 et 1960, notamment dans plusieurs comédies romantiques avec Doris Day. Rock Hudson a été élu « star de l’année », « acteur principal préféré » et autres titres similaires par de nombreux magazines de cinéma. Cet acteur de 1,96 m fut l’une des stars de cinéma les plus populaires et les plus connues de l’époque. Il a tourné près de 70 films et joué dans plusieurs productions télévisées au cours d’une carrière qui s’est étendue sur plus de quatre décennies. Rock Hudson est mort en 1985, étant l’une des premières grandes célébrités hollywoodiennes à mourir d’une maladie liée au sida. (Source : Wikipedia)[↩](#a1)
-
-

@@ -28,4 +28,3 @@ Votre Père.
 <small>
 
 1. <large id="f1"> Ce message s'adresse à nous tous. C'est bien au-delà de la coïncidence que, littéralement, chaque médium que je connais personnellement, et cela inclut beaucoup plus que les adeptes de l'« Amour Divin », a reçu à peu près le même message - cette année.[↩](#a1)
-

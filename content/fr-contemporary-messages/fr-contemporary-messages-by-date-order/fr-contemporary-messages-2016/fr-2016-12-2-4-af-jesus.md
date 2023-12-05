@@ -23,7 +23,7 @@ Continuez, âmes bien-aimées, à chercher ce grand cadeau et à apporter ce gra
 
 Âmes bien-aimées, vous avez été touchées par Dieu et vous continuerez à être touchées et à grandir dans cette Lumière. Cette flamme qui brûle en vous deviendra de plus en plus grande à mesure que vous permettrez à Dieu de vous embrasser pleinement dans cet Amour, à mesure que vous relâcherez ces conditions qui ne sont pas de l’Amour. Alors que vous augmentez votre foi en cette Vérité simple mais puissante et que vous marchez dans ce monde en faisant confiance à la Volonté de Dieu, en mettant en œuvre Son Amour de manière belle et puissante, vous saurez qu’il y a de nombreux dons en chacun de vous qui attendent d’être exprimés et amplifiés par Sa touche d’Amour.
 
-Continuez dans vos prières et vos efforts, âmes bien-aimées, portez cette flamme, tenez-la bien haute et déclarez « Je suis un enfant de Dieu. Je suis porteur de Sa Vérité qui est Son Amour, manifesté dans mon âme« . Beaucoup attendent votre déclaration, beaucoup attendent la véritable expression de vos âmes, beaucoup attendent ce canal clair de l’Amour de Dieu contenu en vous.
+Continuez dans vos prières et vos efforts, âmes bien-aimées, portez cette flamme, tenez-la bien haute et déclarez *« Je suis un enfant de Dieu. Je suis porteur de Sa Vérité qui est Son Amour, manifesté dans mon âme »* . Beaucoup attendent votre déclaration, beaucoup attendent la véritable expression de vos âmes, beaucoup attendent ce canal clair de l’Amour de Dieu contenu en vous.
 
 Continuez, mes frères et sœurs bien-aimés, dans vos efforts fervents pour déclarer la Vérité, pour vivre la Vérité, pour reconnaître combien vous êtes aimés dans l’étreinte de Dieu.
 

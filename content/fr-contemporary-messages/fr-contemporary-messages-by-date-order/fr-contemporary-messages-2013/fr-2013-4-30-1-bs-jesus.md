@@ -1,17 +1,17 @@
 ---
-title: " Paix, première partie"
+title: "Paix, première partie"
 menu_title: ""
-description: " Paix, première partie"
+description: "Paix, première partie"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True
 weight:
 ---
-###  Paix, première partie
+### Paix, première partie
 
 Jésus - reçu par Bright Soul le 30 Avril 2013.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-paix-interieure-4-2013.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-paix-interieure-4-2013.jpg)
 
 C'est moi, Yeshua. Je voudrais parler de la paix, ce sentiment mystérieux que beaucoup voudraient sentir pleinement mais que peu recherchent vraiment, et quand ils le font, ils n’arrivent pas à le faire perdurer. La paix n’est pas originaire de l’esprit. C’est une qualité inhérente à l’âme. Elle n’a pas besoin d’être recherchée comme quelque chose en dehors de soi. Elle existe déjà à l’intérieur de soi.
 

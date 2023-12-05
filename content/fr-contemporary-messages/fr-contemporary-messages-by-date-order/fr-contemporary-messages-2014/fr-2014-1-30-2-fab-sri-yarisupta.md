@@ -9,7 +9,7 @@ weight:
 ---
 ### Le gourou Hindou Sri Yukteswar parle de l’Amour Divin <sup id="a1">[1](#f1)</sup>
 
-Sri Yarisupta  <sup id="a2">[2](#f2)</sup> - reçu par FAB le 30 Janvier 2014, Santa Cruz, Californie, USA.
+Sri Yarisupta <sup id="a2">[2](#f2)</sup> - reçu par FAB le 30 Janvier 2014, Santa Cruz, Californie, USA.
 
 Bonjour à tous. Mes chers amis, je suis Sri Yukteswar. Je suis le gourou de celui que vous appelez Sri Yogananda.
 

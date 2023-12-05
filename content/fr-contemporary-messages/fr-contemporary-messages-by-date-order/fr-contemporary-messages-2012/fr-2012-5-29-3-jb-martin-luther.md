@@ -29,4 +29,3 @@ Ton ami, Martin.
 <small>
 
 1. <large id="f1"> Ce message, les deux précédents communiqués également par Martin Luther et Anne Rollins ainsi que le suivant communiqué par Jésus, ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.[↩](#a1)
-

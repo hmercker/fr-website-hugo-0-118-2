@@ -9,12 +9,12 @@ weight:
 ---
 ### Comment être avec Dieu ?
 
-Alec Gaunt - reçu par Al Fike le 25 Janvier 2017, FUSC<sup id=”a1”>[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada
+Alec Gaunt - reçu par Al Fike le 25 Janvier 2017, FUSC <sup id="a1">[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada
 
 Je suis Alec et je suis venu à cette église de nombreuses fois au cours des nombreuses années où j’ai eu une association ici. Je suis venu en chair et en os. Je suis venu en esprit. J’ai travaillé avec beaucoup d’entre vous qui êtes ici. Je viens pour servir Dieu dans l’amour, dans mon désir de vous soutenir dans votre développement spirituel.
 
 Âmes bien-aimées, ne sentez-vous pas ces eaux vives se déverser sur vous. La bénédiction de l’Amour de Dieu qui vous lave, vous traverse, vous transporte vers un autre lieu de Lumière ? Ouvrez-vous à cette bénédiction. Permettez à Dieu de vous élever et de vous amener à ce lieu de paix, de joie, de confort, de guérison et d’Amour. Tant de personnes dans votre monde ne savent pas comment se rafraîchir de cette manière, comment tendre la main à Dieu dans la prière et la supplication, dans l’ouverture et l’humilité. Alors, cherchez cette nourriture auprès du Créateur et portez cette Lumière partout où vous allez.
-Âmes bien-aimées, ceci est disponible pour chacun d’entre vous, et pour chacun dans ce monde si seulement vous prenez le temps de faire connaître vos prières à Dieu et de vous ouvrir à ce contact, ce pas dans la foi qui dit : « Je suis avec vous. Je vous aime. Cher Dieu, soyez avec moi pour que je puisse ressentir votre Amour. Soyez avec moi pour que votre Paix repose comme un manteau sur moi. Soyez avec moi afin que je sache que je ne suis jamais seul, que vous êtes toujours avec moi. »
+Âmes bien-aimées, ceci est disponible pour chacun d’entre vous, et pour chacun dans ce monde si seulement vous prenez le temps de faire connaître vos prières à Dieu et de vous ouvrir à ce contact, ce pas dans la foi qui dit : *« Je suis avec vous. Je vous aime. Cher Dieu, soyez avec moi pour que je puisse ressentir votre Amour. Soyez avec moi pour que votre Paix repose comme un manteau sur moi. Soyez avec moi afin que je sache que je ne suis jamais seul, que vous êtes toujours avec moi. »*
 
 Oh mes amis, vous construisez un grand fondement en vous alors que vous poursuivez votre croissance et votre développement spirituels, alors que vous recherchez la Vérité, alors que vous comprenez l’ampleur et la profondeur de l’Amour et le pouvoir de l’Amour pour guérir, unir et apporter la grâce dans vos vies. C’est ici maintenant, cette Lumière bénie, ces eaux vivantes. Buvez profondément mes amis. C’est la grande nourriture dont votre âme a faim. Elle a soif de ces eaux. Elle désire être nourrie, grandir dans ce grand Amour qui enflamme l’âme pour une prise de conscience profonde, un changement profond et de magnifiques réveils.
 
@@ -27,4 +27,4 @@ Merci à tous d’être ici de cette façon, d’apporter la lumière à ce mond
 Que Dieu vous bénisse. Je suis Alec et mes bénédictions et mon amour vous accompagnent, mes bien-aimés. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> First United Spiritualist Church (Première Eglise Spirituelle Unie).[↩](#a1)
+1. <large id="f1"> First United Spiritualist Church (Première Eglise Spirituelle Unie).[↩](#a1)
