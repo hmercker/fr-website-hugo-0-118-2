@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
+### L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C. <sup id="a1">[1](#f1)</sup>
 
 Alec Gaunt - reçu par Al Fike le 10 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
@@ -24,4 +24,4 @@ Vous devenez les bénéficiaires d’être un instrument de Dieu dans le monde. 
 Que Dieu vous bénisse toujours et vous garde toujours dans cette Lumière. Son Amour est avec vous, âmes bien-aimées. Que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)

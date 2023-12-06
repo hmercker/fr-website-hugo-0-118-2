@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Lumière pour le monde - Retraite F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
+### Lumière pour le monde - Retraite F.U.S.C. <sup id="a1">[1](#f1)</sup>
 
 Keea Atta Kem - reçu par Al Fike le 8 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
@@ -26,4 +26,4 @@ Dieu attend ceux qui cherchent à servir de cette manière et qui cherchent à c
 Je suis Keea Atta Kem. Que Dieu vous bénisse abondamment, belles âmes. Puissiez-vous continuer à chercher et à être en alignement avec la plus haute et la plus grande des Lumières. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)

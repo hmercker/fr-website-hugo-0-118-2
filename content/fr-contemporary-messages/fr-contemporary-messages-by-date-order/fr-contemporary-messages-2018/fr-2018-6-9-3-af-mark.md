@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Guidance et bénédictions - Retraite F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
+### Guidance et bénédictions - Retraite F.U.S.C. <sup id="a1">[1](#f1)</sup>
 
 Marc - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
@@ -22,4 +22,4 @@ Que Dieu bénisse tous ceux qui entrent dans votre église. Que Dieu bénisse to
 Dieu vous bénisse, je suis Marc. Je continue à veiller sur ce lieu béni, que j’aime aussi, et je suis reconnaissant de l’occasion qui m’est donnée de rendre service de cette manière. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
 <small>
 
-1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)

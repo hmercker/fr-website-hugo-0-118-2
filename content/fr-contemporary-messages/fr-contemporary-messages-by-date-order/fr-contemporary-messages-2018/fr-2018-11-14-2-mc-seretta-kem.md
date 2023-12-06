@@ -11,7 +11,7 @@ weight:
 
 Seretta Kem - reçu par Maureen Cardoso le 14 Novembre 2018, Abbotsford, Colombie-Britannique, Canada.
 
-Âmes bien-aimées, je suis Seretta Kem. Vous connaissez les liens d’amour, les liens que l’Amour de Dieu crée. Beaucoup d’entre vous sont en prière simultanée alors que nous nous réunissons, et je vois que la chère âme est bien arrivée, accueillie par ses deux amis de l’autre côté de l’océan <sup id=”a1”>[1](#f1)</sup>. Comme vous vous réunissez vite, vous vous accordez, vous célébrez dans une prière. Vous voyez combien vos liens sont bien établis, vos liens d’âme, peu importe où vous êtes, car vous êtes tous dispersés sur votre planète Terre en ce moment.
+Âmes bien-aimées, je suis Seretta Kem. Vous connaissez les liens d’amour, les liens que l’Amour de Dieu crée. Beaucoup d’entre vous sont en prière simultanée alors que nous nous réunissons, et je vois que la chère âme est bien arrivée, accueillie par ses deux amis de l’autre côté de l’océan <sup id="a1">[1](#f1)</sup>. Comme vous vous réunissez vite, vous vous accordez, vous célébrez dans une prière. Vous voyez combien vos liens sont bien établis, vos liens d’âme, peu importe où vous êtes, car vous êtes tous dispersés sur votre planète Terre en ce moment.
 
 Pourtant, vos âmes aspirent à être en prière ensemble, à atteindre l’Amour de Dieu, à être bénies par ces eaux vivantes qui nourrissent vos âmes, remplissent vos corps et apportent la paix à vos esprits. Je dis à mes trois amis qui sont réunis en ce moment, votre union est importante les uns pour les autres. Le soutien que vous vous apportez l’un à l’autre, l’entente que vous avez entre vous en ce moment où vous désirez être utilisés par Dieu, sont l’occasion de partager ces vérités avec les chères âmes qui vont arriver. Tout est orchestré et tout ce que vous devez faire est d’être dans la Lumière de l’Amour de Dieu, en étant un exemple de ces vérités et en partageant vos propres expériences.
 
@@ -24,4 +24,4 @@ Notre amour reste avec vous et lorsque vous vous joignez à la prière, nous nou
 Que Dieu vous bénisse, mes amis. Je suis Seretta Kem et mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Une référence à Al Fike arrivant à Sydney pour rejoindre Geoff Cutler et Jimbeau Walsh.[↩](#a1)
+1. <large id="f1"> Une référence à Al Fike arrivant à Sydney pour rejoindre Geoff Cutler et Jimbeau Walsh.[↩](#a1)
