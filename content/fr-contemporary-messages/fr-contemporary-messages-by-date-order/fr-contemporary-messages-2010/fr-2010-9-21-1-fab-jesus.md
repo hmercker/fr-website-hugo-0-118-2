@@ -9,7 +9,7 @@ weight:
 ---
 ### Négativité héritée et péché originel
 
-![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-spiritualite-12-1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-spiritualite-12-1.jpg)
 
 Jésus - reçu par FAB le 21 Septembre 2010, Berkeley, Californie, USA.
 

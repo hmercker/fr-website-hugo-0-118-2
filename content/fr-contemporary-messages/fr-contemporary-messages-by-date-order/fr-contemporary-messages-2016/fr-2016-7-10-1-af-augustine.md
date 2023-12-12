@@ -17,7 +17,7 @@ Ainsi vous voyez, vous pouvez poser beaucoup de questions, apaiser le mental dan
 
 Dans votre monde, le mental est vénéré, le mental est habilité et nourri, le mental est considéré par la plupart des personnes comme la seule faculté de l’individu capable de raisonner et de percevoir la vérité. Ceci, mes amis, est une erreur, car l’âme a plus de facultés, des perceptions plus profondes et une capacité accrue à comprendre les vérités universelles du Créateur. Ainsi, que ceux qui veulent s’engager dans l’exploration de leur âme sachent que ce qui se cache dans ces profondeurs c’est leur être véritable et qu’ils doivent se préparer à affronter de nombreux défis car de nombreux endroits de ce vaste espace sont pleins de souffrances qui demandent une grande force de volonté et une grande foi pour être confrontées. Ils doivent permettre à Dieu de les accompagner et Lui dire :
 
-*[Cher Père]* –
+*[Cher Père]*
 
 > Tiens-moi la main tout au long de ce voyage et imprègne-moi de Ton Amour, afin que je puisse, avec force et clarté, me libérer et nous permettre, Toi et moi ensemble, de vivre dans ce lieu de communion et de Lumière, ce lieu profond que je porterai avec moi pour l’éternité, toujours plus lumineux et plus beau, que je permette à tout ce qui n’est pas en harmonie avec ton Amour de s’éloigner de moi et que toute vérité, toute bonté, toute joie et toute paix profonde se substituent à ce qui m’est si cher, bien que ne venant pas de Dieu, n’étant ni de l’amour, ni de la vraie joie, et que je puisse me libérer et laisser la bénédiction de Ta Sainte Essence guérir tout en moi, ouvrir mes bras, et permettre que je m’allie avec Toi.
 

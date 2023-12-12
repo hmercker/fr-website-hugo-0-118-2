@@ -25,7 +25,7 @@ Et vous, mes bien-aimés, vous devez simplement être en harmonie avec Dieu et e
 
 Oui, mes bien-aimés, cherchez l'Amour de Dieu, le Royaume, et tout viendra à vous et de cette façon, beaucoup viendront à vous en cherchant, alors que vous placez devant eux des perles hors de prix, la vérité de l'Amour de Dieu. Âmes bien-aimées, continuez dans vos grands efforts, vos prières, votre désir, vos voyages, vos rassemblements avec d'autres, à travers les Cercles de Lumière, les Cercles de Vérité, les Cercles d'Amour.
 
-Oui, mes bien-aimés, nous allons continuer ce voyage. Nous vous emmènerons dans de nombreux endroits, nous vous montrerons de nombreuses choses et nous connecterons avec vous de nombreuses âmes, désireuses de connaître la vérité. Quel glorieux voyage est-ce, quelle merveilleuse aventure cela deviendra lorsque vous déposerez votre résistance et embrasserez complètement la volonté de Dieu. 
+Oui, mes bien-aimés, nous allons continuer ce voyage. Nous vous emmènerons dans de nombreux endroits, nous vous montrerons de nombreuses choses et nous connecterons avec vous de nombreuses âmes, désireuses de connaître la vérité. Quel glorieux voyage est-ce, quelle merveilleuse aventure cela deviendra lorsque vous déposerez votre résistance et embrasserez complètement la volonté de Dieu.
 
 Bien-aimés, continuez dans ces grands efforts, exprimez toujours votre amour, faites-le de nombreuses façons différentes, ne jugez pas, ne résistez pas, enveloppez, embrassez, acceptez et aimez. C'est ainsi que Dieu peut vous utiliser, mes bien-aimés, et il en sera ainsi lorsque vous continuerez sur ce chemin.
 

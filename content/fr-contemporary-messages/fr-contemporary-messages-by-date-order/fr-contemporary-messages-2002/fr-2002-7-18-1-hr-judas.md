@@ -28,7 +28,7 @@ Pourtant, il y a d’autres passages qui prêtent à confusion. Par exemple :
 > <u>Luc 06:37</u> : - Ne jugez point et vous ne serez point jugés ; ne condamnez point, et vous ne serez point condamnés. Pardonnez et vous serez pardonnés.
 <br>
 <br>
-> <u>Jean 7:24</u> : - Ne jugez pas selon l’apparence, mais jugez selon la justice ! 
+> <u>Jean 7:24</u> : - Ne jugez pas selon l’apparence, mais jugez selon la justice !
 
 Pourquoi devrions-nous juger ?
 
@@ -40,11 +40,11 @@ Donc, nous ne devons pas juger.
 
 Mais ici, nous devons juger. Ce passage fait même allusion à la possibilité d’entreprendre soi-même des poursuites judiciaires.
 
-> <u>1 Corinthiens 6:4</u> - Quand donc vous avez des différends pour les choses de cette vie, pourquoi  prendre pour juges des gens dont l’Église ne fait aucun cas ? 
+> <u>1 Corinthiens 6:4</u> - Quand donc vous avez des différends pour les choses de cette vie, pourquoi  prendre pour juges des gens dont l’Église ne fait aucun cas ?
 
 Cependant, l’avis de Jacques semble différent…
 
-> <u>Jacques 4:11, 12</u> - Ne parlez point mal les uns des autres, frères. Celui qui parle mal d’un frère, ou qui juge son frère, parle mal de la Loi et juge la Loi. Or, si tu juges la Loi, tu n’es pas observateur de la Loi, mais tu en es juge. Un seul est législateur et juge, c’est celui qui donne la Loi, celui qui peut sauver et perdre. 
+> <u>Jacques 4:11, 12</u> - Ne parlez point mal les uns des autres, frères. Celui qui parle mal d’un frère, ou qui juge son frère, parle mal de la Loi et juge la Loi. Or, si tu juges la Loi, tu n’es pas observateur de la Loi, mais tu en es juge. Un seul est législateur et juge, c’est celui qui donne la Loi, celui qui peut sauver et perdre.
 <br>
 <br>
 > Mais toi, qui es-tu, qui juges le prochain ?

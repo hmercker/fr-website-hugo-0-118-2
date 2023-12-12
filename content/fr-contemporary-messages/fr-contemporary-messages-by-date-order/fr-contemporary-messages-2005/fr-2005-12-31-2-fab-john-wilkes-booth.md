@@ -11,7 +11,7 @@ weight:
 
 John Wilkes Booth - reçu par FAB le 31 Décembre 2005, Santa Cruz, Californie, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-lotus-1205631_1280.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-lotus-1205631_1280.jpg)
 
 C'est moi, John Wilkes Booth *[l'assassin d'Abraham Lincoln]*.
 
@@ -29,4 +29,4 @@ Je vois que cette canalisation a eu un effet profond et bénéfique sur vous. C'
 
 Comme une nouvelle année est sur le point de commencer, je vous le dis ainsi qu'au monde entier, laissez l'amour et non la haine être la réalité de la Terre, c'est la prière de votre ami, John Wilkes Booth.
 
-[Un message d'Abraham Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/)
+**Note :** [Un message d'Abraham Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/)

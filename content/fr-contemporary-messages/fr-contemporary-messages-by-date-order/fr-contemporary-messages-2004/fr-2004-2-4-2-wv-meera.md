@@ -19,11 +19,11 @@ Voilà, mon ami, la raison pour laquelle je voulais vous écrire aujourd’hui.
 
 Trop de gens pensent que seules les personnes qu’ils connaissent peuvent se soucier d’eux, mais ils ont tort. Il y a tant de gens ici qui se soucient vraiment de tous les habitants de ce monde, mais qu’ils n’ont jamais rencontrés. Vous voyez, peu importe que vous connaissiez quelqu’un ou non, il y aura toujours des gens qui vous aiment et qui essaient de vous aider.
 
-Alors, maintenant, je vous demande : « Pourquoi continuer à essayer d’obtenir de l’amour là où vous ne pouvez pas en obtenir ? » N’avez-vous pas ressenti mon amour si fort qu’il vous a fait sourire et vous a fait vous sentir bien ? Pensez-vous que j’ai pu vous donner ce sentiment alors que je n’avais pas vraiment ces sentiments pour vous ? Bien sûr que non ! Ne vous ont-ils pas rendu heureux ? 
+Alors, maintenant, je vous demande : « Pourquoi continuer à essayer d’obtenir de l’amour là où vous ne pouvez pas en obtenir ? » N’avez-vous pas ressenti mon amour si fort qu’il vous a fait sourire et vous a fait vous sentir bien ? Pensez-vous que j’ai pu vous donner ce sentiment alors que je n’avais pas vraiment ces sentiments pour vous ? Bien sûr que non ! Ne vous ont-ils pas rendu heureux ?
 
 *[Oui]* 
 
-Eh bien, n’est-ce pas ce que vous voulez ressentir ? 
+Eh bien, n’est-ce pas ce que vous voulez ressentir ?
 
 *[Oui]*
 

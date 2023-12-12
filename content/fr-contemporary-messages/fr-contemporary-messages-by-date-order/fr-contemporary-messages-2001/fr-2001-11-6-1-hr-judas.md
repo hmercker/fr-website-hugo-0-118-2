@@ -17,9 +17,9 @@ Nous parlons de l’oubli, et nous nous rappelons alors certains esprits, comme 
 
 Je sais que tu as déjà tiré tes propres conclusions, cependant je voudrais délivrer ce message, parce que dernièrement tu as beaucoup réfléchi à ce sujet. Par ailleurs il est nécessaire d’expliquer, minutieusement, certains sujets, parce que l’expiation et le pardon sont des thèmes centraux dans les enseignements du Maître.
 
-Quand les gens meurent, ils perdent leur corps physique, mais leur esprit reste intact. Tu sais cela déjà. Plus encore, l’esprit spirituel est plus vif, totalement éveillé, et il n’y a pas l’oubli comme sur la terre. Il est bon de se [rappeler ce qu’a écrit Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/) :38
+Quand les gens meurent, ils perdent leur corps physique, mais leur esprit reste intact. Tu sais cela déjà. Plus encore, l’esprit spirituel est plus vif, totalement éveillé, et il n’y a pas l’oubli comme sur la terre. Il est bon de se [rappeler ce qu’a écrit Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-22-2-jep-luke/)
 
->  *Les hommes peuvent créer, mais ils ne peuvent pas détruire – je me réfère maintenant à leurs actions et à leurs pensées. Alors que sur la terre, ils peuvent oublier et soulager leur conscience en oubliant, pourtant, quand ils arrivent dans le monde des esprits, ils doivent rendre des comptes, les lois inexorables qui sont vraiment leurs juges et bourreaux leur montrent qu’il n’y a pas une telle chose comme l’oubli – et comme il a été dit, ils ont oublié d’oublier.*
+> Les hommes peuvent créer, mais ils ne peuvent pas détruire – je me réfère maintenant à leurs actions et à leurs pensées. Alors que sur la terre, ils peuvent oublier et soulager leur conscience en oubliant, pourtant, quand ils arrivent dans le monde des esprits, ils doivent rendre des comptes, les lois inexorables qui sont vraiment leurs juges et bourreaux leur montrent qu’il n’y a pas une telle chose comme l’oubli – et comme il a été dit, ils ont oublié d’oublier.
 
 Très bien, nous savons maintenant que ce qui est refoulé vient à la lumière.
 
@@ -37,7 +37,7 @@ Pendant le processus de réconciliation, il arrive un moment où les émotions n
 
 Tu as aussi lu dans [les messages de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-11-4-2-jep-grandfather-of-morgan/) :
 
-> *Bien sûr, le temps viendra où nous n’aurons plus aucun souvenir ou mémoire de l’autre et notre amour deviendra un rêve brumeux. Mais aussi longtemps qu’il continue sur la terre, il restera l’objet  de mes soins et de mon amour.*
+> Bien sûr, le temps viendra où nous n’aurons plus aucun souvenir ou mémoire de l’autre et notre amour deviendra un rêve brumeux. Mais aussi longtemps qu’il continue sur la terre, il restera l’objet  de mes soins et de mon amour.
 
 Cette phrase t’a toujours intrigué. Oui, ce moment viendra, et pour beaucoup, il est déjà venu, c’est la cas par exemple pour les esprits Célestes. Mais c’est, plus ou moins, le même principe. Bien sûr, les esprits se souviendront toujours de leurs parents, de leurs enfants, de leurs proches en général. Mais le caractère du souvenir change. S’ils aiment leurs êtres chers, mais n’éprouvent guère de sentiments pour les autres, leur amour pour les autres se transformera et deviendra comme l’amour qu’ils portent à leurs êtres chers. Toute l’humanité, dans l’esprit ou dans la chair, sera leur être cher. La valeur émotionnelle de l’amour envers leurs bien-aimés ne diminuera pas, mais la valeur émotionnelle envers les autres augmentera. Le souvenir de l’amour pour leurs enfants sera brumeux, parce que maintenant ils vont aimer le monde entier ; ils aimeront leurs enfants et tous les autres avec un amour encore plus grand qu’auparavant. Je pense que tu me comprends bien. Ce qui est perdu est l’exclusivité de cette relation, cédant la place à une relation d’amour universelle.
 
@@ -51,7 +51,7 @@ Je pense qu’avec cela il est maintenant clair ce que le mot « oubli » signif
 
 [Helen Padgett a, une fois, écrit à son mari](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-23-2-jep-helen-padgett/) :
 
-> *Alors, mon cher Ned, ne te laisses pas dominer par l’idée que tu dois rendre à chacun ce que tu penses lui être redevable, et t’empêcher de croire en la miséricorde et en l’Amour du Père.*
+> Alors, mon cher Ned, ne te laisses pas dominer par l’idée que tu dois rendre à chacun ce que tu penses lui être redevable, et t’empêcher de croire en la miséricorde et en l’Amour du Père.
 
 Oui, mon frère. Dieu et Ses Lois déterminent le pardon, pas les hommes. Et je te dis la  même chose : Ne laisse jamais tes erreurs du passé être comme un lest dans ta progression vers Dieu.
 

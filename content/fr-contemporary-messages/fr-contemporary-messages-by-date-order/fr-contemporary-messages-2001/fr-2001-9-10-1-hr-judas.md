@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 10 Septembre 2001, Cuenca, Équateur.
 
-Mon cher H____ , avant de poursuivre l’histoire de mon voyage à travers les sphères du monde spirituel, je voudrais répondre à la question de M__ sur un passage de l’épître aux Éphésiens concernant, au  chapitre 4, le verset 13 :
+Mon cher H____ , avant de poursuivre l’histoire de mon voyage à travers les sphères du monde spirituel, je voudrais répondre à la question de M____ sur un passage de l’épître aux Éphésiens concernant, au  chapitre 4, le verset 13 :
 
 > *Jusqu’à ce que nous soyons tous parvenus à l’unité de la foi et de la connaissance du Fils de Dieu, à l’état d’homme fait, à la mesure de la stature parfaite de Christ.*
 

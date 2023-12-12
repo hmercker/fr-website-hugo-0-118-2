@@ -15,7 +15,7 @@ Bonsoir, mes chers amis. C’est un honneur d’être ici avec vous. Mon nom est
 
 Je sais que ce monde n’est pas l’endroit le plus spirituel de l’univers. Ce que vous devriez principalement apprendre aujourd’hui – et ce dont vous devez surtout vous souvenir – c’est que rien dans cette vie n’est ce qu’il semble être. En tant qu’êtres humains, nous personnifions souvent ce que nous vivons. Lorsque quelqu’un nous jette un mauvais œil ou commence à nous insulter sans raison, nous le prenons généralement personnellement, même s’il s’agit d’un étranger. Vous pouvez donc imaginer à quel point nous le prenons personnellement lorsque quelqu’un qui nous est cher agit de la sorte.
 
-Les gens peuvent être durs, mais cela ne veut pas dire qu’ils ont raison. Très souvent, nous gardons en mémoire un grand nombre de choses de notre passé (proche ou lointain) et, inconsciemment, nous réagissons mal<sup id="a1">[1](#f1)</sup>  envers nos proches. Mais cela ne signifie pas que vous devez le prendre personnellement. Ce n’est pas parce que quelqu’un vous traite d’égoïste que vous l’êtes !
+Les gens peuvent être durs, mais cela ne veut pas dire qu’ils ont raison. Très souvent, nous gardons en mémoire un grand nombre de choses de notre passé (proche ou lointain) et, inconsciemment, nous réagissons mal <sup id="a1">[1](#f1)</sup>  envers nos proches. Mais cela ne signifie pas que vous devez le prendre personnellement. Ce n’est pas parce que quelqu’un vous traite d’égoïste que vous l’êtes !
 
 Ce que vous devriez tous essayer de faire, c’est d’agir par amour. Vous n’êtes pas égoïste simplement parce que quelqu’un ne connaît pas ou ne comprend pas vos motivations. Ne le prenez donc pas personnellement la prochaine fois que quelqu’un vous blâmera ou vous jettera le mauvais œil sans raison. Soyez aimant et compréhensif, car vous avez jusqu’à 95 % de chances que ce ne soit pas de votre fait et que ce ne soit pas aussi personnel que vous le pensez.
 
@@ -32,4 +32,4 @@ Et voilà, je termine mon discours de ce soir. (Rires) Merci de votre présence.
 Bonsoir. Profitez de cette belle musique relaxante. Elle vous fera du bien.
 <small>
 
-1. <large id=”f1”> Le mot utilisé dans le texte originel était « abreact » qui est un terme psychanalytique désignant le fait de revivre une expérience afin de la purger de ses excès émotionnels ; une sorte de catharsis qui signifie défoulement et purification.[↩](#a1) 
+1. <large id="f1"> Le mot utilisé dans le texte originel était « abreact » qui est un terme psychanalytique désignant le fait de revivre une expérience afin de la purger de ses excès émotionnels ; une sorte de catharsis qui signifie défoulement et purification.[↩](#a1)

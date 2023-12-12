@@ -11,7 +11,7 @@ weight:
 
 Care Derby Walsh - reçu par Al Fike le 29 Novembre 2016, Hawaii, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-bouquet-of-roses.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-bouquet-of-roses.jpg)
 
 Moi aussi, je me joindrai à vous dans vos prières et vos efforts. Mon cher compagnon, mon bien-aimé, je suis souvent avec toi et je me joins à toi dans tes prières. Il y a beaucoup de travail à faire pour vous, mes bien-aimés. Cela vient, vous allez tous sentir ce qui vient. (Référence à J.W. L’esprit est Care avec qui il était marié).
 

@@ -11,7 +11,7 @@ weight:
 
 St Luc - reçu par Al Fike le 4 Avril 2018, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-spiritualite-11.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-spiritualite-11.jpg)
 
 Je tiens à vous assurer ma fille que les anges Célestes ne s’offusquent pas et ne se sentent pas jugés par les mortels. Les sentiments les plus extrêmes qui peuvent émaner d’un ange Céleste sont la compassion, la compréhension et l’amour. Alors ne vous inquiétez pas, ma fille bien-aimée. Ne vous souciez pas de ces jugements et sentiments qui causent des barrières avec nous dans le Royaume Céleste, car c’est votre défi à surmonter et l’Amour est toujours présent, fille bien-aimée. L’amour et l’acceptation sont toujours à vous alors que vous continuez à grandir et à vous étendre dans l’Amour du Père. Vous surmonterez facilement cette barrière, car en continuant à vous informer à partir de cet endroit de l’âme et de ces sentiments d’Amour, vous ne pouvez rien ressentir d’autre que l’Amour et un sentiment de gratitude pour tout ce qui vous est donné, fille bien-aimée, tout ce qui continue à se déverser sur vous et votre vie dans la Lumière. Il en sera toujours ainsi, bien-aimée, et nous comprenons qu’il y a des attentes du mental qui ne sont pas facilement satisfaites. Pourtant, dans la Sagesse de Dieu, tout ce qui vous est donné l’est dans son timing parfait, dans sa beauté et dans sa bénédiction. Tout est donné, bien-aimés, et tout est pardonné – instantanément pardonné.
 

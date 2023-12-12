@@ -9,7 +9,7 @@ weight:
 ---
 ### Éveiller les autres au but de la vie
 
-Seretta Kem - reçu par Al Fike le 14 Septembre 2018, A.R.E.I. Conference <sup id=”a1”>[1](#f1)</sup>, Phoenix, AZ. USA.
+Seretta Kem - reçu par Al Fike le 14 Septembre 2018, A.R.E.I. Conference <sup id="a1">[1](#f1)</sup>, Phoenix, AZ. USA.
 
 Vous avez donc appris beaucoup de choses aujourd’hui. Vous avez rencontré de nombreuses personnes. Vous avez parcouru les couloirs et assisté à ces séminaires comme vous les appelez. Vous avez beaucoup appris et pourtant vous n’avez pas vu de preuves de l’encouragement de l’âme, vous voyez plutôt comment le mental des hommes ont exploré et utilisé les phénomènes naturels qui sont à la disposition de l’humanité. C’est un travail important qu’ils font pour convaincre l’humanité d’un fait très simple : la vie continue. Pourtant, dans votre monde sombre, tant de gens ne peuvent même pas dépasser leur incrédulité face à cette vérité. Tant de gens sont embourbés dans la condition matérielle et ne peuvent pas envisager la pensée même de la mort. Ils ont une grande peur et une grande incompréhension. Alors ces belles âmes travaillent et font de grands efforts pour aider ceux qui sont coincés dans leur scepticisme.
 
@@ -28,4 +28,4 @@ Que Dieu continue à vous bénir, mes bien-aimés. Puissiez-vous continuer à ac
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je suis avec vous dans vos efforts comme le sont beaucoup de beaux anges qui marchent avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> L' A.R.E.I est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
+1. <large id="f1"> L' A.R.E.I est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)

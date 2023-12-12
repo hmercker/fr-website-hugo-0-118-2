@@ -9,7 +9,7 @@ weight:
 ---
 ### Le bien qui se cache
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/spiritualite36.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-spiritualite36.jpg)
 
 Judas - reçu par H____ le 3 Avril 2003, Cuenca, Équateur.
 

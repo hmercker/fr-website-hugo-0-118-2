@@ -78,7 +78,7 @@ Eh bien, cette sensation d’être coincé, de la négativité – quelle que so
 
 Pouvons-nous nous rencontrer demain ? Très bien, je serai là. Je n’y manquerai pas et si tu m’en donnes l’opportunité, nous parlerons un peu plus.
 
-Je t’aime. 
+Je t’aime.
 
 Judas.
 

@@ -20,6 +20,7 @@ Comme vous l’avez pensé, je suis maintenant un Ange Céleste, et je souhaite 
 Alors que le pays que j’ai aidé à fonder se débat et vacille au milieu des hauts-fonds de la destruction et de la folie, sachez qu’il y a un gouvernail sûr qui guide le navire vers un port sûr. Et de nombreux Américains ont déjà trouvé ce port en eux-mêmes, comme vous l’avez fait.
 
 Nous travaillerons donc de telle sorte que la paix s’installe, que le péché et l’erreur soient montrés pour ce qu’ils sont et qu’on y renonce, le tout dans le cadre d’un fonctionnement parfait des lois de Dieu. Vous serez très agréablement surpris de voir comment les choses se développent, et vous serez très heureux.
+
 Je viendrai une autre fois vous livrer une description plus complète de ma vie sur Terre, et de mes pensées, mais pour l’instant, laissez-moi terminer.
 <small>
 

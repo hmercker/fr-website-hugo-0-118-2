@@ -39,13 +39,14 @@ Il est évident pour toute personne observant la réalité qu'il semble souvent 
 
 Il est évident que je ne peux pas donner une réponse simple et facile, car elle n'existe pas. Il est vrai que le développement de l'âme dans l'Amour Divin élargit la compréhension du grand mystère du Mal, mais je ne peux pas l'expliquer d'une manière terrestre.
 
-Bien sûr, beaucoup seraient enclins à ce stade à pointer du doigt les croyants en Dieu, en disant : "Bien sûr, vous ne pouvez pas trouver la réponse à la question de savoir pourquoi les gens bien souffrent, parce qu'il n'y a pas de réponse, et qu'il n'y a pas de Dieu". C'est l'atout victorieux des athées, que les croyants sont impuissants à réfuter.
+Bien sûr, beaucoup seraient enclins à ce stade à pointer du doigt les croyants en Dieu, en disant : *« Bien sûr, vous ne pouvez pas trouver la réponse à la question de savoir pourquoi les gens bien souffrent, parce qu'il n'y a pas de réponse, et qu'il n'y a pas de Dieu »*. C'est l'atout victorieux des athées, que les croyants sont impuissants à réfuter.
 
 Ce livre biblique s'attaque au problème avec courage, voire sans pitié. Il est d'une pertinence intemporelle. Les sentiments et les réactions de Job, ainsi que ceux de ses amis, correspondent à une réaction humaine universelle, et chacun peut reconnaître certains de ses propres sentiments et pensées en lisant ce livre.
 
 C'est ma mort tragique et prématurée qui a poussé mes adeptes déconcertés à croire qu'il devait y avoir un plan en marche. C'est cette graine qui a donné naissance à la distorsion éventuelle selon laquelle ma mort était en quelque sorte liée au salut. Sinon, cela n'avait aucun sens.
 
 C'est ainsi que, tout au long des siècles, les croyants ont lutté avec les questions soulevées dans ce livre important. Il est présenté sous la forme d'un dialogue, dans la véritable tradition du Talmud, dans lequel un point de vue est exposé, et directement après, une position opposée est exprimée. Ce type de dispute est typiquement Juif.
+
 Je sais que vous attendiez de moi des idées originales, mais mon but en écrivant ce soir est simplement d'affirmer. Un jour, vous, et tous ceux qui suivez la voie Divine, comprendrez clairement la nature apparemment insondable du Mal. Je le comprends certainement. Mais il faut grandir dans l'Amour Divin et l'expérience pour le voir. Je dirai cependant que, de même que vos difficultés professionnelles semblent urgentes mais sont en réalité temporaires et sans importance, de même le problème du Mal, qui semble si grand pour les mortels, n'est qu'un nuage temporaire. Et de même que tous vos problèmes professionnels ont toujours été résolus, de même le problème du Mal sera résolu pour ceux qui aiment sincèrement Dieu et qui désirent sincèrement savoir.
 
 Ce message a été assez long. Vous percevez que l'essentiel a été le problème du Mal, le thème central du livre de Job. Et vous avez raison. Au fur et à mesure que vous progresserez dans l'Amour Divin, le problème du Mal occupera de plus en plus sa véritable place dans la vie, et vous verrez alors que malgré Job, un Dieu d'amour continue à prendre soin de Ses créatures.

@@ -29,4 +29,4 @@ Cette confiance qu'ils m'ont accordée fut un grand cadeau pour moi. Elle m'a so
 
 La volonté de réussir pour le bien de ma famille était tout aussi forte que mon besoin de m'exprimer. En fait, le premier a servi de moteur au second.
 
-Lorsque j'ai réfléchi, dans le monde spirituel, à ma vie terrestre, je voyais la main de Dieu tendue pour me soutenir et m'appuyer, afin que je puisse accomplir ma destinée, qui est finalement devenue importante pour le monde. Mais à l'époque, je n'avais aucune idée de ces choses. Je ne me sentais pas proche de Dieu, et ne pouvais donc pas discerner Ses conseils. Mais le Créateur m'a quand même guidé, et je ne peux aujourd'hui que le remercier. 
+Lorsque j'ai réfléchi, dans le monde spirituel, à ma vie terrestre, je voyais la main de Dieu tendue pour me soutenir et m'appuyer, afin que je puisse accomplir ma destinée, qui est finalement devenue importante pour le monde. Mais à l'époque, je n'avais aucune idée de ces choses. Je ne me sentais pas proche de Dieu, et ne pouvais donc pas discerner Ses conseils. Mais le Créateur m'a quand même guidé, et je ne peux aujourd'hui que le remercier.

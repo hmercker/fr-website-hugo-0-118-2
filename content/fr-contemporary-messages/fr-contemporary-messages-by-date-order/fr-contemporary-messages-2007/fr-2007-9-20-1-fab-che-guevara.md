@@ -9,7 +9,7 @@ weight:
 ---
 ### La souffrance d’un révolutionnaire
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-argentine.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-argentine.jpg)
 
 Che Guevara <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Septembre 2007, Santa Cruz, Californie, USA.
 

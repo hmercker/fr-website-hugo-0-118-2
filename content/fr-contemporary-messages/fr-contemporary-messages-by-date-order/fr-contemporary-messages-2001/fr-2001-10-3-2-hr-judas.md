@@ -9,7 +9,7 @@ weight:
 ---
 ### Parallèles entre la Galilée à l’époque de Jésus et aujourd’hui
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-israel-4549619_1280.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-israel-4549619_1280.jpg)
 
 Judas - reçu par H____ le 3 Octobre 2001, Cuenca, Équateur.
 

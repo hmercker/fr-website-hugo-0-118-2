@@ -29,6 +29,6 @@ Bien sûr, ma culture a disparu de la connaissance commune, il serait donc très
 
 J’ai fait de mon mieux pour mener une vie juste. Mais je ne fus certainement pas le seul survivant des pluies. Bien que les inondations aient tué beaucoup de gens et d’animaux, elles n’ont pas détruit toute la terre, sauf moi et ma famille, comme le raconte la Bible.
 
-Mais tout cela est du passé, et j’ai trouvé mon bonheur auprès d’un Dieu qui m’a accordé [la nouvelle naissance de l’âme](*******the new birth of the soul********), avec le bonheur correspondant.
+Mais tout cela est du passé, et j’ai trouvé mon bonheur auprès d’un Dieu qui m’a accordé [la nouvelle naissance de l’âme](/9-fr-topical-subjects/9-3-fr-the-process-of-transformation-of-the-soul/), avec le bonheur correspondant.
 
 Sincèrement, Noé.

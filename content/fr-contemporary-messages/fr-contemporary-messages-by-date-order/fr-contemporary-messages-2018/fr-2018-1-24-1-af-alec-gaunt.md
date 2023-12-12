@@ -31,6 +31,3 @@ Dieu vous pousse donc sur votre chemin. Il envoie ses anges pour vous accompagne
 Puissiez-vous continuer à aspirer au plus haut, à être en harmonie avec la Vérité, à être un canal d’Amour afin de permettre à tant de portes de service de s’ouvrir, tant d’opportunités de se présenter à vous et de recevoir des leçons qui vous permettront de grandir et d’apprendre. Tout cela fait partie du plan de Dieu pour chacun d’entre vous. Tout cela fait partie du flux de Ses bénédictions, de Ses soins et de Sa sollicitude à votre égard. Alors que vous évoluez dans ce monde, sachez que vous êtes bénis, aimés et pris en charge. Vous n’êtes jamais seuls, car Dieu est toujours avec vous, Ses anges vous entourent et vous êtes à sa portée, protégés et éclairés. Il en sera toujours ainsi, à condition que vous recherchiez la Lumière et Son Amour.
 
 Que Dieu vous bénisse. Je suis votre professeur, Augustin et je vous aime tendrement, âmes bien-aimées. Que Dieu vous bénisse. Que Dieu vous bénisse dans vos voyages. Je vous aime.
-
-
-

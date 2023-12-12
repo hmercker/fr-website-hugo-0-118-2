@@ -13,7 +13,7 @@ Judas - reçu par H____ le 2 Septembre 2001, Cuenca, Équateur.
 
 Bonjour, mon cher H____ . C’est un énorme plaisir de pouvoir parler avec toi de nouveau. Dans tes études des messages, tu as toujours trouvé des questions intéressantes et nous allons continuer d’y répondre une par une.
 
-Aujourd’hui, j’ai l’intention d’éclairer tes doutes au sujet du développement des âmes dans les Cieux Célestes<sup id="a1">[1](#f1)</sup>. Nous pourrions répondre à ton questionnement de la façon suivante :
+Aujourd’hui, j’ai l’intention d’éclairer tes doutes au sujet du développement des âmes dans les Cieux Célestes <sup id="a1">[1](#f1)</sup>. Nous pourrions répondre à ton questionnement de la façon suivante :
 
 Si les âmes dans le Royaume Céleste sont constituées uniquement de la Substance de Dieu, et si elles acquièrent de plus en plus cette même Substance, ne finissent-elles pas par perdre leur individualité ? En d’autres termes, perdent-elles leur caractère personnel et leur individualité dans la mesure où elles ressemblent de plus en plus au Père ? Quelle serait alors la différence entre les esprits A et B, si, dans leurs attributs et leur substance, ils sont identiques et comme le Père ?
 
@@ -58,8 +58,8 @@ Je t’aime. Je veux te rappeler que je suis toujours avec toi, et que je viendr
 Ton frère.
 
 Judas.
+
+© Geoff Cutler 2013
 <small>
 
 1. <large id="f1"> Les Cieux Célestes, selon les messages de James Padgett, sont situés au-delà de la 7ème Sphère Spirituelle et sont seulement habités par ceux qui sont *« nés à nouveau en esprit »*. Dans des communications ultérieures Judas rentre en détail sur les caractéristiques de chacune des 7 sphères plus basses qui sont celles où nous nous retrouvons après notre mort.[↩](#a1)
-
-© Geoff Cutler 2013

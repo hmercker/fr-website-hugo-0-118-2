@@ -11,7 +11,7 @@ weight:
 
 Augustin - reçu par Al Fike le 17 Février 2017, Gibsons, Colombie-Britannique, Canada
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-paysage-de-printemps3-1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-paysage-de-printemps3-1.jpg)
 
 Je suis Augustin. On a beaucoup parlé ces derniers temps du changement, des changements dans le monde et je suis venu en parler et j’espère ajouter un peu de clarté pour ceux qui sont concernés et ceux qui souhaitent agir pour assurer leur sécurité et celle des autres.
 

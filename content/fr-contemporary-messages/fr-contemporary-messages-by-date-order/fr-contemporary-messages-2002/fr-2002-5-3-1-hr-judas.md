@@ -9,7 +9,7 @@ weight:
 ---
 ### Le bon Samaritain
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-le-bon-samaritain.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-le-bon-samaritain.jpg)
 
 Judas - reçu par H____ le 3 Mai 2002, Cuenca, Équateur.
 
@@ -37,25 +37,25 @@ Tout d’abord, je veux que tu transcrives ce que [l’Évangile selon Luc](http
 > Jésus reprit la parole, et dit :
 <br>
 <br>
-> « Un homme descendait de Jérusalem à Jéricho.  Il est tombé entre les mains de bandits qui l’ont dépouillé de ses vêtements, battu et laissé pour mort.
+> *« Un homme descendait de Jérusalem à Jéricho.  Il est tombé entre les mains de bandits qui l’ont dépouillé de ses vêtements, battu et laissé pour mort.*
 <br>
 <br>
-> Un prêtre, qui, par hasard, descendait par le même chemin, ayant vu cet homme, passa outre. 
+> *Un prêtre, qui, par hasard, descendait par le même chemin, ayant vu cet homme, passa outre.*
 <br>
 <br>
-> Un Lévite, qui arriva aussi dans ce lieu, l’ayant vu, passa de l’autre côté.
+> *Un Lévite, qui arriva aussi dans ce lieu, l’ayant vu, passa de l’autre côté.*
 <br>
 <br>
-> Mais un Samaritain, qui voyageait, arrivant là, fut ému de compassion lorsqu’il le vit. Il s’approcha, et banda ses plaies, en y versant de l’huile et du vin. Puis il le mit sur sa propre monture, le conduisit à une hôtellerie, et prit soin de lui.
+> *Mais un Samaritain, qui voyageait, arrivant là, fut ému de compassion lorsqu’il le vit. Il s’approcha, et banda ses plaies, en y versant de l’huile et du vin. Puis il le mit sur sa propre monture, le conduisit à une hôtellerie, et prit soin de lui.*
 <br>
 <br>
-> Le jour suivant il sortit deux pièces d’argent et les donna à l’aubergiste en lui disant : *« Prend soin de lui, ce que tu dépenseras de plus, je te le rendrai à mon retour.… »*
+> *Le jour suivant il sortit deux pièces d’argent et les donna à l’aubergiste en lui disant : Prend soin de lui, ce que tu dépenseras de plus, je te le rendrai à mon retour.… »*
 <br>
 <br>
 > *« Lequel de ces trois te semble avoir été un prochain pour celui qui fut la victime des bandits ? »*
 <br>
 <br>
-> *« C’est celui qui a exercé la miséricorde envers lui »*, répondit le docteur de la loi. 
+> *« C’est celui qui a exercé la miséricorde envers lui »*, répondit le docteur de la loi.
 <br>
 <br>
 > Et Jésus lui dit: *« Va, et toi, fais de même ».*

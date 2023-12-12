@@ -27,7 +27,7 @@ Chacun doit commencer son voyage spirituel là où il se trouve, en ce moment. I
 
 Le voyage spirituel peut être une expérience paisible et enrichissante. Si vous êtes dans la tourmente et la douleur, c’est que quelque chose ne va pas dans votre système de croyances qui perpétue le conflit entre vos pensées et votre âme. N’oubliez pas que vos prières à Dieu sont la voie de l’éveil spirituel. Faites passer vos désirs de Vérité et d’Amour avant toute conviction mentale.
 
-Disons que vous vous accrochez à l’idée que « votre » Dieu est meilleur que tous les autres dieux auxquels les gens prétendent croire et que vous « savez » que votre voie est la meilleure ou la seule vraie voie. 
+Disons que vous vous accrochez à l’idée que « votre » Dieu est meilleur que tous les autres dieux auxquels les gens prétendent croire et que vous « savez » que votre voie est la meilleure ou la seule vraie voie.
 
 Toutes les croyances auxquelles vous décidez de vous accrocher, que vous défendez et que vous proclamez être la véritable « façon de faire », n’aident pas votre âme à se rapprocher de Dieu et n’apportent pas la paix et l’harmonie dans vos vies. Le mental aime argumenter ou débattre, ce qui semble plus « intellectuel », mais est-ce que cet exercice de défense du mental permet vraiment d’apprendre quelque chose ?
 

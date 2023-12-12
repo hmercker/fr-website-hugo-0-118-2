@@ -13,7 +13,7 @@ William Shakespeare - reçu par FAB le 12 Août 2007, Santa Cruz, Californie, US
 
 Je suis William Shakespeare.
 
-Comme vous l'avez compris, je vous ai guidé vers ce merveilleux livre, " Shakespeare The Biography " de Peter Ackroyd. Je veux que vous le lisiez, et pendant que vous le ferez, je ferai les commentaires nécessaires sur le texte.
+Comme vous l'avez compris, je vous ai guidé vers ce merveilleux livre, « Shakespeare The Biography » de Peter Ackroyd. Je veux que vous le lisiez, et pendant que vous le ferez, je ferai les commentaires nécessaires sur le texte.
 
 Laissez-moi d'abord commenter quelque chose que vous avez canalisé à travers moi lors de [mon message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-24-2-fab-shakespeare/). J'y disais : " Eh bien, il m'est arrivé tellement de choses depuis que je suis passé de l'autre côté, qu'il est un peu difficile de se souvenir des détails de ma vie terrestre. "
 

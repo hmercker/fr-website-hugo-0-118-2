@@ -86,13 +86,13 @@ Il y a quelque temps tu as lu des commentaires sur ces passages de la Bible qui 
 
 *[Judas se réfère aux quelques interprétations de la Bible, où est mis en avant ce qui suit :]*
 
-> « Depuis la chute de la ville quelques mois plus tôt [en 70], Jérusalem avait été occupée par la dixième légion romaine [X Fretensis], dont l’emblème était un cochon. La référence de Marc à environ deux mille porcs, la taille de la Légion d’occupation, combinée avec sa désignation flagrante des êtres maléfiques comme Légion, ne laissait aucun doute dans les esprits Juifs que les porcs dans la fable représentaient l’armée d’occupation. La fable de Marc est une promesse que le Messie, quand il reviendrait, il chasserait les Romains dans la mer, comme il avait déjà poussé leurs substituts à quatre pattes. » 
+> « Depuis la chute de la ville quelques mois plus tôt [en 70], Jérusalem avait été occupée par la dixième légion romaine [X Fretensis], dont l’emblème était un cochon. La référence de Marc à environ deux mille porcs, la taille de la Légion d’occupation, combinée avec sa désignation flagrante des êtres maléfiques comme Légion, ne laissait aucun doute dans les esprits Juifs que les porcs dans la fable représentaient l’armée d’occupation. La fable de Marc est une promesse que le Messie, quand il reviendrait, il chasserait les Romains dans la mer, comme il avait déjà poussé leurs substituts à quatre pattes. »
 <br>
 <br>
 > – William Harwood, Mythologies Derniers Dieux : Yahweh et Jésus
 <br>
 <br>
-> « Alors que l’aigle était commun à toutes les légions, chaque unité avait plusieurs symboles propres. Ceux-ci étaient souvent associés à l’anniversaire de l’unité ou de son fondateur ou d’un commandant sous lequel elle avait gagné une distinction particulière, et pris la forme des signes du zodiaque. Ainsi le taureau signifie la période du 17 Avril au 18 Mai qui était consacrée à Vénus la déesse mère de la famille de Julian … » 
+> « Alors que l’aigle était commun à toutes les légions, chaque unité avait plusieurs symboles propres. Ceux-ci étaient souvent associés à l’anniversaire de l’unité ou de son fondateur ou d’un commandant sous lequel elle avait gagné une distinction particulière, et pris la forme des signes du zodiaque. Ainsi le taureau signifie la période du 17 Avril au 18 Mai qui était consacrée à Vénus la déesse mère de la famille de Julian … »
 <br>
 <br>
 > – Graham Webster, L’armée impériale romaine (1979), p.137 XX Valeria

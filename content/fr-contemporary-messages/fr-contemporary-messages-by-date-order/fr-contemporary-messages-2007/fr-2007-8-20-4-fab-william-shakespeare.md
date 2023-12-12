@@ -15,7 +15,7 @@ C'est moi, William Shakespeare.
 
 Ne soyez pas perturbé si vous lisez quelque chose d'un érudit qui semble contredire ce que je canalise. Rappelez-vous que beaucoup de choses sont des conjectures et que je suis la source.
 
-Vous avez lu, dans le livre de E.A.J. Honigmann, Shakespeare : the "lost years (les années perdues)", que Sir Thomas Hesketh, qui m'a engagé comme apprenti acteur, ne l'aurait pas fait si je n'avais pas été Catholique.
+Vous avez lu, dans le livre de E.A.J. Honigmann, Shakespeare : the « lost years (les années perdues) », que Sir Thomas Hesketh, qui m'a engagé comme apprenti acteur, ne l'aurait pas fait si je n'avais pas été Catholique.
 
 Eh bien, les circonstances n'étaient pas très rigoureuses d'un point de vue religieux, même s'il y avait une répression croissante des Catholiques. Dans mon cœur, je n'ai jamais eu de convictions religieuses à l'adolescence ou dans ma jeunesse, malgré mon exposition fréquente au Christianisme dans mon enfance.
 

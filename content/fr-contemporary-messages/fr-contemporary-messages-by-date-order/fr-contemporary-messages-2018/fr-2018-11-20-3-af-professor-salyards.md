@@ -11,7 +11,7 @@ weight:
 
 Professeur Salyards - reçu par Al Fike le 20 Novembre 2018, Bayview, Sydney, Australie.
 
-*Question posée : Geoff Cutler a demandé si un esprit dans la sixième sphère, sans Amour Divin, aurait une âme qui a « grandi », par rapport à une âme développée par l’Amour Divin dans la cinquième sphère.*
+*[Question posée : Geoff Cutler a demandé si un esprit dans la sixième sphère, sans Amour Divin, aurait une âme qui a « grandi », par rapport à une âme développée par l’Amour Divin dans la cinquième sphère.]*
 
 Je suis venu pour répondre à une question un peu compliquée que vous avez posée concernant l’expansion de l’âme qui est pleinement développée dans l’amour naturel par rapport à l’âme développée avec l’Amour Divin. Puisque j’étudie ce sujet, il m’a été demandé de vous donner quelques points d’intérêt et des détails concernant cette question. L’âme non transformée par l’Amour Divin porte encore en elle certaines capacités et aptitudes. En cela, le mental de l’âme est présent et peut transmettre certaines informations au mental matériel. Si vous considérez le mental de l’âme comme un récepteur d’informations, comme une radio, les fréquences qui peuvent être disponibles pour le mental de l’âme simplement purifiée par l’amour naturel, ces fréquences sont quelque peu limitées et ne peuvent aller que jusqu’au développement de cette âme et, par conséquent, elle est incapable de recevoir les vérités supérieures que l’âme renforcée par l’Amour Divin peut recevoir. Ses fréquences se situent donc dans la gamme inférieure de ce qui est possible.
 

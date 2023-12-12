@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 18 Janvier 2007, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-Laissez-moi aborder ce débat qui dure depuis longtemps dans votre esprit. [J'ai dit par l'intermédiaire de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-28-1-jep-jesus/) : *« Ne comprenez pas que j'étais préoccupé par ces désirs et ces aspirations aux plaisirs du monde que créent ces passions humaines - je n'étais pas ....»*.
+Laissez-moi aborder ce débat qui dure depuis longtemps dans votre esprit. [J'ai dit par l'intermédiaire de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-28-1-jep-jesus/) : *« Ne comprenez pas que j'étais préoccupé par ces désirs et ces aspirations aux plaisirs du monde que créent ces passions humaines - je n'étais pas... »*.
 
 Le mot clé est "préoccupé". Vous savez que les plaisirs physiques sont bons en eux-mêmes. Je n'ai donc pas voulu dire qu'il ne fallait pas s'y adonner, car cela créerait du malheur. J'ai également dit : "Là où est ton cœur, là sera aussi ton trésor." Laissez-moi vous expliquer.
 

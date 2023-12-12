@@ -11,7 +11,7 @@ weight:
 
 Augustin - reçu par Al Fike le 20 Août 2018, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-st-augustin1.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-st-augustin1.jpg)
 
 Je suis Augustin, votre enseignant. Vous pouvez observer, effectivement, les manifestations extérieures de la condition de l’homme, résultat du manque d’amour de l’humanité pour sa planète, pour elle-même et pour les autres. Car lorsque l’amour est présent, il y a harmonie et lorsque la condition humaine s’intensifie comme elle l’a fait, et que le point de vue, ou la perspective, de la plupart des gens dans votre monde est celui du matériel et qu’il y a un grand désir d’accumulation de richesses sans se soucier des effets sur votre terre et sur vos frères et sœurs, alors il y a des manifestations extérieures de la disharmonie qui existe dans votre monde.
 

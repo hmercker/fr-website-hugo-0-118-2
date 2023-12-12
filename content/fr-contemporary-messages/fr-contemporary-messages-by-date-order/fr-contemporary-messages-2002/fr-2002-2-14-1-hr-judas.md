@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 14 Février 2002, Cuenca, Équateur.
 
-Ce carnaval fut fabuleux !<sup id="a1">[1](#f1)</sup> Lundi tu as passé un bon moment, presque sans alcool, bavardant et jouant au poker. Et mardi, tu as eu une belle réunion de famille, presque sans aucune friction. Et tu n’as presque pas pensé à Dieu, tu as presque oublié de prier, tu m’as presque oublié  parce que tu ne tenais guère à communiquer avec moi.
+Ce carnaval fut fabuleux ! <sup id="a1">[1](#f1)</sup> Lundi tu as passé un bon moment, presque sans alcool, bavardant et jouant au poker. Et mardi, tu as eu une belle réunion de famille, presque sans aucune friction. Et tu n’as presque pas pensé à Dieu, tu as presque oublié de prier, tu m’as presque oublié  parce que tu ne tenais guère à communiquer avec moi.
 
 Et puis, le mercredi des cendres, tu as presque subi une gueule de bois spirituelle. Comment est-ce possible? Tu as seulement passé quelques jours, entouré de beaucoup de gens *« avec les deux pieds fermement sur terre »*, et tu as presque perdu ta spiritualité. Qu’est-ce que veut dire : *vivre dans ce monde, mais ne pas être de ce monde ?* N’est-il pas possible de garder ta spiritualité et vivre une vie « normale » ?
 

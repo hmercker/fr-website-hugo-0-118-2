@@ -11,7 +11,7 @@ weight:
 
 Keea Atta Kem - reçu par Al Fike le 30 Août 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-circlesoflight-2018.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-circlesoflight-2018.jpg)
 
 Que Dieu vous bénisse, âmes bien-aimées, Je suis Keea Atta Kem et vous avez des questions concernant les cercles de lumière et les manifestations qui se produisent dans ces cercles et je suis heureux de répondre à vos questions, bien-aimés.
 

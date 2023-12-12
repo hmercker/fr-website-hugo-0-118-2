@@ -29,4 +29,4 @@ Je n'ai utilisé aucune de ces expressions "ploucs", car elles ont disparu de la
 
 Si j'avais choisi le style oratoire formel, j'aurais eu le sentiment de ne pas parler naturellement, et pire, d'avoir rivalisé avec le Maître et d'autres esprits plus élevés. Non, j'ai conservé mon humilité même à ce moment-là, comme je l'ai fait dans ma vie terrestre. Je sentais que le monde pouvait se sentir plus proche de "l'honnête Abe" tel qu'il était dans une conversation normale et quotidienne.
 
-***Note :*** *Ce message a été reçu après des critiques concernant les différences de style perçues entre Abraham Lincoln dans ses déclarations politiques officielles et son style dans les messages de Padgett.*
+**Note :** Ce message a été reçu après des critiques concernant les différences de style perçues entre Abraham Lincoln dans ses déclarations politiques officielles et son style dans les messages de Padgett.

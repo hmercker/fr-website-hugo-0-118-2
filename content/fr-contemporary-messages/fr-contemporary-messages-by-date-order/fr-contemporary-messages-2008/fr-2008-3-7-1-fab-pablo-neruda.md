@@ -22,4 +22,3 @@ J’ai fait de mon mieux, mais étant athée, qu’aurais-je pu voir de plus ? N
 La tristesse adolescente de mes premières années a cédé la place à quelque chose de plus positif et de plus large, mais elle n’a pas pu approcher le bonheur profond et l’épanouissement qui viennent à ceux qui ont intériorisé la voie spirituelle.
 
 Une autre source de malheur fut ma vie amoureuse. À cause des choix que j’ai faits, j’ai fait souffrir les femmes de ma vie, et cela m’a rendu malheureux également.
-

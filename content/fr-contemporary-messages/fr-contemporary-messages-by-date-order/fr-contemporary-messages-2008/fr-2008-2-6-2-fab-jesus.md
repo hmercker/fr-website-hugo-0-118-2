@@ -23,7 +23,7 @@ Je fais référence à deux idées distinctes. Certains peuvent soutenir que, pu
 
 Mais alors, comment ce processus physique naturel a-t-il pris naissance ? Je disais que l'existence du mécanisme physique permettant cette conception avait une longue histoire, et n'avait pas pris naissance au moment de la conception.
 
-J'ai dit *« en la personne des premiers parents »* parce qu'ils étaient les premiers humains. 
+J'ai dit *« en la personne des premiers parents »* parce qu'ils étaient les premiers humains.
 
 En d'autres termes, bien qu'ils aient été conçus, ce qui peut être considéré comme un processus instantané, ce processus n'est pas né du néant, et derrière lui se trouve un processus naturel d'évolution.
 

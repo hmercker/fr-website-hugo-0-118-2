@@ -11,7 +11,7 @@ weight:
 
 Confucius - reçu par Al Fike le 20 Novembre 2018, Bayview, Sydney, Australie.
 
-J’ai assisté à votre guérison et j’ai ajouté de nombreuses bénédictions aux bénédictions que la chère âme (Pauline <sup id=”a1”>[1](#f1)</sup>) a données à chacun de vous. Vous voyez, il existe de nombreuses voies que nous pouvons utiliser pour apporter des bénédictions et des avantages spécifiques à vos corps physiques et pour bénir également ceux qui travaillent avec l’humanité dans leurs efforts pour guérir et élever. Sachez que, où que vous alliez, nous poursuivons notre travail et prenons au sérieux ces occasions de vous aider et d’aider beaucoup d’autres personnes.
+J’ai assisté à votre guérison et j’ai ajouté de nombreuses bénédictions aux bénédictions que la chère âme (Pauline <sup id="a1">[1](#f1)</sup>) a données à chacun de vous. Vous voyez, il existe de nombreuses voies que nous pouvons utiliser pour apporter des bénédictions et des avantages spécifiques à vos corps physiques et pour bénir également ceux qui travaillent avec l’humanité dans leurs efforts pour guérir et élever. Sachez que, où que vous alliez, nous poursuivons notre travail et prenons au sérieux ces occasions de vous aider et d’aider beaucoup d’autres personnes.
 
 Oui, cet instrument subit un nettoyage du corps et doit se conformer aux besoins du corps de se reposer et de se nettoyer. Et vous mon fils, vous avez as également reçu une profonde guérison, qui pourrait prolonger ta vie. Notre intention est que chacun d’entre vous soit en bonne santé et fort afin que vous puissiez continuer à travailler au nom du Père, de Son Amour et de Sa Vérité. Et en effet, il y a des lois à respecter et des efforts et des décisions à prendre qui seront bénéfiques pour votre santé physique. Cela ne peut être évité, âmes bien-aimées. Il faut le reconnaître, non pas comme la motivation première de votre recherche et de vos efforts dans la vie, mais comme un complément à votre croissance et à votre travail spirituels.
 
@@ -24,4 +24,4 @@ Grand amour et bénédictions à vous mes fils, mes précieux fils, qui font l�
 Que Dieu vous bénisse, mes bien-aimés, mes frères bien-aimés. Mon amour est avec vous. Lumière de guérison sur vous. La paix soit avec vous, mes bien-aimés.
 <small>
 
-1. <large id=”f1”> Pauline Rose est une guérisseuse inhabituelle à laquelle Geoff Cutler fait régulièrement appel. Elle utilise la technologie russe pour guérir par l’énergie. La machine diagnostique en fait ce qui ne va pas, puis le guérit.[↩](#a1)
+1. <large id="f1"> Pauline Rose est une guérisseuse inhabituelle à laquelle Geoff Cutler fait régulièrement appel. Elle utilise la technologie russe pour guérir par l’énergie. La machine diagnostique en fait ce qui ne va pas, puis le guérit.[↩](#a1)

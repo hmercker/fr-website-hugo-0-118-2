@@ -11,7 +11,7 @@ weight:
 
 Mahatma Gandhi - reçu par Al Fike le 5 Avril 2016, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-mahatma-gandhi.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-mahatma-gandhi.jpg)
 
 *« Car beaucoup sont mécontents. Nombreux sont ceux qui ne croient pas en Dieu. Beaucoup sont amers et s’accrochent à leur douleur si fort et ils marchent sur cette Terre, accablés. Leur faim spirituelle est bien plus grande que toute âme qui a et connaît Dieu, mais qui a faim de la chair. Cette famine spirituelle sévit dans le monde. Vous devez donc préparer un festin pour l’âme affamée, quelque chose d’appétissant, quelque chose qui l’attire et qui lui donne faim. Tout le monde a faim d’amour, mais beaucoup ne ressentent pas l’amour – ils ne ressentent pas l’amour, ils ne ressentent pas l’amour dans leur vie, seulement l’ombre de l’amour. »*
 

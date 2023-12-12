@@ -22,4 +22,3 @@ Eh bien, le Judaïsme a évolué d’une expérience à une autre. C’est ce pr
 C’est à partir de ces conversations que j’ai saisi pour la première fois l’essence initiale de ce qui est devenu le Judaïsme. Ainsi, lorsque j’ai fait l’expérience du buisson ardent, j’avais déjà une première compréhension de la nature du puissant Jéhovah, qui m’a dit, dans mon oreille psychique interne, qu’il voulait que je libère mon peuple. Sans ce premier contact avec la pensée Hébraïque en Égypte, je n’aurais pas été capable de comprendre du tout l’expérience du Buisson Ardent.
 
 En fait, c’était à la fois exaltant et troublant, et Dieu m’avait préparé par ces conversations avec mon peuple, bien des années auparavant.
-

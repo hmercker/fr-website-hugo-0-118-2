@@ -22,4 +22,5 @@ Maintenant, nous vous avons demandé d’attiser les feux de votre âme, de rech
 Dieu déverse ses bénédictions sur vous en ce moment mes bien-aimés. De nombreux anges vous ont été assignés à chaque moment de votre journée alors que vous êtes ensemble. Soyez éveillés aux possibilités. Cherchez avec ardeur la guérison et le réveil de votre âme. Cherchez à connaître la mesure de votre amour. Acceptez ce cadeau. Marchez dans la joie, marchez comme un enfant qui découvre le monde, le monde de Dieu.
 
 Vous avez les uns les autres pour partager cela. Encouragez-vous et soutenez vous les uns les autres, mes bien-aimés. Soyez avides de cette élévation et débarrassez-vous des manteaux que vous portez et qui vous maintiennent piégés dans le monde, bien qu’ils soient en lambeaux et ne servent plus à rien, vous les portez encore, comme s’ils avaient une quelconque importance. Libérez-vous de vos manteaux, allez nus devant Dieu, mettez vos âmes à nu. Libérez-vous de tout ce qui l’empiète et soyez avec Dieu.
+
 Que Dieu vous bénisse. Je suis Matthieu et je vous aime.

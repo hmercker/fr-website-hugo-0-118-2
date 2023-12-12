@@ -24,4 +24,5 @@ Je n’ai pas pensé que, parce que j’étais dans le monde des esprits depuis 
 J’avais vécu sur terre de nombreux moments merveilleux de communion avec Dieu, et donc, lorsque j’ai tenté l’expérience, cela a favorisé le développement de certaines tendances mystiques, qui ont augmenté à mesure que je continuais à prier pour l’Amour. J’ai constaté que de nouveaux sentiments et de nouvelles intuitions me venaient, et j’ai reconnu que c’était à cause de l’afflux de l’Amour. Ma vie, à la fois mortelle et spirituelle, avait de plus en plus de sens pour moi, car je pouvais discerner le plan Divin pour ma vie.
 
 Comme j’étais le leader de ma famille sur terre, je les ai encouragés à me suivre en esprit. Ils avaient aussi été curieux, mais j’étais plus avancé et j’avais une compréhension plus profonde de cette réalité.
+
 Finalement, chacun de mes frères et ma sœur ont trouvé leur chemin vers les Cieux Célestes. Mon père Jacob a également connu la Nouvelle Naissance. Vous recevrez bientôt un message de sa part.

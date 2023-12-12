@@ -33,7 +33,7 @@ Lorsque certaines personnes se sentent indignes des bénédictions qu’elles on
 
 Il suffit de dire que chacun paiera sa peine jusqu’au dernier centime. Même Dieu ne peut empêcher ses enfants de s’infliger des peines injustes si c’est ce qu’ils choisissent de faire. Ces auto-incriminations ne contribueront pas nécessairement à payer leurs pénalités car les qualités libératrices sont le résultat de l’Amour, de l’amour de soi, de l’Amour de Dieu, de la miséricorde, de l’acceptation, de l’abandon à une Puissance supérieure, à la volonté de Dieu. Vous connaissez le chemin vers ce but. Vous êtes sur le chemin. Ne changez pas de cap.
 
-*[La question de P____ est quelque chose comme : l’univers est-il effectivement en expansion, et qu’est-ce que cela signifie pour les enfants de Dieu vivant sur terre ?]*
+*[La question de P___ est quelque chose comme : l’univers est-il effectivement en expansion, et qu’est-ce que cela signifie pour les enfants de Dieu vivant sur terre ?]*
 
 L’univers est en expansion. Le changement est la loi éternelle. Comme vous le savez, les esprits n’ont pas besoin d’air pour respirer, le feu n’affecte pas leurs corps spirituels, les déplacements sont instantanés. En un clin d’œil, un esprit peut venir d’une étoile lointaine à vos côtés lorsque vous l’appelez. Même si le temps et l’espace existent et semblent restrictifs pour les terriens, ils semblent inexistants pour les esprits en raison de leur capacité à les transcender.
 

@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Kathryn Stokes le 7 Octobre 2005, Santa Cruz, Californie, USA.
 
-Nous sommes ici maintenant pour écrire, chère sœur en Christ. ... Je crois que tu sais que nous n'avons pas toutes les réponses à tes questions. ... Chaque jour apporte de nouveaux défis à votre table, et vous pouvez les relever avec l'aide de l'Amour de Dieu dans vos âmes. Le défi de ce jour n'est pas différent - il semble seulement plus urgent parce que c'est celui qui est sur la table à ce moment précis.
+Nous sommes ici maintenant pour écrire, chère sœur en Christ. ...Je crois que tu sais que nous n'avons pas toutes les réponses à tes questions. ...Chaque jour apporte de nouveaux défis à votre table, et vous pouvez les relever avec l'aide de l'Amour de Dieu dans vos âmes. Le défi de ce jour n'est pas différent - il semble seulement plus urgent parce que c'est celui qui est sur la table à ce moment précis.
 
 Nous approuvons de tout cœur votre action de proximité qui défend la vérité selon laquelle le message de Dieu et de ses anges gardiens n'est qu'amour. Nous savons que la seule façon d'atteindre la paix et l'amour dans le monde est d'être pacifique et aimant. Aucune menace ne permettra d'atteindre cet objectif. Aucune coercition, aucune force, ni aucune autre intervention négative n'y contribuera. Donc, gardez à l'esprit l'objectif de présenter Dieu comme l'Amour, la paix, la bonté et la douceur, offrant protection, conseils et toutes sortes de soins affectueux, et vous aurez un ministère réussi. Et un ministère véridique.
 

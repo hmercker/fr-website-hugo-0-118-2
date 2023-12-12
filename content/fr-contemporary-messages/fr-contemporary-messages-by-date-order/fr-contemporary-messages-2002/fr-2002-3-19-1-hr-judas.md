@@ -37,16 +37,16 @@ Il a alors prononcé un discours magnifique sur « Ruakh ha-Kodesh », l'Esprit 
 
 Le Seigneur a alors déclaré :
 
-> *Je répandrai alors sur vous une eau pure, et vous serez purifiés;  je vous purifierai de toutes vos souillures et de toutes vos idoles.*
+> Je répandrai alors sur vous une eau pure, et vous serez purifiés;  je vous purifierai de toutes vos souillures et de toutes vos idoles.
 <br>
 <br>
-> *Je vous donnerai un cœur nouveau, et je mettrai en vous un esprit nouveau; j’ôterai de votre corps le cœur de pierre, et je vous donnerai un cœur de chair.*
+> Je vous donnerai un cœur nouveau, et je mettrai en vous un esprit nouveau; j’ôterai de votre corps le cœur de pierre, et je vous donnerai un cœur de chair.
 <br>
 <br>
-> *Et je mettrai mon esprit en vous, et je ferai en sorte que vous suiviez mes ordonnances, et que vous observiez et pratiquiez mes lois.*
+> Et je mettrai mon esprit en vous, et je ferai en sorte que vous suiviez mes ordonnances, et que vous observiez et pratiquiez mes lois.
 <br>
 <br>
-> *Le vrai baptême est à travers l’Eau de la Vie. Demandez au Père Céleste de tendre la main vers vous. Priez.*
+> Le vrai baptême est à travers l’Eau de la Vie. Demandez au Père Céleste de tendre la main vers vous. Priez.
 
 Le lendemain, nous sommes partis. Tout d’abord, nous sommes tous allés à Capharnaüm, puis nous nous sommes séparés, pour nous réunir à nouveau quelques jours plus tard. Tous sont rentrés chez eux, et le Maître a accompagné ses frères à Nazareth.
 
@@ -56,10 +56,10 @@ Notre aventure comme baptistes a eu des conséquences. Bien entendu, Jean en a e
 
 Cependant, Jean a trouvé [les mots de la réconciliation](https://saintebible.com/john/3-27.htm) :
 
->* Un homme ne peut pas obtenir quoi que ce soit, sauf si cela lui a été accordé par le Ciel. Vous-mêmes vous pouvez témoignez que j’ai dit: « Je ne suis pas le Christ », mais je suis son précurseur désigné.*
+> Un homme ne peut pas obtenir quoi que ce soit, sauf si cela lui a été accordé par le Ciel. Vous-mêmes vous pouvez témoignez que j’ai dit: « Je ne suis pas le Christ », mais je suis son précurseur désigné.
 <br>
 <br>
-> *Celui qui a l’épouse est l’époux; et l’ami de l’époux qui se tient à ses côtés et à l’écoute de lui, se réjouit de tout cœur à cause du bonheur de l’époux. Par conséquent, ma joie est maintenant complète.*
+> Celui qui a l’épouse est l’époux; et l’ami de l’époux qui se tient à ses côtés et à l’écoute de lui, se réjouit de tout cœur à cause du bonheur de l’époux. Par conséquent, ma joie est maintenant complète.
 
 Pourtant, le goût amer de la *« concurrence et du plagiat »* a persisté parmi les disciples de Jean. Après sa mort, beaucoup ont continué avec ses pratiques, refusant de prêter une oreille ouverte aux disciples de Jésus. Et je dis disciples, parce qu’à peine quelques mois séparent la mort des deux.
 

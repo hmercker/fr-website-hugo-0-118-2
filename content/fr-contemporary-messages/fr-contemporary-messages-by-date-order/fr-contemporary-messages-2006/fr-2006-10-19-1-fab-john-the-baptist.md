@@ -19,7 +19,7 @@ J’ai observé votre préoccupation. J’ai canalisé à travers [Daniel Samuel
 
 Et puis vous lisez ceci, [que j’ai canalisé à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-20-2-jep-john-the-baptist/) :
 
-> Pour moi, Jésus était le vrai Christ. Je savais qu’il était le vrai et l’unique, et qu’aucun autre ne viendrait après lui. Car lorsqu’il a mis en lumière le fait que Dieu avait accordé à l’humanité la grande possibilité d’obtenir l’Amour Divin et la Nature Divine, il n’y a jamais eu par la suite la nécessité de l’existence ou de la venue d’un autre Christ. Le Grand Don qui était nécessaire pour faire de l’homme un être Divin avait été accordé, et au-delà de cela, il n’y avait rien que le Père devait accorder à l’humanité.«
+> Pour moi, Jésus était le vrai Christ. Je savais qu’il était le vrai et l’unique, et qu’aucun autre ne viendrait après lui. Car lorsqu’il a mis en lumière le fait que Dieu avait accordé à l’humanité la grande possibilité d’obtenir l’Amour Divin et la Nature Divine, il n’y a jamais eu par la suite la nécessité de l’existence ou de la venue d’un autre Christ. Le Grand Don qui était nécessaire pour faire de l’homme un être Divin avait été accordé, et au-delà de cela, il n’y avait rien que le Père devait accorder à l’humanité.
 
 Laissez-moi vous expliquer.
 

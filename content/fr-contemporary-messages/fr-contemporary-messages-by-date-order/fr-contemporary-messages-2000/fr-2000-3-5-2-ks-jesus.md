@@ -28,4 +28,3 @@ Je vous remercie de me permettre d’exprimer mes réflexions à ce sujet. Il s�
 Je vous laisse maintenant avec ces pensées et, comme vous pouvez le constater, c’est un problème auquel nous sommes confrontés depuis des siècles, et qui peut être très frustrant pour nous.
 
 Je vous aime tous et chacun, et vous laisse avec mes bénédictions d’amour, Jésus de la Bible et Maître des Cieux Célestes.
-

@@ -25,7 +25,7 @@ Ne vous laissez donc pas détourner de votre optimisme naturel, que je vois que 
 
 Que Dieu vous bénisse.
 
-***Note :*** *Georges Bernard Shaw avait [communiqué précéemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-13-1-fab-george-bernard-shaw/), à travers le même médium.*
+**Note :** Georges Bernard Shaw avait [communiqué précéemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-13-1-fab-george-bernard-shaw/), à travers le même médium.
 <small>
 
-1. <large id="f1"> George Bernard Shaw (26 Juillet 1856 - 2 Novembre 1950), connu à son insistance simplement comme Bernard Shaw, était un dramaturge, critique et polémiste Irlandais dont l'influence sur le théâtre, la culture et la politique occidentale s'est étendue des années 1880 à sa mort et au-delà. Il a écrit plus de soixante pièces de théâtre, dont des œuvres majeures telles que Man and Superman (1902), Pygmalion (1912) et Saint Joan (1923). Avec une gamme incorporant à la fois la satire contemporaine et l'allégorie historique, Shaw est devenu le principal dramaturge de sa génération, et a reçu en 1925 le prix Nobel de littérature. (Source : Wikipedia).[↩](#a1)
+1. <large id="f1"> **George Bernard Shaw** (26 Juillet 1856 - 2 Novembre 1950), connu à son insistance simplement comme Bernard Shaw, était un dramaturge, critique et polémiste Irlandais dont l'influence sur le théâtre, la culture et la politique occidentale s'est étendue des années 1880 à sa mort et au-delà. Il a écrit plus de soixante pièces de théâtre, dont des œuvres majeures telles que Man and Superman (1902), Pygmalion (1912) et Saint Joan (1923). Avec une gamme incorporant à la fois la satire contemporaine et l'allégorie historique, Shaw est devenu le principal dramaturge de sa génération, et a reçu en 1925 le prix Nobel de littérature. (Source : Wikipedia).[↩](#a1)

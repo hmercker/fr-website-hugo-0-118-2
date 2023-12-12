@@ -24,4 +24,4 @@ Le monde se dirige vers une révolution spirituelle, une révolution que des gen
 J'ai besoin de votre aide. Vous dites que je dois prier pour l'Amour de Dieu. Mais comment ? Vous devez m'aider. Je suis perdu.
 <small>
 
-1. <large id="f1"> Cornelius Vanderbilt (27 Mai 1794 - 4 Janvier 1877), également connu sous les sobriquets The Commodore ou Commodore Vanderbilt, était un entrepreneur américain qui a bâti sa fortune dans la navigation et les chemins de fer et était le patriarche de la famille Vanderbilt. Vanderbilt était le quatrième des neuf enfants de Cornelius Vanderbilt et Phebe Hand, une famille de condition modeste de Port Richmond sur Staten Island. (Source : Wikipedia)[↩](#a1)
+1. <large id="f1"> **Cornelius Vanderbilt** (27 Mai 1794 - 4 Janvier 1877), également connu sous les sobriquets The Commodore ou Commodore Vanderbilt, était un entrepreneur américain qui a bâti sa fortune dans la navigation et les chemins de fer et était le patriarche de la famille Vanderbilt. Vanderbilt était le quatrième des neuf enfants de Cornelius Vanderbilt et Phebe Hand, une famille de condition modeste de Port Richmond sur Staten Island. (Source : Wikipedia)[↩](#a1)

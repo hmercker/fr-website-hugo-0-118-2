@@ -35,7 +35,7 @@ Oui, nous voyons que tu es épuisé. Et donc, en t’entourant de notre amour et
 
 Comme tu nous perçois maintenant, ainsi nous sommes, Tes Amis.
 
-*Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Voici le [prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-26-1-pjr-psr/), et voici le [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-8-1-pjr-various/).*
+Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Voici le [prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-26-1-pjr-psr/), et voici le [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-8-1-pjr-various/).
 <small>
 
 1. <large id="f1"> En d’autres termes : Il n’a pas de forme et n’est pas limité ou contraint par l’univers physique ; Son Amour n’a pas de forme et n’est pas limité non plus. PJR.[↩](#a1)

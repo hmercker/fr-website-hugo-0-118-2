@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus apporte une bénédiction à F.U.S.C. <sup id=”a1”>[1](#f1)</sup> i
+### Jésus apporte une bénédiction à F.U.S.C. <sup id="a1">[1](#f1)</sup> i
 
 Jésus - reçu par Al Fike le 1 Avril 2018, FUSC, Burnaby, Colombie-Britannique, Canada.
 
@@ -20,4 +20,4 @@ C’est mon désir, comme c’est le vôtre, que beaucoup se prévalent de ces b
 Que la Paix du Père soit sur vous, âmes bien-aimées, vous enveloppant ce jour, apportant l’élévation ce jour alors que vos âmes continuent à aspirer au toucher du Père vous élevant dans la Lumière, vous rapprochant de Sa Grande Âme. Continuez à vous attarder, mes bien-aimés, mes disciples bien-aimés. Apportez la Vérité de l’Amour du Père à tous ceux que vous rencontrez. Exprimez cette Vérité dans vos yeux, dans votre étreinte, dans votre visage. Exprimez cette Vérité. Apportez la Lumière à votre monde. Je serai toujours avec vous au cours de vos voyages. Mon amour est avec vous, âmes bien-aimées. Que Dieu vous bénisse. Je suis votre frère et ami, Jésus. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> F.U.S.C : First Spiritual United Churc (Première Eglise Spirituelle Unie.[↩](#a1)
+1. <large id="f1"> F.U.S.C : First Spiritual United Churc (Première Eglise Spirituelle Unie).[↩](#a1)

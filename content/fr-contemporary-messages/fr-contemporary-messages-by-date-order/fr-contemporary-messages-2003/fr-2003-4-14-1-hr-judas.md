@@ -15,7 +15,7 @@ Nous sommes un lundi de Pâques, mon cher frère : je vais traiter d’un sujet 
 
 *[H : Tu fais allusion à la pièce de monnaie dans la bouche du poisson ?]*
 
-Exactement. Insère ici le texte tel qu’il est présenté dans la Bible. [Matthieu 17:24-27](https://saintebible.com/matthew/17-24.htm)
+Exactement. Insère ici le texte tel qu’il est présenté dans la Bible. - [Matthieu 17:24-27](https://saintebible.com/matthew/17-24.htm)
 
 > Lorsqu’ils arrivèrent à Capharnaüm, ceux qui percevaient les deux drachmes s’adressèrent à Pierre, et lui dirent : Votre maître ne paie-t-il pas les deux drachmes ?
 <br>

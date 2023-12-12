@@ -35,7 +35,7 @@ Nous serons toujours là pour vous aider, vous guider, alors soyez ouvert à nos
 
 Je sais que la matière a ses limites, mais c'est ce qui la rend si stimulante. Elle vous "force" à apprendre à utiliser tous vos sens et c'est une bonne chose car nous avons beaucoup plus de sens que nous ne le pensons et il est important pour nous d'apprendre à les utiliser tous.
 
-Vous voyez donc que la limitation n'est pas une chose négative. C'est une occasion d'apprendre à utiliser d'autres moyens, d'autres sens. Utilisez vos limites pour explorer les autres outils dont vous disposez pour dépasser ces limites, car il n'y a pas de véritables limites - ce n'est que la dualité. (N'avons-nous pas dit que le progrès de l'âme est illimité ? *[sourire]* 
+Vous voyez donc que la limitation n'est pas une chose négative. C'est une occasion d'apprendre à utiliser d'autres moyens, d'autres sens. Utilisez vos limites pour explorer les autres outils dont vous disposez pour dépasser ces limites, car il n'y a pas de véritables limites - ce n'est que la dualité. (N'avons-nous pas dit que le progrès de l'âme est illimité ?) *[sourire]*
 
 Jouez avec vos limites, car elles ne sont pas ce qu'elles semblent être. Elles sont là pour vous aider, pas pour vous déranger. Lorsqu'elles vous dérangent, cela signifie que vous savez au fond de vous qu'elles ne sont pas vraiment là mais que vous les créez vous-même parce que vous n'utilisez pas ce que vous devez utiliser.
 

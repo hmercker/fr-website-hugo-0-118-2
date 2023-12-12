@@ -37,7 +37,7 @@ Toute la difficulté est de commencer ce processus, mais ce n’est pas un proce
 
 La question de M____ adresse spécifiquement [le verset 1 du chapitre 11 de la Lettre aux Hébreux](https://saintebible.com/hebrews/11-1.htm) :
 
-> *Maintenant la foi est la substance des choses espérées, l’évidence des choses non vues.*
+> Maintenant la foi est la substance des choses espérées, l’évidence des choses non vues.
 
 Le mot qui génère des problèmes est la « substance » ou « hypostase » dans le texte original. M____ explique à juste titre que le mot signifie substance (en traduction littérale), ou bien fondamental, mais tout autant quelque chose qui est  substantiel ou le socle, quelque chose de concret. En français, il est également possible de traduire les deux parties du mot « hypostase » littéralement, comme « se tenant en dessous. » Néanmoins est-il exact que la foi détient aussi la compréhension des choses perçues ?
 

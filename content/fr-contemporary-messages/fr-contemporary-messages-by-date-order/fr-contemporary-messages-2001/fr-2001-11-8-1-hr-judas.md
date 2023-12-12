@@ -23,9 +23,9 @@ Ces deux questions ont déjà été répondues à travers des messages donnés �
 
 Dans un message reçu [par le Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-45-1955-4-20-45-samuels-jesus/), nous pouvons lire :
 
-> *Et il sembla donc naturel pour l’homme de conclure que le bien et le mal étaient aussi des forces qui s’équilibraient ou, devrais-je dire, étaient en conflit l’une avec l’autre. Comme ces gens n’aimaient pas les concepts abstraits, ils ont cherché  à revêtir ces concepts et à les faire apparaître d’une manière qui soit plus compréhensible. Ainsi, ils ont élaboré, dans leur esprit, les concepts d’archanges, qui étaient vraiment des forces qui agissent sur l’humanité. Ils ont donc donné à Dieu l’apparence d’un homme, ils l’ont créé à l’image de l’homme, et ils ont également fait leurs les concepts de la figure d’un archange rebelle qui fait la guerre contre Dieu et qui fut précipité des cieux, qui utilisa la terre comme son lieu d’habitation et qui est devenu le Prince des Ténèbres, Maître de la terre. Et à cet Archange ils donnèrent le nom de « Satan », ils l’ont doté de la capacité de changer sa forme, d’être maudit par Dieu afin de devenir un serpent. C’est ainsi que naquit le mythe du serpent symbole du Prince des Ténèbres, ou Satan.*
+> Et il sembla donc naturel pour l’homme de conclure que le bien et le mal étaient aussi des forces qui s’équilibraient ou, devrais-je dire, étaient en conflit l’une avec l’autre. Comme ces gens n’aimaient pas les concepts abstraits, ils ont cherché  à revêtir ces concepts et à les faire apparaître d’une manière qui soit plus compréhensible. Ainsi, ils ont élaboré, dans leur esprit, les concepts d’archanges, qui étaient vraiment des forces qui agissent sur l’humanité. Ils ont donc donné à Dieu l’apparence d’un homme, ils l’ont créé à l’image de l’homme, et ils ont également fait leurs les concepts de la figure d’un archange rebelle qui fait la guerre contre Dieu et qui fut précipité des cieux, qui utilisa la terre comme son lieu d’habitation et qui est devenu le Prince des Ténèbres, Maître de la terre. Et à cet Archange ils donnèrent le nom de « Satan », ils l’ont doté de la capacité de changer sa forme, d’être maudit par Dieu afin de devenir un serpent. C’est ainsi que naquit le mythe du serpent symbole du Prince des Ténèbres, ou Satan.
 
-Par conséquent, les Archanges et Satan sont des concepts abstraits, transformés en symboles<sup id="a1">[1](#f1)</sup>.
+Par conséquent, les Archanges et Satan sont des concepts abstraits, transformés en symboles <sup id="a1">[1](#f1)</sup>.
 
 Maintenant, il y avait aussi la question : Comment est-il possible que les médiums reçoivent des messages de l’Archange Michael ou de l’Archange Gabriel, etc.. ?
 
@@ -33,56 +33,56 @@ Eh bien, mon ami, en réalité, ces sont des messages donnés par des esprits, m
 
 Quant à Lucifer, tu sais que la « légende » des anges déchus est basée sur des  expressions vagues dans la Bible :
 
-> *Tu étais en Éden, le jardin de Dieu. Tu étais couvert de toutes sortes de pierres précieuses, de sardoine, de topaze, de diamant, de chrysolithe, d’onyx, de jaspe, de saphir, d’escarboucle, d’émeraude, et d’or ; Tes tambourins et tes flûtes étaient à ton service, préparés pour le jour où tu fus créé.* 
+> Tu étais en Éden, le jardin de Dieu. Tu étais couvert de toutes sortes de pierres précieuses, de sardoine, de topaze, de diamant, de chrysolithe, d’onyx, de jaspe, de saphir, d’escarboucle, d’émeraude, et d’or ; Tes tambourins et tes flûtes étaient à ton service, préparés pour le jour où tu fus créé.
 <br>
 <br>
-> *Tu étais un chérubin protecteur, aux ailes déployées; Je t’avais placé et tu étais sur la sainte montagne de Dieu; Tu marchais au milieu des pierres étincelantes.*
+> Tu étais un chérubin protecteur, aux ailes déployées; Je t’avais placé et tu étais sur la sainte montagne de Dieu; Tu marchais au milieu des pierres étincelantes.
 <br>
 <br>
->*Tu as été intègre dans tes voies, Depuis le jour où tu fus créé jusqu’à celui où l’iniquité a été trouvée chez toi.*
+> Tu as été intègre dans tes voies, Depuis le jour où tu fus créé jusqu’à celui où l’iniquité a été trouvée chez toi.
 <br>
 <br>
-> *Par la grandeur de ton commerce tu as été rempli de violence, et tu as péché; Je t’ai précipité de la montagne de Dieu, Et je t’ai fait disparaître, chérubin protecteur, Du milieu des pierres étincelantes.*
+> Par la grandeur de ton commerce tu as été rempli de violence, et tu as péché; Je t’ai précipité de la montagne de Dieu, Et je t’ai fait disparaître, chérubin protecteur, Du milieu des pierres étincelantes.
 <br>
 <br>
-> *Ton cœur s’est élevé à cause de ta beauté, tu as corrompu ta sagesse par ton éclat : Je te jette au sol, je te livre en spectacle devant les rois, qu’ils puissent te contempler.*
+> Ton cœur s’est élevé à cause de ta beauté, tu as corrompu ta sagesse par ton éclat : Je te jette au sol, je te livre en spectacle devant les rois, qu’ils puissent te contempler.
 <br>
 <br>
->  *Par la multitude de tes iniquités, Par l’injustice de ton commerce, Tu as profané tes sanctuaires; Je fais sortir du milieu de toi un feu qui te dévore, Je te réduis en cendre sur la terre, Aux yeux de tous ceux qui te regardent.*
+> Par la multitude de tes iniquités, Par l’injustice de ton commerce, Tu as profané tes sanctuaires; Je fais sortir du milieu de toi un feu qui te dévore, Je te réduis en cendre sur la terre, Aux yeux de tous ceux qui te regardent.
 <br>
 <br>
-> *Tous ceux qui te connaissent parmi les peuples sont dans la stupeur à cause de toi; Tu es réduit au néant, tu ne seras plus à jamais !*
+> Tous ceux qui te connaissent parmi les peuples sont dans la stupeur à cause de toi; Tu es réduit au néant, tu ne seras plus à jamais !
 
 Ces mots d’Ézéchiel [Ézéchiel 28:13-19](https://saintebible.com/ezekiel/28-13.htm) sont interprétés comme faisant référence à Satan.
 
-> *Un autre signe parut encore dans le ciel; et voici, c’était un grand dragon rouge, ayant sept têtes et dix cornes, et sur ses têtes sept diadèmes.*
+> Un autre signe parut encore dans le ciel; et voici, c’était un grand dragon rouge, ayant sept têtes et dix cornes, et sur ses têtes sept diadèmes.
 <br>
 <br>
-> *Sa queue entraînait le tiers des étoiles du ciel, et les jetait sur la terre. Le dragon se tint devant la femme qui allait enfanter, afin de dévorer son enfant, lorsqu’elle aurait enfanté.* 
+> Sa queue entraînait le tiers des étoiles du ciel, et les jetait sur la terre. Le dragon se tint devant la femme qui allait enfanter, afin de dévorer son enfant, lorsqu’elle aurait enfanté.
 
 Et ces paroles de l’Apocalypse [Apocalypse 12:3-4](https://saintebible.com/revelation/12-3.htm) sont interprétés de la même manière, se référant à la chute de Lucifer.
 
 Mais pour comprendre le développement du caractère de Satan, je recommande la lecture du livre de Job.
 
-> *Or, les fils de Dieu vinrent un jour se présenter devant l’Éternel, et Satan vint aussi au milieu d’eux.*
+> Or, les fils de Dieu vinrent un jour se présenter devant l’Éternel, et Satan vint aussi au milieu d’eux.
 <br>
 <br>
-> *Et l’Éternel dit à Satan : d’où viens-tu ? Et Satan répondit à l’Éternel : De parcourir la terre et de m’y promener.*
+> Et l’Éternel dit à Satan : d’où viens-tu ? Et Satan répondit à l’Éternel : De parcourir la terre et de m’y promener.
 <br>
 <br>
-> *L’Éternel dit à Satan: As-tu remarqué mon serviteur Job ? Il n’y a personne comme lui sur la terre; c’est un homme intègre et droit, craignant Dieu, et se détournant du mal.*
+> L’Éternel dit à Satan: As-tu remarqué mon serviteur Job ? Il n’y a personne comme lui sur la terre; c’est un homme intègre et droit, craignant Dieu, et se détournant du mal.
 <br>
 <br>
-> *Et Satan répondit à l’Éternel : Est-ce d’une manière désintéressée que Job craint Dieu ?*
+> Et Satan répondit à l’Éternel : Est-ce d’une manière désintéressée que Job craint Dieu ?
 <br>
 <br>
-> *Ne l’as-tu pas protégé, lui, sa maison, et tout ce qui est à lui ? Tu as béni l’œuvre de ses mains, et ses troupeaux couvrent le pays.*
+> Ne l’as-tu pas protégé, lui, sa maison, et tout ce qui est à lui ? Tu as béni l’œuvre de ses mains, et ses troupeaux couvrent le pays.
 <br>
 <br>
-> *Mais étends ta main, touche à tout ce qui lui appartient, et je suis sûr qu’il te maudira en face.*
+> Mais étends ta main, touche à tout ce qui lui appartient, et je suis sûr qu’il te maudira en face.
 <br>
 <br>
-> *L’Éternel dit à Satan : Voici, tout ce qui lui appartient, je te le livre; seulement, ne porte pas la main sur lui.  Et Satan se retira de devant la face de l’Éternel.* [Job 1-6:12](https://saintebible.com/job/1-6.htm)
+> L’Éternel dit à Satan : Voici, tout ce qui lui appartient, je te le livre; seulement, ne porte pas la main sur lui.  Et Satan se retira de devant la face de l’Éternel. - [Job 1-6:12](https://saintebible.com/job/1-6.htm)
 
 Ainsi, Dieu a donné pouvoir à Satan sur Job.
 
@@ -99,4 +99,4 @@ Judas.
 © Geoff Cutler 2013
 <small>
 
-1. <large id="f1"> <u>Note du webmaster (Geoff Cutler) du site "New-Birth.net</u> : Bien que je concède que ces idées soient entourées de concepts abstraits, particulièrement dans le cas de l’entité Orthodoxe Chrétienne appelée «Le diable», je ne crois pas personnellement qu’il n’y a jamais eu un esprit nommé « Satan », pas plus que je n’accepte l’idée de la non existence des ordres angéliques. Mais, de nouveau, ces choses ne sont pas importantes.[↩](#a1)
+1. <large id="f1"> **Note du webmaster (Geoff Cutler) du site New-Birth.net :** Bien que je concède que ces idées soient entourées de concepts abstraits, particulièrement dans le cas de l’entité Orthodoxe Chrétienne appelée «Le diable», je ne crois pas personnellement qu’il n’y a jamais eu un esprit nommé « Satan », pas plus que je n’accepte l’idée de la non existence des ordres angéliques. Mais, de nouveau, ces choses ne sont pas importantes.[↩](#a1)

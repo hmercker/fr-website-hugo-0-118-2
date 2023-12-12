@@ -27,4 +27,4 @@ Essentiellement, toutes les révélations futures donnent des preuves supplémen
 
 Votre ami et frère en Christ, James Edward Padgett.
 
-*Note de Geoff Cutler :  Le contexte de ce commentaire était que nous discutions des actions de proximité spirituelles, et je pense que les esprits Célestes ont de nombreuses actions de proximité, mais que James Padgett avait une action de proximité qui avait « les bonnes choses » alors que d’autres, bien qu’importantes, peuvent ne pas avoir cette profondeur de Vérité.*
+**Note de Geoff Cutler :**  Le contexte de ce commentaire était que nous discutions des actions de proximité spirituelles, et je pense que les esprits Célestes ont de nombreuses actions de proximité, mais que James Padgett avait une action de proximité qui avait « les bonnes choses » alors que d’autres, bien qu’importantes, peuvent ne pas avoir cette profondeur de Vérité.

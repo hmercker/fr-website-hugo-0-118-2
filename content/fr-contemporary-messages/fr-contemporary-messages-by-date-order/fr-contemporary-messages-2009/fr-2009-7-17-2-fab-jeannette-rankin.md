@@ -18,4 +18,3 @@ Oui, j’ai dit des choses peu flatteuses sur mes biographes, James J. Lopach et
 L’humanité évolue vers une révélation de plus en plus grande de la vérité. Les choses cachées sont en train d’être révélées. En ce sens, je suis heureuse que mes biographes se soient suffisamment souciés d’apprendre la vérité sur ma vie. Une fois encore, je m’opposais à leur idée préconçue selon laquelle il y avait quelque chose de mauvais en moi parce que je n’ai jamais eu d’amis intimes durables.
 
 Je viens de vous donner l’exemple de votre mère, qui a lutté contre de graves problèmes qu’elle a résolus en son for intérieur. Vous avez toujours eu l’idée qu’il fallait chercher l’aide et le soutien des autres. Le fait que j’ai évité l’intimité personnelle ne reflète en rien mon dévouement de toute une vie à mes causes. Cela ne m’a pas rendu égoïste non plus. Cela signifie simplement que mes priorités n’étaient pas dans la norme.
-

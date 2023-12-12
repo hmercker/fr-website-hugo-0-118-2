@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
+### Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C. <sup id="a1">[1](#f1)</sup>
 
 John Wesley - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
@@ -22,4 +22,4 @@ Alors je vous exhorte, je vous en supplie, ainsi que tous ceux qui sont disposé
 Alors je vous donne cette invitation, à chercher cette bénédiction, à mettre devant vous un engagement, que tous ceux qui cherchent trouveront, et tous ceux qui cherchent seront soutenus dans l’Amour, et des portes s’ouvriront, des compréhensions viendront, des mystères seront résolus et révélés. Beaucoup de choses attendent l’âme qui désire s’éveiller. Dieu vous bénisse mes amis. Je suis John Wesley, le fondateur du méthodisme, et je suis maintenant un habitant du Royaume Céleste. Merci de m’avoir écouté aujourd’hui. Que Dieu vous bénisse et vous garde dans Son Amour. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)

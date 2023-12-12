@@ -45,7 +45,7 @@ Avec cette courte biographie, j’espère avoir un peu satisfait ta curiosité. 
 
 Que Dieu te bénisse.
 
-![](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 
 Judas.
 

@@ -1,13 +1,13 @@
 ---
-title: "Trance Message de Jésus."
+title: "Trance Message de Jésus"
 menu_title: ""
-description: "Trance Message de Jésus."
+description: "Trance Message de Jésus"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True
 weight:
 ---
-### Trance Message de Jésus.
+### Trance Message de Jésus
 
 Jésus - reçu par Amada Reza le 24 Juin 2001, Aptos, Californie, USA.
 

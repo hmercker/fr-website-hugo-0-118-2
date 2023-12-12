@@ -21,7 +21,7 @@ C’est alors que j’entendis la voix me dire : «Je veux te montrer que l’â
 
 *[Et puis je vis son visage, aussi réel qu’une photographie. Il était maigre, ses cheveux mi- longs, atteignant à peine  ses épaules, couvrant son cou, les cheveux noirs de jais. Ils n’étaient pas peignés de façon à former une raie, mais brossés vers l’avant, cachant son front. Ses yeux n’étaient pas grands mais joyeux, oui, il m’a regardé avec un sourire sur son visage, et sa bouche à demie ouverte a découvert ses dents. Son nez n’était ni long, ni court, mais mince, tout comme son visage mince révélait une texture osseuse fine. Il portait également une barbe courte mais pas très dense. Il était jeune, peut-être vingt-cinq ans, mais certainement pas plus de trente ans, c’était difficile à estimer. Tout son visage a commencé alors à se déformer, comme une caricature.]*
 
-« C’est parce que ton esprit te joue des tours», a-t-il expliqué. »Tu ne sais pas comment le contrôler. Mais tu apprendras.»
+« C’est parce que ton esprit te joue des tours », a-t-il expliqué. »Tu ne sais pas comment le contrôler. Mais tu apprendras.»
 
 *[« Tu es Judas », me suis-je alors exprimé. »]*
 
@@ -33,10 +33,10 @@ C’est alors que j’entendis la voix me dire : «Je veux te montrer que l’â
 
 *[Ensuite, je fus à nouveau seul, avec mon cœur qui battait terriblement …]*
 
-![](/3-fr-judas-of-kerioth-messages/fr-judas.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-judas.jpg)
 
 Judas
 
 Malheureusement, je ne sais pas qui est le titulaire du droit d’auteur original de cette photographie, l’image a cependant été modifiée par le médium, en utilisant un logiciel de manipulation d’image numérique, pour obtenir le résultat qu’il recherchait. Sur cette base, je pense qu’elle peut être publiée. Si l’image résultante laisse apparaître une ressemblance avec une personne vivante, cette ressemblance est fortuite. Geoff Cutler.
 
-*© Geoff Cutler 2013*
+© Geoff Cutler 2013

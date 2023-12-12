@@ -13,29 +13,29 @@ Judas - reçu par H____ le 20 Août 2001, Cuenca, Équateur.
 
 C’est moi, Judas.
 
-*H : C’est surprenant; Après notre rencontre de cet après-midi, je ne pensais pas que nous pourrions nous rencontrer de nouveau ce soir.*
+*[H : C’est surprenant; Après notre rencontre de cet après-midi, je ne pensais pas que nous pourrions nous rencontrer de nouveau ce soir.]*
 
 Rien d’étonnant à cela. Je t’ai dit que je suis toujours avec toi. Et cela signifie que nous pouvons toujours être en contact direct. Cela dépend uniquement de toi. Appelle-moi, et je serai là. Maintenant tu peux même me visualiser, cela te permet d’avoir un peu plus de confiance.
 
-*H : Oui, la confiance est la partie la plus difficile. Je me sens tellement en insécurité, et je me demande si mon esprit n’est pas en train de me jouer des tours. J’ai peur, je ne veux pas commettre des erreurs, je ne veux tromper personne, y compris moi-même.*
+*[H : Oui, la confiance est la partie la plus difficile. Je me sens tellement en insécurité, et je me demande si mon esprit n’est pas en train de me jouer des tours. J’ai peur, je ne veux pas commettre des erreurs, je ne veux tromper personne, y compris moi-même.]*
 
 Tu as besoin de temps. Tout ne peut être développé à la perfection du jour au lendemain. Mais ce ne sont pas des illusions. Tu as des problèmes, parce que mes pensées ressemblent aux tiennes, autrement dit, tu ne peux pas les distinguer. Mais nous parlons, et cela tu le réalises. Un autre problème est que tu ne sais pas comment contrôler ton esprit. Tes pensées sont comme un torrent, tu veux tout immédiatement, et dans le désordre. Nous pouvons aborder divers sujets, discuter tes questions, mais tu dois apprendre à formuler le tout clairement, seulement alors nous pourrons traiter tes questions une par une.
 
-*H : Je croyais que nous converserions d’âme à âme, comme tu me l’avais dit. Mais qu’est-ce que cela a à voir avec mon esprit ?*
+*[H : Je croyais que nous converserions d’âme à âme, comme tu me l’avais dit. Mais qu’est-ce que cela a à voir avec mon esprit ?]*
 
 Les impressions arrivant à ton âme, tu les transformes automatiquement en pensées, dans tes pensées. Je t’ai dit que le moment où l’âme prend le contrôle est le moment où l’esprit est prêt à entrer dans la septième sphère. Tu es toujours fixé sur ton mental matériel; tu dois encore parcourir un long, long chemin.
 
-*H : Et dans cette traduction, cette formulation en mots, se cache le danger de voir des erreurs se faufiler ?*
+*[H : Et dans cette traduction, cette formulation en mots, se cache le danger de voir des erreurs se faufiler ?]*
 
 Exactement. C’est quand tes propres pensées se mélangent aux miennes. Et il peut même arriver que tu ne traduises pas du tout mes pensées, mais que tu exprimes tes propres idées. Tu vas devoir t’exercer. Cette communication n’est pas parfaite, mais c’est la seule que nous ayons à notre disposition.
 
-*H : Est ce que James Padgett a rencontré les mêmes problèmes ?*
+*[H : Est ce que James Padgett a rencontré les mêmes problèmes ?]*
 
 Ne pense pas à James Padgett ou aux autres médiums maintenant. Tous les hommes sont différents, toutes leurs perceptions sont différentes et la médiumnité de chacun est différente. Tu es un cas unique, comme chacun est un cas unique. Ne pense pas à çà maintenant.
 
 Nous passerons des moments heureux ensemble. Tu traverseras des expériences merveilleuses et tu rencontreras des choses que tu n’as jamais vues auparavant.
 
-*H : Est-ce que tu me dis que je vais laisser mon corps et voyager en esprit, comme lors d’un voyage astral ?*
+*[H : Est-ce que tu me dis que je vais laisser mon corps et voyager en esprit, comme lors d’un voyage astral ?]*
 
 Non, absolument pas. Mais ce que je vois, je peux le projeter sur ton esprit, afin que tu puisses le voir aussi. L’acuité de ta vision dépendra de notre rapport, de notre état relationnel. Regarde toi maintenant, tu es complètement tendu et crispé. Détend toi afin d’entrer en relation avec moi, parce que maintenant, après quelques brefs échanges, tu es complètement crispé. Ce n’est pas bien, alors détends-toi.
 
@@ -49,17 +49,17 @@ La rupture des liens familiaux n’est pas tragique. Tu as entendu que, dans le 
 
 Oui, il a également dit que le bébé n’avait encore de nom. Mais dis-lui qu’ici les noms perdent de leur importance. Les noms sous cette forme n’existent plus.
 
-*H : Je ne comprends pas cela très bien. Comment pouvons-nous identifier des personnes sans nom ?*
+*[H : Je ne comprends pas cela très bien. Comment pouvons-nous identifier des personnes sans nom ?]*
 
 Un jour je te l’expliquerai. Mais maintenant, ce n’est pas le moment de le faire.
 
 Nous allons devoir travailler sur ta médiumnité. Tu dois prier. Je sais, tu pries effectivement, mais tu dois prier plus et par plus je me réfère à l’intensité. Tu as déjà accompli quelque chose de très important : une certaine ouverture de ton âme. Nous pouvons nous rencontrer facilement. Mais il y a un manque de profondeur. Si tu désires des informations profondes, tu dois avoir la disposition correspondante.
 
-*H : Vais-je recevoir des messages officiels ?*
+*[H : Vais-je recevoir des messages officiels ?]*
 
 Tu en as déjà reçu deux. En outre, qu’est-ce qu’un message officiel ? Nous discutons, et malgré le peu de formalisme de notre rencontre, tu as déjà reçu beaucoup d’informations.
 
-*H : Mais il y a autre chose que je ne comprends pas. A quoi ressemblent ces bébés qui meurent ? Je veux dire, leur corps-esprit. Les bébés sur terre grandissent, se développent, à travers la nourriture qu’ils reçoivent, leur corps se développe de telle sorte que l’enfant devienne un adulte. Par la suite, un processus graduel de dégradation commence. Mais qu’en est-il du corps spirituel …*
+*[H : Mais il y a autre chose que je ne comprends pas. A quoi ressemblent ces bébés qui meurent ? Je veux dire, leur corps-esprit. Les bébés sur terre grandissent, se développent, à travers la nourriture qu’ils reçoivent, leur corps se développe de telle sorte que l’enfant devienne un adulte. Par la suite, un processus graduel de dégradation commence. Mais qu’en est-il du corps spirituel …]*
 
 Le corps spirituel est l’expression de l’âme. En quelque sorte, il trahit l’état de l’âme.
 
@@ -67,13 +67,13 @@ Il n’est pas difficile d’imaginer que l’âme d’un bébé n’a pas beauc
 
 Au fur et à mesure que l’âme progresse dans sa formation, ce progrès se reflète dans l’aspect du corps spirituel. En quelque sorte, ces bébés bénéficient d’un grand avantage en revenant dans le monde spirituel sous une forme pure et vierge. Mais, en revanche, leur manque d’expérience terrestre est un désavantage.
 
-*H : Ils bénéficient donc d’avantages et d’inconvénients, après tout, c’est juste…*
+*[H : Ils bénéficient donc d’avantages et d’inconvénients, après tout, c’est juste…]*
 
-N’utilise pas les termes juste ou injuste. Nous vivons dans un monde où la justice n’a pas de place, c’est un monde d’amour, que ce soit l’amour humain ou l’Amour Divin, mais l’amour et la justice n’ont rien en commun. La justice est une invention humaine. Dieu n’est pas justice, il est amour. Si tu ne comprends pas cela, tu ne peux pas comprendre Dieu<sup id="a1">[1](#f1)</sup>. Donne-moi une accolade, je dois te dire au revoir maintenant. Nous avons partagé beaucoup aujourd’hui. Chaque jour a sa tâche, et nous ne devons pas exagérer.
+N’utilise pas les termes juste ou injuste. Nous vivons dans un monde où la justice n’a pas de place, c’est un monde d’amour, que ce soit l’amour humain ou l’Amour Divin, mais l’amour et la justice n’ont rien en commun. La justice est une invention humaine. Dieu n’est pas justice, il est amour. Si tu ne comprends pas cela, tu ne peux pas comprendre Dieu <sup id="a1">[1](#f1)</sup>. Donne-moi une accolade, je dois te dire au revoir maintenant. Nous avons partagé beaucoup aujourd’hui. Chaque jour a sa tâche, et nous ne devons pas exagérer.
 
 Bonne nuit et que Dieu te bénisse, ton frère, Judas.
 
-*© Geoff Cutler 2013*
+© Geoff Cutler 2013
 <small>
 
 1. <large id="f1"> Voir une explication sur Dieu et la justice dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-2-28-1-fab-jesus/).[↩](#a1)

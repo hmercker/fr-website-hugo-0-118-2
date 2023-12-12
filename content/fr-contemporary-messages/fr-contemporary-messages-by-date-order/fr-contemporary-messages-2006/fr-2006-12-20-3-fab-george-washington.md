@@ -1,9 +1,7 @@
 ---
-title: "Le fondateur de son pays apporte son soutien
-"
+title: "Le fondateur de son pays apporte son soutien"
 menu_title: ""
-description: "Le fondateur de son pays apporte son soutien
-"
+description: "Le fondateur de son pays apporte son soutien"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

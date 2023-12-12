@@ -31,10 +31,10 @@ Oui et non. Il n’y a pas eu de voix, mais il y a vraiment eu la colombe, qui n
 
 *[Judas sourit]* Je vais te répondre par une autre question. Aujourd’hui, tu as envoyé un article intéressant à plusieurs personnes. Et dans cet article il était écrit :
 
-> *Cela semblait complètement confus. C’est alors que j’ai trouvé un passage écrit par Bede Griffiths, un moine bénédictin contemporain. Griffiths rapporte qu’alors qu’il était jeune garçon, il était allé marcher une nuit quand soudain il fut charmé par la belle chanson de certains oiseaux. Leurs trilles réveillèrent des sens qu’il n’a jamais utilisés auparavant. Il explique que, soudainement, le monde sembla se transformer, comme s’il était confronté avec « la présence d’un mystère insondable qui semblait m’attirer vers lui. »*
+> Cela semblait complètement confus. C’est alors que j’ai trouvé un passage écrit par Bede Griffiths, un moine bénédictin contemporain. Griffiths rapporte qu’alors qu’il était jeune garçon, il était allé marcher une nuit quand soudain il fut charmé par la belle chanson de certains oiseaux. Leurs trilles réveillèrent des sens qu’il n’a jamais utilisés auparavant. Il explique que, soudainement, le monde sembla se transformer, comme s’il était confronté avec « la présence d’un mystère insondable qui semblait m’attirer vers lui. »
 <br>
 <br>
-> *Il n’y a eu ni buisson ardent, ni chars de feu. Seulement une révélation douce à laquelle beaucoup n’auraient pas prêté attention, mais cela a changé la vie de Griffiths pour toujours. L’expérience mystique – je commençais à comprendre – n’a pas été l’ascension magique vers un paradis distant. Ce fut une révélation calme et personnelle que le miraculeux et le banal sont une seule et même chose, et que les deux sont devant nos yeux.*
+> Il n’y a eu ni buisson ardent, ni chars de feu. Seulement une révélation douce à laquelle beaucoup n’auraient pas prêté attention, mais cela a changé la vie de Griffiths pour toujours. L’expérience mystique – je commençais à comprendre – n’a pas été l’ascension magique vers un paradis distant. Ce fut une révélation calme et personnelle que le miraculeux et le banal sont une seule et même chose, et que les deux sont devant nos yeux.
 
 Juste après l’envoi des e-mails, tu as trouvé un oiseau dans le salon de ta maison. Quand il t’a vu, il s’est envolé au premier étage, rempli de peur et de désespoir, et, ultérieurement, lorsque tu as ouvert la fenêtre, il a eu quelques problèmes pour sortir par cette fenêtre. Était-ce un signe ?
 

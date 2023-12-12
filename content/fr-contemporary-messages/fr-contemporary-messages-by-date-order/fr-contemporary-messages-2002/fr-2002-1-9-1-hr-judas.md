@@ -71,39 +71,39 @@ Judas : Très bien, voilà c’est qui arrive aussi dans la transmission d’un 
 
 Dans [l’un des premiers messages](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-12-2-jep-helen-padgett/), son épouse, Hélène lui a transféré le texte suivant :
 
-> *« Le Sauveur des hommes. Il était avec toi et j’étais si contente que je pense que tu croies maintenant que je suis dans le monde des esprits et dans l’Amour de Dieu. Il est le Seigneur qui est descendu du Ciel pour sauver les hommes. »*
+> Le Sauveur des hommes. Il était avec toi et j’étais si contente que je pense que tu croies maintenant que je suis dans le monde des esprits et dans l’Amour de Dieu. Il est le Seigneur qui est descendu du Ciel pour sauver les hommes.
 
 Fais attention à *« Il est le Seigneur qui est descendu du Ciel. »* Cela ressemble à la foi que James Padgett professait. James Padgett, a interpolé, inconsciemment, quelque chose qui lui semblait correct. « Le Seigneur » dans un contexte religieux est toujours synonyme de Dieu. Toutefois, ce n’est certainement pas ce qu’Hélène lui a transmis.
 
 Dans [un autre message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-12-1-jep-jesus/), très peu de temps après, Jésus a dit :
 
-> *« Je suis venu pour dire que vous êtes très près du Royaume, vous devez seulement croire et prier le Père et vous saurez bientôt la vérité et la vérité vous rendra libres. Vous aviez le cœur dur et pécheur, mais maintenant que vous cherchez la lumière je vais venir à vous et vous aider, croyez seulement et vous verrez bientôt la vérité de mes enseignements. N’allez pas dans la voie des méchants, car, à la fin, ils endureront la punition et de longues souffrances. Laissez votre amour pour Dieu et pour les hommes se développer. »*
+> Je suis venu pour dire que vous êtes très près du Royaume, vous devez seulement croire et prier le Père et vous saurez bientôt la vérité et la vérité vous rendra libres. Vous aviez le cœur dur et pécheur, mais maintenant que vous cherchez la lumière je vais venir à vous et vous aider, croyez seulement et vous verrez bientôt la vérité de mes enseignements. N’allez pas dans la voie des méchants, car, à la fin, ils endureront la punition et de longues souffrances. Laissez votre amour pour Dieu et pour les hommes se développer.
 
 Regarde, *« à la fin, il endureront la punition et de longues souffrances. »* C’est une des doctrines fondamentales de l’orthodoxie. La punition pour les méchants. Mais ultérieurement, Jésus a expliqué que Dieu ne punit pas.
 
 Dans [le même ton](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-14-1-jep-helen-padgett/), Hélène a écrit :
 
-> *« Oui,  j’ai vu l’esprit du Recteur, il n’est pas l’esprit qu’il prétend être, c’est un esprit méchant qui est sur le point de tromper les mortels sur la terre, il est un esprit méchant qui n’a aucun amour pour Dieu ou l’homme, il essaye de faire croire à l’humanité qu’il est le Christ mais il sera sévèrement puni au moment du jugement dernier. »*
+> Oui,  j’ai vu l’esprit du Recteur, il n’est pas l’esprit qu’il prétend être, c’est un esprit méchant qui est sur le point de tromper les mortels sur la terre, il est un esprit méchant qui n’a aucun amour pour Dieu ou l’homme, il essaye de faire croire à l’humanité qu’il est le Christ mais il sera sévèrement puni au moment du jugement dernier.
 
 Remarque cette phrase *« il sera sévèrement puni au moment du jugement dernier. »* Une fois de plus, l’idée de punition et en outre, l’idée du « moment de vérité », c’est-à-dire, du jugement dernier. Un concept qui plus tard allait changer radicalement.
 
 James Padgett, toujours sans majeure préparation d’âme, demanda à Jésus : que signifie « naître de nouveau ? » [Jésus répondit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-24-2-jep-jesus/) :
 
-> *« C’est l’écoulement de l’Esprit Saint dans l’âme d’un homme et la disparition de tout ce qui tend à le maintenir en état de péché et d’erreur. »*
+> C’est l’écoulement de l’Esprit Saint dans l’âme d’un homme et la disparition de tout ce qui tend à le maintenir en état de péché et d’erreur.
 
 Une fois de plus, cette idée, plus tard, changerait. James Padgett, à ce moment-là, n’a pas compris. Il n’avait aucune idée de ce qu’était l’Esprit Saint et il le confondait avec l’Amour Divin.
 
 Bientôt après, [il avait déjà saisi le concept](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-28-1-jep-jesus/) :
 
-> *« Ne soyez pas découragés ou déprimés car l’Esprit Saint comblera bientôt votre cœur avec l’Amour du Père…»*
+> Ne soyez pas découragés ou déprimés car l’Esprit Saint comblera bientôt votre cœur avec l’Amour du Père…
 
 L’idée de punition pour les méchants a également commencé à [subtilement changer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-29-1-jep-jesus/) :
 
-> *« L’Amour de Dieu tend la main à chaque homme afin que le plus vil soit l’objet de Ses soins. »*
+> L’Amour de Dieu tend la main à chaque homme afin que le plus vil soit l’objet de Ses soins.
 
 Mais à la fin du même message, [il retombe une fois de plus dans sa manière ancrée de penser](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-29-1-jep-jesus/) :
 
-> *« Le monde a besoin d’une nouvelle prise de conscience, et l’infidélité et l’incrédulité des hommes qui se croient sages, mais qui sont insensés, comme ils finiront par le découvrir, et les choses matérielles ne doivent pas remplir leurs âmes beaucoup plus longtemps sinon ils souffriront plus que ce qu’ils peuvent imaginer. »*
+> Le monde a besoin d’une nouvelle prise de conscience, et l’infidélité et l’incrédulité des hommes qui se croient sages, mais qui sont insensés, comme ils finiront par le découvrir, et les choses matérielles ne doivent pas remplir leurs âmes beaucoup plus longtemps sinon ils souffriront plus que ce qu’ils peuvent imaginer.
 
 En dehors d’un style déformé, cette phrase ne transmet plus l’amour mais des menaces.
 

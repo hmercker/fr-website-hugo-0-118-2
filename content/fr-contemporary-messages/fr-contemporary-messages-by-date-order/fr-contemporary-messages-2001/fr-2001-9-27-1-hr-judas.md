@@ -9,9 +9,9 @@ weight:
 ---
 ### La sixième sphère
 
-Judas - reçu par H___  le 27 Septembre 2001, Cuenca, Équateur.
+Judas - reçu par H____  le 27 Septembre 2001, Cuenca, Équateur.
 
-Mon cher frère H___,
+Mon cher frère H____,
 
 Je suis heureux, que, cette fois, tu ais décidé de recevoir mon message par le biais de la dictée. Il est conseillé de changer le mode de réception chaque fois que cela est possible, tu gagneras ainsi beaucoup plus de confiance et de précision. Actuellement, la communication est très facile à condition que tu trouves le temps et un endroit calme.
 
@@ -39,13 +39,13 @@ Mon cher frère, j’aime le portrait que tu as dessiné d’André. Oui, il res
 
 André travaille beaucoup avec les mortels. Et je lui dois beaucoup, oui, en fait je lui dois tout. Durant tout le temps de ma progression vers les Cieux Célestes, il m’a accompagné et aidé sans relâche. Nous nous visitons toujours fréquemment, bien que nous ne vivions pas dans le même lieu.
 
-Il est temps de dire au revoir. Le temps est orageux, alors il vaut mieux arrêter ton ordinateur. Je suis heureux que ta [galerie de portraits](/3-fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/) prenne déjà forme. Très prochainement, je te projetterai une autre image de l’un de mes anciens compagnons et tu seras en mesure d’utiliser, une fois de plus, tes talents d’artiste.
+Il est temps de dire au revoir. Le temps est orageux, alors il vaut mieux arrêter ton ordinateur. Je suis heureux que ta [galerie de portraits](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/) prenne déjà forme. Très prochainement, je te projetterai une autre image de l’un de mes anciens compagnons et tu seras en mesure d’utiliser, une fois de plus, tes talents d’artiste.
 
 Puisse Dieu te bénir toujours.
 
 Ton frère en Christ, Judas.
 
-![](/3-fr-judas-of-kerioth-messages/fr-andrew-large.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-andrew-large.jpg)
 
 André
 

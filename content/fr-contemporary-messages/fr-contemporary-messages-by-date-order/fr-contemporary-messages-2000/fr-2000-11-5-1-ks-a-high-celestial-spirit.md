@@ -21,9 +21,9 @@ Toutes les églises qui enseignent et prêchent l’importance d’aimer Dieu et
 
 La progression spirituelle se fait par paliers, par petits pas, jour après jour, année après année, jusqu’à ce que le désir de faire la volonté de Dieu devienne une partie de votre nature même, une partie de chaque pensée et de chaque désir. Le développement spirituel est alors assuré ; c’est presque comme si vous ne pouviez pas revenir en arrière, même si vous le vouliez. Mais il n’y aurait pas de désir de se détourner de l’Amour de Dieu lorsqu’Il s’est établi comme faisant partie de la nature de l’âme.
 
-Ceux d’entre vous qui ont choisi de chercher le chemin de cet Amour sont vraiment bénis au-delà de toute mesure car l’Amour de Dieu ne peut être mesuré. Il est au-delà de l’au-delà, une puissance que l’esprit humain est incapable de sonder. Ainsi, lorsque vous recherchez les mérites de votre église terrestre, je dirai que les églises font souvent du mieux qu’elles peuvent dans les limites de leurs règles et règlements, mais elles ne peuvent pas freiner les désirs de l’âme dans son aspiration à la Grâce de Dieu. 
+Ceux d’entre vous qui ont choisi de chercher le chemin de cet Amour sont vraiment bénis au-delà de toute mesure car l’Amour de Dieu ne peut être mesuré. Il est au-delà de l’au-delà, une puissance que l’esprit humain est incapable de sonder. Ainsi, lorsque vous recherchez les mérites de votre église terrestre, je dirai que les églises font souvent du mieux qu’elles peuvent dans les limites de leurs règles et règlements, mais elles ne peuvent pas freiner les désirs de l’âme dans son aspiration à la Grâce de Dieu.
 
-Chacun d’entre vous a la responsabilité de rechercher la vérité et de développer sa relation avec Dieu. 
+Chacun d’entre vous a la responsabilité de rechercher la vérité et de développer sa relation avec Dieu.
 
 Lorsque cette relation s’établit comme un lien réel et vivant, l’enfant est porté par la source d’amour de son Père, et la joie et l’accomplissement brillent aux yeux de tous. Vous avez le privilège et l’obligation d’aider vos semblables à tourner leurs pensées vers la prière pour obtenir cette grâce, en aspirant à faire la volonté de Dieu dans leurs vies, en s’efforçant de devenir des exemples vivants de paix et d’amour pour aider le monde à sortir de son désespoir.
 

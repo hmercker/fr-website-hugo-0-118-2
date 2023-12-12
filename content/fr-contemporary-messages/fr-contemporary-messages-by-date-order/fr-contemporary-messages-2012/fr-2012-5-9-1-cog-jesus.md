@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Enfant de Dieu le 9 Mai 2012.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-spiritualite-21.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2012-spiritualite-21.jpg)
 
 Ma chère sœur, je suis ton frère, je suis Jésus. Je suis venu te parler de moi, puisque tu as posé quelques questions sur moi et mes enseignements.
 

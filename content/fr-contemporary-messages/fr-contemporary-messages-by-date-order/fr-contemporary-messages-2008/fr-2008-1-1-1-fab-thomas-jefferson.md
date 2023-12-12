@@ -9,7 +9,7 @@ weight:
 ---
 ### Une bataille entre les forces de la lumière et les forces de l’obscurité
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-thomas_jefferson.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-thomas_jefferson.jpg)
 
 Thomas Jefferson - reçu par FAB le 1 Janvier 2008, Santa Cruz, Californie, USA.
 

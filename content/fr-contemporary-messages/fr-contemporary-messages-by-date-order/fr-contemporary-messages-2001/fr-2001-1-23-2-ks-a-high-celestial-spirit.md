@@ -13,7 +13,7 @@ Esprit Céleste Elevé - reçu par Kathryn Stokes le 23 Janvier 2001, Santa Cruz
 
 Nous sommes ici maintenant pour écrire et nous venons en réponse à votre appel – un désir sincère d’aider vos semblables à la recherche de la vérité, de l’amour et de l’assistance dans les luttes de leur vie terrestre. La raison pour laquelle je dis « nous » est que nous venons rarement seuls pour écrire, pour plusieurs raisons. Nous nous renforçons les uns les autres, nous nous protégeons davantage des influences négatives qui abondent sur le plan terrestre et nous pouvons compter les uns sur les autres pour obtenir des informations qui peuvent être utiles pour répondre aux questions posées.
 
-*[T____ veut savoir comment aider quelqu’un qui est tourmenté par des esprits intrusifs et négatifs. Et W____ cherche des conseils sur la façon de discerner la « bonté » de l’esprit qu’il sent présent avec lui.}*
+*[T____ veut savoir comment aider quelqu’un qui est tourmenté par des esprits intrusifs et négatifs. Et W____ cherche des conseils sur la façon de discerner la « bonté » de l’esprit qu’il sent présent avec lui.]*
 
 Je suis l’un de vos tuteurs Célestes, et je suis heureux que vous ayez choisi d’être utilisé comme un instrument pour notre communication, car sans votre volonté de servir de cette manière, nous serions impuissants à agir. Nous pouvons utiliser le transfert de pensée et nous le faisons ; nous intervenons pour aider nos protégés, dans la mesure où ils nous le permettent, mais nous ne pouvons pas nous imposer à eux contre leur volonté.
 

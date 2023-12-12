@@ -30,4 +30,3 @@ Ma sympathie pour mon peuple s’est donc accrue, au point que, lorsque j’ai v
 Je suis heureux de l’accueil que vous avez réservé à mes pensées.
 
 Amitiés, Moïse.
-

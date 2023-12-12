@@ -13,7 +13,7 @@ Seretta Kem - reçu par Al Fike le 24 Septembre 2017, Gibsons, Colombie-Britanni
 
 Nous continuons à vous préparer, chacun, même ceux qui sont en voyage. Nous continuons à travailler avec vous et à vous encourager à amener les conditions de votre âme à un endroit plus élevé, à un niveau plus élevé. Alors que vous continuez à prier pour l'Amour du Père, le Père déverse Son amour en vous et vous assiste dans vos efforts pour éliminer les obstacles et les conditions qui peuvent entraver vos efforts pour la Voix Directe.
 
-Oui, il y a beaucoup de préparation à faire. Nous utilisons également cet instrument pour apporter des enseignements en ce moment, car lorsque votre travail commencera, il y aura peu de temps pour ce genre de communications. Vous vous concentrerez sur la tâche à accomplir. Vous allez beaucoup voyager. Vous rencontrerez beaucoup, beaucoup d'âmes dans ce monde qui seront curieuses et intriguées. 
+Oui, il y a beaucoup de préparation à faire. Nous utilisons également cet instrument pour apporter des enseignements en ce moment, car lorsque votre travail commencera, il y aura peu de temps pour ce genre de communications. Vous vous concentrerez sur la tâche à accomplir. Vous allez beaucoup voyager. Vous rencontrerez beaucoup, beaucoup d'âmes dans ce monde qui seront curieuses et intriguées.
 
 Certaines auront un désir profond de connaître ces vérités, car elles seront inspirées par les dons que vous portez et l'amour que vous avez dans vos âmes. Oui, votre vie est sur le point de changer, mes bien-aimés. Cela exige un engagement profond, une compréhension profonde de ce que vous avez entrepris dans ce voyage, ce voyage pour apporter la Vérité à l'humanité.
 

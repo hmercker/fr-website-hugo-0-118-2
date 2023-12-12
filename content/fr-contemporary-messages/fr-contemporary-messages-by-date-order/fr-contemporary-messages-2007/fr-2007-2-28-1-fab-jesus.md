@@ -9,7 +9,7 @@ weight:
 ---
 ### Les concepts de justice et d’amour
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-religion-3452582_1280.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-religion-3452582_1280.jpg)
 
 Jésus - reçu par FAB le 28 Février 2007, Santa Cruz, Californie, USA.
 

@@ -41,13 +41,13 @@ C’est lorsque tu rencontres des messages tels que ceux que je viens de décrir
 
 C’est alors que tu peux prendre position afin que ton silence ne puisse être interprété comme un consentement. Le Mal crie toujours haut et fort, et les voix d’opposition sont peu nombreuses et faibles. Jésus n’aimait pas critiquer, mais quand il le fallait, il n’hésitait pas à le faire :
 
-> *Damnés soient les pharisiens ! Ils sont comme un chien qui dort dans la mangeoire des bœufs : le chien ne mange ni ne laisse les bœufs manger. »* [Évangile de Thomas 102](https://livres-mystiques.com/partieTEXTES/Apocryphes/Thomas.html)
+> Damnés soient les pharisiens ! Ils sont comme un chien qui dort dans la mangeoire des bœufs : le chien ne mange ni ne laisse les bœufs manger. - [Évangile de Thomas 102](https://livres-mystiques.com/partieTEXTES/Apocryphes/Thomas.html)
 <br>
 <br>
-> *Malheur à vous, scribes et pharisiens hypocrites ! Parce que vous fermez aux hommes le royaume des cieux; vous n’y entrez pas vous-mêmes, et vous n’y laissez pas entrer ceux qui veulent entrer.*[Matthieu 23:13](https://saintebible.com/matthew/23-13.htm)
+> Malheur à vous, scribes et pharisiens hypocrites ! Parce que vous fermez aux hommes le royaume des cieux; vous n’y entrez pas vous-mêmes, et vous n’y laissez pas entrer ceux qui veulent entrer. - [Matthieu 23:13](https://saintebible.com/matthew/23-13.htm)
 <br>
 <br>
-> Malheur à vous, docteurs de la loi ! Parce-que vous avez enlevé la clef de la connaissance.  Vous n’êtes pas entrés vous-mêmes, et vous avez empêché d’entrer ceux qui le voulaient ! [Luc 11:52](https://saintebible.com/luke/11-52.htm)
+> Malheur à vous, docteurs de la loi ! Parce-que vous avez enlevé la clef de la connaissance.  Vous n’êtes pas entrés vous-mêmes, et vous avez empêché d’entrer ceux qui le voulaient ! - [Luc 11:52](https://saintebible.com/luke/11-52.htm)
 
 C’est vrai. Ils ne mangent ni ne laissent les bœufs manger.
 

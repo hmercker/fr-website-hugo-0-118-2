@@ -49,9 +49,9 @@ Il y a plusieurs façons, en fonction des goûts et des commodités, de bien mé
 
 Tu es l’un de ces intellectuels qui ont besoin de preuve pour tout. Mais ne t’inquiète pas, ce n’est pas mauvais, continue juste de cette façon. C’est une façon légitime d’approcher la vérité. Ce n’est pas la manière la plus facile, ni la manière la plus rapide, mais elle est légitime. Réfléchis y bien, ceux qui croient sans nécessité de preuve ont la même connaissance d’âme. C’est ce que la foi est, il n’y a aucune nécessité d’ajuster leur mental matériel à cette connaissance profonde et absolue. Dans ton cas, le conflit entre l’esprit et l’âme se poursuit, mais tu ne te rends pas compte que ton esprit perd du terrain tous les jours.
 
-Maintenant, alors que  je suis sur le point de te quitter, je tiens à te dire que j’aime bien la façon dont tu as dessiné mon portrait. J’étais un peu plus mince, mais c’est une bonne image. Merci. Tu as également reçu une vision d’André. Peut-être pourras-tu, un jour, [peindre une galerie de portraits de tous les apôtres?](/3-fr-judas-of-kerioth-messages/fr-portraits-of-the-apostel/) Ce serait certainement très attrayant.
+Maintenant, alors que  je suis sur le point de te quitter, je tiens à te dire que j’aime bien la façon dont tu as dessiné mon portrait. J’étais un peu plus mince, mais c’est une bonne image. Merci. Tu as également reçu une vision d’André. Peut-être pourras-tu, un jour, [peindre une galerie de portraits de tous les apôtres?](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/) Ce serait certainement très attrayant.
 
-![](/3-fr-judas-of-kerioth-messages/fr-judas.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-judas.jpg)
 
 Judas de Kérioth
 

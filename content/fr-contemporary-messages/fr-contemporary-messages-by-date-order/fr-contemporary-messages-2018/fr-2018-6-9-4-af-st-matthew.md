@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L'âme aspire au contact de Dieu - Retraite F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
+### L'âme aspire au contact de Dieu - Retraite F.U.S.C. <sup id="a1">[1](#f1)</sup>
 
 St Matthieu - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
@@ -28,4 +28,4 @@ Comme l’a dit le Maître Jésus : « Cherchez ceci, le royaume, et toutes chos
 Frappez, et la porte s’ouvrira. Soyez avec Dieu et vous trouverez votre chemin et arriverez à connaître toutes les réponses que vous cherchez, toutes les bénédictions qui peuvent venir, toute la lumière qui est possible grâce au pouvoir du Toucher Divin sur vous. En effet, que Dieu vous bénisse, mes bien-aimés, et que vous parveniez à connaître cette joie profonde, ce désir fervent et cette paix parfaite qui vous attendent. Que Dieu vous bénisse, je suis Matthieu et mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)

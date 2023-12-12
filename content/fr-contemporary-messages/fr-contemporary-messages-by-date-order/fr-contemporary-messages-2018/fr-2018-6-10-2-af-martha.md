@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Permettez à Dieu de travailler à travers cette église - F.U.S.C. <sup id=”a1”>[1](#f1)</sup>
+### Permettez à Dieu de travailler à travers cette église - F.U.S.C. <sup id="a1">[1](#f1)</sup>
 
 Martha - reçu par Al Fike le 10 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
@@ -24,4 +24,4 @@ Cherchez ce qui est le plus élevé. Cherchez à être fidèles à votre propre 
 Que Dieu vous bénisse à chaque pas que vous faites, qu’il vous inspire ses plans, ses intentions, et que vous acceptiez volontiers et humblement l’invitation à servir de cette manière. Vous verrez que cette petite église attirera beaucoup, beaucoup d’âmes qui cherchent des réponses, qui cherchent la communion, qui désirent être dans la Lumière. Que Dieu vous bénisse mes amis, je suis Martha. Mon amour est avec vous et mes prières continuent d’être pour vous tous. Que Dieu vous bénisse, je vous aime.
 <small>
 
-1. <large id=”f1”> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)

@@ -17,10 +17,10 @@ Bonjour, mon cher H____ . Je voudrais utiliser mon premier message de la nouvell
 
 D____ a écrit ce qui suit :
 
-> *Je comprends que James Padgett a précisé qu’il n’y a aucun « peuple choisi » dans le  sens que Dieu aurait des favoris. Pourtant, il semble que les messages de James Padgett supportent clairement la notion admise que la venue de Jésus avait été prophétisée par le peuple Juif durant des siècles avant sa naissance. Et, sous cet angle, si nous remontons dans le temps, nous pouvons conclure que Dieu faisait des « préparatifs » pour l’arrivée de Jésus dès le roi David. A partir de là, il est facile de conclure que le but de la « première alliance » avec Abraham était de préparer la voie à la venue du Messie. Ainsi, Dieu a « choisi » les Juifs pour être les hôtes de son Messie. Du moins c’est ce que, jusqu’à présent. je pense.*
+> Je comprends que James Padgett a précisé qu’il n’y a aucun « peuple choisi » dans le  sens que Dieu aurait des favoris. Pourtant, il semble que les messages de James Padgett supportent clairement la notion admise que la venue de Jésus avait été prophétisée par le peuple Juif durant des siècles avant sa naissance. Et, sous cet angle, si nous remontons dans le temps, nous pouvons conclure que Dieu faisait des « préparatifs » pour l’arrivée de Jésus dès le roi David. A partir de là, il est facile de conclure que le but de la « première alliance » avec Abraham était de préparer la voie à la venue du Messie. Ainsi, Dieu a « choisi » les Juifs pour être les hôtes de son Messie. Du moins c’est ce que, jusqu’à présent. je pense.
 <br>
 <br>
-> *En ce sens, oui, Dieu aurait pu choisir les Indiens comme destinataires du Messie, mais il aurait dû, également commencer à les préparer 2 000 ans plus tôt. Du moins c’est ma théorie…*
+> En ce sens, oui, Dieu aurait pu choisir les Indiens comme destinataires du Messie, mais il aurait dû, également commencer à les préparer 2 000 ans plus tôt. Du moins c’est ma théorie…
 
 Mon cher D____ , tes pensées sont très logiques. Toutefois, le problème semble être un problème de définition.
 
@@ -58,7 +58,7 @@ Je pourrais continuer encore et encore, donnant des exemples, même dans les éc
 
 Alors, je te demande : Était-il possible que le Messie puisse naître en Inde ou en Iran ? La réponse est certainement « Oui ». Néanmoins, tu pourrais répondre qu’il y a tant de prophéties indiquant que le Messie naîtrait des Juifs. Et ici, je tiens à te rappeler que ces prophéties ne sont pas si claires. Un bon exemple peut-être trouvé dans le message que le [Dr Samuels a reçu](/fr-samuels-messages/fr-sermons/fr-ser-37-1960-7-29-samuels-jesus/) sur la prophétie contenue dans le cinquième chapitre de Michée :
 
-> *Et toi, Bethléem Ephrata, Petite entre les milliers de Juda, De toi sortira pour moi Celui qui dominera sur Israël.*
+> Et toi, Bethléem Ephrata, Petite entre les milliers de Juda, De toi sortira pour moi Celui qui dominera sur Israël.
 
 Même sans la venue de Jésus, cette prophétie aurait été accomplie par le biais d’Ézéchias. Les prophéties messianiques, en général, ont un double sens, se référant à plusieurs événements, et elles ne sont pas si claires. Si c’était le cas, elles auraient été universellement acceptées, n’est-ce pas ?
 

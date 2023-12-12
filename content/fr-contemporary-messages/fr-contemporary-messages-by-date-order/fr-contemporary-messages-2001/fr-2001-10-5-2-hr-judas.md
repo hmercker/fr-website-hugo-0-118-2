@@ -15,13 +15,13 @@ Bonjour, mon cher frère. Ne me dis pas que tu es surpris, parce que tu voulais 
 
 Oui, je n’ai pas oublié les questions, et je vais répondre à toutes, en temps voulu. Je me souviens non seulement de ces questions, mais aussi de bon nombre de sujets que j’ai moi-même esquissés sans toutefois entrer dans les détails. Toutefois, nous ne pouvons pas tout traiter en une fois. Étape par étape, le Royaume de Dieu est construit, et étape par étape, nous donnerons l’information.
 
-Le premier sujet dont je voudrais traiter aujourd’hui est celui du suicide. Ton ami R____ a demandé : *« Qu’en est-il du docteur Kevorkian et de la façon dont il a aidé ceux qui avaient  des maladies graves ? Il leur a donné une injection et ils sont passés à la prochaine vie. S’agit d’un péché pour chaque personne impliquée ? »*
+Le premier sujet dont je voudrais traiter aujourd’hui est celui du suicide. Ton ami R____ a demandé : *« Qu’en est-il du docteur Kevorkian et de la façon dont il a aidé ceux qui avaient des maladies graves ? Il leur a donné une injection et ils sont passés à la prochaine vie. S’agit d’un péché pour chaque personne impliquée ? »*
 
 Mon cher R____ , je comprends très bien que, étant donné que toutes ces personnes malades étaient en phase terminale de leur vie, il est facile de dire que ce qu’a  fait le médecin en question, n’est, en fait, pas un meurtre, et que si la personne malade décide d’abréger sa vie de quelques heures ou de quelques jours, cela ne constitue pas, non plus, un grave problème moral. Puisque, en fait, le docteur n’a pas appliqué les injections lui-même, mais il a, seulement, donné aux personnes malades la capacité de déclencher un mécanisme simple, afin de commencer l’écoulement du poison dans leur sang, mettant, de ce fait, un terme à leur vie. La question est donc : *« Est-il permis de raccourcir sa propre vie, quand on souffre d’une maladie terminale, et est-il possible, pour une autre personne, de faciliter cette forme de suicide ? »*
 
 La première chose que je voudrais faire est de rappeler à vous tous que la loi de Compensation (Loi de l’indemnisation) ne s’applique pas sur des actions isolées, mais sur l’état général des âmes du peuple, car les actes sont la conséquence de cette condition. Notre comportement est le reflet de nos âmes.
 
-Ensuite, je tiens à ajouter que jamais, absolument jamais, il est justifié d’appeler, harmonieuse, une action qui met fin à la vie, que ce soit sa propre vie, ou la vie de quelqu’un d’autre<sup id="a1">[1](#f1)</sup>.
+Ensuite, je tiens à ajouter que jamais, absolument jamais, il est justifié d’appeler, harmonieuse, une action qui met fin à la vie, que ce soit sa propre vie, ou la vie de quelqu’un d’autre <sup id="a1">[1](#f1)</sup>.
 
 Comme je l’ai dit, je comprends qu’il y a des situations extrêmes de douleur et de souffrance, de désespoir et d’angoisse, qui amènent les gens à penser que, dans une telle situation, il est en effet justifié de raccourcir la vie. Mais en fait, ce n’est pas vrai. Dieu a fourni de nombreux mécanismes, physiques aussi bien que spirituels, pour supprimer « l’insupportable » de n’importe quelle condition. Dans le cas particulier de la douleur, tu sais très bien que, même chez les personnes dont l’âme n’est pas très développée, la douleur exerce un effet qui s’appelle phasique-tonique, c’est à dire qu’elle commence avec une grande intensité, puis diminue après quelques instants, même si certains vestiges de la douleur subsistent. Il y a également d’autres mécanismes, médicaments internes au corps, qui enlèvent la sensation de douleur. Et les personnes de haute spiritualité reçoivent plus d’aide. Le développement de leur âme leur donne même le privilège de la non sensation de douleur. Notre travail, à nous les esprits, est non seulement celui de la guérison, mais également d’atténuation, lorsqu’une guérison n’est pas possible.
 
@@ -43,7 +43,7 @@ Et si nous prenons la première lettre de chaque mot, « ICQUS », nous obtenons
 
 Oui, mes pêcheurs d’hommes, c’est une bonne idée. Je pense aussi qu’il est bon de trouver quelque chose comme un logo ou une marque pour un mouvement en général.
 
-C’est tout ce que je tiens à dire à ce sujet<sup id="a2">[2](#f2)</sup>.
+C’est tout ce que je tiens à dire à ce sujet <sup id="a2">[2](#f2)</sup>.
 
 Prie et demande des réponses, et tu les recevras toujours. Laisse-toi guider et fais plus confiance à ce que tu perçois.
 

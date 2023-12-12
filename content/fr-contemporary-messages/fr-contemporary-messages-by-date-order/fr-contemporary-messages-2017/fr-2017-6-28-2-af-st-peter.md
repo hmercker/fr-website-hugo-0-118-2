@@ -9,7 +9,7 @@ weight:
 ---
 ### La lumière et l’Amour de Dieu
 
-St Pierre - reçu par Al Fike le 28 Juin 2017, FUSC<sup id=”a1”>[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada
+St Pierre - reçu par Al Fike le 28 Juin 2017, FUSC <sup id="a1">[1](#f1)</sup>, Burnaby, Colombie-Britannique, Canada
 
 C’est moi, Pierre. L’amour de Dieu vous entoure en ce moment. Je vous exhorte à le boire profondément en vous. Ouvrez-vous à cette grande bénédiction, ce Toucher. Il vient avec la paix et la grâce, la guérison et le confort, la Lumière et la Vérité. C’est ce que vous recherchez tous, mes bien-aimés. Vous cherchez à être nourris par Dieu. Vous cherchez à apaiser vos âmes, à être dans cette Lumière, à être éveillés à la gloire de Dieu.
 

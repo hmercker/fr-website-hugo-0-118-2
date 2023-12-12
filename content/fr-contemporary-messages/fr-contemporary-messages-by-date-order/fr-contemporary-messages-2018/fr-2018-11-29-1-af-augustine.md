@@ -11,7 +11,7 @@ weight:
 
 Augustin - reçu par Al Fike le 29 Novembre 2018, Fitzroy Falls, NSW, Australie.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-eveil-spirituel8.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-eveil-spirituel8.jpg)
 
 Je suis Augustin. Vous ne connaissez pas de véritable adversité, mes bien-aimés. Votre vie est bien isolée de la véritable adversité. Vous ne manquez de rien. Vous avez tout ce qu’il vous faut pour être dans la grâce de Dieu. Vous êtes à l’aise dans votre vie. Bien qu’il y ait des imperfections, des difficultés et des défis, comparé à beaucoup d’autres dans votre monde, vous vivez une vie idéale. Parfois, nous qui sommes en charge de votre progression, de votre travail et de l’éveil de votre âme, nous nous inquiétons de ce que, lorsque la véritable adversité se présentera à vous, vous soyez suffisamment forts pour résister aux assauts du monde chaotique dans lequel vous vivez.
 

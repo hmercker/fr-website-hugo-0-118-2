@@ -11,7 +11,7 @@ weight:
 
 Sigmund Freud - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
-Bonjour, je suis Sigmund Freud. Oh combien je me suis trompé dans mes estimations de l'humanité. 
+Bonjour, je suis Sigmund Freud. Oh combien je me suis trompé dans mes estimations de l'humanité.
 
 Comment j'ai essayé de disséquer les personnalités humaines. Oui, certains bénéfices sont venus de mes recherches et de mes découvertes, mais à bien des égards, j'ai fait plus de mal que de bien. Je regrette beaucoup de choses. Mais maintenant, je souhaite corriger ces erreurs. Si j'ai une place dans votre travail, je travaillerai avec diligence pour aider à apporter une plus grande Lumière à l'humanité, pour éclairer vos frères et sœurs.
 

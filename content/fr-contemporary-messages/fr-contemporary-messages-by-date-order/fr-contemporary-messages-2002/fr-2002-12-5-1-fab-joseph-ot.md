@@ -31,4 +31,4 @@ Il est possible de soutenir que l’anxiété provient d’une sorte de déséqu
 
 Cette situation malheureuse s’est produite chez vous dans les années 1960 – elle était incontrôlable, et vous ne voyiez donc aucun moyen de sortir de votre détresse, car vous ne voyiez aucune raison valable de changer d’attitude – c’était, en ce qui vous concernait, « la vie est ainsi faite ». Avec la croissance et la maturité, vous avez appris qu’il y a amplement de raisons de penser à une vie sans anxiété. Ainsi, votre anxiété a diminué en proportion du renforcement de votre foi et de votre attitude positive.
 
-***Note :*** *Le médium est Juif et fait confiance aux messages de James Padgett. Beaucoup de parents de sa mère sont morts dans l’holocauste nazi.*
+**Note :** Le médium est Juif et fait confiance aux messages de James Padgett. Beaucoup de parents de sa mère sont morts dans l’holocauste nazi.

@@ -25,4 +25,4 @@ En ce qui concerne les pensées et leur relation avec l’émotion. Elles ne son
 
 Je suis Judas, Dieu vous bénit et nous sommes heureux que vous vous penchiez sur ces questions avec un profond intérêt et une volonté de partager et d’apprendre. Nous allons tenter de répondre à ces questions dans la mesure où cet instrument est en état de le faire. Ne cessez pas de poser des questions, car c’est une voie de plus vers la croissance de l’âme. La connaissance vous apporte la force. L’amour vous apporte la paix et la joie. Ensemble, ils forment un canal magnifique et efficace pour l’amour et la vérité de Dieu. Je vous aime comme tant d’autres. Que Dieu vous bénisse.
 
-***Note :*** *Un autre excellent message sur ce sujet a été reçu par un autre médium le [jour suivant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-1-jr-richard/).*
+**Note :** Un autre excellent message sur ce sujet a été reçu par un autre médium le [jour suivant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-1-jr-richard/).

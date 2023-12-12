@@ -19,7 +19,7 @@ Un jour, au cours d’un sermon sur le thème de la justice, le Maître a prése
 
 Jésus a dit:
 
-> Un homme riche avait un économe, qui lui fut dénoncé comme dissipant ses biens. Alors, il l’appela et dit: *« Qu’est-ce que j’entends dire de toi ? Rends compte de ton administration, car tu ne pourras plus administrer mes biens. »*
+> Un homme riche avait un économe, qui lui fut dénoncé comme dissipant ses biens. Alors, il l’appela et dit: *« Qu’est-ce que j’entends dire de toi ? Rends compte de ton administration, car tu ne pourras plus administrer mes biens.
 <br>
 <br>
 > Jusqu’à présent, nous ne savons pas si cette accusation est justifiée ou fausse, mais il est clair que le gestionnaire a vraiment craint pour son travail.
@@ -61,7 +61,7 @@ Les paysans et les commerçants, qui ont écouté le discours de Jésus, ont tr�
 
 Et Jésus continua :
 
-> *Maintenant, le maître a fait l’éloge de cet administrateur infidèle parce qu’il avait agi très prudemment. Parce que les enfants de ce siècle sont plus prudents à l’égard de leurs semblables que ne le sont les enfants de la lumière.*
+> Maintenant, le maître a fait l’éloge de cet administrateur infidèle parce qu’il avait agi très prudemment. Parce que les enfants de ce siècle sont plus prudents à l’égard de leurs semblables que ne le sont les enfants de la lumière.
 
 Cette phrase est apparemment énigmatique. Elle n’est pas communément comprise. Comment le propriétaire peut-il louer un administrateur injuste, celui qui lui avait causé des torts ? Eh bien, parce qu’en fait, il ne lui a pas causé de torts, il a simplement réduit le montant de l’usure interdite par la loi. Par conséquent, il s’est fait des amis avec les pauvres, avec qui il devrait vivre à l’avenir, et son maître ne pouvait pas le poursuivre en justice. Cette ruse a provoqué l’admiration du propriétaire.
 
@@ -69,9 +69,9 @@ Ici, il est utile d’indiquer un autre détail : Le texte grec ne parle pas lit
 
 Maintenant, qui sont les enfants de la lumière ? C’est la dénomination que les Esséniens se donnaient. Ils vivaient, en général, dans des communautés fermées et isolées, sans beaucoup de contacts avec leurs voisins, sans partager leur spiritualité, sans se soucier des autres, et sans pouvoir rien attendre en retour de leurs voisins.
 
-> *Et moi, je vous dis : Faites-vous des amis avec les richesses injustes, pour qu’ils vous reçoivent dans les tabernacles éternels, quand elles viendront à vous manquer.*
+> Et moi, je vous dis : Faites-vous des amis avec les richesses injustes, pour qu’ils vous reçoivent dans les tabernacles éternels, quand elles viendront à vous manquer.
 
-Cette phrase est également très controversée. Que signifie-elle ? Exactement ce que l’administrateur a fait : réduire les dettes, afin d’alléger la vie des pauvres. Ne pas charger excessivement, et, si ce n’était pas le cas, restituer l’argent réclamé en excès. Ceci est un avertissement tout à fait moderne, ne penses-tu pas?  Jésus ne parlait pas de « maisons », mais de cabanes, de huttes misérables, où les pauvres vivaient. Parce que la richesse ne dure pas éternellement, et quand cela se produit, les pauvres les accueilleront dans leurs maisons, qui elles durent. Parce que, comme tu le sais très bien, l’adjectif qui est communément traduit par « éternel », signifie en fait « durable », « qui persiste pendant un certain temps ».<sup id="a1">[1](#f1)</sup>
+Cette phrase est également très controversée. Que signifie-elle ? Exactement ce que l’administrateur a fait : réduire les dettes, afin d’alléger la vie des pauvres. Ne pas charger excessivement, et, si ce n’était pas le cas, restituer l’argent réclamé en excès. Ceci est un avertissement tout à fait moderne, ne penses-tu pas?  Jésus ne parlait pas de « maisons », mais de cabanes, de huttes misérables, où les pauvres vivaient. Parce que la richesse ne dure pas éternellement, et quand cela se produit, les pauvres les accueilleront dans leurs maisons, qui elles durent. Parce que, comme tu le sais très bien, l’adjectif qui est communément traduit par « éternel », signifie en fait « durable », « qui persiste pendant un certain temps ». <sup id="a1">[1](#f1)</sup>
 
 Ultérieurement, certains responsables de l’église jugèrent les paroles du Maître inappropriées et ils essayèrent de les changer. Il existe encore des manuscrits où nous pouvons voir que le verbe a été manipulé dans ce passage, il y est écrit : « De sorte que lorsque vous viendrez à votre fin, ils pourront vous accueillir dans les maisons de l’éternité », décalant la critique sociale (qui aurait pu être utilisée
 
@@ -79,7 +79,7 @@ contre l’église féodale) à l’au-delà.
 
 Et Jésus a dit :
 
-> *Celui qui est fidèle dans les moindres choses l’est aussi dans les grandes, et celui qui est injuste dans les moindres choses l’est aussi dans les grandes.… Si donc vous n’avez pas été fidèles dans les richesses injustes, qui vous confiera les véritables ? Et si vous n’avez pas été fidèles dans ce qui est à autrui, qui vous donnera ce qui est à vous ? Nul serviteur ne peut servir deux maîtres. Car, ou il haïra l’un et aimera l’autre; ou il s’attachera à l’un et méprisera l’autre. Vous ne pouvez servir Dieu et le pouvoir de l’argent en même temps.*
+> Celui qui est fidèle dans les moindres choses l’est aussi dans les grandes, et celui qui est injuste dans les moindres choses l’est aussi dans les grandes.… Si donc vous n’avez pas été fidèles dans les richesses injustes, qui vous confiera les véritables ? Et si vous n’avez pas été fidèles dans ce qui est à autrui, qui vous donnera ce qui est à vous ? Nul serviteur ne peut servir deux maîtres. Car, ou il haïra l’un et aimera l’autre; ou il s’attachera à l’un et méprisera l’autre. Vous ne pouvez servir Dieu et le pouvoir de l’argent en même temps.
 
 Cela n’a pas besoin de commentaire.
 

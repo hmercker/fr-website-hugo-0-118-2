@@ -9,11 +9,11 @@ weight:
 ---
 ### La simplicité de la vérité
 
-Bertrand Russell<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 24 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Bertrand Russell <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 24 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je suis Bertrand Russell. Je fus un philosophe à mon époque. Je me suis rendu compte que tant de mes pensées et tant de constructions de mon esprit n'étaient pas productives pour la découverte de mon âme. Je souhaite donc venir et parler de la simplicité de la Vérité plutôt que de la complexité de l'esprit.
 
-Faire émerger le pouvoir de l'âme dans votre monde est ce qui doit se produire pour parvenir à une profonde conscience de l'âme. Le génie de l'âme, si vous voulez, est ce qui manque dans votre monde. 
+Faire émerger le pouvoir de l'âme dans votre monde est ce qui doit se produire pour parvenir à une profonde conscience de l'âme. Le génie de l'âme, si vous voulez, est ce qui manque dans votre monde.
 
 Tant de personnes ne se fient qu'à leur esprit et se retrouvent dans des endroits sombres, contrevenant aux lois de la Création et aux lois de Dieu. Ainsi, ceux d'entre nous qui ont découvert le fonctionnement de l'âme, avec la beauté de Son Amour qui allume tant de Vérités et de compréhensions, ont le désir de partager cette Vérité avec l'humanité. Nous devons tous travailler dans ce sens, car le temps presse et l'humanité continue à se diriger vers l'obscurité, la confusion et le chaos. Nous devons tous travailler dur, travailler avec diligence pour apporter cette Vérité à l'humanité de toutes les manières possibles.
 

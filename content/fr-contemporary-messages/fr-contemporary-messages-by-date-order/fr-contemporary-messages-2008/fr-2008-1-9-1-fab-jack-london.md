@@ -24,8 +24,8 @@ Cette réaction se manifeste sous différentes configurations. Ainsi, par exempl
 Cette loi est parfois perçue par les mortels comme travaillant trop lentement, voire pas du tout. Mais en dépit du laps de temps, la loi fonctionne – en effet, elle doit, étant donné que la définition d’une loi, c’est quelle doit fonctionner conformément à sa propre nature donnée par le créateur.
 
 Mon opinion est que CETTE LOI MORALE EST INÉVITABLE, et il serait bon pour tous les mortels de comprendre cette loi et ses conséquences inévitables. Et permettez-moi d’ajouter que si les gens sont ignorants de la présente loi, cela ne fait aucune différence, parce qu’elle va tout de même fonctionner.
+
+**Note :** Un [message ultérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) explique le nom correct de la Loi Morale.
 <small>
 
-1. <large id="f1"> Jack London (12 Janvier 1876 – 22 Novembre 1916), est un écrivain Américain qui a écrit *« l’appel de la forêt »* et d’autres livres. Un pionnier dans le monde alors grandissant des magazines de  fiction commerciale, il fut un des premiers américains à faire une carrière lucrative exclusivement par l’écriture. (Source : Wikipédia)[↩](#a1)
-
-***Note :*** *Un [message ultérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) explique le nom correct de la Loi Morale.*
+1. <large id="f1"> **Jack London** (12 Janvier 1876 – 22 Novembre 1916), est un écrivain Américain qui a écrit *« l’appel de la forêt »* et d’autres livres. Un pionnier dans le monde alors grandissant des magazines de  fiction commerciale, il fut un des premiers américains à faire une carrière lucrative exclusivement par l’écriture. (Source : Wikipédia)[↩](#a1)

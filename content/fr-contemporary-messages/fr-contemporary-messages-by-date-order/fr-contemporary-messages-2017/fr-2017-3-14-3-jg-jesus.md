@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jane Gartshore le 14 Mars 2017
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-tree-736885_orig.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-tree-736885_orig.jpg)
 
 Recherchez l'amour de Dieu par-dessus tout. Il est devant vous, à portée de main. Ne pensez pas que vous devez le mériter. Vous n'avez qu'à demander que cela vous soit donné et ce sera le cas. Ne crains pas Dieu. Il est amour. Et Il vous inculquera cet amour en quantités toujours plus grandes si vous le demandez et permettez son influence bienveillante.
 

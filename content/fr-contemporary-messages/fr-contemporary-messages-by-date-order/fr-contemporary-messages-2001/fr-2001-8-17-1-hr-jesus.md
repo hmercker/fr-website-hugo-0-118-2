@@ -43,10 +43,10 @@ Réfléchis à tout ceci, écoute -moi, et que Dieu vous bénisse tous.
 
 Jésus.
 
-<u>Remarque</u> : Une cautre ommunication lus claire sur cette question a été reçue par un autre médium de l'Amour Divin 
+**Remarque :** Une cautre ommunication lus claire sur cette question a été reçue par un autre médium de l'Amour Divin
 
-> *« À mesure que vous tracez ce chemin entre vous et Dieu, Sa Volonté devient évidente. Elle n’est ni masquée ni étouffée par la condition humaine ou par vos propres entreprises conscientes. Au contraire, à mesure que vous mettez de côté ces choses de votre esprit, le canal vers Dieu s’ouvre, ainsi la conscience consciente de la présence de Dieu et du désir de communiquer avec vous devient évidente et facile à obtenir. Cela commence par un murmure, quelque chose de très subtil en effet, mais parfois, Dieu peut vous parler aussi clairement que je le fais aujourd'hui et comme Dieu l'a fait avec moi lorsque je parcourais la Terre. »*
+> À mesure que vous tracez ce chemin entre vous et Dieu, Sa Volonté devient évidente. Elle n’est ni masquée ni étouffée par la condition humaine ou par vos propres entreprises conscientes. Au contraire, à mesure que vous mettez de côté ces choses de votre esprit, le canal vers Dieu s’ouvre, ainsi la conscience consciente de la présence de Dieu et du désir de communiquer avec vous devient évidente et facile à obtenir. Cela commence par un murmure, quelque chose de très subtil en effet, mais parfois, Dieu peut vous parler aussi clairement que je le fais aujourd'hui et comme Dieu l'a fait avec moi lorsque je parcourais la Terre.
 
 Source : message reçu par Al Fike [le 13 Octobre 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-2-af-jesus/)
 
-*© Geoff Cutler 2013*
+© Geoff Cutler 2013

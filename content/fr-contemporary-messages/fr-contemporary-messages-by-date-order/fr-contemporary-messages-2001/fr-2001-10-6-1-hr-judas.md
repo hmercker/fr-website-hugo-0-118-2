@@ -9,7 +9,7 @@ weight:
 ---
 ### La justification de la violence et les âmes sœurs
 
-Judas - reçu par H___  le 6 Octobre 2001, Cuenca, Équateur.
+Judas - reçu par H____ le 6 Octobre 2001, Cuenca, Équateur.
 
 Mon cher frère, tu es très insistant. Alors, je vais répondre à tes questions, bien que plusieurs réponses aient déjà été apportées.
 
@@ -37,17 +37,17 @@ Le thème de la violence est évidemment l’une de ces « plantes vertes », qu
 
 Il y a un autre sujet de ce genre, c'est le sujet des âmes sœurs.
 
-Notre cher D__ pose la question suivante :
+Notre cher D____ pose la question suivante :
 
 *« Y a-t-il, à l'heure actuelle, dans le monde des esprits, des âmes sœurs éternelles, qui furent  toutes deux, par le passé, des hommes, et existe-t-il actuellement, dans le monde des esprits, des âmes sœurs éternelles, qui furent toutes deux, par le passé, des femmes ? »*
 
 Si ces deux propositions sont, en effet, vraies, il semblerait qu'une des deux situations a prévalu sur le plan mortel :
 
-1 - Soit l’âme non encore incarnée avait la particularité d'être composée de deux hommes ou de deux femmes ou :
+1. Soit l’âme non encore incarnée avait la particularité d'être composée de deux hommes ou de deux femmes ou :
 
-2 - Si l’âme non encore incarnée présente toujours une division masculin/féminin, alors le mâle a une âme sœur masculine en dehors de son homologue féminine originelle, et son homologue féminine a une âme sœur féminine en dehors de son homologue masculine originelle.
+2. Si l’âme non encore incarnée présente toujours une division masculin/féminin, alors le mâle a une âme sœur masculine en dehors de son homologue féminine originelle, et son homologue féminine a une âme sœur féminine en dehors de son homologue masculine originelle.
 
-Y a-t-il d'autres possibilités alternatives ? Qui s’appliquent ci-dessus, sinon ? »
+Y a-t-il d'autres possibilités alternatives ? Qui s’appliquent ci-dessus, sinon ?
 
 Tout d’abord je vais répondre : Oui, il y a, à l'heure actuelle, dans le monde des esprits, des âmes sœurs éternelles, qui furent toutes deux, par le passé, des hommes, et il y a également maintenant, dans le monde des esprits, des âmes sœurs éternelles, qui furent toutes deux, par le passé, des femmes. Et tu serais certainement surpris de connaître leur nombre.
 
@@ -74,4 +74,3 @@ Avec mon amour pour vous tous, qui êtes sur le chemin vers le Royaume Céleste 
 Ton frère en Christ,
 
 Judas.
-
