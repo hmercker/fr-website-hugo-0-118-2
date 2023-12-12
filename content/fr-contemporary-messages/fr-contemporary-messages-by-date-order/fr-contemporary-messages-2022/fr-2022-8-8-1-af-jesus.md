@@ -1,13 +1,13 @@
 ---
-title: "Leçon 18 : Surmonter l’immaturité spirituelle de l’humanité. (2022 Le Projet Jésus 3)"
+title: "Leçon 18 : Surmonter l’immaturité spirituelle de l’humanité"
 menu_title: ""
-description: "Leçon 18 : Surmonter l’immaturité spirituelle de l’humanité. (2022 Le Projet Jésus 3)"
+description: "Leçon 18 : Surmonter l’immaturité spirituelle de l’humanité"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True
 weight:
 ---
-### Leçon 18 : Surmonter l’immaturité spirituelle de l’humanité. (2022 Le Projet Jésus 3)
+### Leçon 18 : Surmonter l’immaturité spirituelle de l’humanité
 
 Jésus - reçu par Al Fike le 8 Août 2022, Gibsons, Colombie-Britannique, Canada.
 

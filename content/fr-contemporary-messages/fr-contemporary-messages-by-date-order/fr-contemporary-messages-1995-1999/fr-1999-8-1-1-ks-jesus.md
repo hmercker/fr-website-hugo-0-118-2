@@ -42,6 +42,6 @@ Je vais vous laisser avec mes bénédictions et vous dire que je sens que vous a
 Je suis votre ami et votre frère en Esprit, Jésus de la Bible et Maître des Cieux Célestes.
 <small>
 
-1. <large id="f1"> Le Dr Samuel a confirmé par un autre médium que ses opinions personnelles transparaissaient beaucoup trop souvent dans ses conseils apparents concernant la structure et les règles de l'église.[↩](#a1)
+1. <large id="f1"> Le Dr Samuels a confirmé par un autre médium que ses opinions personnelles transparaissaient beaucoup trop souvent dans ses conseils apparents concernant la structure et les règles de l'église.[↩](#a1)
 
 2. <large id="f2"> Ces désaccords ont conduit à une scission majeure parmi les adeptes de l'Amour Divin, une scission qui subsiste à ce jour.[↩](#a2)

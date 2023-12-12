@@ -21,7 +21,7 @@ S’efforcer de devenir un exemple de l’Amour de Dieu manifesté dans le monde
 
 Les âmes spirituellement évoluées qui ont adopté une position non violente contre l’oppression ont été les plus efficaces pour apporter des changements positifs. Nous reconnaissons que ce choix n’est pas sans risque pour la vie, mais vivre dans la peur et ressentir le besoin de prendre les armes n’est pas le genre de vie que Dieu a voulu pour ses enfants bien-aimés.
 
-Vous pourriez vous efforcer d’adopter l’idée qu’il serait préférable « d’aller à votre récompense » et de vivre une vie paisible et harmonieuse en tant qu’esprit plutôt que de vous quereller, de vous défendre et de vous préoccuper de la façon de survivre dans un endroit non pacifique. Mais pour devenir plus efficaces en apportant un changement plus durable dans le monde, vous pouvez vous fixer des objectifs élevés et maintenir votre dévouement à démontrer la paix, l’amour et l’harmonie en dépit de la méchanceté de vos semblables.
+Vous pourriez vous efforcer d’adopter l’idée qu’il serait préférable *« d’aller à votre récompense »* et de vivre une vie paisible et harmonieuse en tant qu’esprit plutôt que de vous quereller, de vous défendre et de vous préoccuper de la façon de survivre dans un endroit non pacifique. Mais pour devenir plus efficaces en apportant un changement plus durable dans le monde, vous pouvez vous fixer des objectifs élevés et maintenir votre dévouement à démontrer la paix, l’amour et l’harmonie en dépit de la méchanceté de vos semblables.
 
 J’irais même jusqu’à dire que la peine encourue pour prendre les armes en cas de légitime défense est moins lourde que celle que l’agresseur devra payer, mais il y aura néanmoins une peine pour toute forme de guerre.
 

@@ -36,4 +36,4 @@ Je vais vous laisser maintenant, ma chère amie, et vous assurer que je continue
 Je suis votre ami et frère en Christ, Joseph, le père de Jésus et un adepte de ses enseignements sur l’Amour rédempteur de Dieu.
 <small>
 
-1. <large id="f1"> Ce message a des conséquences significatives, car nombreux sont ceux qui croient que Joseph est mort dans l’enfance de Jésus. Deux autres messages y sont reliés, l’un fut communiqué à travers le [Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/), l’autre à travers [Amada Reza](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/).[↩](#a1)
+1. <large id="f1"> Ce message a des conséquences significatives, car nombreux sont ceux qui croient que Joseph est mort alors que Jésus était encore enfant. Deux autres messages y sont reliés, l’un fut communiqué à travers le [Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/), l’autre à travers [Amada Reza](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/).[↩](#a1)

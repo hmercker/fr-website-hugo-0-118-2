@@ -9,7 +9,7 @@ weight:
 ---
 ### Commentaires sur le travail avec les esprits sombres
 
-St Luc - reçu par Eugène Morgan le 15 Avril 1963, Washington, DC, USA.
+St Luc - reçu par Eugène Morgan le 23 Janvier 1935, Washington, DC, USA.
 
 Des millions de personnes ont fait appel à vos services ce soir pour nous permettre de les visualiser. Des millions, au-delà de tout calcul, sont toujours en attente d’obtenir l’aide que vous pouvez leur apporter.
 

@@ -1,13 +1,13 @@
 ---
-title: "Leçon 21 : Les joies profondes de l’éveil de l’âme ! (2022 Le Projet Jésus 3)"
+title: "Leçon 21 : Les joies profondes de l’éveil de l’âme !"
 menu_title: ""
-description: "Leçon 21 : Les joies profondes de l’éveil de l’âme ! (2022 Le Projet Jésus 3)"
+description: "Leçon 21 : Les joies profondes de l’éveil de l’âme !"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True
 weight:
 ---
-### Leçon 21 : Les joies profondes de l’éveil de l’âme ! (2022 Le Projet Jésus 3)
+### Leçon 21 : Les joies profondes de l’éveil de l’âme !
 
 Jésus - reçu par Al Fike le 16 Août 2022, Gibsons, Colombie-Britannique, Canada.
 

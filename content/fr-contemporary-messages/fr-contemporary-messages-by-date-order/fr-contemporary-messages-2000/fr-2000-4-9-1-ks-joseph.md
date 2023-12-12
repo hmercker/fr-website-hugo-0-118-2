@@ -11,7 +11,7 @@ weight:
 
 Joseph - reçu par Kathryn Stokes le 9 Avril 2000, Santa Cruz, Californie, USA.
 
-Comment peut-on prier pour l’Amour Divin sans se sentir faux ? Est-ce qu’on devient immortel quand on reçoit de l’Amour Divin ou quand on se transforme en « Christ » en réalisant son potentiel de devenir une âme divine en priant, en cherchant avec des désirs sincères, en suivant la voie que Jésus a enseignée pour devenir un avec Dieu, le Père, le Créateur de nos âmes ?
+Comment peut-on prier pour l’Amour Divin sans se sentir faux ? Est-ce qu’on devient immortel lorsque'on reçoit de l’Amour Divin ou lorsqu'on on se transforme en « Christ » en réalisant son potentiel de devenir une âme divine en priant, en cherchant avec des désirs sincères, en suivant la voie que Jésus a enseignée pour devenir un avec Dieu, le Père, le Créateur de nos âmes ?
 
 *[En réponse à la première question.]*
 
@@ -21,7 +21,7 @@ Les individus plus orientés matériellement croient que c’est à eux de faire
 
 Vous dites que vous savez que Dieu est Amour et qu’Il veut que Ses enfants viennent à Lui dans la foi et l’humilité comme un enfant et Lui demandent Son aide, qu’Il veut que vous dépendiez de Lui pour être là pour vous, mais vous « pensez » que vous êtes égoïste en voulant ce don le plus merveilleux. Ne voyez-vous pas qu’il y a une erreur dans votre façon de penser alors que c’est ce que Dieu veut pour vous, par-dessus tout, et c’est ce que votre âme veut et a besoin pour s’épanouir ? Vous devriez faire un grand effort pour mettre de côté les doutes et les limitations de votre mental et continuer à tenter l’expérience de croire qu’il existe un don transformateur qui peut vous amener à une meilleure harmonie.
 
-Essayez la technique de programmation. « Je crois vraiment qu’il existe un Dieu aimant qui a créé mon âme à son image. Je veux vraiment faire Sa volonté dans ma vie. Je veux réaliser mon potentiel le plus élevé. J’accepte Son Don et je veux le faire mien. » Si votre mental veut encore rejeter ce cadeau privilège, alors peut-être que plus de souffrance est à l’ordre du jour pour vous. Dieu a donné à ses enfants le libre arbitre pour choisir leur chemin dans la vie.
+Essayez la technique de programmation. *« Je crois vraiment qu’il existe un Dieu aimant qui a créé mon âme à son image. Je veux vraiment faire Sa volonté dans ma vie. Je veux réaliser mon potentiel le plus élevé. J’accepte Son Don et je veux le faire mien. »* Si votre mental veut encore rejeter ce cadeau privilège, alors peut-être que plus de souffrance est à l’ordre du jour pour vous. Dieu a donné à ses enfants le libre arbitre pour choisir leur chemin dans la vie.
 
 Luttez avec vous-même, si vous le souhaitez, et même si vous croyez que cela va à l’encontre de vos souhaits, laissez-moi vous assurer que vous possédez le pouvoir et la capacité d’affirmer vos désirs spirituels pour la vérité, peu importe à quel point l’esprit peut être persuasif pour essayer de vous convaincre du contraire. Il y a des esprits de la sphère naturelle qui sont dans la famille depuis des siècles et qui croient fermement que ce qu’ils ont appris et en sont venus à croire est la « plus haute et la meilleure » décision à prendre, et ils essaient de vous éviter de faire une grave erreur en choisissant Dieu (« promesse en l’air »), qui, selon eux, ne vous mènera nulle part.
 

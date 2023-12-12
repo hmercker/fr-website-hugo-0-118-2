@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Révérend Dave Lampron le 7 Mai 1987.
 
-Je suis maintenant ici pour t’écrire, mon cher frère en Christ, et je viens à toi aujourd’hui avec tout mon amour pour toi et pour tous les administrateurs de notre église qui s’efforcent puissamment avec nous, même maintenant, d’apporter les vérités de l’Amour du Père à toute l’humanité. Je suis votre frère en esprit, Jésus, qui est le Maître des Cieux Célestes.
+Je suis maintenant ici pour vous écrire, mon cher frère en Christ, et je viens à vous aujourd’hui avec tout mon amour pour vous et pour tous les administrateurs de notre église qui s’efforcent puissamment avec nous, même maintenant, d’apporter les vérités de l’Amour du Père à toute l’humanité. Je suis votre frère en esprit, Jésus, qui est le Maître des Cieux Célestes.
 
 Aujourd’hui, je souhaite vous transmettre un message d’une certaine importance sur un sujet qui a déjà été abordé, mais qui n’a pas été développé autant qu’il aurait dû l’être. Je parle maintenant du progrès de l’humanité en ce qui concerne sa vie quotidienne.
 

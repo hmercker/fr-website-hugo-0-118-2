@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Jésus répond à des questions sur Rembrant et Marc Chagall, donnant un aperçu de la vie dans le monde des esprits
+### Jésus répond à des questions sur Rembrandt et Marc Chagall, donnant un aperçu de la vie dans le monde des esprits
 
 Jésus - reçu par Kathryn Stokes le 12 Janvier 1997, Santa Cruz, Californie, USA.
 
-*[____ souhaite obtenir des informations sur deux artistes. Il prépare un cours sur ces deux artistes - Rembrant et Marc Chagall - et aimerait, si possible, que le Maître parle de certaines des expériences que ces deux artistes ont eues dans le monde des esprits. ____ écrit : « Rembrandt est-il dans les Cieux Célestes ? Où en est Chagall dans sa progression ? Chagall avait de la sympathie pour le Maître dans la vie mortelle et Rembrandt avait un amour brûlant pour le Maître lorsqu'il était mortel ».*
+*[____ souhaite obtenir des informations sur deux artistes. Il prépare un cours sur ces deux artistes - Rembrandt et Marc Chagall - et aimerait, si possible, que le Maître parle de certaines des expériences que ces deux artistes ont eues dans le monde des esprits. ____ écrit : « Rembrandt est-il dans les Cieux Célestes ? Où en est Chagall dans sa progression ? Chagall avait de la sympathie pour le Maître dans la vie mortelle et Rembrandt avait un amour brûlant pour le Maître lorsqu'il était mortel ».*
 
 *« Serait-il possible que ces artistes me donnent leur avis sur le cours que je veux donner sur eux ? Y a-t-il quelque chose qu'ils voudraient que j'incorpore dans le cours ? Je sais que j'ai mon libre arbitre et que je peux risquer mon opinion et mes réactions à leur égard, mais j'aimerais que ce cours soit particulier et cela signifierait beaucoup pour moi s'ils pouvaient faire des commentaires sur mon futur cours. Je sais que tous deux étaient réticents à partager leur spiritualité personnelle dans leur art, même si leur travail, lorsqu'il est religieux, est spirituel au plus haut degré. »*
 

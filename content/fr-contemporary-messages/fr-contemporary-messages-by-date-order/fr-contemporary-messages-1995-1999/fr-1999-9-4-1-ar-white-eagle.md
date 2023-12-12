@@ -9,11 +9,11 @@ weight:
 ---
 ### Les animaux et l’amour naturel
 
-White Eagle - reçu par Amada Reza le 4 Septembre 1999, Aptos, Californie, USA.
+Aigle Blanc - reçu par Amada Reza le 4 Septembre 1999, Aptos, Californie, USA.
 
 *[Cher Dieu, je prie pour être ouvert à Ton Amour Divin qui remplit mon âme, afin qu’il puisse élever mes pensées à la vérité spirituelle. Je souhaite établir un rapport avec Tes anges célestes afin que la vérité amoureuse soit partagée en réponse à la question de T__. Si c’est Ta volonté, je voudrais agir comme un canal pour la vérité concernant ce qui peut être fait pour aider nos amis les animaux, en particulier les chiens, qui sont abandonnés et emmenés dans les refuges où ils seront « abattus ». Je souhaite être protégé de l’influence des esprits inférieurs et je veux Te servir, Toi et Tes enfants, avec tout mon amour. Je T’aime, mon aimable et généreux Créateur.]*
 
-Message d’Aigle blanc
+**Message d’Aigle blanc**
 
 Je suis Aigle Blanc, et votre frère dans le Christ qui aime et sert notre Maître, Jésus des Cieux Célestes. Je participe au Grand Amour Divin de Dieu et je suis un habitant des Sphères Célestes.
 

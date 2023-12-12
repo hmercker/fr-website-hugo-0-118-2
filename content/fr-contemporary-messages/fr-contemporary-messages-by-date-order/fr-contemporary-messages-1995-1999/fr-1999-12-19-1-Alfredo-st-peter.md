@@ -21,7 +21,7 @@ Très vite, tu auras des manifestations évidentes du développement de ton âme
 
 Dieu te connaît très bien, et Il connaît tes doutes. Penses-tu qu’Il t’abandonnera ? Sans aucun doute, un père n’abandonne jamais Ses enfants.
 
-Ouvrez ton esprit à la réalité, ne doutes jamais de tes facultés, données par Dieu pour faire Sa volonté, et à cause de tes désirs de Lui plaire, le fait sera accru.
+Ouvre ton esprit à la réalité, ne doutes jamais de tes facultés, données par Dieu pour faire Sa volonté, et à cause de tes désirs de Lui plaire, le fait sera accru.
 
 Sois sérieux, tes progrès se feront progressivement. Tu commences à sentir notre présence, mais cette présence n’est pas nouvelle, parce que tu as été préparé pendant longtemps, afin que tu puisses comprendre et accepter ce que tu apprends maintenant.
 

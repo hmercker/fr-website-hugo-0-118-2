@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**
 ---|---|---
-Jésus | [Certaines des doctrines de la « Christian Science » sont erronées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-2-1-jep-jesus/) | 2 Janvier 1917
+Jésus | [Certaines des doctrines de la « Science Chrétienne » sont erronées](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-2-1-jep-jesus/) | 2 Janvier 1917
 Hélène Padgett | [Le Maître a écrit et était anxieux que M. Padgett puisse comprendre son message et son importance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-2-2-jep-helen-padgett/) | 2 Janvier 1917
 Mme Plummer | [Mme Nathan Plummer décrit les conditions dans les ténèbres](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-3-1-jep-mrs-plummer/) | 3 Janvier 1917
 St Luc | [Luc: Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-4-1-jep-st-luke/) | 4 Janvier 1917

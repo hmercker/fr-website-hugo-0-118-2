@@ -1,13 +1,13 @@
 ---
-title: "Sur la guérison, la loi changemenyt et la croissance"
+title: "Sur la guérison, la loi changement et la croissance"
 menu_title: ""
-description: "Sur la guérison, la loi changemenyt et la croissance"
+description: "Sur la guérison, la loi changement et la croissance"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True
 weight:
 ---
-### Sur la guérison, la loi changemenyt et la croissance
+### Sur la guérison, la loi changement et la croissance
 
 Jésus - reçu par Révérend Dave Lampron le 2 Juillet 1987.
 
@@ -25,11 +25,11 @@ Lors de l’assemblée annuelle, j’ai mentionné que je revenais tout juste d�
 
 La croissance dépend des défis relevés et surmontés. C’est la « victoire » qui procure l’augmentation de l’estime de soi et le développement ultérieur de l’âme. Il n’est pas vraiment possible de réaliser de véritables progrès sans relever de tels défis et sans trouver des solutions.
 
-Sur terre, vous savez qu’il en est ainsi lorsqu’il s’agit de se préparer à une activité lucrative. Le processus d’apprentissage est souvent douloureux, car l’apprentissage peut souvent être douloureux. Mais comme le disent si souvent vos jeunes : « On a rien sans peine. » Par là, on entend en fait que la lutte contre les difficultés accroît sa force, tandis que le fait de se retirer des problèmes ne fait que préserver le statu quo ; ou, pire, affaiblit la position qu’une personne peut avoir acquise antérieurement par des efforts fructueux pour affronter et surmonter ses difficultés. Ainsi, en disant tout cela, vous comprendrez peut-être que personne ne devrait craindre les défis de la vie. Car c’est en relevant avec succès de tels défis que nous grandissons et que nous développons plus de force et de caractère. Et, bien sûr, lorsque ces défis deviennent un peu plus grands que ce qu’une personne seule peut affronter avec succès, cette personne peut toujours faire appel aux Forces supérieures pour obtenir l’aide nécessaire.
+Sur terre, vous savez qu’il en est ainsi lorsqu’il s’agit de se préparer à une activité lucrative. Le processus d’apprentissage est souvent douloureux, car l’apprentissage peut souvent être douloureux. Mais comme le disent si souvent vos jeunes : *« On a rien sans peine. »* Par là, on entend en fait que la lutte contre les difficultés accroît sa force, tandis que le fait de se retirer des problèmes ne fait que préserver le statu quo ; ou, pire, affaiblit la position qu’une personne peut avoir acquise antérieurement par des efforts fructueux pour affronter et surmonter ses difficultés. Ainsi, en disant tout cela, vous comprendrez peut-être que personne ne devrait craindre les défis de la vie. Car c’est en relevant avec succès de tels défis que nous grandissons et que nous développons plus de force et de caractère. Et, bien sûr, lorsque ces défis deviennent un peu plus grands que ce qu’une personne seule peut affronter avec succès, cette personne peut toujours faire appel aux Forces supérieures pour obtenir l’aide nécessaire.
 
 Au coures des messages précédents, j’ai indiqué qu’il existe un vaste réseau de communication dans lequel, par essence, une âme est réellement liée à une autre. Il y a toujours des sources d’aide auxquelles on peut faire appel dans ce vaste réseau de la Création du Père. Et si le Père Lui-même ne fournit pas directement l’assistance requise, Il mandate toujours d’autres personnes pour fournir l’assistance requise.
 
-Ainsi, si l’homme réalisait vraiment qu’il ne vit pas pour lui-même seul, et que l’aide n’est qu’un « appel », il ne considérerait plus sa vie personnelle comme sans ressources au-delà de ce que lui seul pourrait être capable de fournir. Cela ne veut pas dire qu’il doit exagérer et tenter d’obtenir toute l’aide dont il pourrait avoir besoin des autres. Ses propres efforts sont encore plus importants et bénéfiques pour sa propre croissance et son développement. Cependant, s’il en est ainsi, il doit aussi comprendre que le Père n’exige pas de ses enfants qu’ils relèvent seuls tous les défis. Il doit y avoir un équilibre sain entre ses propres efforts et l’appel à l’aide lorsqu’il y a lieu de le faire.
+Ainsi, si l’homme réalisait vraiment qu’il ne vit pas pour lui-même seul, et que l’aide n’est qu’un « appel », il ne considérerait plus sa vie personnelle comme sans ressources au-delà de ce que lui seul pourrait être capable de fournir. Cela ne veut pas dire qu’il doit exagérer et tenter d’obtenir toute l’aide dont il pourrait avoir besoin des autres. Ses propres efforts sont encore plus importants et bénéfiques pour sa propre croissance et son développement. Cependant, s’il en est ainsi, il doit aussi comprendre que le Père n’exige pas de Ses enfants qu’ils relèvent seuls tous les défis. Il doit y avoir un équilibre sain entre ses propres efforts et l’appel à l’aide lorsqu’il y a lieu de le faire.
 
 Ainsi, en résumé, l’humanité doit réaliser que le Père, dans Sa Sagesse Infinie, a ordonné que Ses enfants auront toujours des défis devant eux pour les aider dans leur propre croissance et développement, ainsi que dans l’accomplissement et le bonheur qui vient de l’accomplissement réussi des tâches ou de la résolution des problèmes. Nous, dans les Cieux Célestes, tout comme vous, nous sommes soumis à la même Loi du Changement et de la Croissance. Si ce n’était pas le cas, nous ne pourrions pas non plus progresser dans notre bonheur et notre épanouissement. Car, comme vous devez le savoir, le bonheur est éphémère, sans d’autres accomplissements qui se traduisent par plus de bonheur. Rester figé dans son développement ne pourrait jamais apporter de bonheur supplémentaire ; et, avec le temps, par manque de progrès, le bonheur que l’on a déjà acquis se dissiperait rapidement dans le souvenir de ce qui a jadis existé.
 

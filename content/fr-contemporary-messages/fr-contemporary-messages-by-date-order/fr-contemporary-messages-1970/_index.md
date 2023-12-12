@@ -45,7 +45,7 @@ Jacques | [École pour médiums](/fr-contemporary-messages/fr-contemporary-messa
 Augustin | [Le plus grand cadeau de tous est l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-140-1970-anonymous-augustine/) |   1970
 Salem | [La plus grande puissance sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-141-1970-anonymous-salem/) |   1970
 Mahatma Gandhi | [L'homme doit chercher à développer davantage son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-142-1970-anonymous-mahatma-gandhi/) |   1970
-White Cloud | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970
 Albert Einstein | [L'Amour de Dieu est la plus grande force](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-144-1970-anonymous-albert-einstein/) |   1970
 Solar | [L'Amour de Dieu est la seule chose qui puisse apporter le vrai bonheur et la paix sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-145-1970-anonymous-solar/) |   1970
 St Paul | [Consacrer notre temps et notre amour au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-146-1970-anonymous-st-paul/) |   1970
@@ -60,12 +60,12 @@ Ishmirama & Keea Atta Kem | [Allez vers Dieu dans la méditation silencieuse et 
 Keea Atta Kem | [Ishmirama](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-155-1970-anonymous-keea-atta-kem/) |   1970
 Abdulla | [L'importance de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-156-1970-anonymous-abdulla/) |   1970
 St Paul | [N'ayez pas peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-157-1970-anonymous-st-paul/) |   1970
-White Cloud | [Vivez ces vérités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-158-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Vivez ces vérités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-158-1970-anonymous-white-cloud/) |   1970
 Grace Moore | [J'ai écouté les Aspirations et j'ai senti vos Désirs ardents pour l'Amour Divin.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-159-1970-anonymous-grace-moore/) |   1970
 Mario Lanza | [La meilleure façon d'enseigner, c'est d'être un exemple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-160-1970-anonymous-mario-lanza/) |   1970
 Franklin D Roosevelt | [Donnez à votre prochain la seule chose qui peut le libérer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-161-1970-anonymous-franklin-d-roosevelt/) |   1970
 Reine Victoria | [Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-162-1970-anonymous-queen-victoria/) |   1970
-White Cloud | [Conférence sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-163-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Conférence sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-163-1970-anonymous-white-cloud/) |   1970
 Ishmirama | [Exposé sur la Relaxation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-164-1970-anonymous-ishmirama/) |   1970
 Alexandre | [La nécessité d'une bonne base](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-165-1970-anonymous-alexander/) |   1970
 Mahatma Gandhi | [La grande illumination viendra](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-166-1970-anonymous-mahatma-gandhi/) |   1970

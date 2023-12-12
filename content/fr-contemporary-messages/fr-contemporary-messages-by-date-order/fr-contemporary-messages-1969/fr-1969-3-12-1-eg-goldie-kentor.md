@@ -18,6 +18,7 @@ Il y a un certain nombre d’esprits qui sont intéressés à voir ce que nous p
 Nous aimons tous apprendre de nouvelles choses, n’est-ce pas ? Nous n’aimons pas limiter nos connaissances, nous voulons toujours en apprendre davantage, nous efforcer d’acquérir une plus grande connaissance, une plus grande compréhension et un plus grand amour. Nous voulons que vous ayez davantage de ces connaissances et, à mesure que vous grandirez dans l’Amour de Dieu, vous trouverez très intéressant de voyager dans l’univers. Ce que vous ferez.
 
 Question. Comment pourrons-nous le faire ?
+
 A. Vous voyagerez de la même façon que nous voyageons.
 Q. Depuis la terre, ici ?
 A. Certainement – il n’y a aucune raison pour que vous ne puissiez pas le faire.

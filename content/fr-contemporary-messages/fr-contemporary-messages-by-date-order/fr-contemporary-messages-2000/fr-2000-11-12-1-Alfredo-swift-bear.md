@@ -19,11 +19,12 @@ Une approche possible de Dieu et de la perfection spirituelle pourrait être de 
 
 C’est là que se trouve la base principale, la construction sur des fondations bien établies. Vous êtes tous libres, vous jouissez du libre arbitre, concédé par Dieu, et ici vous pouvez appliquer cette liberté, en décidant vous-mêmes, sur la base de ce que je viens d’expliquer.
 
-Mais ne pensez jamais que vous êtes seuls, que vous ne recevez aucune aide ; les esprits qui ont progressé et se sont développés jusqu’à la perfection, ils vous assistent. Et vous ne cessez de demander :  » comment puis-je les entendre ? « . Toute créature de Dieu, qui désire ce développement, ressent une impulsion intérieure, une voix intérieure, ou quel que soit le nom que vous voulez lui donner, qui vous conduit là où vous souhaitez être, à condition que votre intérêt soit le progrès dans l’amour et la moralité, comme je l’ai déjà expliqué.
+Mais ne pensez jamais que vous êtes seuls, que vous ne recevez aucune aide ; les esprits qui ont progressé et se sont développés jusqu’à la perfection, ils vous assistent. Et vous ne cessez de demander :  *« comment puis-je les entendre ? »* Toute créature de Dieu, qui désire ce développement, ressent une impulsion intérieure, une voix intérieure, ou quel que soit le nom que vous voulez lui donner, qui vous conduit là où vous souhaitez être, à condition que votre intérêt soit le progrès dans l’amour et la moralité, comme je l’ai déjà expliqué.
 
 Tous ces sentiments d’adversité, d’amertume, et ce qui fait souffrir vos âmes, sont des sentiments qui portent la marque indiscutable d’esprits peu développés, et il dépend de vous de vous débarrasser de ces sentiments.
 
 N’oubliez jamais que ce que vous devez rejeter, c’est la haine, les réactions qui conduisent à des hostilités contre vos frères. Vous devez cultiver l’indulgence, et ne jamais considérer que vous devez rejeter les personnes qui font preuve d’instabilité, émotionnelle ou autre, trahissant le peu de progrès de leur âme.
+
 Et vous, qui vous croyez plus avancés, ne reconnaissez-vous pas que vous aussi avez besoin d’amour et de compréhension ? Et lorsque vous en recevez, ne vous sentez-vous pas satisfaits ? Alors pourquoi en priver les autres, qui en ont encore plus besoin ?
 
 Si vous ne savez pas comment les donner, n’y a-t-il pas des esprits plus développés qui fournissent ces nécessités à ceux qui en ont besoin ?

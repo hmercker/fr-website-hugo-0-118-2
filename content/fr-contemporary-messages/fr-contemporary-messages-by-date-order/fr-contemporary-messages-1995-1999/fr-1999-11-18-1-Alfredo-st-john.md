@@ -21,6 +21,6 @@ Mais cela est nécessaire, car sans cela, le manque de foi sera de plus en plus 
 
 Sois calme et aie la foi, tu recevras ce que tu demandes. Car tu as choisi librement.
 
-En terminant je vous dirai que de nombreux esprits viendront à toi pour te donner l’aide dont tu as besoin, car le Maître juge bon de te la concéder.
+En terminant je te dirai que de nombreux esprits viendront à toi pour te donner l’aide dont tu as besoin, car le Maître juge bon de te la concéder.
 
 Ton frère dans la foi, Jean.

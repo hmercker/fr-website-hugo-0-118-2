@@ -13,7 +13,7 @@ Marie et David - reçu par Amada Réza le 19 Mars 2000, Aptos, Californie, USA.
 
 *[Cher Père Céleste, je prie pour être un instrument de vérité qui aidera à élever mon âme et les âmes de mes frères et sœurs. Je prie pour qu’un afflux de Ton Amour Divin vienne dans mon âme afin qu’il puisse élever mes pensées et mes désirs à un niveau spirituel, où je pourrai plus facilement entrer en relation avec Tes anges Célestes. S’il te plaît, protège-moi de l’influence des esprits inférieurs, je demande à mes anges gardiens de nous entourer en ce moment pour nous préserver du mal. J’ai foi en la puissance de Ton Amour pour nous guérir et nous sortir des ténèbres. ___ nous a demandé d’obtenir un message pour ____ quant à la cause de sa maladie. Dieu, je veux être un canal clair afin d’ exprimer seulement la vérité. Je T’aime et Te remercie pour ce don de Ton Amour. Amen.]*
 
-Je suis ici, Marie, la mère de Jésus, et je suis ta gardienne et ton amie dans l’Amour Divin. Je suis le disciple de mon fils, qui nous a montré par son exemple ce que signifie naître dans une âme immortelle en ayant prié et reçu l’Amour Divin – le Don de Dieu à ses enfants fidèles et aspirants.
+*Je suis ici, Marie, la mère de Jésus*, et je suis ta gardienne et ton amie dans l’Amour Divin. Je suis le disciple de mon fils, qui nous a montré par son exemple ce que signifie naître dans une âme immortelle en ayant prié et reçu l’Amour Divin – le Don de Dieu à ses enfants fidèles et aspirants.
 
 Je suis ici avec mon frère David, qui fut connu comme le Roi David de l’Ancien Testament. Il m’accompagne en ce moment afin qu’il puisse ajouter sa sagesse à ces pensées que je partage avec toi sur ____.
 
@@ -23,7 +23,7 @@ Ce conflit s’explique en partie par le fait que ___ a été déchiré sur la q
 
 Mais je souhaite laisser notre frère David s’exprimer sur cette question, car il a dû se mobiliser et accepter son don avec très peu d’encouragement, et défier le mal qui assaillait ses frères.
 
-Je suis ici, David. 
+*Je suis ici, David.* 
 
 Je suis aussi connu comme le Roi David, et je vais te parler directement, ___. Il fut un temps où j’écrivais à travers ta mère mes messages de vérité et je m’en souviens avec tendresse comme d’une merveilleuse opportunité pour moi de partager mon amour avec les autres. Mais même si je n’écris plus à travers elle, je suis toujours présent dans sa vie et dans ta vie, car je suis un esprit qui aime et qui reste fidèle aux objets de mon amour.
 

@@ -1,13 +1,13 @@
 ---
-title: "Chapitre 4 : L’amour trouvera un chemin dans la conscience de l’humanité (2022 Le projet Jésus 3)"
+title: "Leçon 4 : L’amour trouvera un chemin dans la conscience de l’humanité"
 menu_title: ""
-description: "Chapitre 4 : L’amour trouvera un chemin dans la conscience de l’humanité (2022 Le projet Jésus 3)"
+description: "Leçon 4 : L’amour trouvera un chemin dans la conscience de l’humanité"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True
 weight:
 ---
-### Chapitre 4 : L’amour trouvera un chemin dans la conscience de l’humanité (2022 Le projet Jésus 3)
+### Chapitre 4 : L’amour trouvera un chemin dans la conscience de l’humanité
 
 Jésus - reçu par Al Fike le 27 Juin 2022, Gibsons, Colombie-Britannique, Canada.
 

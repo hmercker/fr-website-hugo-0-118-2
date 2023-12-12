@@ -9,7 +9,7 @@ weight:
 ---
 ### La plus grande force vient de Dieu
 
-Joan d'Arc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Jeanne d'Arc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Cela fait si longtemps que j'attends de parler, mes amis. C'est une condition merveilleuse ici ce soir et je vais vous parler franchement.
 

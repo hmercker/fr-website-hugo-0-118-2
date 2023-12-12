@@ -361,7 +361,7 @@ Samuel | [Fait briller sa lumière sur la voie de l’Amour Divin et ses adeptes
 St Luc | [Avancer dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-1-1-jw-st-luke/) | 1 Novembre 2021
 Jésus | [Leçon 19 : Appelle tous les éclaireurs à servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-2-1-af-jesus/) | 2 Novembre 2021
 Orion | [Des réponses à d'autres questions (Projet Orion 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-3-1-af-orion/) | 3 Novembre 2021
-Jésus | [Leçon 20 : L’amour de Dieu est le seul moyen de sauver l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-1-af-jesus/) | 4 Novembre 2021
+Jésus | [Leçon 20 : L’Amour de Dieu est le seul moyen de sauver l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-1-af-jesus/) | 4 Novembre 2021
 Orion | [Orion répond aux questions posées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-5-1-af-orion/) | 5 Novembre 2021
 Seretta Kem | [Continuer à bâtir sur les fondations de l'amour de Dieu (2021 Groupe des douze)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-5-2-af-seretta-kem/) | 5 Novembre 2021
 Mylora | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-5-3-af-mylora/) | 5 Novembre 2021
@@ -381,7 +381,7 @@ Care Derby Walsh | [La porte sera ouverte](/fr-contemporary-messages/fr-contempo
 Eileen Caddy | [Demandez en priant et vous recevrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-19-1-jw-eileen-caddy/) | 19 Novembre 2021
 St Jean | [Le temps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-21-1-jw-st-john/) | 21 Novembre 2021
 Orion | [Nous sommes à vos côtés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-23-1-af-orion/) | 23 Novembre 2021
-Jésus | [Leçon 21 : Les lois qui régissent la progression de l’âme (2021 Projet Jésus 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-25-1-af-jesus/) | 25 Novembre 2021
+Jésus | [Leçon 21 : Les lois qui régissent la progression de l’âme)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-25-1-af-jesus/) | 25 Novembre 2021
 Orion | [Plus d'informations sur le cadeau de cristal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-27-1-af-orion/) | 27 Novembre 2021
 Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
 Orion | [Appel à l'action ! Nous sommes tous profondément nécessaires dans le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-4-1-af-orion/) | 4 Décembre 2021
@@ -390,7 +390,7 @@ Jésus | [Vient pour nous soutenir en harmonie dans nos efforts individuels](/fr
 Augustin | [Notre collaboration pour apporter la lumière au monde est importante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-10-1-af-augustine/) | 10 Décembre 2021
 André | [Vous marchez sur le chemin de la pureté et de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-14-1-af-andrew/) | 14 Décembre 2021
 Jésus | [Chaque âme a un choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-14-2-jw-jesus/) | 14 Décembre 2021
-Jésus | [Leçon 22 : L’obscurité qui vient avant la lumière (2021 Le Projet Jésus 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-15-1-af-jesus/) | 15 Décembre 2021
+Jésus | [Leçon 22 : L’obscurité qui vient avant la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-15-1-af-jesus/) | 15 Décembre 2021
 Jésus | [La confiance dans le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-1-af-jesus/) | 17 Décembre 2021
 Orion | [Sera avec nous dans les temps troublés à venir (2021 Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-2-af-orion/) | 17 Décembre 2021
 Archange Michael | [Déclaration du début de la transformation de notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-3-af-archangel-michael/) | 17 Décembre 2021

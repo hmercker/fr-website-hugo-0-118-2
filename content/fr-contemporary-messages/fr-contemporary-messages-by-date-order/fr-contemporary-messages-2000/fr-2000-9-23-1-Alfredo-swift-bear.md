@@ -20,6 +20,7 @@ Oh, si seulement nous pouvions comprendre l’Amour de Dieu, le même Amour, que
 Pourquoi y a-t-il encore des conflits ? Il est clair que notre développement, notre apprentissage, n’a même pas couvert la moitié de notre chemin. Mais nous avons toujours le temps d’avancer, sans jamais reculer.
 
 En vérité, nous possédons en nous l’enthousiasme, mais il est parfois très caché. Et quand nous le voulons, nous le faisons sortir au grand jour, en donnant tout notre amour, toute notre aide à nos frères.
+
 Réfléchissons-y. Dans la meilleure des sagesses, nous pouvons apprendre. Ne remplissons pas nos âmes de parjures inconscients de haine et de mal. Serait-ce un progrès ? Non, c’est la discorde.
 
 Déplorons que nous ne montrions pas parfois ces qualités cachées [de l’amour], trouvons où elles se trouvent vraiment.

@@ -15,7 +15,8 @@ Marie & Jean - reçu par Amada Reza le 17 Décembre 1999, Aptos, Californie, USA
 
 *Je prie pour être protégé de toute influence d’esprit inférieur qui pourrait vouloir faire du mal, et j’ai foi en la puissance de Ton Amour pour me maintenir en bonne harmonie et en bon rapport. Je mets ma propre volonté de côté, et je demande que si les anges ont quelque chose à écrire à nos frères, M____ et A__, concernant leurs progrès, qu’ils partagent leur sagesse en ce moment. Je T’aime, mon précieux Créateur, de toute mon âme. Merci.]*
 
-Je suis ici avec toi, ma chère sœur en Christ, et je suis ton amie et ta tutrice, Marie, la mère de Jésus, et une vraie disciple de mon fils, qui nous montre par son exemple ce que signifie être enfant de Dieu.
+
+*Je suis ici avec toi, ma chère sœur en Christ, et je suis ton amie et ta tutrice, Marie, la mère de Jésus*, et une vraie disciple de mon fils, qui nous montre par son exemple ce que signifie être enfant de Dieu.
 
 Je veux que mon frère, A____, sache qu’il se prépare, par ses prières ferventes à Dieu, à l’afflux de l’Amour Divin, pour l’œuvre qu’il souhaite tant accomplir. Ne soyez pas découragé si vous ne voyez pas le résultat que vous attendez, ces attentes limitent quelque peu votre capacité à embrasser les dons que vous possédez actuellement et que vous manifestez aux autres.
 

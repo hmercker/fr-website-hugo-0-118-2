@@ -33,12 +33,14 @@ Vous pouvez avoir foi dans le pouvoir de l’Amour de Dieu pour vous guérir. Vo
 
 Ne soyez pas pressés. Savourez les moments. Lorsque vous agirez ainsi, vous trouverez une plus grande tranquillité et une plus grande harmonie dans chacune de vos activités.
 
-Vous ne devriez pas avoir à ressentir à un moment ou à un autre « Je veux me dépêcher et faire ceci » pour un quelconque projet. Vous devriez y mettre tout votre amour et être reconnaissant de l’opportunité que vous avez de donner votre amour de cette façon. Si, pour une raison quelconque, vous ne vous sentez pas à la hauteur de la tâche pour le moment, vous pouvez peut-être trouver un autre projet sur lequel travailler pendant un certain temps et revenir à celui-là lorsque vous serez en meilleure harmonie avec lui.
+Vous ne devriez pas avoir à ressentir à un moment ou à un autre *« Je veux me dépêcher et faire ceci »* pour un quelconque projet. Vous devriez y mettre tout votre amour et être reconnaissant de l’opportunité que vous avez de donner votre amour de cette façon. Si, pour une raison quelconque, vous ne vous sentez pas à la hauteur de la tâche pour le moment, vous pouvez peut-être trouver un autre projet sur lequel travailler pendant un certain temps et revenir à celui-là lorsque vous serez en meilleure harmonie avec lui.
+
 Ainsi, comme vous le voyez, vous comprenez ces choses mais vous ne vous appliquez pas toujours de la manière la plus utile pour votre épanouissement et votre joie dans tous les cas.
 
 Sachez que Dieu non seulement vous aime au-delà de toute compréhension, mais qu’il vous fournit les moyens de faire tout cela paisiblement et harmonieusement. Aucune pression n’est nécessaire. L’anxiété est une chose de l’esprit matériel. Mettez-vous en marche, mon ami. Agissez selon votre foi. Vous en avez beaucoup, mais lorsque vous vous poussez au-delà des limites de vos mouvements d’amour, vous vous attirez des ennuis.
 
 Les ennuis peuvent prendre la forme d’un sentiment d’anxiété ou d’insatisfaction quant au résultat ou à l’avancement d’un projet. Aucun de ces sentiments n’est justifié, à moins que vous ne dépendiez pas de Dieu.
+
 Ainsi, comme toujours, c’est à vous, chaque âme individuelle cherchant la Vérité et désirant faire la volonté de Dieu, d’agir sur votre foi pour vous mettre dans les bras aimants de votre Créateur. Vous en sortirez victorieux ; vous ne serez ni fatigués ni déçus.
 
 Faites un effort pour appliquer ces suggestions. Vous les avez reçues clairement. Vous les comprenez. Vous savez maintenant ce que vous devez faire.

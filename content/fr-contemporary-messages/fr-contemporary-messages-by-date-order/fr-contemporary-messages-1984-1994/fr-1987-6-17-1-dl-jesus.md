@@ -1,13 +1,13 @@
 ---
-title: "Sur la loi du progrès, du hangemeny et de la Croissance"
+title: "Sur la loi du progrès, du changement et de la Croissance"
 menu_title: ""
-description: "Sur la loi du progrès, du hangemeny et de la Croissance"
+description: "Sur la loi du progrès, du changement et de la Croissance"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True
 weight:
 ---
-### Sur la loi du progrès, du hangemeny et de la Croissance
+### Sur la loi du progrès, du changement et de la Croissance
 
 Jésus - reçu par Révérend Dave Lampron le 17 et 22 Juin 1987.
 
@@ -31,7 +31,7 @@ Maintenant, vous avez entendu dire qu’il y a une autre loi qui ne permet aucun
 
 Dans les enfers, un esprit peut certainement tenter de tourmenter un autre, mais il ne lui est plus possible de le blesser ou de le détruire « physiquement ». C’est-à-dire que le grand péché du meurtre ne peut plus être exercé. Et, bien entendu, c’est tout aussi vrai pour le suicide. Car, pour autant que nous le sachions, le corps spirituel dans le monde des esprits est indestructible, et le restera probablement pour l’éternité. Cependant, bien qu’il en soit ainsi, car Dieu seul le sait, nous savons que, bien qu’aucun autre mal ne puisse être fait au corps spirituel, que ce soit de l’extérieur ou, ultérieurement, par l’exercice de l’âme de la personne spirituelle, l’état et le progrès de ce corps spirituel dépendront à la fois de l’expiation du mal commis et de l’aide que cette personne peut recevoir des autres esprits utiles.
 
-Sur terre, le libre arbitre de l’homme s’exerce entre tous les différents peuples possédant différents développements d’âme. Et, parce qu’il en est ainsi, ce que l’on fait à ses frères et sœurs , dans l’exercice de ce libre arbitre, aura des effets divers. Par exemple, lorsqu’un préjudice est causé à des innocents, le mal en est le sous-produit, ce qui, à son tour, a un effet sur celui ou ceux qui violent l’innocent. Mais, dans le monde des esprits, contrairement à ce qui se passe sur terre où « la pluie tombe sur les justes et les injustes », les innocents et les pécheurs ne vivent plus dans les mêmes lieux. Par conséquent, il n’est plus possible pour une âme qui a de mauvaises inclinations de violer ou de faire du mal à des innocents. Les esprits de même ordre sont en association les uns avec les autres, ce qui signifie que les mauvaises intentions ne peuvent être partagées qu’entre ceux qui ont la même mauvaise disposition. Et pourtant, même ici, aucun mal réel ne peut être fait parce qu’il n’y a pas de satisfaction quand ceux qui ont de mauvaises intentions n’ont pas d’innocentes victimes pour perpétrer leur mal sur eux. De plus, les péchés de la terre perdent leur efficacité dans le monde des esprits.
+Sur terre, le libre arbitre de l’homme s’exerce entre tous les différents peuples possédant différents développements d’âme. Et, parce qu’il en est ainsi, ce que l’on fait à ses frères et sœurs , dans l’exercice de ce libre arbitre, aura des effets divers. Par exemple, lorsqu’un préjudice est causé à des innocents, le mal en est le sous-produit, ce qui, à son tour, a un effet sur celui ou ceux qui violent l’innocent. Mais, dans le monde des esprits, contrairement à ce qui se passe sur terre où *« la pluie tombe sur les justes et les injustes »*, les innocents et les pécheurs ne vivent plus dans les mêmes lieux. Par conséquent, il n’est plus possible pour une âme qui a de mauvaises inclinations de violer ou de faire du mal à des innocents. Les esprits de même ordre sont en association les uns avec les autres, ce qui signifie que les mauvaises intentions ne peuvent être partagées qu’entre ceux qui ont la même mauvaise disposition. Et pourtant, même ici, aucun mal réel ne peut être fait parce qu’il n’y a pas de satisfaction quand ceux qui ont de mauvaises intentions n’ont pas d’innocentes victimes pour perpétrer leur mal sur eux. De plus, les péchés de la terre perdent leur efficacité dans le monde des esprits.
 
 Comme je l’ai mentionné, ni le meurtre ni le suicide ne sont plus possibles. Mais cela s’applique aussi à d’autres péchés. Mentir parmi les menteurs ne viole pas les innocents. Et, dans le cadre de leurs souffrances, ces menteurs doivent endurer ce qu’ils ont eux-mêmes pratiqué sur terre. De même, un tel péché comme l’adultère n’est plus possible parce que la fonction sexuelle ne fait plus partie de la vie spirituelle. Il en est de même avec d’autres péchés, comme convoiter la femme du voisin ou ses biens. Dans le monde des Esprits, la matière n’a plus aucune importance, car tous les Esprits finissent par apprendre à créer la valeur ou le besoin matériel en vertu d’une pensée dirigée appliquée à la formation de la matière souhaitée. Par conséquent, le vol perd totalement tout impact car rien ne peut vraiment être pris à quelqu’un d’autre qui ne peut pas être facilement remplacé.
 

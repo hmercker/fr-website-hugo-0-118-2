@@ -13,6 +13,6 @@ weight:
 ---|---|---
 Anonyme | [Le Roi des Rois.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1914-1-3-1-george-vale-owen-anonyme/) | 3 Janvier 1914
 St Luc | [Commentaires sur le travail avec les esprits sombres.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1935-1-23-1-emorgan-st-luke/) | 23 Janvier 1935
-Mahatma Gandhi | [Ayez foi en nous, amis bien-aimés de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1-1958-anonymous-mahatma-gandhi/) | 11 Mai 1905
+Mahatma Gandhi | [Ayez foi en nous, amis bien-aimés de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1-1958-anonymous-mahatma-gandhi/) | 1958
 André | [Tendre la main au Royaume des Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1963-2-14-2-anonymous-andrew/) | 14 Février 1963
 Augustin | [Nous devons faire un plus grand effort pour recevoir de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1963-4-15-3-anonymous-augustine/) | 15 Avril 1963

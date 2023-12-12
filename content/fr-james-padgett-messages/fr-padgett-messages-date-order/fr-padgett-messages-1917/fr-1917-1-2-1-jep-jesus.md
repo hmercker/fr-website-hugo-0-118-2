@@ -1,13 +1,13 @@
 ---
-title: "Certaines des doctrines de la « Christian Science » sont erronées"
+title: "Certaines des doctrines de la « Science Chrétienne » sont erronées"
 menu_title: ""
-description: "Certaines des doctrines de la « Christian Science » sont erronées"
+description: "Certaines des doctrines de la « Science Chrétienne » sont erronées"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Certaines des doctrines de la « Christian Science » sont erronées
+### Certaines des doctrines de la « Science Chrétienne » sont erronées
 
 Jésus - reçu par James Padgett le 2 Janvier 1917, Washington, USA.
 

@@ -21,4 +21,4 @@ Malheureusement, souvent les doutes t’envahiront et tu ne sauras pas pourquoi 
 
 Tu dois réussir, car dans ton cœur se trouve une certaine pureté spirituelle, qui aspire à la manifestation des vérités spirituelles, et, bien sûr, ton cœur sera rempli de ce que tu cherches. Soyez seulement patient et tu recevras le don de l’Esprit Saint.
 
-Avec l’amour de ton frère Lorenzo, qui vous apprécie beaucoup.
+Avec l’amour de ton frère Lorenzo, qui vt'apprécie beaucoup.

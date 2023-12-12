@@ -39,15 +39,15 @@ Jésus | [Foi et guérison](/fr-contemporary-messages/fr-contemporary-messages-b
 Jésus | [Écriture automatique et impression de pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-8-31-1-dl-jesus/) | 31 Août 1987
 Jésus | [Qui est l'auteur de « Nouveaux enseignements pour une humanité en éveil » ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-9-9-1-dl-jesus/) | 9 Septembre 1987
 Jésus | [Le levain de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-11-12-1-dl-jesus/) | 12 Novembre 1987
-Jésus | [Sans amour, je suis comme une cymbale qui tinye](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-17-1-dl-jesus/) | 17 Décembre 1987
+Jésus | [Sans amour, je suis comme une cymbale qui tinte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-17-1-dl-jesus/) | 17 Décembre 1987
 Jésus | [Le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-31-1-dl-jesus/) | 31 Décembre 1987
 Jésus | [La loi de l’équipoise et de l’équilibre.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-1-18-1-dl-jesus/) | 18 Janvier 1988
 Jésus | [Né sans péché](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-2-4-1-dl-jesus/) | 4 Février 1988
 Jésus | [Les guérisons ne se font pas toujours instantanément](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-3-31-1-dl-jesus/) | 31 Mars 1988
 Jésus | [L'Amour Divin ne connaît pas la douleur du regret, du retard ou du manque d'accomplissement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-4-29-1-dl-jesus/) | 29 Avril 1988
 Jésus | [La vérité et le voyage vers la perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-8-11-1-dl-jesus/) | 11 Août 1988
-Jésus | [Atlantis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-10-18-1-dl-jesus/) | 18 Octobre 1988
-Jésus | [l'humanité commence à voir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-16-1-dl-jesus/) | 16 Janvier 1989
+Jésus | [Atlantide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-10-18-1-dl-jesus/) | 18 Octobre 1988
+Jésus | [L'humanité commence à voir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-16-1-dl-jesus/) | 16 Janvier 1989
 Jésus | [Un espoir pour l'âme perdue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-22-1-ks-jesus/) | 22 Janvier 1989
 Jésus | [Le porteur de bonnes nouvelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-3-24-1-dl-jesus/) | 24 Mars 1989
 Jésus | [L'importance de développer la nature d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-4-9-1-ks-jesus/) | 9 Avril 1989

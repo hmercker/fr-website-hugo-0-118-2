@@ -12,10 +12,10 @@ weight:
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jésus | [Jésus _Sur la prière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-1-ks-jesus/) |   1984
-Jésus | [Les vérités du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-1-ks-jesus/) |   1985
 Jésus | [Une mise au point concernant Swedenborg.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-2-1-1-vs-jesus/) | 1 Février 1984
 Jésus | [Garder la foi...](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-7-18-1-ks-jesus/) | 18 Juillet 1984
 Jésus | [Désir de vérité…](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-12-10-1-ks-jesus/) | 10 Décembre 1984
+Jésus | [Les vérités du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-1-ks-jesus/) |   1985
 Jésus | [L’avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/) | 30 Juin 1985
 Jésus | [Premier message à Dave Lampron](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-4-9-1-dl-jesus/) | 9 Avril 1986
 Jésus | [Jésus : La loi de la prière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-7-8-1-dl-jesus/) | 8 Juillet 1986

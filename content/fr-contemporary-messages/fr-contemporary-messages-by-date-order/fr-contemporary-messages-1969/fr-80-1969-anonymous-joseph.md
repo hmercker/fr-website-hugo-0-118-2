@@ -26,4 +26,5 @@ L'homme sur Terre ne peut pas atteindre une vie complète s'il n'est pas prêt �
 Vous êtes les seuls à pouvoir continuer à vivre en plénitude, vous êtes les seuls à pouvoir demander et recevoir, mais vous, mes amis, vous pouvez aider les autres à trouver la joie et la vie en plénitude. Une vie remplie d'un grand amour et libérée de la peur.
 
 Que Dieu vous bénisse et vous fasse prospérer. Que Jésus puisse toujours venir et vous guider et mon plus grand désir est de pouvoir parler à nos proches qui attendent une voix directe et c'est ce que nous ferons.
+
 Bonne nuit.

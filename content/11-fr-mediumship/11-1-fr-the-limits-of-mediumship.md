@@ -27,15 +27,15 @@ La première étude sur la médiumnité a été réalisée il y a environ 150 an
 
 Il existe un certain nombre de sources d'erreurs potentielles, dont beaucoup sont dues au fait que la médiumnité, à la seule exception de la Voix Directe, implique toujours que l'information passe par l'esprit et le cerveau du médium. Et là, elle est limitée à ce que cette personne connaît, aux mots qu'elle a dans son vocabulaire, et elle est souvent altérée par ses croyances. Jusqu'à présent, la voix directe n'a pas été utilisée pour les communications spirituelles de haut niveau, et elle exige que l'esprit se matérialise d'une manière ou d'une autre et parle de sa propre voix à l'aide d'une boîte vocale construite à cet effet. Il est très rare de trouver des praticiens de la Voix Directe, et d'après mon expérience, aucun de ceux dont j'ai entendu parler n'a été capable d'attirer des esprits ayant des connaissances spirituelles de haut niveau. Revenons donc aux médiums « normaux » :
 
-. Tout d'abord, le médium peut, sans le vouloir, insérer ses pensées, car le cerveau du mortel peut interférer avec la réception du message, en raison de ses croyances actuelles. C'est l'une des principales causes de la mauvaise réception des connaissances spirituelles avancées.
+1. Tout d'abord, le médium peut, sans le vouloir, insérer ses pensées, car le cerveau du mortel peut interférer avec la réception du message, en raison de ses croyances actuelles. C'est l'une des principales causes de la mauvaise réception des connaissances spirituelles avancées.
 
-. Deuxièmement, l'esprit peut être trompeur - c'est-à-dire délibérément trompeur. Cela peut être pour une raison apparemment bonne, ou pour perturber. (Voir note de bas de page)
+2. Deuxièmement, l'esprit peut être trompeur - c'est-à-dire délibérément trompeur. Cela peut être pour une raison apparemment bonne, ou pour perturber. (Voir note de bas de page)
 
-. Troisièmement, l'esprit peut être honnête mais manquer de connaissance - éventuellement sans savoir que c'est le cas.
+3. Troisièmement, l'esprit peut être honnête mais manquer de connaissance - éventuellement sans savoir que c'est le cas.
 
-. Quatrièmement, le mortel peut ne pas avoir le développement spirituel nécessaire pour recevoir la connaissance spirituelle. C'est tout à fait différent de l'insertion de ses propres croyances, et c'est un obstacle très important à la communication.
+4. Quatrièmement, le mortel peut ne pas avoir le développement spirituel nécessaire pour recevoir la connaissance spirituelle. C'est tout à fait différent de l'insertion de ses propres croyances, et c'est un obstacle très important à la communication.
 
-. Finalement ces messages, tels qu'ils sont présentés ici, sont-ils les originaux, sans avoir été modifiés au point d'en perdre le sens originel ? Cette question est [traitée en détail sur cette page](/fr-james-padgett-messages/fr-padgett-messages-date-order/).
+5. Finalement ces messages, tels qu'ils sont présentés ici, sont-ils les originaux, sans avoir été modifiés au point d'en perdre le sens originel ? Cette question est [traitée en détail sur cette page](/fr-james-padgett-messages/fr-padgett-messages-date-order/).
 
 Toutes ces questions sont abordées dans nos messages et exposées ci-dessous. Chacun d'entre nous qui a trouvé ces messages est passé par un processus similaire pour décider s'il s'agit bien de la Vérité. Je pense qu'il serait juste de dire qu'il existe peu de groupes, voire aucun, ayant les connaissances que nous possédons actuellement sur les conditions requises pour recevoir avec précision des messages spirituels de haut niveau.
 

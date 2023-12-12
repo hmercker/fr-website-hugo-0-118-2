@@ -38,4 +38,5 @@ Je crois que c'est tout ce que je souhaite dire sur ce sujet particulier pour le
 Votre frère et ami, Jésus.
 <small>
 
-1. <large id="f1"> Un autre ouvrage qui a faussement prétendu être de Jésus est le célèbre « A Cour en Miracles ». Cette information a été révélée assez récemment, [et est annotée ici](/11-fr-mediumship/).[↩](#a1)
+1. <large id="f1"> Un autre ouvrage qui a faussement prétendu être de Jésus est le célèbre « Un Cours en Miracles ». Cette information a été révélée assez récemment, [et est annotée ici](/11-fr-mediumship/11-1-fr-the-limits-of-mediumship/).[↩](#a1)
+

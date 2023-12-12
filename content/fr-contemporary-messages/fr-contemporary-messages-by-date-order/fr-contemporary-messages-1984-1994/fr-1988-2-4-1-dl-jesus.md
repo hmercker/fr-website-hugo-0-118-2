@@ -15,7 +15,7 @@ Jésus - reçu par Révérend Dave Lampron le 4 Février 1988.
 
 > *Non, je n’avais pas l’Amour Divin dans mon âme avant la naissance, mais mon âme, comme je l’ai dit auparavant, était déjà prédisposée à le recevoir à la naissance sans pensée consciente…*
 
-*Cependant lors de votre message par K.S. du 20 Septembre 1986 <sup id="a1">[1](#f1)</sup>, vous précisez que vous avez d’abord reçu l’Amour Divin en tant que fœtus prédisposé avec des désirs d’âme pour Lui, ce qui vous a permis de naître sans péché grâce à Son effet purificateur sur les incrustations sur votre âme que vous avez héritées de vos ancêtres en ce qui concerne l’amour naturel. Pouvez-vous résoudre cette contradiction apparente pour nous ?*
+*Cependant lors de votre message communiqué par K.S. le 20 Septembre 1986 <sup id="a1">[1](#f1)</sup>, vous précisez que vous avez d’abord reçu l’Amour Divin en tant que fœtus prédisposé avec des désirs d’âme pour Lui, ce qui vous a permis de naître sans péché grâce à Son effet purificateur sur les incrustations sur votre âme que vous avez héritées de vos ancêtres en ce qui concerne l’amour naturel. Pouvez-vous résoudre cette contradiction apparente pour nous ?*
 
 *Deuxièmement, dans ce même message de 1961-62 par l’intermédiaire du Dr Samuels, vous avez déclaré :*
 

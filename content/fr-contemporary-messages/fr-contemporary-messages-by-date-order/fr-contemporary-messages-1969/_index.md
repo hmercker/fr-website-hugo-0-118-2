@@ -88,10 +88,10 @@ Shandor | [Nous n'avons pas besoin de grands édifices pour accomplir l'œuvre d
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
 Augustin | [Cherchez la sagesse du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-109-1969-anonymous-augustine/) |   1969
 Augustin | [Fais Ton chemin, Seigneur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-110-1969-anonymous-augustine/) |   1969
-White Cloud & Crystal Water | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
+Nuage Blanc et Eau Christalline | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
 Dr Gordon Leonard | [L'Amour Divin de Dieu, le chemin du bonheur et de la santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-112-1969-anonymous-dr-gordon-leonard/) |   1969
 Confucius | [Votre Créateur et le mien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-113-1969-anonymous-confucius/) |   1969
-White Cloud | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc| [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
 Augustin | [Un avertissement des choses à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-115-1969-anonymous-augustine/) |   1969
 Shandor | [Le secret de la vie sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-116-1969-anonymous-shandor/) |   1969
 St Luc | [Parle de la Bible, de la guérison et de l'Orientation Correcte.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-117-1969-anonymous-st-luke/) |   1969
@@ -100,11 +100,11 @@ St Paul | [Puissiez-vous être un véritable exemple de ce que ces bénédiction
 Jésus | [L'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-121-1969-anonymous-jesus/) |   1969
 André | [Apporter sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-122-1969-anonymous-andrew/) |   1969
 Keea Atta Kem & Augustin | [Prévoyez la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-123-1969-anonymous-keea-atta-kem-augustine/) |   1969
-White Cloud | [L'importance de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc | [L'importance de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969
 St Paul | [Un message de bienvenue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-125-1969-anonymous-st-paul/) |   1969
 Albert Einstein | [L'énergie de l'atmosphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-126-1969-anonymous-albert-einstein/) |   1969
 André | [Centre dans la ville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-127-1969-anonymous-andrew/) |   1969
-Joan d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-darc/) |   1969
+Jeanne d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-darc/) |   1969
 St Paul | [Soyez purs dans vos pensées et dans votre vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-129-1969-anonymous-st-paul/) |   1969
 Augustin | [Désir d'être en harmonie avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-130-1969-anonymous-augustine/) |   1969
 Jésus | [La plus grande bénédiction que l'homme puisse recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-131-1969-anonymous-jesus/) |   1969

@@ -9,7 +9,7 @@ weight:
 ---
 ### Aidez les autres
 
-White Cloud - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Nuage Blanc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Je viens, je suis Nuage Blanc. Peu importe de quelle station de vie nous venons. Peu importe la classe sociale, la couleur de notre peau ou le pays d'où nous venons. Il n'y a pas de frontières, il n'y a pas de lois qui mettent une créature de Dieu à l'écart d'une autre et si nous trouvons sur notre chemin de vie ou si nous rencontrons des personnes sur notre chemin, nous trouvons qu'il y a des personnes qui n'appartiennent pas à notre race, alors et surtout celles qui ont besoin d'aide et de conseils, nous devons leur tendre la main de l'amitié et nous devons être prêts à aider tout le monde, indépendamment de ce qu'ils ont suivi ou de ce qu'ils sont. Il importe peu qu'une âme se soit éloignée de ce que vous appelez le droit chemin.
 

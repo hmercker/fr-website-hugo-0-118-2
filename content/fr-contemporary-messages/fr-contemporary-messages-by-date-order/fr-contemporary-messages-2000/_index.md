@@ -11,7 +11,6 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Rev Dave Lampron | [Une qualité de Dieu rarement mentionnée.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-dl-rev-dave-lampron/) | 22 Juin 2000
 Jésus | [Sur le suicide.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
 Marie | [Embrasser l’unicité des qualités de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-28-1-ar-mary/) | 28 Janvier 2000
 Joseph | [Joseph : Sur Joseph d’Arimathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph/) | 6 Février 2000
@@ -30,6 +29,7 @@ Joseph | [Prier pour l’Amour Divin sans avoir l’impression d’être un impo
 Marie | [Avec l’amour, vous pouvez affronter tout mal avec confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-5-13-1-ar-mary/) | 13 Mai 2000
 Jésus | [La vérité qui est écrite dans votre âme doit être parlée dans toutes les langues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-4-1-ar-jesus/) | 4 Juin 2000
 Esprit Céleste Elevé | [Un Esprit Céleste Élevé : Conseil personnel ; sur les Premiers Parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-19-1-ks-a-high-celestial-spirit/) | 19 Juin 2000
+Rev Dave Lampron | [Une qualité de Dieu rarement mentionnée.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-dl-rev-dave-lampron/) | 22 Juin 2000
 Jésus | [Message annuel de transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-25-1-ar-jesus/) | 25 Juin 2000
 André | [Conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-7-21-1-ks-andrew/) | 21 Juillet 2000
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-7-30-1-ar-jesus/) | 30 Juillet 2000
