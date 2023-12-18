@@ -1,4 +1,4 @@
----»
+---
 title: "Chacun de vous fait l’expérience de Dieu et de la Vérité d’une manière unique"
 menu_title: ""
 description: "Chacun de vous fait l’expérience de Dieu et de la Vérité d’une manière unique"
