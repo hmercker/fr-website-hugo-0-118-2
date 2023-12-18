@@ -47,4 +47,6 @@ Ton frère en Christ, Judas.
 
 **Note :** Remarque Ce message n'aborde pas la question de la fin de la vie dans la mesure où cette vie n'a aucune chance d'éviter une mort imminente par maladie terminale et où la qualité de vie est absente. Nous n’avons jusqu’à présent (Octobre 2023) reçu aucun enseignement à ce sujet. Cependant, nous avons un cas où une amie qui a suivi le chemin de l'Amour Divin dans une certaine mesure, pendant quelques années, a été autorisée à mettre fin à ses jours au Canada et nous a envoyé un message après son décès indiquant qu'elle n'a subi aucune conséquence de cette décision. En général, le suicide est une très mauvaise décision et s’accompagne de conséquences spirituelles importantes après la mort.
 
+Cependant, nous avons le cas d'une amie qui a suivi le chemin de l'amour divin dans une certaine mesure, pendant quelques années, et qui a été autorisée à mettre fin à sa vie au Canada. Elle nous a donné [un message post-mortem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-24-1-af-vicky-forest/) indiquant qu'elle n'avait subi aucune conséquence de cette décision. En général, le suicide est une très mauvaise décision et s'accompagne de conséquences spirituelles importantes après la mort.
+
 © Geoff Cutler 2013
