@@ -49,4 +49,6 @@ Ton frère en Christ, Judas.
 
 Cependant, nous avons un cas où une amie qui a suivi, dans une certaine mesure, pendant quelques années, le chemin de l'Amour Divin, a été autorisée à mettre fin à ses jours au Canada. Elle nous a alors envoyé [un message après son décès](****) indiquant qu'elle n'avait ppas souffert en conséquence de cette décision. En général, le suicide est une très mauvaise décision et s’accompagne de conséquences spirituelles importantes après la mort.
 
+Cependant, nous avons le cas d'une amie qui a suivi le chemin de l'amour divin dans une certaine mesure, pendant quelques années, et qui a été autorisée à mettre fin à sa vie au Canada. Elle nous a donné [un message post-mortem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-24-1-af-vicky-forest/) indiquant qu'elle n'avait subi aucune conséquence de cette décision. En général, le suicide est une très mauvaise décision et s'accompagne de conséquences spirituelles importantes après la mort.
+
 © Geoff Cutler 2013

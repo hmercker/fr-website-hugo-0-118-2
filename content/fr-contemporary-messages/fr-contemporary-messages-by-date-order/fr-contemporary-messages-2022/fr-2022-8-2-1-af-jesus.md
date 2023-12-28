@@ -1,6 +1,6 @@
 ---
 title: "Leçon 16 : Comment les barrières de l’esprit seront brisées par un monde en transition"
-menu_title: "
+menu_title: ""
 description: "Leçon 16 : Comment les barrières de l’esprit seront brisées par un monde en transition"
 date: 2022-06-01 06:00:01+00:149
 draft: False
