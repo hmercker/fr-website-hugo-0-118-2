@@ -27,7 +27,7 @@ Ce sentiment brûlant de droiture, et le désir d’aller au bout des choses qui
 
 Car mon rêve de droiture a continué après l’Exode. En fait, j’avais le vague sentiment que Dieu susciterait un homme qui n’accomplirait finalement rien de moins que la rédemption, un homme qui avait cette qualité de justice à un degré éminent.
 
-Depuis, j’ai trouvé cette personne en Jésus. Il est dit que le livre dans lequel cette idée apparaît, le Deutéronome (18:15) <sup id="a1">[1](#f1)</sup>, a été écrit longtemps après ma mort, et c’est vrai. Mais je dis qu’il est également vrai que j’ai eu cette vision prophétique – l’instinct messianique était logé au plus profond de l’âme du peuple juif, et je le possédais aussi.
+Depuis, j’ai trouvé cette personne en Jésus. Il est dit que le livre dans lequel cette idée apparaît, [le Deutéronome 18:15](https://saintebible.com/deuteronomy/18-15.htm) <sup id="a1">[1](#f1)</sup>, a été écrit longtemps après ma mort, et c’est vrai. Mais je dis qu’il est également vrai que j’ai eu cette vision prophétique – l’instinct messianique était logé au plus profond de l’âme du peuple juif, et je le possédais aussi.
 <small>
 
-1. <large id="f1"> Deutéronome 18:15 : « L’Eternel, ton Dieu, te suscitera du milieu de toi, d’entre tes frères, un prophète comme moi: vous l’écouterez ! »[↩](#a1)
+1. <large id="f1"> Deutéronome 18:15 : *« L’Eternel, ton Dieu, te suscitera du milieu de toi, d’entre tes frères, un prophète comme moi: vous l’écouterez ! »*[↩](#a1)

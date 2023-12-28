@@ -25,7 +25,7 @@ La séparation de la mer Rouge fut simplement le fait du vent qui souffla sur le
 
 De même, la légende du buisson ardent est née du fait que j’ai vu le buisson fleurir dans un endroit du désert qui ne semblait pas pouvoir accueillir la vie. J’ai donc interprété cela comme un miracle, et les générations suivantes l’ont développé.
 
-Les dix commandements n’ont pas été gravés par Dieu, mais par moi. Pendant que j’étais sur la montagne sainte, je méditais et communiquais avec Dieu, qui, par l’intermédiaire de ses esprits tutélaires, mettait dans mon esprit des pensées concernant Ses lois. Lorsque j’ai commencé à recevoir dans mes pensées les dix commandements, j’ai compris qu’il fallait les écrire pour mon peuple, et je les ai donc gravés, en utilisant une pierre tranchante proche sur une pierre tendre qui cédait à mes efforts de gravure. J’avais le sentiment que ces instruments d’écriture avaient été fournis par Dieu.
+Les dix commandements n’ont pas été gravés par Dieu, mais par moi. Pendant que j’étais sur la montagne sainte, je méditais et communiquais avec Dieu, qui, par l’intermédiaire de Ses esprits tutélaires, mettait dans mon esprit des pensées concernant Ses lois. Lorsque j’ai commencé à recevoir dans mes pensées les dix commandements, j’ai compris qu’il fallait les écrire pour mon peuple, et je les ai donc gravés, en utilisant une pierre tranchante proche sur une pierre tendre qui cédait à mes efforts de gravure. J’avais le sentiment que ces instruments d’écriture avaient été fournis par Dieu.
 
 Mais, comme le décrit fidèlement la Torah, j’avais fort à faire avec les infidélités de mon peuple, qui était mécontent de tant de choses, alors qu’il aurait dû être reconnaissant.
 

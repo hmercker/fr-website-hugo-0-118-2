@@ -11,7 +11,7 @@ weight:
 
 William Howard Taft - reçu par FAB le 18 Juin 2008, Santa Cruz, Californie, USA.
 
-Je suis ici, William Howard Taft.
+Je suis ici, William Howard Taft.<sup id="a1">[1](#f1)</sup>
 
 Permettez-moi de commenter ce que j'ai dit dans [ma précédente canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-1-fab-william-howard-taft/) :
 
@@ -28,3 +28,6 @@ Je n'étais pas cynique. Je ne faisais qu'énoncer une réalité. Un politicien 
 J'ai parlé à de nombreux esprits qui se sont engagés dans la politique dans notre pays. Ils sont d'accord avec ce que j'ai dit. Ils m'ont dit que cette profession leur imposait des exigences inhabituelles et qu'il était souvent difficile de faire ce qu'ils voulaient. Ils ont souvent qualifié ces pressions d'injustes.
 
 Je parlais donc du point de vue de ce côté de la vie, où tout est révélé. Et je bénis tous ceux qui ont vraiment servi leur pays avec un dévouement sincère.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par William Howard Taft est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

@@ -67,7 +67,7 @@ Jésus | [Meher Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date
 Wolfgang Amadeus Mozart | [Mozart complète son message precedent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/) | 17 Juillet 2007
 David Ben-Gurion | [Un dirigeant israélien complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/) | 20 Juillet 2007
 Jésus | [Un espoir pour l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-26-1-fab-jesus/) | 26 Juillet 2007
-Mère du moyen | [Dieu est juste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-8-1-fab-mother-of-medium/) | 8 Août 2007
+Mère du médium | [Dieu est juste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-8-1-fab-mother-of-medium/) | 8 Août 2007
 William Shakespeare | [Shakespeare - L'enfance et la Bible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-12-1-fab-william-shakespeare/) | 12 Août 2007
 William Shakespeare | [La vie de Shakespeare - 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-12-2-fab-william-shakespeare/) | 12 Août 2007
 William Shakespeare | [Shakespeare - Adolescence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-13-1-fab-william-shakespeare/) | 13 Août 2007

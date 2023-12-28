@@ -13,11 +13,11 @@ Moïse - reçu par FAB le 11 Janvier 2003, Santa Cruz, Californie, USA.
 
 C’est moi, Moïse.
 
-Je viens aujourd’hui pour poursuivre mon récit de l’histoire de l’Exode.
+Je viens aujourd’hui [pour poursuivre mon récit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-9-1-fab-moses/) de l’histoire de l’Exode.
 
 Comme il est possible de l’imaginer, nous étions tous ravis de ne plus être en esclavage. En quittant l’Égypte pour le désert, nous pleurions de joie et nous avions beaucoup de foi. C’était exaltant, et nous ne doutions pas que nous serions heureux et en sécurité.
 
-Mais le premier nuage noir est apparu lorsque les Égyptiens nous ont poursuivis au bord de l’eau. Bien que la mer ne soit pas très profonde, nous ne savions pas comment nous pourrions nous échapper à temps. Mais aussi étrange que cela puisse paraître, à un moment donné, les Égyptiens se sont arrêtés et ont fait demi-tour. J’ai interrogé Pharaon dans le monde des esprits à ce sujet. Il m’a répondu qu’il avait l’intention de tous nous massacrer, ou du moins de nous ramener en esclavage. Mais il y avait une lumière blanche, brillante, qui agissait comme une barrière, à travers laquelle il ne pouvait pas passer. Et en plus, cela l’effrayait. Ils ont donc décidé de faire demi-tour. Je sais que je n’ai cessé de démystifier les soi-disant miracles de l’histoire biblique, mais c’est ce que m’a dit le pharaon.
+Mais le premier nuage noir est apparu lorsque les Égyptiens nous ont poursuivis au bord de l’eau. Bien que la mer ne soit pas très profonde, nous ne savions pas comment nous pourrions nous échapper à temps. Mais aussi étrange que cela puisse paraître, à un moment donné, les Égyptiens se sont arrêtés et ont fait demi-tour. J’ai interrogé Pharaon dans le monde des esprits à ce sujet. Il m’a répondu qu’il avait l’intention de tous nous massacrer, ou du moins de nous ramener en esclavage. Mais il y avait une lumière blanche, brillante, qui agissait comme une barrière, à travers laquelle il ne pouvait pas passer. Et en plus, cela les a effrayés. Ils ont donc décidé de faire demi-tour. Je sais que je n’ai cessé de démystifier les soi-disant miracles de l’histoire biblique, mais c’est ce que m’a dit le Pharaon.
 
 Donc, une fois de plus, nous avions des raisons de nous réjouir. Le désert, bien sûr, nous était étranger, et nous ne savions pas comment subvenir à nos besoins. Mais Dieu nous a encore aidés. Il n’y avait pas de manne ni de cailles, mais il y avait certaines pousses de légumes qui étaient comestibles, et aussi certains petits animaux que nous pouvions tuer. Pour ce qui est de l’eau, nous n’avons pas tardé à trouver un ruisseau à notre disposition.
 

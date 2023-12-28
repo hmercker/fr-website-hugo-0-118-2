@@ -11,11 +11,11 @@ weight:
 
 St Jean - reçu par Kathryn Stokes le 5 Octobre 2003, Santa Cruz, Californie, USA.
 
-*[Cher Père du Ciel, merci pour Tes dons et Tes bénédictions. Je suis reconnaissant que Tu nous aies permis de communiquer avec nos chers défunts. Je suis heureuse de savoir qu’ils sont toujours en vie et en bonne santé, même plus qu’ils ne l’étaient dans leur vie terrestre (Jean de l’Amour a établi un rapport avec moi pendant que j’écrivais et a continué) :]*
+*[Cher Père du Ciel, merci pour Tes dons et Tes bénédictions. Je suis reconnaissante que Tu nous aies permis de communiquer avec nos chers défunts. Je suis heureuse de savoir qu’ils sont toujours en vie et en bonne santé, même plus qu’ils ne l’étaient dans leur vie terrestre (Jean de l’Amour a établi un rapport avec moi pendant que j’écrivais et a continué) :]*
 
 et que Tu as créé un bon plan pour Tes enfants, leur donnant l’opportunité de réaliser leurs rêves – leur permettant d’avoir des rêves – leur donnant un cœur et une âme et des choix de libre arbitre.
 
-Il est bon que les gens de la terre apprennent l’importance de leurs choix, et que leur vie se déroule en fonction des choix qu’ils font. Il y a encore beaucoup de gens qui préfèrent blâmer les autres pour leurs « orientations » (conseils, choix, etc.). S’ils suivent les traces de leurs amis, de leurs voisins, de leurs parents ou de la société sans tenir compte des conséquences de leurs choix et de leurs actions, ils peuvent s’attirer un mauvais karma, pour ainsi dire, et il ne servira à rien de décider que c’est parce qu' »ils m’ont forcé à le faire », puisque c’était leur décision de suivre ce que les autres font.
+Il est bon que les gens de la terre apprennent l’importance de leurs choix, et que leur vie se déroule en fonction des choix qu’ils font. Il y a encore beaucoup de gens qui préfèrent blâmer les autres pour leurs « orientations » (conseils, choix, etc.). S’ils suivent les traces de leurs amis, de leurs voisins, de leurs parents ou de la société sans tenir compte des conséquences de leurs choix et de leurs actions, ils peuvent s’attirer un mauvais karma, pour ainsi dire, et il ne servira à rien de décider que c’est parce *« qu'ils m’ont forcé à le faire »*, puisque ce fut leur décision de suivre ce que les autres font.
 
 Vous pouvez prendre le train en marche ou vous pouvez ne pas le faire. Je sais que, souvent, on a l’impression de ne pas avoir le choix à cause de la pression des pairs et autres, mais avez-vous essayé ? Avez-vous réfléchi aux conséquences, ou êtes-vous d’accord avec ce qui est fait et vous sentez-vous poussé par votre amour à soutenir l’action ?
 

@@ -11,7 +11,7 @@ weight:
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-thomas_jefferson.jpg)
 
-Thomas Jefferson - reçu par FAB le 1 Janvier 2008, Santa Cruz, Californie, USA.
+Thomas Jefferson<sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Janvier 2008, Santa Cruz, Californie, USA.
 
 C’est moi, Thomas Jefferson. Je fus le 3ème président des États Unis. Je vois que avez lu le livre « A propos du Conservatisme », vous avez été frappé et vous vous êtes durement rappelé, désagréablement, que votre pays (les États Unis d’Amérique), comparé à d’autres démocraties industrielles, semble être au bas de l’échelle. Les autres pays jouissent, actuellement, de nombreux avantages sociaux qui font défaut actuellement au peuple américain. Alors, comment tous ces  messages que vous avez reçus au cours des dernières années peuvent-ils être vrais ? Comment votre pays peut-il être le phare de la liberté et des possibilités qui vous été prédits ?
 
@@ -24,3 +24,7 @@ La réponse à votre question concerne le futur. C’est le futur qui sera carac
 L’obscurité est forte, agressive et dominante alors que la lumière est calme, posée et repose sur la confiance en Dieu avec énormément d’amour lequel est l’amour de Dieu. Les deux traits de caractères humains sont présents actuellement ici en Amérique et le combat doit être joué jusqu’à ce que le bien triomphe. Vous verrez, de votre vivant, ce triomphe.
 
 Vous ne savez pas à quoi ressemblera ce pays lorsque la bataille sera terminée. Tout ce que vous voyez actuellement est un énorme et uniforme nuage qui couvre tout le ciel. Mais la vie vous a montré que les nuages finissent toujours par passer et qu’ils sont suivis par le soleil.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Thomas Jefferson est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+

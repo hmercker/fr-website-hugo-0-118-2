@@ -15,7 +15,7 @@ Jésus - reçu par FAB le 28 Février 2007, Santa Cruz, Californie, USA.
 
 C’est moi, Jésus.
 
-Nous voyons que vous avez une très haute opinion des canalisations de Judas – et nous aussi. Mais il y a un passage qui vous a laissé perplexe, et je voudrais le commenter maintenant. Il se trouve dans le message « Communication et Médiation », daté du 20 Août 2001. Le passage concerné est le suivant :
+Nous voyons que vous avez une très haute opinion des canalisations de Judas – et nous aussi. Mais il y a un passage qui vous a laissé perplexe, et je voudrais le commenter maintenant. Il se trouve dans le message [« Communication et Médiumnité »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-2-hr-judas/). Le passage concerné est le suivant :
 
 > Nous *[les anges Célestes et les esprits supérieurs]* vivons dans un monde où la justice n’a pas sa place, c’est un monde d’amour, soit l’amour de l’homme, soit l’Amour Divin, mais l’amour et la justice n’ont rien en commun. La justice est une invention humaine. Dieu n’est pas justice. Il est Amour. Si vous ne comprenez pas cela, vous ne pouvez pas comprendre Dieu. »
 

@@ -31,6 +31,6 @@ Dans le monde des esprits, bien que j’aie de nombreux souvenirs de mes bontés
 
 Eh bien, comme vous l’avez compris, j’habite les Cieux Célestes, où nous travaillons toujours à inverser et à guérir les dommages et les horreurs de la guerre. Je suis particulièrement heureux et honoré d’apporter mon aide ici, en connaissant et en comprenant ce qui pousse les mortels à commettre ces actes qui ne produisent finalement que souffrance et malheur pour celui qui les commet.
 
-Garde votre courage. Continuez à vous fier à votre guide. Sachez que le chemin est préparé pour vous, de sorte que lorsque vous viendrez ici, vous serez un esprit des plus heureux.
+Gardez votre courage. Continuez à vous fier à votre guide. Sachez que le chemin est préparé pour vous, de sorte que lorsque vous viendrez ici, vous serez un esprit des plus heureux.
 
 Avec amour, David.

@@ -23,4 +23,4 @@ Toute cette division de l’humanité en « civilisés » et « primitifs » a f
 
 Beaucoup des Espagnols qui ont opprimé mon peuple à une époque ultérieure ont souffert dans les enfers. A quoi leur a servi leur Jésus, alors qu’ils ne pouvaient même pas appliquer ses enseignements ?
 
-Je reviendrai une autre fois. Je vous souhaite une bonne soirée.
+Je reviendrai [une autre fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/). Je vous souhaite une bonne soirée.

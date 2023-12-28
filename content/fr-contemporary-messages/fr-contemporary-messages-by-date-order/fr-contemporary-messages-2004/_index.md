@@ -35,5 +35,5 @@ Jérémie et Salomon | [L'amour suscite des changements](/fr-contemporary-messag
 Marie | [Où se trouve le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-31-1-ar-mary/) | 31 Octobre 2004
 Marie | [L’amour d’une mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-11-1-rl-mary/) | 11 Décembre 2004
 St Matthieu & St André | [Message d’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-15-1-ks-st-matthew-st-andrew/) | 15 Décembre 2004
-St Jean et Jésus | [L’égalité de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-17-1-ar-st-john-jesus/) | 17 Décembre 2004
+St Jean et Jésus | [L’égalité de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-17-1-ar-st-john-jesus/) | 17 Décembre 2004
 St Jean et Marie | [La vue de l’âme (suite)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-27-1-ar-st-john-mary/) | 27 Décembre 2004

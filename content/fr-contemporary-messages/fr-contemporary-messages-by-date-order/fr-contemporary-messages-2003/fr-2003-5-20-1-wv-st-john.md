@@ -27,7 +27,8 @@ Marcher dans une forêt, en priant pour l’Amour, n’affecte pas seulement ton
 
 Tu vois donc, mon ami, qu’en de nombreuses occasions tu as influencé beaucoup plus de personnes que tu ne peux l’imaginer. Chaque fois que tu as demandé de l’Amour, il a laissé une trace et les gens le trouveront. Ils le ressentiront, le verront et l’entendront, encore et encore. Ils se souviendront de la « vibration » qu’ils ont ressentie en marchant dans cette forêt et commenceront à la rechercher chez les autres.
 
-Tu vois donc que tu cherches quelque chose qui est déjà là. Demander l’Amour Divin est la chose la plus importante à faire pour changer ce monde et atteindre les autres. Comme tu l’as dit toi-même dernièrement : « Vivez l’Amour. Soyez l’Amour. Demandez l’amour ». C’est aussi simple que cela. Et si le monde entier faisait cette petite et simple chose, il deviendrait un paradis en une fraction de seconde.
+Tu vois donc que tu cherches quelque chose qui est déjà là. Demander l’Amour Divin est la chose la plus importante à faire pour changer ce monde et atteindre les autres. Comme tu l’as dit toi-même dernièrement : *« Vivez l’Amour. Soyez l’Amour. Demandez l’amour »*. C’est aussi simple que cela. Et si le monde entier faisait cette petite et simple chose, il deviendrait un paradis en une fraction de seconde.
+
 Tout commence en effet par l’homme ou la femme dans le miroir. Pour changer le monde, vous devez changer. Donc pour faire du monde un endroit Divin, vous devez être aussi Divin que possible.
 
 Tu es vraiment béni, mon ami, car tu as tellement d’amour en toi. N’aie pas peur de le montrer, le monde en a besoin et nous aussi. Nous sommes tous égaux, souviens-toi, alors garde ta foi et ne cesse pas de demander l’Amour.

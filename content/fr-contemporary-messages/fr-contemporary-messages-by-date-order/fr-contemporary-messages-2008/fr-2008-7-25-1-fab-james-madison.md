@@ -11,7 +11,7 @@ weight:
 
 James Madison <sup id="a1">[1](#f1)</sup> - reçu par FAB le 25 Juillet 2008, Santa Cruz, Californie, USA.
 
-Je suis James Madison.
+Je suis James Madison.<sup id="a2">[2](#f2)</sup>
 
 Je suis un nouveau venu dans vos canalisations, mais je vois que vous avez une bonne connaissance pratique de ces temps mémorables. Oui, et malgré ce que vous pouvez lire, beaucoup d'entre nous avaient en effet une façon élevée de penser.
 
@@ -23,3 +23,6 @@ Quoi qu'il en soit, notre travail se poursuit dans le présent.
 <small>
 
 1. <large id="f1"> **James Madison, Jr.** (16 Mars 1751 - 28 Juin 1836) fut un homme politique américain et le quatrième président des États-Unis (1809-1817), et l'un des Pères fondateurs des États-Unis. Madison fut le dernier père fondateur à mourir. Considéré comme le "Père de la Constitution", il est le principal auteur du document. En 1788, il a écrit plus d'un tiers des Federalist Papers, qui restent le commentaire le plus influent sur la Constitution. Premier président à avoir siégé au Congrès des États-Unis, il était l'un des chefs de file des premiers Congrès, il a rédigé de nombreuses lois fondamentales et est à l'origine des dix premiers amendements à la Constitution (dont il est dit qu'ils sont fondés sur la Déclaration des droits de la Virginie), et est donc également connu comme le "Père de la Déclaration des droits". En tant que théoricien politique, la conviction la plus marquante de Madison était que la nouvelle république avait besoin de freins et de contrepoids pour limiter les pouvoirs des intérêts particuliers, que Madison appelait les factions. Il croyait fermement que la nouvelle nation devait lutter contre l'aristocratie et la corruption et était profondément engagé dans la création de mécanismes qui garantiraient le républicanisme aux États-Unis. (Source : Wikipedia)[↩](#a1)
+
+
+2. <large id="f2"> L'ensemble des messages communiqués par Abraham Lincoln est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)

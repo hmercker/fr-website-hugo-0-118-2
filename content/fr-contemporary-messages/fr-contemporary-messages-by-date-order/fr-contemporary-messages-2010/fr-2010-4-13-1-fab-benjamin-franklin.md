@@ -11,7 +11,7 @@ weight:
 
 Benjamin Franklin - reçu par FAB le 13 Avril 2010, Santa Cruz, Californie, USA.
 
-C'est moi, Benjamin Franklin.
+C'est moi, Benjamin Franklin.<sup id="a1">[1](#f1)</sup>
 
 Je veux faire un commentaire sur le sujet de l'élitisme en ce qui concerne le gouvernement américain. Vous savez qu'à cette époque, les dirigeants politiques n'étaient pas tellement élus par le peuple. Les sénateurs américains ne l'étaient certainement pas, et nous avons mis en place le collège électoral, que vous avez toujours exécré, je le sais.
 
@@ -30,3 +30,6 @@ Cette égalité était d'ailleurs ouvertement discutée par les penseurs des Lum
 Ceci est directement lié à mes remarques préliminaires, car même si nous avons essayé de mettre en place un gouvernement qui fonctionnerait avec succès selon la nature humaine, nous ne pouvions pas voir pleinement notre propre complicité dans l'imperfection. En d'autres termes, bien que certains d'entre nous, comme George Washington et moi-même, aient travaillé dur sur leur caractère, nous n'avons pas pu échapper aux préjugés et aux limites de notre époque, qui considérait les Afro-Américains, les autochtones et les gens ordinaires comme incapables de se gouverner eux-mêmes.
 
 Comme vous pouvez le constater, le sujet est complexe, et il est tout aussi faux de dire que nous n'étions que des élitistes égoïstes soucieux de préserver le pouvoir de leur classe que de dire que nous étions des champions du pouvoir du peuple. Il est facile de faire des trous dans les deux arguments, car aucun n'est entièrement vrai.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Benjamin Fanklin est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

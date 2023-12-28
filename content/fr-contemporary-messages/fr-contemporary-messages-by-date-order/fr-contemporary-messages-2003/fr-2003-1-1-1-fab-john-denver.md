@@ -33,4 +33,4 @@ Je vois comment vous êtes consacré à ma musique, et je ne peux que vous remer
 
 Avec amour, John Denver.
 
-**Note :** [Un second message de John Denver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-23-1-fab-john-denver/)
+**Note :** John Denver a communiqué un second message [le 23 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-23-1-fab-john-denver/)

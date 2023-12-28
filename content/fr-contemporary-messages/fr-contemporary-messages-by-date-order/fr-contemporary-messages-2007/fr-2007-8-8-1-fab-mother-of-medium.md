@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu est juste
 
-Mère du moyen - reçu par FAB le 8 Août 2007, Santa Cruz, Californie, USA.
+Mère du médium - reçu par FAB le 8 Août 2007, Santa Cruz, Californie, USA.
 
 C'est moi, ta mère.
 

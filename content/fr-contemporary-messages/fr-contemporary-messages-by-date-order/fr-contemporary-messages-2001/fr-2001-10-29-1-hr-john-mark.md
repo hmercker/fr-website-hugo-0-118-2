@@ -55,7 +55,7 @@ Il n’y a aucun mal à lire des messages, il n’y a aucun mal à rechercher de
 
 Si tu souhaites comparer, compare toi-même avec toi-même, avec ton état de santé il y a quelques années et ton état actuel. Une autre indication est de mesurer la progression personnelle dans le développement des perceptions. Chez pratiquement tous les gens, la perception de la présence de l’esprit se développe. Ils peuvent la sentir d’une certaine façon. Et la chose la plus importante est qu’ils peuvent percevoir leur voix intérieure plus clairement.
 
-Tu peux la percevoir, tout le monde peut faire cela, mais tu dois devenir plus conscient de celle-ci. La voix peut te dire les mêmes choses que les messages et même plus encore. Et ce développement permet de séparer les perles de la vérité de ces «ornements » autour d’eux, ceux de peu de valeur. Ce que te transmet la voix intérieure est l’idée d’un être externe, qui permet de percevoir des idées étrangères, mais sous la forme de ta propre voix.
+Tu peux la percevoir, tout le monde peut faire cela, mais tu dois devenir plus conscient de celle-ci. La voix peut te dire les mêmes choses que les messages et même plus encore. Et ce développement permet de séparer les perles de la vérité de ces « ornements » autour d’eux, ceux de peu de valeur. Ce que te transmet la voix intérieure est l’idée d’un être externe, qui permet de percevoir des idées étrangères, mais sous la forme de ta propre voix.
 
 Rappelle-toi, ta foi est ta vision parfaite de ce qui est, tes connaissances, c’est ta vision de ce qui semble être, la vision dans le miroir, les dispositifs qui, au moment où Paul a écrit sa célèbre phrase, étaient faits de métal poli, produisant ainsi une image floue et déformée.
 

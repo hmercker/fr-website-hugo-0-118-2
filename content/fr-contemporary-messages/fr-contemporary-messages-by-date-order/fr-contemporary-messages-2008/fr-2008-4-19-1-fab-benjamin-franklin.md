@@ -11,7 +11,7 @@ weight:
 
 Benjamin Franklin - reçu par FAB le 19 Avril 2008, Santa Cruz, Californie, USA.
 
-C'est moi, Benjamin Franklin.
+C'est moi, Benjamin Franklin.<sup id="a1">[1](#f1)</sup>
 
 Oui, il y avait une influence très conservatrice de nous, les pères fondateurs, ainsi qu'un sentiment idéaliste, lors de la Convention constitutionnelle. Nous devions mettre en place un gouvernement qui fonctionnerait et qui serait sûr pour nous.
 
@@ -22,3 +22,6 @@ Il y avait en effet une forte composante idéaliste dans nos efforts, basée sur
 Ainsi, quelle que soit la façon dont on souhaite interpréter nos motivations, il est important de comprendre que l'idéalisme élevé faisait certainement partie de notre pensée, en plus d'un désir conservateur de répondre à certaines réalités terrestres - c'était les deux.
 
 J'étais à l'époque intensément conscient de nos lacunes, mais je savais aussi que quelque chose de plus élevé était dans l'air.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Benjamin Franklin est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

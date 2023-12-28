@@ -19,7 +19,7 @@ Je sais que vous êtes très curieux de savoir sur quel sujet je souhaite écrir
 
 Bien sûr, depuis lors, de nombreuses vérités scientifiques ont été découvertes, qui donnent certainement plus de sens à ce mystère. Mais même votre génération, avec toute l’accumulation de plusieurs siècles de pensée scientifique, et avec tous les progrès récents de la science et de la technologie, est forcée d’admettre que le mystère fondamental reste en place.
 
-À votre époque,² la science a perdu son lien profond avec les autres formes de Vérité. Au lieu d’éclairer l’humanité, la science l’a trop souvent asservie. Et ceci parce qu’il y a eu un divorce sévère entre la science/technologie et la moralité.
+À votre époque, la science a perdu son lien profond avec les autres formes de Vérité. Au lieu d’éclairer l’humanité, la science l’a trop souvent asservie. Et ceci parce qu’il y a eu un divorce sévère entre la science/technologie et la moralité.
 
 Au fil du temps, l’humanité devra réparer cette brèche, et elle le fera, afin que les personnes engagées dans des activités technologiques perçoivent également leur rôle dans un contexte moral. Je sais que cela semble impossible dans l’Amérique contemporaine, mais cela finira par arriver.
 
@@ -34,4 +34,6 @@ J’ai été attiré par votre intérêt et votre amour. Puissiez-vous découvri
 Amour, Socrate.
 <small>
 
-1. <large id="f1"> Socrate (470-399 av. J.-C.) était un philosophe de la Grèce antique à qui l’on attribue le mérite d’avoir jeté les bases de la philosophie occidentale. (Source : Wikipedia) Il a délivré [un message antérieur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) par l’intermédiaire de James Padgett.[↩](#a1)
+1. <large id="f1"> ***Socrate** (470-399 av. J.-C.) était un philosophe de la Grèce antique à qui l’on attribue le mérite d’avoir jeté les bases de la philosophie occidentale. (Source : Wikipedia) 
+
+Il a délivré antérieurement [un message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) par l’intermédiaire de James Padgett.[↩](#a1)

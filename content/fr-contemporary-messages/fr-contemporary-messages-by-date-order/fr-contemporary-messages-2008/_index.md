@@ -68,7 +68,7 @@ John C. Calhoun | [Le racisme est contre Dieu](/fr-contemporary-messages/fr-cont
 Nat Turner | [Le meurtre n’est pas justifié](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-23-2-fab-nat-turner/) | 23 Avril 2008
 Abraham Lincoln | [La délivrance viendra](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-23-3-fab-abraham-lincoln/) | 23 Avril 2008
 Walt Whitman | [La personnalité de Whitman en tant que poète et personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-28-1-fab-walt-whitman/) | 28 Avril 2008
-Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) | 9 Mai 2008
+Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) | 9 Mai 2008
 Pape Jean XXIII | [L'humilité d'un pape bien-aimé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-11-1-fab-pope-john-xxiii/) | 11 Mai 2008
 Jésus | [Indignation vertueuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-1-fab-jesus/) | 16 Mai 2008
 Jérémie | [Indignation vertueuse II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-2-fab-jeremiah/) | 16 Mai 2008

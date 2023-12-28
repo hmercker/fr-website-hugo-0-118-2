@@ -1,17 +1,17 @@
 ---
-title: "Les expériences de Johann Sebastian Bach"
+title: "Les expériences de Jean Sebastian Bach"
 menu_title: ""
-description: "Les expériences de Johann Sebastian Bach"
+description: "Les expériences de Jean Sebastian Bach"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True
 weight:
 ---
-### Les expériences de Johann Sebastian Bach
+### Les expériences de Jean Sebastian Bach
 
-Johann Sebastian Bach - reçu par FAB le 31 Décembre 2002, Santa Cruz, Californie, USA.
+Jean Sebastian Bach - reçu par FAB le 31 Décembre 2002, Santa Cruz, Californie, USA.
 
-C'est moi, Johann Sebastian Bach.
+C'est moi, Jean Sebastian Bach.
 
 Je vous salue en ce dernier jour de l'année pour vous dire mon amour. J'ai vécu une expérience spirituelle assez heureuse, et je réside maintenant dans les Cieux Célestes.
 
@@ -29,7 +29,7 @@ Je croyais de manière presque superficielle au credo Luthérien - c'était la v
 
 La composition m'était facile. Je ne travaillais pas souvent sur les notes comme l'ont fait d'autres compositeurs. Je travaillais dans ma tête, en élaborant les détails. C'est mon mental qui "voyait" la musique, et la façon dont les différentes parties et instruments s'accordaient. J'avais étudié avec beaucoup de zèle la musique de mes contemporains et de mes prédécesseurs. C'était un processus très naturel pour moi de composer à partir de ce que j'avais appris.
 
-Ma vie était très chargée. Avec tous les enfants et mes différents postes, j'avais rarement du temps libre (à part le temps pour composer), et en vérité, je ne me sentais pas mal à ce sujet, car j'aimais l'idée de rester occupé - c'était quelque chose dans mon caractère allemand.
+Ma vie fut très chargée. Avec tous les enfants et mes différents postes, j'avais rarement du temps libre (à part le temps pour composer), et en vérité, je ne me sentais pas mal à ce sujet, car j'aimais l'idée de rester occupé - c'était quelque chose dans mon caractère allemand.
 
 J'étais fier de mes enfants lorsqu'ils réussissaient, et j'ai été encouragé par le fait que quatre de mes fils se soient tournés vers la composition.
 

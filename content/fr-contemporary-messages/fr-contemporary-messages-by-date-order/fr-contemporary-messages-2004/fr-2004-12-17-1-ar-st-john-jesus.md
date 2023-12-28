@@ -1,13 +1,13 @@
 ---
-title: "L’égalité de l’amour de Dieu"
+title: "L’égalité de l’Amour de Dieu"
 menu_title: ""
-description: "L’égalité de l’amour de Dieu"
+description: "L’égalité de l’Amour de Dieu"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True
 weight:
 ---
-### L’égalité de l’amour de Dieu
+### L’égalité de l’Amour de Dieu
 
 St Jean et Jésus - reçu par Amada Reza le 17 Décembre 2004, Santa Cruz, Californie, USA.
 

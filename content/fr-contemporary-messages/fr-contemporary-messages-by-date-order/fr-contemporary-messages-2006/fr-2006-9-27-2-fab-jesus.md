@@ -13,13 +13,13 @@ Jésus - reçu par FAB le 27 Septembre 2006, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-Je vais maintenant transmettre une série de messages reflétant ma relation avec le Talmud juif. J'avais voulu le faire par l'intermédiaire de M. Padgett ou de Daniel Samuels, mais leurs décès ont rendu cela impossible. Je suis très reconnaissant que vous soyez maintenant prêt à rendre cela possible.
+Je vais maintenant transmettre une série de messages reflétant ma relation avec le Talmud Juif. J'avais voulu le faire par l'intermédiaire de M. Padgett ou de Daniel Samuels, mais leurs décès ont rendu cela impossible. Je suis très reconnaissant que vous soyez maintenant prêt à rendre cela possible.
 
 Beaucoup de Gentils sincères qui croient en moi et en mon message ne comprennent pas que lorsque je prêchais, je n'existais pas dans le vide. Parce qu'historiquement la religion Chrétienne a évolué loin de sa source Juive, il n'est pas généralement compris que beaucoup de choses que j'ai dites étaient alors dans l'air. C'était une époque de grande effervescence intellectuelle et spirituelle. Il y avait de nombreux courants de pensée. Et ce qui est finalement devenu le Talmud était très courant.
 
 Les penseurs talmudiques avaient les mêmes préoccupations générales que moi. Eux, et moi, avons défendu l'égalité des droits et les idéaux démocratiques. Ces valeurs sont devenues le fondement de votre pays, les États-Unis d'Amérique. Ainsi, le Talmud a eu un impact profond sur la pensée politique occidentale.
 
-Ils étaient également très soucieux, comme moi, que la loi religieuse ne supplante pas les besoins humanitaires vitaux. Par exemple, il y avait une maxime talmudique, *« le sabbat est fait pour l'homme et non l'homme pour le sabbat »*. J'ai utilisé cette idée dans le cadre de mon enseignement *[Marc 2:27]*.
+Ils étaient également très soucieux, comme moi, que la loi religieuse ne supplante pas les besoins humanitaires vitaux. Par exemple, il y avait une maxime talmudique, *« le sabbat est fait pour l'homme et non l'homme pour le sabbat »*. J'ai utilisé cette idée dans le cadre de mon enseignement *[Marc 2:27](https://saintebible.com/mark/2-27.htm)*.
 
 Vous voyez donc que je n'étais pas aussi radical pour mon époque qu'on le croit généralement. L'antisémitisme qui s'est développé dans le Christianisme païen a rendu les gens aveugles au fait que je n'étais pas le seul Juif à exprimer ces préoccupations et ces valeurs. Toute personne qui a étudié le Talmud le sait.
 

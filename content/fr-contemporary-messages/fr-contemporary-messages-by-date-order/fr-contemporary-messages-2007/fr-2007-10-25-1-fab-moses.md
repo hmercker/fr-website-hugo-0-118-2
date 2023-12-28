@@ -17,4 +17,4 @@ Vous avez lu dans le message de [James Padgett](/fr-james-padgett-messages/fr-pa
 
 La réponse est oui. Moi aussi, je possédais des pouvoirs inhabituels. Et tout comme dans le cas de mon frère, ils n’avaient pour but que de faire avancer notre cause de libération de notre peuple.
 
-Aaron et moi avons travaillé ensemble pour obtenir l’effet désiré, à savoir changer progressivement la volonté de Pharaon. Ces pouvoirs étaient nécessaires à notre objectif. Le fait que nous les ayons tous les deux impressionnés Pharaon et la cour égyptienne.
+Aaron et moi avons travaillé ensemble pour obtenir l’effet désiré, à savoir changer progressivement la volonté de Pharaon. Ces pouvoirs étaient nécessaires à notre objectif. Le fait que nous les ayons tous les deux ont impressionné Pharaon et la cour égyptienne.

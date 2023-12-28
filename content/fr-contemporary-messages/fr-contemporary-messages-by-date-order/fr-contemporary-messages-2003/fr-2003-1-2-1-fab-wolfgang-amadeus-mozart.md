@@ -15,7 +15,7 @@ C’est moi, Wolfgang Amadeus Mozart.
 
 J’ai attendu patiemment toutes ces années pour communiquer avec les mortels. Je tiens à vous remercier très sincèrement pour cette occasion.
 
-Comme vous le savez très bien, ma personnalité a été injustement et inexactement dépeinte dans le film Amadeus. Ce fut une construction artistique et un travail réalisé sur une base dramatique. Mais en aucun cas il ne ressemble à ce que fut ma vie et quelles furent mes relations avec d’autres personnes. J’avais tendance à être plutôt timide et réservé. Je savais que j’avais un don extraordinaire et beaucoup de facilité avec la musique, mais je ne l’ai pas annoncé de manière arrogante. Je l’ai juste accepté et ai remercié le Grand Dieu, auquel je croyais très sincèrement, pour ce cadeau.
+Comme vous le savez très bien, ma personnalité a été injustement et inexactement dépeinte dans le film Amadeus. Ce fut une construction artistique et un travail réalisé sur une base dramatique. Mais en aucun cas cela ne ressemble à ce que fut ma vie et quelles furent mes relations avec d’autres personnes. J’avais tendance à être plutôt timide et réservé. Je savais que j’avais un don extraordinaire et beaucoup de facilité avec la musique, mais je ne l’ai jamais exprimé de manière arrogante. Je l’ai juste accepté et ai remercié le Grand Dieu, auquel je croyais très sincèrement, pour ce cadeau.
 
 J’ai été un fervent Catholique, bien que je n’ai pas toujours suivi toutes les règles. Par fervent, je veux dire que j’ai accepté les dogmes fondamentaux et locaux qui préconise l’Église Catholique. Cependant, après ma traversée et après avoir observé, dans ce monde des esprits, l’impuissance totale de tant d’âmes Catholiques, j’ai conclu que je devais revoir ces diverses doctrines. Et dès que je suis venu à cette conviction, j’ai trouvé que les opportunités se présentaient elles-mêmes pour m’aider dans ma quête.
 
@@ -33,4 +33,4 @@ Puissiez-vous être heureux dans les prochains jours.
 
 Amour, Mozart.
 
-**Note :** [Un message plus récent a été reçu de Mozart](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/)
+**Note :** [Un message plus récent a été reçu de la part de Mozart](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/)

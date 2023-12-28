@@ -13,7 +13,7 @@ Leslie Stone - reçu par FAB le 19 Septembre 2007, Santa Cruz, Californie, USA.
 
 C'est moi, Leslie Stone.
 
-Lorsque M. Padgett est mort en 1923, j'avais déjà été préparé pour ma mission. J'y pensais continuellement depuis que j'avais souscrit aux messages qu'il recevait. J'ai donc eu plusieurs années de préparation. Je savais généralement ce qui m'attendait, et j'ai passé ces quelques années à me préparer consciemment.
+Lorsque M. Padgett est mort en 1923, j'étais déjà préparé pour ma mission. J'y pensais continuellement depuis que j'avais souscrit aux messages qu'il recevait. J'ai donc eu plusieurs années de préparation. Je savais généralement ce qui m'attendait, et j'ai passé ces quelques années à me préparer consciemment.
 
 Au moment de la mort de M. Padgett, il n'y a donc pas eu de traumatisme. En fait, parce que ma foi était devenue tellement forte, j'ai pu embrasser avec joie la mission unique que Dieu m'avait confiée. Je me suis pleinement rendu compte de son importance révolutionnaire, et j'ai accepté cette responsabilité avec reconnaissance.
 

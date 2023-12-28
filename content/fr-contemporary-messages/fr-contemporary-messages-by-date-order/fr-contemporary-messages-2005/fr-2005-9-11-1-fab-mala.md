@@ -13,7 +13,7 @@ Mala - reçu par FAB le 11 Septembre 2005, Santa Cruz, Californie, USA.
 
 Je suis là, Mala.
 
-Je suis un Amérindien qui a vécu il y a des milliers d'années, dans ce que vous appelez la préhistoire. Nous avions un concept de la vie assez avancé, comparé à vos vues modernes. Les gens assimilent souvent « préhistorique » à « primitif », mais ce n'était pas toujours le cas. Il est certain que certains peuples préhistoriques avaient des conceptions de la vie que vous qualifiez de « primitives », mais le peuple dont je suis issu comprenait le cosmos et la nécessité d'être en harmonie avec lui. Une telle attitude était adoptée par de nombreux Amérindiens préhistoriques.
+Je suis un Amérindien qui a vécu il y a des milliers d'années, au temps de ce que vous appelez la préhistoire. Nous avions un concept de la vie assez avancé, comparé à vos vues modernes. Les gens assimilent souvent « préhistorique » à « primitif », mais ce n'était pas toujours le cas. Il est certain que certains peuples préhistoriques avaient des conceptions de la vie que vous qualifiez de « primitives », mais le peuple dont je suis issu comprenait le cosmos et la nécessité d'être en harmonie avec lui. Une telle attitude était adoptée par de nombreux Amérindiens préhistoriques.
 
 Nous avions une conception avancée du mystère de la vie et l'exprimions par des chants rituels et ce que vous appelleriez de la poésie. Mais cette poésie était utilisée d'une manière totalement sacrée. Nous n'avons jamais imaginé cette poésie comme étant séparée de son objectif sacré.
 

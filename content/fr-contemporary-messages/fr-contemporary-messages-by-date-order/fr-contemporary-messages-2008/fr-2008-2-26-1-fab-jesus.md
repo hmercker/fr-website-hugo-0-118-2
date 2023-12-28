@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 26 Février 2008, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-J'ai commenté dans une canalisation passée que les sociétés deviennent plus conscientes de la préservation de l'environnement. C'est parce qu'il y a une très forte prise de conscience parmi les gens du monde du danger pour l'environnement de la terre. Naturellement, ces entreprises ne peuvent pas aller jusqu'au bout de leur engagement parce qu'elles sont préoccupées par elles-mêmes et, du moins à ce stade de l'histoire, ne sont pas vraiment dédiées au bien-être de l'humanité.
+J'ai commenté [dans une canalisation passée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-9-1-fab-jesus/) que les sociétés deviennent plus conscientes de la préservation de l'environnement. C'est parce qu'il y a une très forte prise de conscience parmi les gens du monde du danger pour l'environnement de la terre. Naturellement, ces entreprises ne peuvent pas aller jusqu'au bout de leur engagement parce qu'elles sont préoccupées par elles-mêmes et, du moins à ce stade de l'histoire, ne sont pas vraiment dédiées au bien-être de l'humanité.
 
 Mais le temps viendra où il y aura un changement de cœur parmi ceux qui représentent ces entreprises. Je sais que votre esprit pense que c'est impossible, étant donné l'orientation anti-humanitaire qui les anime. Mais votre âme connaît cette grande vérité, que la paix et la justice viendront sur la terre comme Dieu l'a promis à travers ses prophètes.
 

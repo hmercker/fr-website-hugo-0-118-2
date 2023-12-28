@@ -13,7 +13,7 @@ Uharu - reçu par FAB le 10 Janvier 2007, Santa Cruz, Californie, USA.
 
 Je suis là, Uharu.
 
-Oui, j'ai été choisi par mon peuple pour le représenter auprès de vous. Je vais maintenant canaliser des informations supplémentaires sur ma culture terrestre. *[Message précédent [ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/).]*
+Oui, j'ai été choisi par mon peuple pour le représenter auprès de vous. Je vais maintenant canaliser des informations supplémentaires sur ma culture terrestre. *[Message du 18 Juillet 20026](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/).*
 
 Nous, les indigènes Ohlone de Californie, percevions la vie dans un contexte sacré. Nous ne faisions donc pas de distinction entre le sacré et le profane. Vous notez que c'est un aspect majeur de votre propre culture Juive autochtone, et c'est le cas. Il y a donc un lien de parenté.
 

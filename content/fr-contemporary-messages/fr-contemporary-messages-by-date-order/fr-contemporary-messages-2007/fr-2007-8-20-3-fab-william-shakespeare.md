@@ -17,4 +17,4 @@ Lorsque ma mère m'a recommandé à Beauchamps Court pour être maître d'école
 
 J'ai attendu environ un an après la naissance de mes jumeaux avant de m'installer à Londres, car je devais mettre mes affaires en ordre. Cela a constitué un temps d'adaptation nécessaire pour Anne et moi. De plus, la confirmation de ma première résidence à Londres n'est pas venue immédiatement.
 
-Vous avez lu que le spécialiste de Shakespeare Douglas Hamer a déclaré que je "réapparaissais en 1587 en tant que 'joueur' ... au service de Sir Thomas Hesketh dans le Lancashire". Mais l'année est fausse, même si oui, j'ai joué avec le groupe de Sir Hesketh.
+Vous avez lu que le spécialiste de Shakespeare Douglas Hamer a déclaré que je *« réapparaissais en 1587 en tant que 'joueur' ... au service de Sir Thomas Hesketh dans le Lancashire »*. Mais l'année est fausse, même si oui, j'ai joué avec le groupe de Sir Hesketh.

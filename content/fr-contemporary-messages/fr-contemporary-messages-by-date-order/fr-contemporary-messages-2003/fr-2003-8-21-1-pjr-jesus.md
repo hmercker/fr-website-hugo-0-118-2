@@ -167,8 +167,7 @@ fera l’affaire pour un fleuve – jusqu’à une autre fois.
 
 Mais dans tous les cas, je dois me mettre en route.
 
-En te laissant maintenant jusqu’à ce que nous nous croisions à nouveau, je dirai : Continue à prier le Père
-pour que le don de Son Amour descende sur Toi et fasse de toi sa maison.
+En te laissant maintenant jusqu’à ce que nous nous croisions à nouveau, je dirai : Continue à prier le Père pour que le don de Son Amour descende sur Toi et fasse de toi sa maison.
 
 Ton ami, Jésus.
 <small>

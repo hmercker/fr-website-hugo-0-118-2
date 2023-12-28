@@ -45,6 +45,8 @@ Avec cela, je te dis au revoir. Que Dieu bénisse l’humanité tout entière, e
 
 Ton frère en Christ, Judas.
 
-**Note :** Remarque Ce message n'aborde pas la question de la fin de la vie dans la mesure où cette vie n'a aucune chance d'éviter une mort imminente par maladie terminale et où la qualité de vie est absente. Nous n’avons jusqu’à présent (Octobre 2023) reçu aucun enseignement à ce sujet. Cependant, nous avons un cas où une amie qui a suivi le chemin de l'Amour Divin dans une certaine mesure, pendant quelques années, a été autorisée à mettre fin à ses jours au Canada et nous a envoyé un message après son décès indiquant qu'elle n'a subi aucune conséquence de cette décision. En général, le suicide est une très mauvaise décision et s’accompagne de conséquences spirituelles importantes après la mort.
+**Note :** Remarque Ce message n'aborde pas la question de la fin de la vie dans la mesure où cette vie n'a aucune chance d'éviter une mort imminente par maladie terminale et où la qualité de vie est absente. Nous n’avons jusqu’à présent (Octobre 2023) qu'un seul enseignement à ce sujet, également [de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-1-hr-judas/). Judas a été, je crois, assez précis : *« Ensuite, je voudrais ajouter que jamais, absolument jamais, il n'est justifié d'appeler action harmonieuse celle qui met fin à la vie, que ce soit la sienne ou celle d'autrui.»*
+
+Cependant, nous avons un cas où une amie qui a suivi, dans une certaine mesure, pendant quelques années, le chemin de l'Amour Divin, a été autorisée à mettre fin à ses jours au Canada. Elle nous a alors envoyé [un message après son décès](****) indiquant qu'elle n'avait ppas souffert en conséquence de cette décision. En général, le suicide est une très mauvaise décision et s’accompagne de conséquences spirituelles importantes après la mort.
 
 © Geoff Cutler 2013

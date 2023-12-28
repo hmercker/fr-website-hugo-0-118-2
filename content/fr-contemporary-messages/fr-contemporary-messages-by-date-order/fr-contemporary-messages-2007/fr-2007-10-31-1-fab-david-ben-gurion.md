@@ -17,7 +17,7 @@ Alors que vous lisez le livre "The Israel Lobby and U.S. Foreign Policy (Le lobb
 
 J'ai canalisé [mon message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) parce que vous étiez confus, et je voulais vous donner un peu de clarté, en plus de vouloir partager mes propres pensées avec le monde. J'essayais de vous donner une perspective différente sur un sujet difficile et volatile, une perspective qui ne vient pas de la terre, mais du monde des esprits.
 
-J'ai dit dans cette canalisation : "La situation est que les Arabes qui sont hostiles à Israël, ne veulent pas qu'il existe. Ces Arabes créent donc les lois spirituelles par lesquelles les semailles et les récoltes entrent en jeu, ainsi que les lois de la justice."
+J'ai dit dans cette canalisation : *« La situation est que les Arabes qui sont hostiles à Israël, ne veulent pas qu'il existe. Ces Arabes créent donc les lois spirituelles par lesquelles les semailles et les récoltes entrent en jeu, ainsi que les lois de la justice. »*
 
 Ce que je voulais dire, c'est que les Arabes qui sont hostiles à Israël et ne veulent pas qu'il existe, invoquent la loi des semailles et de la moisson. Évidemment, certains Arabes hostiles n'ont pas voulu aller jusqu'au bout, et d'autres ont effectivement voulu détruire Israël. Mais dans un cas comme dans l'autre, le négatif est récolté proportionnellement au degré de négativité.
 

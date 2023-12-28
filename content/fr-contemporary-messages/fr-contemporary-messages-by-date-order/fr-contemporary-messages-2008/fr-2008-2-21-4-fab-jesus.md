@@ -15,13 +15,13 @@ Je suis là, Jésus.
 
 Lorsqu’un collègue de l’église fut incrédule à propos de ma canalisation selon laquelle Dieu suscite des empires, vous étiez d’accord avec votre ami concernant Hitler et les Nazis. Pour vous, l’idée même que Dieu ait permis l’holocauste nazi est trop horrible à envisager.
 
-Dans une autre canalisation, Guerre et paix et le plan de Dieu Partie 3 du 20 Janvier 2007, lorsque j’ai utilisé le mot « élever », j’ai simplement voulu dire « permettre ». J’ai également dit que je ne voulais pas impliquer que Dieu était nécessairement en faveur. Mais alors, vous vous demandez, si cela est vrai, pourquoi un Dieu aimant permettrait-il le genre d’horreurs que les Nazis ont commises ?
+Dans une autre canalisation, [Guerre et paix et le plan de Dieu Partie 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-1-fab-jesus/) du 20 Janvier 2007, lorsque j’ai utilisé le mot « élever », j’ai simplement voulu dire « permettre ». J’ai également dit que je ne voulais pas impliquer que Dieu était nécessairement en faveur. Mais alors, vous vous demandez, si cela est vrai, pourquoi un Dieu aimant permettrait-il le genre d’horreurs que les Nazis ont commises ?
 
-La réponse est une réponse que vous connaissez déjà, à savoir le libre arbitre humain. La situation en Allemagne lorsque Hitler est arrivé au pouvoir était désespérée. Il y avait un chômage massif et l’économie était en ruine. Plus important encore, le peuple allemand n’appréciait pas ce qu’il percevait comme l’injustice du traité de paix de Versailles, il s’est doc tourné vers Hitler pour trouver une réponse au dilemme tragique du pays.
+La réponse est une réponse que vous connaissez déjà, à savoir le libre arbitre humain. La situation en Allemagne lorsque Hitler est arrivé au pouvoir était désespérée. Il y avait un chômage massif et l’économie était en ruine. Plus important encore, le peuple allemand n’appréciait pas ce qu’il percevait comme l’injustice du traité de paix de Versailles, il s’est donc tourné vers Hitler pour trouver une réponse au dilemme tragique du pays.
 
 Le Créateur ne contrôlait pas Hitler et ses collègues. Et il ne contrôlait pas la volonté d’une grande partie du peuple allemand qui le soutenait.
 
-Mais alors, vous vous demandez pourquoi Il n’aurait pas pu faire quelque chose à sa manière pour arrêter la marche des événements, qu’Il avait certainement prévue ? Et pourquoi les diverses tentatives d’assassinat sur la vie d’Hitler ont-elles échoué ?
+Mais alors, vous vous demandez pourquoi Il n’aurait pas pu faire quelque chose, à Sa manière, pour arrêter la marche des événements qu’Il avait certainement prévue ? Et pourquoi les diverses tentatives d’assassinat sur la vie d’Hitler ont-elles échoué ?
 
 Eh bien, à la première question, je réponds qu’Il a incité Hitler à envahir l’Union soviétique, ce qu’aucun chef militaire sensé n’aurait jamais fait.
 
@@ -49,7 +49,6 @@ C’est une idée très simple.
 
 Vous pouvez évidemment et logiquement l’appliquer aux conditions de votre propre époque. Ainsi, malgré la nature formidable de l’empire Américain, et malgré le fait déprimant que certains Américains le promeuvent activement, il ne peut pas se maintenir, puisqu’il n’y a pas de véritable fondation pour subvenir aux besoins de la population d’une manière matérielle et morale.
 
-Vous, comme tant d’autres, ne pouvez souvent pas comprendre les voies du Créateur dans ces domaines. Mais la perspicacité viendra à vous. L’un des objectifs que j’avais en canalisant ce message ce soir est de
-fournir cette compréhension, afin que vous puissiez avoir plus de clarté sur ce sujet difficile.
+Vous, comme tant d’autres, ne pouvez souvent pas comprendre les voies du Créateur dans ces domaines. Mais la perspicacité viendra à vous. L’un des objectifs que j’avais en canalisant ce message ce soir est de fournir cette compréhension, afin que vous puissiez avoir plus de clarté sur ce sujet difficile.
 
 Pour votre consolation, je peux vous assurer que vous et vos compatriotes américains n’aurez pas à endurer ce qui s’est passé en Europe dans cette terrible période des années 1940. Cette fois, le soulagement viendra, et avec lui, l’assurance réconfortante qu’il existe un Créateur qui aime l’humanité et la terre.

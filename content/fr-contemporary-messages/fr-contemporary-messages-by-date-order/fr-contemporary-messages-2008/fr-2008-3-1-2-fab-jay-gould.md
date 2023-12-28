@@ -20,4 +20,4 @@ Bien sûr, sur terre, tout appel à sauver mon âme aurait été accueilli par m
 Je vois très clairement comment le type de mentalité que je représentais ruine littéralement notre pays. J'ai été un terrible exemple de ce qu'il ne faut pas faire, et ceux qui suivent mon chemin découvriront qu'il ne mène qu'au malheur et à la misère.
 <small>
 
-1. <large id="f1"> **Jason "Jay" Gould** (27 Mai 1836 - 2 Décembre 1892) était un financier américain qui est devenu un important promoteur et spéculateur de chemins de fer américains. Longtemps vilipendé comme un " baron voleur " stéréotypé, les historiens modernes ont écarté divers mythes à son sujet et évalué sa carrière de façon plus positive. (Source : Wikipedia)[↩](#a1)
+1. <large id="f1"> **Jason "Jay" Gould** (27 Mai 1836 - 2 Décembre 1892) était un financier américain qui est devenu un important promoteur et spéculateur de chemins de fer américains. Longtemps vilipendé comme un « baron voleur » stéréotypé, les historiens modernes ont écarté divers mythes à son sujet et évalué sa carrière de façon plus positive. (Source : Wikipedia)[↩](#a1)
