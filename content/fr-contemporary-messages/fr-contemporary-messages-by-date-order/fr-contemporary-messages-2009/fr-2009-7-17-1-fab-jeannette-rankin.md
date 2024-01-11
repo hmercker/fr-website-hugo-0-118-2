@@ -13,7 +13,7 @@ Jeannette Rankin - reçu par FAB le 17 Juillet 2009, Santa Cruz, Californie, USA
 
 C’est moi, Jeannette Rankin.
 
-Vous avez parfaitement bien reçu mes pensées hier.
+Vous avez parfaitement bien reçu mes pensées [hier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/).
 
 Oui, j’ai été parfois inconstante, et cela m’a interpellée. Ce que je voulais dire, c’est que la plupart du temps, je me suis battue pour certaines causes, et c’était sincère. C’est cet aspect de ma vie qui m’a accueilli avec bonheur ici. Souvent, dans la réalité terrestre, il y a des obstacles à nos idéaux. Je ne peux pas dire que j’étais parfaite, car ce ne serait pas vrai. Je peux dire, cependant, qu’ayant été fidèle à mes idéaux, j’ai été récompensée.
 

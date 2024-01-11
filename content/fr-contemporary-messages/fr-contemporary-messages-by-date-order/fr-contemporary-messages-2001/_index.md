@@ -60,7 +60,7 @@ Judas | [La zone crépusculaire et Summerland](/fr-contemporary-messages/fr-cont
 Judas | [Diverses questions concernant le passage vers l’au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-9-1-hr-judas/) | 9 Septembre 2001
 Judas | [Une question sur l’épître aux Éphésiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-10-1-hr-judas/) | 10 Septembre 2001
 Judas | [Que pouvons-nous faire pour compenser les effets du mal ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-15-1-hr-judas/) | 15 Septembre 2001
-Judas | [La seconde sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
+Judas | [La seconde sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
 Judas | [Islam et Mohammed](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-18-1-hr-judas/) | 18 Septembre 2001
 Judas | [La troisième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-19-1-hr-judas/) | 19 Septembre 2001
 Judas | [Écoute ta voix intérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-21-1-hr-judas/) | 21 Septembre 2001
@@ -68,7 +68,7 @@ Judas | [La Quatrième Sphère](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [Les Âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-24-1-hr-judas/) | 24 Septembre 2001
 Judas | [La cinquième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
 Judas | [La sixième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
-Judas | [La septième spèere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
+Judas | [La septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
 Judas | [Divorce, les douze apôtres et les douze tribus d’Israël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-29-1-hr-judas/) | 29 Septembre 2001
 Joseph | [La prière, la meilleure préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-30-1-ks-joseph/) | 30 Septembre 2001
 Judas | [Parties innocentes au terrorisme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-1-1-hr-judas/) | 1 Octobre 2001

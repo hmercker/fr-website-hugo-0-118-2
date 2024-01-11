@@ -13,9 +13,9 @@ Ludwig van Beethoven - reçu par FAB le 10 Janvier 2003, Santa Cruz, Californie,
 
 C’est moi, Beethoven.
 
-Je viens ce soir pour te transmettre un message concernant la relation entre l’artistique et le spirituel. Nous voyons comment tu as eu faim de clarté sur ce sujet, même si ta compréhension s’est accrue.
+Je viens ce soir pour vous transmettre un message concernant la relation entre l’artistique et le spirituel. Nous voyons comment vous avez eu faim de clarté sur ce sujet, même si vptre compréhension s’est accrue.
 
-Eh bien, pour commencer, tu reconnais que le don artistique vient de Dieu. En tant que tel, il a ses propres lois et règles, selon le don qui lui est accordé. L’une de ces lois est que la personnalité de l’artiste est en harmonie avec le don, c’est-à-dire que le don s’exprime à travers la façon dont la personnalité artistique se manifeste.
+Eh bien, pour commencer, vous reconnaissez que le don artistique vient de Dieu. En tant que tel, il a ses propres lois et règles, selon le don qui lui est accordé. L’une de ces lois est que la personnalité de l’artiste est en harmonie avec le don, c’est-à-dire que le don s’exprime à travers la façon dont la personnalité artistique se manifeste.
 
 Une autre loi, que vous reconnaissez, est celle du libre arbitre, c’est-à-dire que l’artiste est totalement libre de choisir comment il manifestera ses désirs d’expression.
 

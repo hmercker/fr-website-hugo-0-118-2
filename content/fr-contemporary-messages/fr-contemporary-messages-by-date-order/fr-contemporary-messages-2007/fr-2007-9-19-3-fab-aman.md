@@ -14,6 +14,7 @@ Aman - reçu par FAB le 19 Septembre 2007, Santa Cruz, Californie, USA.
 C'est moi, Aman.
 
 J'ai décrit, dans mon channeling du [26 janvier 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-26-1-fab-aman/), le langage qu'Amon et moi utilisions comme étant assez primitif. Vous vous demandez si notre langage était plus riche avant la Chute.
+
 C'est une très bonne question. Nous avons été dotés d'un potentiel intellectuel assez étendu. Nous avions à l'origine la capacité d'une pensée avancée. Mais nous n'avons pas eu le temps de la développer ou de l'explorer, car la Chute s'est produite assez rapidement dans nos vies, même si nous avons eu le temps de profiter de notre condition exaltée.
 
 Après la Chute, nous sommes vraiment devenus plus primitifs, puisque notre nature animale est passée au premier plan. Notre langage en est donc le reflet.

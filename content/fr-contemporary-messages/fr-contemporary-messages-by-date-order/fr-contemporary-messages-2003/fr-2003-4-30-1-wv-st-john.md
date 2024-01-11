@@ -19,7 +19,8 @@ Les médiums ne sont pas plus parfaits que les autres. Nous sommes tous égaux e
 
 La seule chose que le Père veut que vous fassiez est de donner de l’amour, même si vous pensez parfois que l’amour n’a pas besoin d’être donné ou même s’il est très difficile pour vous de donner de l’amour à un moment donné. Si vous essayez simplement de donner de l’amour au moment où vous en avez besoin, vous comprendrez que c’est en donnant que vous recevrez.
 
-Ne fuyez pas la douleur, embrassez-la avec amour, car  » embrasser avec amour « , c’est cela être médium.
+Ne fuyez pas la douleur, embrassez-la avec amour, car  « embrasser avec amour » , c’est cela être médium.
+
 Être un médium, c’est aimer les autres pour que Dieu puisse les toucher à travers vous. C’est être un lien entre Lui et ceux qui ont besoin d’amour.
 
 Chaque fois que nous aimons ou aidons les autres, nous sommes des médiums. Il n’en faut pas plus. Alors, la prochaine fois que vous aiderez quelqu’un, rappelez-vous que vous êtes un médium, car vous faites ce que Dieu veut que vous fassiez : répandre l’amour. C’est aussi simple que cela.

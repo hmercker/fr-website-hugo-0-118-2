@@ -13,7 +13,7 @@ Joan d'Arc <sup id="a1">[1](#f1)</sup> - reçu par George Barnard le 26 Décembr
 
 Bzutu : « Je vous salue frère. C’est le chef Midwayer Bzutu. La connexion est établie. Continuez et ne soyez pas timide. »
 
-Jeanne d’Arc : « C’est Jeanne. Beaucoup, dans le monde dont je suis originaire, croient que je suis une sainte, et oui, ils m’adressent des prières. Je suppose que vous comprendrez que ceci m’est un peu embarrassant. Tous ceux qui sont ici sont des saints, ou aucun d’entre eux. Des pèlerins qui se dirigent vers le Paradis, c’est ce que nous sommes tous ; c’est ce que tu es.
+Jeanne d’Arc : « C’est Jeanne. Beaucoup, dans le monde dont je suis originaire, croient que je suis une sainte, et oui, ils m’adressent des prières. Je suppose que vous comprendrez que ceci m’est un peu embarrassant. Tous ceux qui sont ici sont des saints, ou aucun d’entre eux. Des pèlerins qui se dirigent vers le Paradis, c’est ce que nous sommes tous ; c’est ce que vous êtes.
 
 « Cependant, il faut savoir faire la part des choses. Ceux qui n’ont pas la connaissance ne peuvent être blâmés, non. Cependant, leurs prières devraient être dirigées vers le Maître Créateur et Architecte de tout ce qui est ; le Père éternel.
 
@@ -27,11 +27,11 @@ Jeanne d’Arc : « C’est Jeanne. Beaucoup, dans le monde dont je suis origina
 
 « Devons-nous demander si, pendant le temps où j’ai vécu ma vie terrestre, il y avait plus à faire, si ce n’est de développer ce qui avait été réalisé et cultivé en vain ? Était-il nécessaire que le projet, y compris moi-même, se termine ? L’univers, en effet, ne fait aucune erreur. Un travail était terminé, et il était temps de partir.
 
-« Il y a ceux qui ici, peuvent clairement projeter ce qui serait arrivé si j’avais continué sur une courbe descendante, alors qu’une vieille tête ne peut pas être placée sur de jeunes épaules. Il y a ceux dans les sphères élevées qui peuvent comprendre tous les détails, la plus grande finesse, de toutes les alternatives, mais le « martyr pour une cause » était la meilleure chose.
+« Il y a ceux qui ici, peuvent clairement projeter ce qui serait arrivé si j’avais continué sur une courbe descendante, alors qu’une vieille tête ne peut pas être placée sur de jeunes épaules. Il y a ceux dans les sphères élevées qui peuvent comprendre tous les détails, la plus grande finesse, de toutes les alternatives, mais le *« martyr pour une cause »* était la meilleure chose.
 
 « Il est préférable pour certains d’avoir un avertissement et de prendre alors le bon embranchement sur la route. Pour d’autres Il est préférable de découvrir une route sans issue et de terminer le voyage sur une note élevée pour le bien des autres. La charge était importante, car il ne subsistait que peu de patriotisme en France. Des voix pouvaient être monnayées, et beaucoup d’argent était dépensé pour acheter des voix, des faveurs, des titres, et des alliances. Mais, plus que tout, un important patriotisme a été réveillé dans mon pays, et l’équilibre du pouvoir a été restauré.
 
-« J’espère, mes chers amis, que, par cette courte communication, j’ai répondu à votre question « que serait-il arrivé si je n’avais pas été exécutée ? » J’ajoute à cela que mon plus grand ennemi mondain, Monsieur Cauchon, est l’un de mes amis les plus proches. Je vous remercie George. Nous sommes bien conscients de vous et de vos amis, de vos projets, de vos efforts et de vos réussites. Qu’ils continuent. « C’est Jeanne ».
+« J’espère, mes chers amis, que, par cette courte communication, j’ai répondu à votre question *« que serait-il arrivé si je n’avais pas été exécutée ? »* J’ajoute à cela que mon plus grand ennemi mondain, Monsieur Cauchon, est l’un de mes amis les plus proches. Je vous remercie George. Nous sommes bien conscients de vous et de vos amis, de vos projets, de vos efforts et de vos réussites. Qu’ils continuent. « C’est Jeanne ».
 
 George : « Merci, chère sœur ».
 

@@ -16,4 +16,5 @@ Je suis ici, Jésus. Dans ma [canalisation du 20 janvier 2007](/fr-contemporary-
 La question pertinente à poser, cependant, est la suivante : quelle est la signification, la définition de l'évolution, et comment précisément cela a-t-il été accompli ?
 
 Dans ma [précédente canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-5-1-fab-jesus/) d'aujourd'hui, je ne niais pas l'évolution. Je soulignais simplement que ce processus n'est encore que faiblement appréhendé par les mortels et de manière imparfaite.
+
 En vertu de la loi de la communication et du rapport, je ne peux pas canaliser une réponse adéquate en ce moment parce que c'est en dehors de la capacité de votre cerveau à comprendre.

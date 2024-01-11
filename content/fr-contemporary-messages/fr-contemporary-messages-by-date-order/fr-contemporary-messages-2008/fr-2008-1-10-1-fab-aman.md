@@ -13,7 +13,7 @@ Aman - reçu par FAB le 10 Janvier 2008, Santa Cruz, Californie, USA.
 
 Je suis là, Aman.
 
-Tu viens de lire dans le synopsis du Dr Samuels sur les [messages de Padgett](******The True Mission of Jesus.************) l'affirmation suivante :
+Vous venez de lire dans le synopsis du Dr Samuels sur les [messages de Padgett](/fr-james-padgett-messages/fr-the-true-mission-of-jesus/) l'affirmation suivante :
 
 > Mais les premiers parents, au lieu de se tourner vers Dieu et Son Amour, ont cherché à maîtriser uniquement leur environnement matériel, et, au lieu de développer leur âme pour qu'elle participe à la Nature de Dieu par l'Amour Divin, ils ont choisi le développement de leurs facultés intellectuelles. En effet, c'est par le biais de ses capacités intellectuelles que l'homme acquiert les biens matériels et les richesses par lesquels il s'attache tant à.....
 

@@ -11,7 +11,7 @@ weight:
 
 Benjamin Franklin - reçu par FAB le 23 Janvier 2010, Santa Cruz, Californie, USA.
 
-C'est moi, Benjamin Franklin.
+C'est moi, Benjamin Franklin.<sup id="a1">[1](#f1)</sup>
 
 Permettez-moi de dire un mot sur l'élitisme des pères fondateurs. Nous nous sentions ainsi, et nous n'en avions pas honte. Nous pensions avoir toutes les qualités requises pour régner, et nous pensions que les gens du peuple n'avaient pas cette capacité parce qu'elle leur faisait défaut.
 
@@ -20,3 +20,6 @@ Comme vous le savez, ce monde spirituel est le grand niveleur. J'ai vu des père
 Vous vous demandez si nous avons souffert de notre élitisme. Eh bien, tout dépendait de notre objectif. La supériorité et le snobisme étaient mêlés à un désir sincère d'aider le pays. Donc, selon le degré auquel le bon et le mauvais se sont mélangés, cela a déterminé de notre bonheur ou malheur ici.
 
 Être élitiste ne garantissait pas la souffrance, tout comme le fait d'être Nazi n'a pas automatiquement qualifié comme mauvais tout acte de leur part ; le monde connaît maintenant l'exemple d'Oskar Schindler, un Nazi qui a sauvé de nombreux Juifs.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Benjamin Franklin est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

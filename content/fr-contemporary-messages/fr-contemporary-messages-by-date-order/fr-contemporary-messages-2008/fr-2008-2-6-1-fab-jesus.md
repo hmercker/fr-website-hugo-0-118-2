@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 6 Février 2008, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-Oui, comme tu l'as correctement supposé, le sujet de l'évolution de la vie sur terre est avidement étudié dans certaines universités du Paradis de la Sixième Sphère.
+Oui, comme vous l'avez correctement supposé, le sujet de l'évolution de la vie sur terre est avidement étudié dans certaines universités du Paradis de la Sixième Sphère.
 
 Les esprits Célestes étant principalement préoccupés par les Vérités supérieures impliquant l'Amour Divin, nous ne sommes pas aussi passionnés par ce sujet que ces Sixièmes sphériens. Cependant, cela ne nous a pas empêchés d'avoir une vision plus avancée du sujet que celle de nos collègues esprits plus limités. En effet, un plus grand développement dans l'Amour Divin entraîne une plus grande capacité à comprendre les plans de Dieu dans toutes leurs manifestations.
 

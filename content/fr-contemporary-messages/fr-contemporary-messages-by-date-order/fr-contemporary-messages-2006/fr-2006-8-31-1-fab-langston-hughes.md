@@ -20,4 +20,4 @@ Comme tant d'Américains, j'ai aspiré à cela. Je vois maintenant que Dieu veut
 Tenez bon et gardez espoir, car le vent du changement vient balayer l'ancien et apporter la promesse d'une nouvelle vie de paix et d'amour.
 <small>
 
-1. <large id="f1"> Langston Hughes (1er Février 1902 - 22 Mai 1967) était un poète, romancier, dramaturge, nouvelliste et chroniqueur américain. Il est surtout connu pour son travail durant la Renaissance de Harlem. (Source : Wikipedia)[↩](#a1)
+1. <large id="f1"> **Langston Hughes** (1er Février 1902 - 22 Mai 1967) était un poète, romancier, dramaturge, nouvelliste et chroniqueur américain. Il est surtout connu pour son travail durant la Renaissance de Harlem. (Source : Wikipedia)[↩](#a1)

@@ -15,7 +15,7 @@ Je suis là, Jael.
 
 Vous vous demandez, étant donné que j'ai été témoin de la mort de mes parents à un âge anormalement avancé, cela ne signifie-t-il pas que j'ai fait de même ? Eh bien, j'ai vécu très, très longtemps moi aussi, mais mes dernières années ont été assombries par la maladie et l'incapacité.
 
-Bien que j'aie hérité de la longévité de mes parents, je n'avais pas exactement le même type d'endurance physique qu'eux. D'ailleurs, aucun de leurs enfants n'en avait. Mais oui, ma vie a aussi été exceptionnellement longue.
+Bien que j'aie hérité de la longévité de mes parents, je n'avais pas exactement le même type d'endurance physique qu'eux. D'ailleurs, aucun de leurs enfants ne l'a eu. Mais oui, ma vie a aussi été exceptionnellement longue.
 
 Mes parents m'ont eu après leur jeunesse physique. Ma mère a pu concevoir et porter des enfants à un âge beaucoup plus avancé que ce qui est courant aujourd'hui. Sa structure hormonale était différente.
 

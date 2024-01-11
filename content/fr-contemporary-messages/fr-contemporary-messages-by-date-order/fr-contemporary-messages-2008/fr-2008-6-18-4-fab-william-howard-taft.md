@@ -11,7 +11,7 @@ weight:
 
 William Howard Taft - reçu par FAB le 18 Juin 2008, Santa Cruz, Californie, USA.
 
-C'est moi, William Howard Taft.
+C'est moi, William Howard Taft.<sup id="a1">[1](#f1)</sup>
 
 Je vois que mon commentaire concernant les politiciens vous a dérangé, mais vous avez quand même permis à ma pensée de passer.
 
@@ -20,3 +20,7 @@ Vous avez lu que certains hommes politiques ont affirmé leurs convictions avec 
 La vie dans le monde des esprits a éliminé le cynisme de ma réflexion sur les gens. Vous avez également lu que des compromis ont souvent été faits en raison des réalités politiques.
 
 Tant de personnes ont cru sincèrement à leur cause. C'est indéniable. Mes perceptions sont les miennes, basées sur ce que j'ai vu.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par William Howard Taft est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+

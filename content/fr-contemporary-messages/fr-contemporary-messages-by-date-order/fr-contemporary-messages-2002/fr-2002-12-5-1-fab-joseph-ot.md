@@ -13,7 +13,7 @@ Joseph (AT) - reçu par FAB le 5 Décembre 2002, Santa Cruz, Californie, USA.
 
 C’est moi, Joseph.
 
-Il est vrai que vous avez eu plusieurs esprits  » anxieux  » qui sont venus à vous. Comme vous le savez, les esprits qui ont eu une mort horrible peuvent continuer à perpétuer les états émotionnels négatifs même si, en esprit, il n’y a aucune raison de le faire. Bien sûr, comme il s’agit du développement de leur âme, ils attirent un environnement qui reflète leur anxiété et leur détresse. Ainsi, ils continuent dans cet état jusqu’à ce qu’il leur soit enseigné une meilleure façon de faire. C’est le cas de nombreux parents de votre mère. Ils ont effectivement eu une influence sur vous, mais pas seulement eux, d’autres aussi.
+Il est vrai que vous avez eu plusieurs esprits  « anxieux  » qui sont venus à vous. Comme vous le savez, les esprits qui ont eu une mort horrible peuvent continuer à perpétuer les états émotionnels négatifs même si, en esprit, il n’y a aucune raison de le faire. Bien sûr, comme il s’agit du développement de leur âme, ils attirent un environnement qui reflète leur anxiété et leur détresse. Ainsi, ils continuent dans cet état jusqu’à ce qu’il leur soit enseigné une meilleure façon de faire. C’est le cas de nombreux parents de votre mère. Ils ont effectivement eu une influence sur vous, mais pas seulement eux, d’autres aussi.
 
 Il y a des esprits Juifs qui n’aiment pas qu’un des leurs se « convertisse » à la foi en Jésus, comme vous l’avez fait. Ils ont donc naturellement essayé de ramener leur frère ou leur sœur « errant » au bercail. Il est évident que, dans votre cas, ils ont échoué.
 

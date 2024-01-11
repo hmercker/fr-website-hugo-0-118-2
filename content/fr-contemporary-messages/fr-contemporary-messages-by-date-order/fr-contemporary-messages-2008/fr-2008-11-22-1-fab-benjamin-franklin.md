@@ -11,7 +11,7 @@ weight:
 
 Benjamin Franklin - reçu par FAB le 22 Novembre 2008, Santa Cruz, Californie, USA.
 
-C'est moi, Benjamin Franklin.
+C'est moi, Benjamin Franklin.<sup id="a1">[1](#f1)</sup>
 
 Oui, nous, les pères fondateurs, avons rapidement découvert ici que tous sont égaux. Nous ne pouvions pas percevoir cela aussi clairement sur terre. Nous nous sentions privilégiés de régner pour des raisons dont nous nous sommes convaincus.
 
@@ -22,3 +22,6 @@ Plus vous lisez sur ce que nous avons fait, plus vous êtes confus quant à notr
 Laissez-moi clarifier une pensée pour vous. Il est possible de percevoir l'ignorance chez une autre personne, puis de faire des efforts pour lui nuire. Tout dépend des choix du libre-arbitre.
 
 Je sais que vous êtes malheureux de lire que nous avons estimé que les pauvres, ainsi que les Noirs et les femmes, ne devaient pas voter. Oui, c'était le préjugé de l'époque. C'est comme ça que nous pensions. Et la réalité d'ici nous a détrompés de beaucoup de nos pensées qui étaient, hélas, erronées. Mais il y avait aussi beaucoup de choses qui étaient vraies et qui nous ont bien servi.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Benjamin Franklin est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

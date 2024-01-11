@@ -14,6 +14,7 @@ weight:
 Jerry Falwell <sup id="a1">[1](#f1)</sup> - reçu par FAB le 5 Avril 2009, Santa Cruz, Californie, USA.
 
 Je suis Jerry Falwell.
+
 Vos guides spirituels ont eu la bonté de me permettre d'écrire à travers vous. Je voulais le faire depuis un certain temps. Je sais que vous ne me détestez pas.
 
 J'ai été sincère dans mes affirmations. Mais je me suis embrouillé dans mon ministère. Comme je le vois maintenant, dans ma quête de pouvoir mondain, j'ai perdu de vue les enseignements simples mais beaux de Jésus, qui m'ont enthousiasmé lorsque j'ai commencé à marcher avec lui.

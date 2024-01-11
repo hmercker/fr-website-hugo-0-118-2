@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 21 Mars 2003, Cuenca, Équateur.
 
-Je voudrais continuer mon message d’hier.
+Je voudrais continuer [mon message d’hier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-21-1-hr-judas/).
 
 Je fais appel à ton imagination. Imagine une chaîne d’information internationale avec leur équipement sophistiqué filmant un reportage, au Moyen Orient, au premier siècle après Jésus Christ. Imagine également que les journalistes n’ont aucune connaissance de quoi que ce soit sur Jésus.
 

@@ -34,6 +34,7 @@ Nous arrivons dans la vie avec certains acquis. À mesure qu'un mortel progresse
 Vous le savez tous, mais j'ai pensé qu'il serait utile de le mentionner car cela touche à certains problèmes qui ont tourmenté certains d'entre vous. Il y a une différence entre connaître quelque chose intellectuellement et en faire l'expérience dans son âme. Il en va de même pour ces problèmes.
 
 Vos âmes sont vraiment comme des fleurs. Les blocages sont comme des mauvaises herbes qui empêchent les racines d'absorber l'humidité et les nutriments du sol. Mais un bon jardinier peut non seulement les reconnaître, mais aussi les arracher. Le jardinier travaille de nombreuses heures dans le jardin, mais le travail en vaut la peine, car alors ses fleurs peuvent être en bonne santé et répandre leur beauté.
+
 Nous savons que vous avez tous progressé jusqu'à présent. J'ai fait ces commentaires pour que vous puissiez aller encore plus loin. Plus vous progresserez, plus il nous sera facile de travailler efficacement sur le plan terrestre. Nous encourageons chacun d'entre vous à maintenir le cap et à continuer à faire de son mieux. Plus vous progressez, plus la paix et la joie augmentent.
 
 En grandissant dans la réalité céleste, vous découvrirez de nombreuses choses sur vous-mêmes qui étaient auparavant obscures. Et vous comprendrez mieux votre vie et votre passé.

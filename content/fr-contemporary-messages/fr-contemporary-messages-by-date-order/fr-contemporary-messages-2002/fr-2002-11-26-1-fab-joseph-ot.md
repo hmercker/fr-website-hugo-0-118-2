@@ -15,7 +15,7 @@ C’est moi, Joseph.
 
 Moïse est ici. Il dit qu’il écrira éventuellement des messages à travers vous. Il y a beaucoup de choses sur sa vie qu’il aimerait voir révélées. Vous grandissez spirituellement chaque jour, ainsi, lorsque vous serez prêt à recevoir des messages d’information, votre médiumnité sera beaucoup plus forte. Plus vous possédez d’Amour Divin et de spiritualité, plus vos canalisations seront précises. Continuez donc à vous efforcer d’obtenir autant d’Amour Divin en vous que possible, et continuez à appliquer votre libre arbitre à votre vie.
 
-Il était prévu à l’origine que Moïse et d’autres dirigeants Juifs écrivent davantage par l’intermédiaire de M. Padgett et du Dr Samuels, mais leur décès [James Padgett et Dr Samuels] l’a empêché.
+Il était prévu à l’origine que Moïse et d’autres dirigeants Juifs écrivent davantage par l’intermédiaire de M. Padgett et du Dr Samuels, mais leur décès [de James Padgett et du Dr Samuels] l’a empêché.
 
 Nous nous appuierons sur les bases déjà établies, en révélant de nombreuses choses sur les temps bibliques que James Padgett et Dr Samuels n’ont pas pu canaliser. Je fais référence aux temps de l’Ancien Testament.
 

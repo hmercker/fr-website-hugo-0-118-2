@@ -11,7 +11,7 @@ weight:
 
 St Jean - reçu par Amada Reza le 22 Mai 2005, Aptos, Californie, USA.
 
-Je suis ici, votre frère en Christ, John, un disciple de mon Maître bien-aimé, Jésus, qui aime d'un amour éternel, c'est-à-dire l'Amour Divin de l'Âme de Dieu.
+Je suis ici, votre frère en Christ, Jean, un disciple de mon Maître bien-aimé, Jésus, qui aime d'un amour éternel, c'est-à-dire l'Amour Divin de l'Âme de Dieu.
 
 Merci d'avoir saisi cette occasion de me permettre d'écrire car j'ai quelques pensées que je voudrais partager avec mes frères et sœurs sur le chemin de l'âme.
 

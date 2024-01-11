@@ -24,3 +24,5 @@ L'interprétation de l'histoire dépend bien sûr du point de vue de celui qui s
 Ce que je veux dire, en opposant les bons et les mauvais aspects des Amérindiens, c'est que notre pays a besoin d'une infusion d'idées positives et utiles qui doivent être mises en œuvre pour que la reprise ait lieu.
 
 Que le négatif soit enterré. C'est un jour nouveau, et il y a de nombreux esprits autochtones qui se consacrent à la réhabilitation de la terre, qu'ils estiment leur avoir été donnée par le Créateur.
+
+<u>Note</u> : Un message précédent d’Uharu a été communiqué [le 07 Septembre 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/).

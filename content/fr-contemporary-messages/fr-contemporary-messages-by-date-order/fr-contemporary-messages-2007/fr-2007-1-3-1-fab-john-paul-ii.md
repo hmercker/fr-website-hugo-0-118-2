@@ -16,6 +16,7 @@ Je suis ici, Pape Jean Paul II.
 En réponse au commentaire d'un de vos coreligionnaires, permettez-moi d'ajouter une ligne à [mon message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-1-fab-john-paul-ii/).
 
 Je tiens à dire que je crois de tout mon cœur et de toute mon âme à l'Amour de Dieu. Je sais que vous croyez de même.
+
 De plus, je crois que ce précieux Amour sera le salut de l'humanité.
 
 Que Dieu bénisse tous les enfants de Dieu.

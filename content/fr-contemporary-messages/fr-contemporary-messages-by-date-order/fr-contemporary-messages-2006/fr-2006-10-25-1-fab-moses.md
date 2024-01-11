@@ -15,9 +15,9 @@ C’est moi, Moïse.
 
 Dans ce message, je veux décrire ma relation avec Pharaon, l’homme que j’appelais autrefois frère.
 
-Vous avez été très affecté par le film d’animation « Le Prince d’Égypte », que vous avez d’ailleurs adoré. Vous estimez que c’est la toute première fois que quelqu’un explore cette relation.
+Vous avez été très affecté par le film d’animation *« Le Prince d’Égypte »*, que vous avez d’ailleurs adoré. Vous estimez que c’est la toute première fois que quelqu’un explore cette relation.
 
-Eh bien, comme le montre le film, c’était très complexe et difficile. Ayant été élevés ensemble, nous nous connaissions intimement. Nous jouions ensemble lorsque nous étions enfants, et lorsque nous sommes devenus adultes, nous avons partagé notre « passage à l’âge adulte ».
+Eh bien, comme le montre le film, c’était très complexe et difficile. Ayant été élevés ensemble, nous nous connaissions intimement. Nous jouions ensemble lorsque nous étions enfants, et lorsque nous sommes devenus adultes, nous avons partagé notre *« passage à l’âge adulte »*.
 
 Bien que j’aie été choyé en tant que membre de la royauté, je n’ai jamais perdu le sens de la vertu et de l’intégrité personnelles, et j’ai été aimé pour cela, en particulier par le père Pharaon. Il a vu ces qualités et a été poussé à me considérer comme son propre fils.
 

@@ -13,7 +13,7 @@ Jochebed, la mère de Moïse <sup id="a1">[1](#f1)</sup> - reçu par FAB le 23 M
 
 Je suis Jochebed.
 
-Je suis la mère de Moïse. Je n'étais pas la tante de mon mari Amram, comme le dit la Bible (Exode 6:20). Mais la Bible a raison quand elle dit que je suis née en Égypte (Nombres 26 : 59). Et mon père était effectivement Lévi (Nombres 26 :  59).
+Je suis la mère de Moïse. Je n'étais pas la tante de mon mari Amram, comme le dit la Bible [Exode 6:20](https://saintebible.com/exodus/6-20.htm). Mais la Bible a raison quand elle dit que je suis née en Égypte [Nombres 26:59](https://saintebible.com/numbers/26-59.htm). Et mon père était effectivement Lévi [Nombres 26:59](https://saintebible.com/numbers/26-59.htm).
 
 Bien que j'aie eu le vague sentiment, à sa naissance, que mon fils Moïse ferait de grandes choses, les événements entourant sa naissance et son adoption par la cour égyptienne se sont déroulés si rapidement que je n'ai pas pu les assimiler avant très longtemps. Et ma vie d'esclave de l'Égypte ne m'accordait pas le luxe de la réflexion.
 

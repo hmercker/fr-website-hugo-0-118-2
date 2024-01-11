@@ -15,7 +15,7 @@ C’est moi, Jésus.
 
 Permettez-moi de vous en dire plus sur l'abondance matérielle et répondre à ce que vous percevez comme une contradiction dans [mon message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-3-fab-jesus/).
 
-J'ai dit : « Si nous pensons que la richesse matérielle peut réellement améliorer l'âme (et c'est souvent le cas), alors nous encourageons cette manifestation. » Plus tard, j'ai dit : « Je pense donc que vous pouvez comprendre notre position, qui est que l'accumulation de richesses matérielles n'a rien à voir avec notre objectif, c'est-à-dire qu'elle n'a rien à voir avec nos efforts pour héberger et protéger l'âme de nos protégés afin qu'ils soient justes avec Dieu. »
+J'ai dit : *« Si nous pensons que la richesse matérielle peut réellement améliorer l'âme (et c'est souvent le cas), alors nous encourageons cette manifestation. »* Plus tard, j'ai dit : *« Je pense donc que vous pouvez comprendre notre position, qui est que l'accumulation de richesses matérielles n'a rien à voir avec notre objectif, c'est-à-dire qu'elle n'a rien à voir avec nos efforts pour héberger et protéger l'âme de nos protégés afin qu'ils soient justes avec Dieu. »*
 
 Votre question est la suivante : comment l'octroi de l'abondance matérielle peut-il être sans rapport avec notre objectif, alors que j'ai précédemment affirmé qu'il peut en fait améliorer l'âme ?
 
@@ -24,6 +24,7 @@ Je faisais référence aux cas où la richesse a un effet d'entraînement et aff
 Vous savez qu'il y a aussi eu des personnes dont l'existence entière a tourné autour d'une seule et unique chose : faire de l'argent. C'EST LA MORT DE L'ÂME.
 
 Lorsque j'ai dit que l'abondance matérielle n'a rien à voir avec notre objectif, je voulais dire que notre objectif est spirituel et non matériel. En même temps, c'est un fait que les mortels ont besoin des choses matérielles. C'est pourquoi j'ai présenté mon programme et ma méthode à ce sujet dans le Sermon sur la montagne. Je disais que dans l'ensemble, les choses matérielles ne sont pas importantes lorsqu'elles sont vues à travers les yeux de la foi. Oui, et vous savez vous-même que c'est vrai, car vous avez fait l'expérience de cette vérité.
+
 Pour une personne aveugle à la vérité spirituelle, cela ressemble à de la folie. Ces personnes diront : *« Ce n'est pas important de manger ou de payer le loyer ! C'est une absurdité ! »* Mais bien sûr, ce qu'ils disent vraiment, c'est qu'ils ne voient aucune vérité ou valeur dans la démarche spirituelle. En effet, pour eux, elle n'existe tout simplement pas. C'est un conte de fées, pensent-ils.
 
 Donc, pour revenir à ce qui vous a troublé, je faisais référence au processus d'accumulation de richesses, qui n'a rien à voir avec la voie spirituelle, même si, pour un mortel, cette voie nécessite des fonds pour vivre. Je ne faisais pas référence à la poursuite légitime d'un emploi ou d'une profession, qui est exactement en harmonie avec la volonté de Dieu. Je voulais parler de la poursuite solitaire de la richesse pour elle-même. Peut-être que « hors de propos » ne traduit pas tout ce que je veux dire, car il est clair que ce comportement peut endommager gravement l'âme. Je me heurte une fois de plus aux limites du langage des mortels.

@@ -13,7 +13,7 @@ Noé - reçu par FAB le 2 Février 2003, Santa Cruz, Californie, USA.
 
 Je suis Noé.
 
-C’est moi, Noé. J’ai réellement existé étais une personne réelle, et j’ai vécu, comme chacun sait, il y a très longtemps. À mon époque, nous comprenions plus de choses que vous ne le pensez. Ce n’était pas aussi primitif qu’on le croit généralement.
+C’est moi, Noé. J’ai réellement existé et j’ai vécu, comme chacun sait, il y a très longtemps. À mon époque, nous comprenions plus de choses que vous ne le pensez. Ce n’était pas aussi primitif qu’on le croit généralement.
 
 Je sais que vous vous interrogez sur la véracité de l’histoire du déluge et de l’arche. Eh bien, il y a une part de vérité, et une part d’erreurs. Bien sûr, Dieu n’a jamais eu l’intention de détruire les êtres vivants par un déluge. Comment pourrait-Il détruire intentionnellement Sa création après avoir pris tant de peine à la créer ? Non, cette idée n’est conforme à aucune vérité que l’on puisse reconnaître.
 

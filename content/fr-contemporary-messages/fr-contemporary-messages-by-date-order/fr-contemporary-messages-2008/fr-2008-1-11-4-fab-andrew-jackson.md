@@ -11,7 +11,7 @@ weight:
 
 Andrew Jackson <sup id="a1">[1](#f1)</sup> - reçu par FAB le 11 Janvier 2008, Santa Cruz, Californie, USA.
 
-Je suis là, Andrew Jackson.
+Je suis là, Andrew Jackson.<sup id="a2">[2](#f2)</sup>
 
 Sache que le navire de l'État ne sombrera pas. Comme je me suis battu pour préserver l'Union en tant que Président, je travaille une fois de plus à préserver le pays. Ce n'est pas le fait d'avoir été président qui me pousse : c'est plutôt un amour profond de la patrie qui a été purifié et raffiné ici.
 
@@ -23,3 +23,6 @@ Nous, les esprits, sommes confiants dans la victoire, et vous devez l'être auss
 <small>
 
 1. <large id="f1"> **Andrew Jackson** (15 Mars 1767 - 8 Juin 1845) fut le 7ème Président des Etats-Unis (1829-1837). Il fut également gouverneur militaire de la Floride (1821), commandant des forces américaines lors de la bataille de la Nouvelle-Orléans (1815). Andrew Jackson fut une figure importante qui domina la politique américaine dans les décennies de 1820 et de 1830. Ses ambitions politiques combinées à une participation politique plus grande de la population amenèrent la création des partis politiques tels qu'ils sont connus aujourd’hui (Source : Wikipedia).[↩](#a1)
+
+2. <large id="f2"> L'ensemble des messages communiqués par Andrew  Jackson est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)
+

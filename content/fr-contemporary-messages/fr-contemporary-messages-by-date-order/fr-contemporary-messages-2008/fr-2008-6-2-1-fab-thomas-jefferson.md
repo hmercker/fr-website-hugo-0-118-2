@@ -11,7 +11,7 @@ weight:
 
 Thomas Jefferson - reçu par FAB le 2 Juin 2008, Santa Cruz, Californie, USA.
 
-C'est moi, Thomas Jefferson.
+C'est moi, Thomas Jefferson.<sup id="a1">[1](#f1)</sup>
 
 Dans [ma canalisation du 1er janvier 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-1-1-fab-thomas-jefferson/), j'ai dit ce qui suit : "L'obscurité est bruyante, agressive, injuste et dominatrice, alors que la lumière est plus calme, sûre d'elle, et a vraiment confiance en Dieu, avec beaucoup d'amour, dont une grande partie est l'Amour Divin."
 
@@ -20,3 +20,6 @@ Je ne voulais pas dire que ceux qui représentent la lumière ne peuvent pas êt
 Il est nécessaire pour ceux qui représentent la justice et l'amour de faire entendre clairement leur voix. Mais ces personnes n'ont pas besoin de recourir à l'agression. Elles peuvent dire leur vérité dans l'amour, avec la pleine confiance que Dieu bénira leur chemin. Et la véritable lumière spirituelle est en effet silencieuse, car elle se manifeste comme cette présence silencieuse intérieure qui est l'assurance de la présence de Dieu. Ceux qui peuvent être sûrs de leurs motifs de justice et d'amour trouveront la paix dans leur cœur, car ils savent qu'ils font ce qu'il faut en écoutant leur conscience.
 
 Je ne nie ni ne condamne les discours passionnés. Tout ce que je dis, c'est que les personnes qui écoutent leur conscience et s'expriment ont toutes les raisons de s'attendre à ce que cela provoque un mouvement dans leur âme qui produira la paix de l'esprit, et pour ceux qui croient en un Créateur aimant, la paix de Dieu.
+small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Thomas  Jefferson est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

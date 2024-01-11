@@ -11,7 +11,7 @@ weight:
 
 André - reçu par Kathryn Stokes le 11 Mai 2002, Santa Cruz, Californie, USA.
 
-Je suis ici maintenant pour écrire, ma chère sœur en Christ, et je viens à toi aujourd’hui en réponse à ton désir de recevoir un message écrit. Je suis ton ami et gardien, André, et je fus un Apôtre de Jésus lorsqu’il a marché sur cette terre il y a deux mille ans.
+Je suis ici maintenant pour écrire, ma chère sœur en Christ, et je viens à toi aujourd’hui en réponse à ton désir de recevoir un message écrit. Je suis ton ami et ange gardien, André, et je fus un Apôtre de Jésus lorsqu’il a marché sur cette terre il y a deux mille ans.
 
 Nous avons toujours des sujets sur lesquels nous pouvons nous étendre pour votre plus grande illumination et votre croissance spirituelle. Mais vous devez toujours vous rappeler que le développement de votre âme dans l’Amour Divin de Dieu doit être activé sur une base quotidienne, et qu’il doit être le premier sur votre liste de priorités. Il est bon, et même merveilleux, que vous désiriez partager des informations spirituelles avec d’autres personnes qui recherchent la vérité, mais si vous ne grandissez pas quotidiennement dans votre nature d’amour, vous ne serez pas en mesure de répondre à vos attentes envers vous-mêmes et envers les autres. Vous voulez devenir des exemples vivants de l’Amour de Dieu manifesté, et cela exige une prière sincère et cohérente pour l’Amour, et un désir de le démontrer aux autres.
 

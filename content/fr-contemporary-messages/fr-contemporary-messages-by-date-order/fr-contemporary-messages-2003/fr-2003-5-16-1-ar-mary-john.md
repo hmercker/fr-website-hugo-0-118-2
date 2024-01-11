@@ -13,7 +13,7 @@ Marie & Jean - reçu par Amada Reza le 16 Mai 2003, Aptos, Californie, USA.
 
 Je suis ici avec vous, et je suis Marie, la mère de Jésus, et votre véritable amie. Je suis votre sœur en Christ, et je suis venue avec mon frère bien-aimé, Jean, qui a vécu et servi dans l’Amour Divin à mes côtés depuis notre temps sur terre. Nous sommes tous les deux disciples de notre Maître, Jésus, dans la mesure où nous prions notre Père Céleste pour Son Amour Divin, et nous avons reçu cet Amour dans la mesure où il a transformé nos âmes en une communion avec son Âme.
 
-Nous souhaitons écrire sur le sujet de l’esprit divin et comment il est possible de reconnaître les perceptions qui en découlent.
+Nous souhaitons écrire sur le sujet de l’esprit Divin et comment il est possible de reconnaître les perceptions qui en découlent.
 
 Le mental matériel, dans son fonctionnement, dépend de l’entrée de données reçues par les cinq sens du corps ; ces données sont reçues tout au long de la vie, à partir de la naissance. Au fur et à mesure que nous prenons des décisions sur la façon de réagir à une situation donnée, l’esprit matériel puise dans ces données physiques pour déterminer les résultats qui en découleront.
 
@@ -34,7 +34,7 @@ Nous sommes Marie et Jean.
 
 **Note de AR :** Plus tard j’ai pensé à un exemple d’application de mon esprit divin pour résoudre un désaccord potentiel avec un être cher : Un bon ami promet de passer une soirée avec moi mais change d’avis à la dernière minute. Je me réjouissais vraiment de cette soirée parce que nous passons un merveilleux moment ensemble, et il me fait me sentir bien dans ma peau. Mon mental matériel (et mes sens) ne font que reconnaître que je suis seule, me fait me sentir abandonnée et me met en colère contre lui. Mon esprit divin (les perceptions de l’âme) me permet de regarder au-delà du moment dans ce qui est « réel » : Je suis toujours aimée de lui, comme je suis toujours aimée de Dieu. Je peux comprendre qu’il n’a pas cessé de m’aimer même s’il n’est pas physiquement avec moi, et mon amour va vers lui sans interruption.
 
-Ce message se poursuit dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-8-1-ar-st-john/).
+Ce message se poursuit dans ce message commuinqué [le 8 Juin 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-8-1-ar-st-john/).
 <small>
 
 1. <large id="f1"> Je soupçonne que c’est en fait ce qu’il appelait ailleurs sur ce site – l’esprit de l’âme. G.J.C.[↩](#a1)

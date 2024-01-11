@@ -11,7 +11,7 @@ weight:
 
 Gilgamesh - reçu par RL le 16 Août 2004, Atlanta, Georgia, USA.
 
-Gilgamesh : Si seulement chaque personne pourrait réserver un peu de temps chaque jour pour balayer leur cour. Balayer toute la place proprement. Balayer les scories et les débris, laissant seulement la terre nue et poussiéreuse. La cour représente, bien sûr, votre esprit. Puis après avoir dégagé la Cour, vous asseoir seul dans la Cour. Tout simplement vous asseoir, et, au loin, entendre les bruits de la ville. Vous êtes au courant de ces sons provenant de l’intérieur de votre maison, des sons de votre famille.
+<u>Gilgamesh</u> : Si seulement chaque personne pourrait réserver un peu de temps chaque jour pour balayer leur cour. Balayer toute la place proprement. Balayer les scories et les débris, laissant seulement la terre nue et poussiéreuse. La cour représente, bien sûr, votre esprit. Puis après avoir dégagé la Cour, vous asseoir seul dans la Cour. Tout simplement vous asseoir, et, au loin, entendre les bruits de la ville. Vous êtes au courant de ces sons provenant de l’intérieur de votre maison, des sons de votre famille.
 
 Ces sons représentent vos pensées, mais vous vous asseyez juste dans le centre de votre cour, et, pendant que vous êtes conscient d’eux, vous n’êtes pas affectés par les sons.
 

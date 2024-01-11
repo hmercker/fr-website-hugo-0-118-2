@@ -26,6 +26,7 @@ Dieu veut la paix, et donc la paix viendra.
 Je n'ai jamais imaginé que les choses seraient ce qu'elles sont. C'est-à-dire que je n'ai jamais imaginé que l'énergie concertée des bonnes forces de ce monde spirituel serait si forte.
 
 À ceux qui en doutent, qui pointent du doigt les événements actuels avec incrédulité, je dis que la paix viendra grâce à certaines lois psychologiques et naturelles, toutes créées par Dieu. De très nombreuses personnes dans le monde entier sont engagées en faveur de la paix, et d'autres les rejoignent chaque jour. C'est ce que nous observons.
+
 C'est le cœur humain qui doit changer, quel que soit le pouvoir en place. Et à mesure que les cœurs continuent de changer, le paysage politique change aussi. Ce n'est qu'une question de temps avant que ce changement ne se déplace vers le sommet.
 
 En fait, c'est le fait même que les forces des ténèbres contrôlent actuellement votre pays qui active et alimente la poussée vers la paix et l'amour ; c'est une incitation, oui, un moteur. C'est Dieu qui le fait, et Il soutient activement les forces du bien.
@@ -37,4 +38,4 @@ J'aime tous les peuples de la Terre.
 Avec amour, Will Rogers.
 <small>
 
-1. <large id="f1"> William Penn Adair "Will" Rogers (4 novembre 1879 - 15 août 1935) était un comédien, humoriste, artiste de vaudeville et acteur américain. (Source : Wikipedia)[↩](#a1)
+1. <large id="f1"> **William Penn Adair "Will" Rogers** (4 Novembre 1879 - 15 Août 1935) était un comédien, humoriste, artiste de vaudeville et acteur américain. (Source : Wikipedia)[↩](#a1)

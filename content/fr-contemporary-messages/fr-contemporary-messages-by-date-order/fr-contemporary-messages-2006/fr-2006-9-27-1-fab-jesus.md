@@ -15,13 +15,13 @@ C'est moi, Jésus.
 
 Je viens pour continuer mon exposé sur la relation de mes enseignements avec le Talmud Juif.
 
-Je veux maintenant parler des paraboles. Comme tout le monde le sait, c'était une de mes méthodes favorites pour enseigner les vérités spirituelles aux gens, qui n'étaient pas éduqués, comme m'étaient les rabbins du Talmud, dans des recherches érudites.
+Je veux maintenant parler des paraboles. Comme tout le monde le sait, c'était une de mes méthodes favorites pour enseigner les vérités spirituelles aux gens, qui n'étaient pas éduqués, comme l'étaient les rabbins du Talmud, dans des recherches érudites.
 
 Ce que l'on ne sait pas généralement, c'est que la parabole était également une méthode favorite des auteurs talmudiques.
 
 Voici une de mes paraboles célèbres.
 
-> Le royaume des cieux est semblable à un marchand qui cherche des perles fines et qui, ayant trouvé une perle de grand prix, va vendre tout ce qu'il a et l'achète. - (Matthieu 13:45-46).
+> Le royaume des cieux est semblable à un marchand qui cherche des perles fines et qui, ayant trouvé une perle de grand prix, va vendre tout ce qu'il a et l'achète. - [Matthieu 13:45-46](https://saintebible.com/matthew/13-45.htm).
 
 Comparez cela avec l'exemple talmudique suivant.
 

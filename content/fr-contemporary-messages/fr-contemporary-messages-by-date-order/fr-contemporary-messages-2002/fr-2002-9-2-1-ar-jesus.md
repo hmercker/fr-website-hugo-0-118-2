@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Amada Reza le 2 Septembre 2002, Aptos, Californie, USA.
 
-Je suis ici avec vous, ma chère sœur en Christ, et je suis votre frère et ami, le Jésus de la Bible. Je suis votre professeur, mais plus important encore, je suis quelqu'un qui vous aime avec l'Amour Divin de Dieu dans mon âme, car c'est cet amour que Dieu a transmis du plus profond de son âme qui me fait correspondre à sa nature éternelle d'amour et de bonté.
+Je suis ici avec vous, ma chère sœur en Christ, et je suis votre frère et ami, le Jésus de la Bible. Je suis votre enseignant, mais plus important encore, je suis quelqu'un qui vous aime avec l'Amour Divin de Dieu dans mon âme, car c'est cet amour que Dieu a transmis du plus profond de son âme qui me fait correspondre à sa nature éternelle d'amour et de bonté.
 
 Je souhaite partager avec vous un message d'espoir qui peut vous apporter du réconfort en ces temps où des décisions sont prises et des actions entreprises, qui vont à l'encontre de la loi de l'amour. Il y a une foule d'anges qui travaillent sans relâche pour apporter la paix sur le plan terrestre, et je prie avec ferveur pour que la conscience des mortels dont la responsabilité est de décider du sort des autres, veille au bien-être de leurs camarades, et que l'amour soit au premier plan dans leur cœur et leur esprit.
 

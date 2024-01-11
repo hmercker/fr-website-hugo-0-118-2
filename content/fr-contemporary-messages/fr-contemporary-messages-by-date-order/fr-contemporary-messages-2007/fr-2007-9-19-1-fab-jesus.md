@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 19 Septembre 2007, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-Je viens cet après-midi pour discuter d'un sujet qui, je le vois, vous a troublé : le sujet de l'avortement où la vie de la mère est en danger.
+Je viens cet après-midi pour discuter d'un sujet qui, je le vois, vous a troublé : le sujet de l'avortement<sup id="a1">[1](#f1)</sup> où la vie de la mère est en danger.
 
 Oui, c'est une situation très difficile. Comment peut-on considérer comme un terrible péché le fait d'avorter un fœtus dans ces conditions ?
 
@@ -38,3 +38,6 @@ Dans les situations impossibles, Dieu est là. Dans une situation où la vie de 
 Mon but est donc d'amener à la conscience des mortels les faits que j'ai décrits ici. Ce qu'ils font dans chaque circonstance individuelle devient une partie de leur âme. Et dans chaque cas, la récolte suit les semailles. Je ne condamne pas ; je veux simplement faire remarquer objectivement que tout ce que nous faisons a des conséquences pour nous-mêmes et pour les autres.
 
 Je n'ai pas jugé ni pris parti, car chaque personne doit prendre les décisions que la vie lui présente.
+<small>
+
+1. <large id="f1"> Jésus s'est préalablement exprimé sur ce sujet le [04 Mars 2007(/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/)].[↩](#a1)

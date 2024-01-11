@@ -21,7 +21,7 @@ Je vais maintenant donner cette information. La mort de M. Padgett m’a empêch
 
 Quand je suis arrivé dans ce monde des esprits, je savais très bien que j’hériterais du bonheur, car toute ma vie, je me suis senti très proche de Dieu, et je savais que Dieu m’aimait. Cela fut prouvé maintes et maintes fois par la façon dont Il est venu à mon secours et m’a protégé de tout mal. Je savais que j’avais fait de bonnes choses, et que j’avais été fidèle à moi-même. Le bonheur serait la conséquence inévitable de la façon dont j’avais vécu ma vie. Et il en fut ainsi.
 
-En plus d’avoir une nature morale très développée, j’avais également eu un grand intérêt pour les autres modes de pensée. J’étais un mortel progressif et étais un esprit progressiste. Autrement dit, je ne pensais pas que je saurais jamais tout ce qu’il faut savoir, car je savais que Dieu est un être infini, et qu’il y aurait toujours de nouvelles choses à apprendre.
+En plus d’avoir une nature morale très développée, j’avais également eu un grand intérêt pour les autres modes de pensée. J’avais été un mortel progressif et étais un esprit progressiste. Autrement dit, je ne pensais pas que je saurais jamais tout ce qu’il faut savoir, car je savais que Dieu est un être infini, et qu’il y aurait toujours de nouvelles choses à apprendre.
 
 Naturellement, je m’accrochais à mon héritage Hébraïque, car je sentais qu’il était vrai. Mais j’ai aussi examiné d’autres façons de penser. J’ai vu des esprits qui croyaient des choses qui n’avaient aucun sens pour moi. Je pouvais clairement voir que mes convictions étaient vraies et que les leurs ne l’étaient pas.
 

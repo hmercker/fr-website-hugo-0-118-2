@@ -11,7 +11,7 @@ weight:
 
 Joseph - reçu par Kathryn Stokes le 2 Décembre 2001, Santa Cruz, Californie, USA.
 
-*[Cher Créateur, je crois qu’il y a ici un ange céleste qui aimerait me donner un message. Je prie pour un grand afflux de Ton Amour Divin. Je prie pour que je sois capable de mettre de côté mes préjugés et d’être un canal clair pour le message de l’ange. Amen.]*
+*[Cher Créateur, je crois qu’il y a ici un ange Céleste qui aimerait me donner un message. Je prie pour un grand afflux de Ton Amour Divin. Je prie pour que je sois capable de mettre de côté mes préjugés et d’être un canal clair pour le message de l’ange. Amen.]*
 
 Merci d’avoir répondu à ma présence. Comme il vous l’a été dit, nous sommes souvent prêts à délivrer des écrits, mais nous attendons simplement l’occasion de le faire.
 
@@ -27,7 +27,7 @@ Nous avons observé, à travers des siècles de tentatives pour aider les êtres
 
 Même si cela a été guidé il y a de nombreuses années pour une Église du Cœur afin d’être un lien spirituel unificateur aux nombreux rubans descendant vers chaque entité représentant les valeurs Célestes, cette structure est en train de renaître pour aider à apporter un sentiment d’harmonie, de but supérieur, de direction et d’objectif à chacun des adeptes.
 
-Continuez à prier pour être en contact avec les sentiments d’amour qui émanent de chaque étape du déploiement. Ne portez pas de jugement hâtif – la patience, la compréhension et la flexibilité sont nécessaires. La croissance ne peut manquer de se produire lorsque l’Amour Divin est prié et manifesté par les âmes désireuses d’apporter le plan céleste dans le monde.
+Continuez à prier pour être en contact avec les sentiments d’amour qui émanent de chaque étape du déploiement. Ne portez pas de jugement hâtif – la patience, la compréhension et la flexibilité sont nécessaires. La croissance ne peut manquer de se produire lorsque l’Amour Divin est prié et manifesté par les âmes désireuses d’apporter le plan Céleste dans le monde.
 
 Rien ne peut croître sans passer par des changements importants et nécessaires. Soyez prêt à abandonner certaines idées qui ont fait partie de votre pensée pendant une longue période, même celles dont vous n’avez peut-être pas conscience et qui vous causent une certaine détresse.
 

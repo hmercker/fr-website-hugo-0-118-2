@@ -15,7 +15,7 @@ Bonjour CC, nous sommes nombreux ici, demande simplement qui tu aimerais entendr
 
 J’ai dit « Salomon ».
 
-Cher fils, c’est un plaisir de venir te voir. J’étais avec toi lorsque tu as réfléchi à la note personnelle (Cf message du 30/06/2003) que je t’ai adressée il y a deux mois. Il y a des connaissances que l’on peut posséder et des événements que l’on peut faire connaître à un enfant avant qu’ils ne se déroulent, mais parfois (la plupart du temps) il est préférable que ces connaissances ne leur parviennent qu’au moment le plus opportun.
+Cher fils, c’est un plaisir de venir te voir. J’étais avec toi lorsque tu as réfléchi à la note personnelle ([Cf message du 30/06/2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/)) que je t’ai adressée il y a deux mois. Il y a des connaissances que l’on peut posséder et des événements que l’on peut faire connaître à un enfant avant qu’ils ne se déroulent, mais parfois (la plupart du temps) il est préférable que ces connaissances ne leur parviennent qu’au moment le plus opportun.
 
 Un enfant qui progresse est très bien guidé et lorsqu’il est humble et confiant, la connaissance des événements et la connaissance des choses lui parviendront au moment le plus avantageux. L’enfant réussit le mieux lorsqu’il fait entièrement confiance à Dieu et à Ses Lois, qui lui apporteront certainement les meilleurs et les plus grands résultats. Souvent, un enfant réceptif observe des « coïncidences », ce qui devrait lui rappeler qu’il est guidé et que les lois de Dieu agissent sans cesse. Les lois de Dieu sont parfaites et elles fonctionnent sans effort, sans interruption, lorsque l’enfant est humble et confiant.
 

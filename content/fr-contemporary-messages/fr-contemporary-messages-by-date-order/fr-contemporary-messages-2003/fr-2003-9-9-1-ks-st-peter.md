@@ -16,6 +16,7 @@ Nous sommes venus pour être avec toi en ce moment et pour te protéger des pens
 Nous insisterons toujours sur l’importance de la prière, car tant que l’humanité n’aura pas appris la valeur de la connexion à Dieu avec les désirs de son âme, elle ne parviendra pas à trouver son chemin spirituel supérieur et, par conséquent, elle continuera à se battre sans savoir si elle fait les meilleurs choix pour son bonheur et son épanouissement.
 
 L’humanité a, pour la plupart, décidé qu’elle devait lutter, mais cela n’est pas forcément vrai. C’est vrai parce que cela a été accepté comme une OBLIGATION, c’est donc le Mental et non l’Âme qui décide.
+
 Nous avons travaillé pour aider les enfants de Dieu à apprendre qu’ils peuvent élever leur âme à l’ascendant sur leur mental, et que ce n’est pas une chose si difficile à faire. Cela nécessite la prière et la foi ; cela nécessite de reconnaître que Dieu est aux commandes.
 
 Si vous pouvez vous rendre compte que Dieu vous aime et qu’il a de bons cadeaux et de bons événements en réserve pour vous, pourquoi alors n’abandonnez-vous pas votre volonté à la sienne ?

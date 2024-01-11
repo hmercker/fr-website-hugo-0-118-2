@@ -11,7 +11,7 @@ weight:
 
 Benjamin Franklin - reçu par FAB le 3 Juin 2008, Santa Cruz, Californie, USA.
 
-C'est moi, Benjamin Franklin.
+C'est moi, Benjamin Franklin.<sup id="a1">[1](#f1)</sup>
 
 Oui, nous, les pères fondateurs, avons prévu un système qui protégerait nos intérêts. Là, nos détracteurs ont raison. Mais nous nous considérions comme éclairés et qualifiés pour gouverner. Il est maintenant clair pour nous tous que nous avons échoué sur la question de l'esclavage. Même ceux qui le soutenaient activement à l'époque ont depuis vu la lumière.
 
@@ -26,3 +26,6 @@ Ainsi, il dépend du point de vue de chacun de nous de nous qualifier de classe 
 Vous vous interrogez sur la question de l'esclavage. Eh bien, ceux d'entre nous qui étaient opposés à l'esclavage ont néanmoins vu que la seule façon de créer un gouvernement était de faire un compromis avec les États esclavagistes. Nous pensions qu'au moins d'autres bienfaits du gouvernement seraient ainsi préservés. Et ici, ce sont nos motivations qui ont déterminé l'étendue de nos souffrances ou de notre bonheur. Nous voyons tous maintenant que l'esclavage était mauvais, et notre esprit de compensation était basé, comme je l'ai dit, sur nos motifs.
 
 Mais c'est un jour nouveau, et les peuples du monde s'éveillent à leurs droits, qui ne peuvent être niés.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Benjamin Franklin est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

@@ -11,7 +11,7 @@ weight:
 
 Benjamin Franklin - reçu par FAB le 18 Avril 2008, Santa Cruz, Californie, USA.
 
-Je suis ici, Benjamin Franklin.
+Je suis ici, Benjamin Franklin.<sup id="a1">[1](#f1)</sup>
 
 Le thème de ce message est : la vision et le but supérieurs de l'Amérique.
 
@@ -46,3 +46,6 @@ L'une des réponses est que le Créateur choisit toujours le bon moment. Il sait
 Un autre point, sur lequel je ne saurais trop insister, est que tout est désormais en jeu, non seulement les libertés civiles, mais toute la vie sur la planète. Alors, face à des dangers aussi importants, pensez-vous que le Créateur ne fera rien pour sauver Son peuple ? Bien sûr que non, disent ceux qui connaissent l'Amour actif et les soins de ce Créateur aimant.
 
 Le but supérieur de l'Amérique sera affirmé dans le triomphe. Vous pouvez en être sûrs. Si votre raison refuse de croire cela et le nie comme un idéalisme incompatible avec la réalité et les faits, votre âme peut contrer cet argument en affirmant des faits plus convaincants qui prouvent que le bien a triomphé lorsque les circonstances immédiates ont rendu ce triomphe impossible.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Benjamin Franklin est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

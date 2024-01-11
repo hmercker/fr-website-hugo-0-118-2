@@ -16,6 +16,7 @@ Je suis John Lennon.
 Je vous remercie d’avoir reçu mes pensées ce matin. Je sais que vous avez pensé que j’étais confus, mais comme votre ami l’a dit, j’ai représenté beaucoup de bonnes choses, comme vous le réalisez.
 
 J’ai été ravi de revoir ma mère bien-aimée. Vraiment, cela m’a rendu très heureux. Bien que je ne sois en esprit que depuis peu de temps, j’ai progressé très rapidement. Et c’est parce que j’ai été sincère sur terre dans mon désir de paix et de non-violence.
+
 Nous, les bons esprits, formons une puissante armée pour combattre les ténèbres, et vous en avez eu de nombreuses preuves récemment. J’ai pu conserver tout mon style bohème – en fait, il est encouragé.
 
 Je sais que vous avez aimé certaines de mes balades. J’ai réalisé l’importance de mon don pour rendre le monde meilleur. Nous, les Beatles, avons compris la mystique qui nous entourait et avons essayé de faire ce que tout le monde fait – avoir une vie indépendante et normale. C’était difficile pour nous, mais nous comprenions que nous étions privilégiés d’être célèbres. Nous voulions sincèrement utiliser notre célébrité à bon escient.

@@ -19,4 +19,4 @@ J'ajouterai que même si j'ai beaucoup copié en termes d'idées et de duplicati
 
 Je n'ai pas fréquenté ces dramaturges parce que la plupart d'entre eux étaient irresponsables, dissolus et sauvages, alors que j'étais un père et un mari responsable. Mais les influences étaient là. Je les ai cependant fréquentés à titre professionnel, et j'ai joué dans certaines de leurs pièces.
 
-La Tragédie espagnole de Thomas Kyd a inspiré une première version de Hamlet, qu'il a lui-même écrite. Je l'ai adapté et me l'ai appropriée plus tard, mais en conservant de nombreux éléments de l'intrigue.
+La Tragédie espagnole de Thomas Kyd a inspiré une première version de Hamlet, qu'il a lui-même écrite. Je l'ai adapté et me  et je me la suis appropriée plus tard, mais en conservant de nombreux éléments de l'intrigue.

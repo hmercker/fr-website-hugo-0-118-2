@@ -11,7 +11,7 @@ weight:
 
 Uharu - reçu par FAB le 7 Septembre 2007, Santa Cruz, Californie, USA.
 
-C'est moi, Uharu.
+C'est moi, [Uharu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/).
 
 Vous êtes en train de lire les stéréotypes que les Blancs ont imposés aux Amérindiens.
 

@@ -67,7 +67,7 @@ Vous avez fait l'erreur de généraliser de manière simpliste. Utiliser l'affir
 
 Si le militarisme est mauvais, alors les êtres humains qui se trouvent dans des situations militaristes doivent découvrir des choses à faire qui atténuent les dommages de la guerre.
 
-Regardez, par exemple, le magnifique et héroïque déferlement de soutien qui s'est produit le 9⁄11. (Et laissez-moi ajouter que ce type de comportement, manifesté avec tant de courage par tant de vos compatriotes, est la preuve que l'Amérique survivra et perdurera).
+Regardez, par exemple, le magnifique et héroïque déferlement de soutien qui s'est produit le 11 Septembre (Et laissez-moi ajouter que ce type de comportement, manifesté avec tant de courage par tant de vos compatriotes, est la preuve que l'Amérique survivra et perdurera).
 
 Pour beaucoup de gens, la guerre a signifié qu'ils devaient faire leur devoir patriotique pour défendre leur pays et leurs proches. C'est exactement comme cela que je l'ai vu. J'ai donc accepté la direction de l'armée continentale dans un état d'esprit qui tendait à être élevé. J'avais déjà connu la guerre, mais je sentais que mon devoir envers mon pays était primordial. Pour moi, il s'agissait d'un sens de l'honneur, et d'un engagement envers un principe de liberté.
 
