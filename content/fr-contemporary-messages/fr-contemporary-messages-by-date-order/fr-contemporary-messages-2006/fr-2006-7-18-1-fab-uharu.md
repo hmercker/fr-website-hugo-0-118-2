@@ -11,9 +11,9 @@ weight:
 
 Uharu - reçu par FAB le 18 Juillet 2006, Santa Cruz, Californie, USA.
 
-C’est moi, Uharu.
+C’est moi, Uharu.<sup id="a1">[1](#f1)</sup>
 
-Je sais que vous avez canalisé que j’ai dit que mon ancienne tribu ne connaissait pas les maux de la civilisation <sup id="a1">[1](#f1)</sup>. Vous savez aussi que nous, les natifs de Californie, étions simplement humains, et que les Européens nous ont romancés en tant que « nobles sauvages ». Alors laissez-moi développer.
+Je sais que vous avez canalisé que j’ai dit que mon ancienne tribu ne connaissait pas les maux de la civilisation <sup id="a2">[2](#f2)</sup>. Vous savez aussi que nous, les natifs de Californie, étions simplement humains, et que les Européens nous ont romancés en tant que « nobles sauvages ». Alors laissez-moi développer.
 
 Il est certain que les membres de notre tribu ont fait de mauvaises choses. Il serait naïf et irréaliste de croire le contraire. Je ne disais pas que nous étions parfaits, car nous ne l’étions pas. En fait, nous avions développé certaines lois et certains principes pour nous guider, tout comme vos lois vous guident, et certains d’entre nous se sont égarés tout comme d’autres personnes dans la race humaine.
 
@@ -28,4 +28,12 @@ Et les connotations du mot « civilisation » changeront, passant de la distorsi
 
 1. <large id="f1"> Lire le message précédent communiqué [le 11 Avril 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/).[↩](#a1)
 
-2. <large id="f2"> Uharu a communiqué un autre message [le 10 Janvier 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/).[↩](#a2)
+2. <large id="f2"> Uharu a égalment comuniqué par les messages listés ci-dessous :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
+Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
+Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
+Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
+Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007

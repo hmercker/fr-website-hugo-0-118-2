@@ -45,7 +45,7 @@ Et pourtant, tout le meilleur de la société américaine contemporaine - la ric
 Sur une note personnelle, la délivrance est proche pour vous. Votre esprit retrouvera sa capacité de rétention normale. C'est le stress et la peur qui causent cette difficulté, et lorsque la difficulté sera éliminée, vous retrouverez un fonctionnement normal. Anticipez donc le bonheur et le soulagement à venir. Et dans un sens plus large, anticipez également une vie de service passionnant à Dieu dans laquelle vos rêves deviendront réalité, chacun d'entre eux.
 <small>
 
-1. <large id="f1"> Les différents messages comuniqués par Uharu sont listés ci-dessous :[↩](#a1)
+1. <large id="f1"> Uharu a égalment comuniqué par les messages listés ci-dessous :[↩](#a1)
 
 
 **Auteur** | **Titre du message** | **Date du message**  
@@ -53,7 +53,6 @@ Sur une note personnelle, la délivrance est proche pour vous. Votre esprit retr
 Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
 Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
 Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
-Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
 Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
 Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007
 

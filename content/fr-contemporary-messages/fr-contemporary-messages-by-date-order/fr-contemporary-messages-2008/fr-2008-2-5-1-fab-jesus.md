@@ -23,7 +23,7 @@ Votre cerveau n'est pas encore conscient d'une vision élargie et amplifiée de 
 
 Vous êtes maintenant confus. Ce qui vous trouble, c'est l'état imparfait qu'occupe la théorie de l'évolution dans votre monde contemporain. Ce que je dirai, c'est que la vie est apparue sur terre selon un certain plan organisé. Charles Darwin n'est que le début de l'évolution de la théorie de l'évolution.
 
-**Note de Geoff Cutler (Créateur du site Internet https://new-birth.net/) :** Six messages ont été canalisés sur le sujet de la création de l'espèce humaine par James Padgett. Il s'agit  :
+**Note :** Six messages ont été canalisés sur le sujet de la création de l'espèce humaine par James Padgett. Il s'agit  :
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

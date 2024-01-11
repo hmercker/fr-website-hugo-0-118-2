@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Sur l'abondance matérielle - 6
+### Sur l'abondance matérielle - 6<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par FAB le 24 Février 2010, Santa Cruz, Californie, USA.
 

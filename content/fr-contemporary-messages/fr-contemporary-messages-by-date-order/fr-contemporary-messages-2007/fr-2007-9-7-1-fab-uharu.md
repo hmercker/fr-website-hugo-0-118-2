@@ -9,7 +9,7 @@ weight:
 ---
 ### Préjugés contre les Amérindiens
 
-Uharu - reçu par FAB le 7 Septembre 2007, Santa Cruz, Californie, USA.
+Uharu<sup id="a1">[1](#f1)</sup> - reçu par FAB le 7 Septembre 2007, Santa Cruz, Californie, USA.
 
 C'est moi, [Uharu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/).
 
@@ -23,3 +23,14 @@ Oui, certains indigènes avaient des esclaves, et les ennemis étaient souvent t
 Vous vous demandez si vos canalisations ont été entachées par ces stéréotypes, comme la question de l'environnement ; n'est-ce pas un stéréotype de dire que les autochtones en général étaient des écologistes naturels ?
 
 Eh bien, les pensées que vous avez canalisées ne venaient pas de vous, mais de nous, les esprits. Il y a effectivement eu un fort accent sur les préoccupations écologiques chez de nombreux autochtones. Cela est dû à la situation dans laquelle ils se trouvaient. En effet, pour survivre, ils devaient apprendre les rythmes et les lois naturels qui régissaient les plantes et les animaux. Et, comme il existait également une profonde perception spirituelle issue de l'âme autochtone, une parenté est apparue entre ce cycle naturel et le monde spirituel supérieur. Isolées de la science et de la technologie modernes, et de l'avidité rapace de l'Occident, nos tribus ont simplement évolué de cette manière.
+<small>
+
+1. <large id="f1"> Uharu a également communiqué par les messages listés ci-dessous :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
+Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
+Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
+Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
+Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007

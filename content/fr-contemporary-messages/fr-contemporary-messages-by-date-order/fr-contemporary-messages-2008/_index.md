@@ -70,8 +70,8 @@ Abraham Lincoln | [La délivrance viendra](/fr-contemporary-messages/fr-contempo
 Walt Whitman | [La personnalité de Whitman en tant que poète et personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-28-1-fab-walt-whitman/) | 28 Avril 2008
 Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) | 9 Mai 2008
 Pape Jean XXIII | [L'humilité d'un pape bien-aimé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-11-1-fab-pope-john-xxiii/) | 11 Mai 2008
-Jésus | [Indignation vertueuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-1-fab-jesus/) | 16 Mai 2008
-Jérémie | [Indignation vertueuse II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-2-fab-jeremiah/) | 16 Mai 2008
+Jésus | [Indignation vertueuse II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-1-fab-jesus/) | 16 Mai 2008
+Jérémie | [Indignation vertueuse III](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-2-fab-jeremiah/) | 16 Mai 2008
 Judy Garland | [Une star du cinéma passe de l’obscurité au bonheur.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-1-fab-judy-garland/) | 19 Mai 2008
 Charlie Chaplin | [Les films et l'absence de temps dans l'au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-2-fab-charlie-chaplin/) | 19 Mai 2008
 Pape Jean XXIII | [Confirmation par un pape (Jean XXIII)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-20-1-fab-pope-john-xxiii/) | 20 Mai 2008
@@ -98,7 +98,7 @@ James Madison | [Un principe supérieur de gouvernement](/fr-contemporary-messag
 St François d'Assise | [L'état d'âme de François d'Assise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-30-1-fab-st-francis-of-assisi/) | 30 Juillet 2008
 Jésus | [Le péché et les intentions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-2-1-fab-jesus/) | 2 Août 2008
 Jésus | [La joie et la foi de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-3-1-fab-jesus/) | 3 Août 2008
-Hildegard of Bingen | [Une mystique médiévale exulte dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-7-1-fab-hildegard-of-bingen/) | 7 Août 2008
+Hildegarde de Bingen | [Une mystique médiévale exulte dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-7-1-fab-hildegard-of-bingen/) | 7 Août 2008
 Mary Shelley | [L'auteur de Frankenstein a trouvé l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-7-2-fab-mary-shelley/) | 7 Août 2008
 Bram Stoker | [L'auteur de Dracula a changé ses croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-1-fab-bram-stoker/) | 11 Août 2008
 Robert Louis Stevenson | [Un auteur sur la nature du soi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-2-fab-robert-louis-stevenson/) | 11 Août 2008

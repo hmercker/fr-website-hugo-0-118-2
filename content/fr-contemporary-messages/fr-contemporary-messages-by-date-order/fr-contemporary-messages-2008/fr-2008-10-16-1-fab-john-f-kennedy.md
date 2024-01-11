@@ -7,8 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### 
-Les expériences d'un Kennedy en esprit
+### Les expériences d'un Kennedy en esprit
 
 John F Kennedy <sup id="a1">[1](#f1)</sup> - reçu par FAB le 16 Octobre 2008, Santa Cruz, Californie, USA.
 
