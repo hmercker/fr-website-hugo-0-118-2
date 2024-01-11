@@ -11,7 +11,7 @@ weight:
 
 Théodore Roosevelt <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 
-C’est moi, Théodore Roosevelt.
+C’est moi, Théodore Roosevelt.<sup id="a2">[2](#f2)</sup>
 
 Comme vous l’avez correctement deviné, nous vous écrivons ce soir pour vous apporter notre soutien. Nous voyons tous ce qui s’est passé, et Dieu, en qui je crois passionnément, souhaite vous aider et vous faire savoir que vous êtes soutenu, et que le bonheur est juste derrière l’horizon.
 
@@ -29,3 +29,6 @@ Et pour vous personnellement, sachez qu’il y a une grande protection pour vous
 <small>
 
 1. <large id="f1"> **Théodore Roosevelt, Jr.** (27 Octobre 1858 – 6 Janvier 1919), également connu sous le nom de T.R. et par le public sous le nom de Teddy, (l’ours en peluche a été nommé d’après lui) fut le 26e président des États-Unis, et un lauréat du prix Nobel de la paix, un gouverneur de New York, un commissaire de police de NYC, un historien, un naturaliste, un explorateur de l’Amazonie, un auteur et un solaier. Roosevelt est surtout connu pour sa personnalité : son énergie, son vaste éventail d’intérêts et de réalisations, son modèle de masculinité et son personnage de « cow-boy ». Des enquêtes menées auprès de spécialistes l’ont régulièrement classé entre le 3e et le 7e rang sur la liste des plus grands présidents américains. (Source : Wikipedia)[↩](#a1)
+
+2. <large id="f2"> L'ensemble des messages communiqués par Théodore Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)
+

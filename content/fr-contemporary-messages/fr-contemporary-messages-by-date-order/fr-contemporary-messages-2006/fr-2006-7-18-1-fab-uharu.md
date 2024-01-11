@@ -23,7 +23,9 @@ Et, comme c’est le cas pour d’autres tribus indigènes, nous avions une rela
 
 Le monde doit revenir à un mode de pensée et de gouvernement similaire, et il le fera, grâce aux intentions et aux plans du Créateur. Et lorsque cela se produira, les peuples du monde entier verront clairement que notre civilisation, bien que préemptée par les Blancs, avait depuis le début une énorme validité.
 
-Et les connotations du mot « civilisation » changeront, passant de la distorsion qu’il a maintenant, à l’affirmation de ces valeurs, peu importe où elles sont pratiquées, qui favorisent l’amélioration de l’humanité et montrent le respect et la révérence appropriés pour la vie, la Nature et le Créateur.
+Et les connotations du mot « civilisation » changeront, passant de la distorsion qu’il a maintenant, à l’affirmation de ces valeurs, peu importe où elles sont pratiquées, qui favorisent l’amélioration de l’humanité et montrent le respect et la révérence appropriés pour la vie, la Nature et le Créateur.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Lire le [message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) de Uharu du 11 Avril 2006.[↩](#a1)
+1. <large id="f1"> Lire le message précédent communiqué [le 11 Avril 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/).[↩](#a1)
+
+2. <large id="f2"> Uharu a communiqué un autre message [le 10 Janvier 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/).[↩](#a2)

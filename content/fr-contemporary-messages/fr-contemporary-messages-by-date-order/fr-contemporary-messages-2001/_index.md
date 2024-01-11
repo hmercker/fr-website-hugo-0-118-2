@@ -17,7 +17,7 @@ Jésus | [La guérison (Suite).](/fr-contemporary-messages/fr-contemporary-messa
 Esprit Céleste Elevé | [S’élever au-dessus du mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-2-ks-a-high-celestial-spirit/) | 23 Janvier 2001
 Joseph | [Suivez le courant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-3-1-ks-joseph/) | 3 Février 2001
 St Jean | [Laisse-toi aller et sois juste l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-4-1-ar-st-john/) | 4 Février 2001
-White Eagle | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
+Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
 Esprit Céleste Elevé | [Tendre l’autre joue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-24-1-ks-a-high-celestial-spirit/) | 24 Février 2001
 St Jean | [Comment être dans le monde, mais pas de lui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-3-11-1-ar-st-john/) | 11 Mars 2001
 Joseph | [L’amour commence à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-3-22-1-ks-joseph/) | 22 Mars 2001

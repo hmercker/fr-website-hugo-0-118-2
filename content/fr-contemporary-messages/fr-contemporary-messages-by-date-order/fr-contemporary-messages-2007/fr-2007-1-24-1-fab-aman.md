@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les premiers parents - une description physique
+### Les premiers parents - une description physique<sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 24 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -36,3 +36,6 @@ Elle était plutôt solide dans sa constitution physique, bien que je ne l'aie j
 Vous vous interrogez sur la couleur de notre peau. Eh bien, notre peau n'était pas blanche, mais un peu plus foncée, tout en restant assez claire. Elle était plus proche de la couleur asiatique que de la couleur caucasienne. En fait, nous aurions été surpris que quelqu'un puisse avoir la peau blanche. Je ne veux absolument pas manquer de respect en disant cela ; je ne fais que constater les faits.
 
 Permettez-moi de conclure pour l'instant. Je sais qu'il a été fascinant pour vous de recevoir ceci. Je vous souhaite une excellente soirée.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)

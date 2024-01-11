@@ -13,7 +13,7 @@ Judas - reçu par H____ le 30 Août 2001, Cuenca, Équateur.
 
 Cher H____ , hier, je t’ai communiqué certaines impressions à propos du sujet que nous allons traiter maintenant, et tu ne l’aimes pas beaucoup. En fait, bien que tu t’intéresses assez peu à ce sujet, il en demeure pas moins très important, et, de plus, à ce jour, il n’a jamais été traité dans les messages.
 
-Le sujet d’aujourd’hui est l’homosexualité.
+**Le sujet d’aujourd’hui est l’homosexualité.**
 
 Si nous passons en revue l’histoire de l’humanité, nous constatons que le thème de l’homosexualité a été traité de diverses manières. Nous avons connaissance de cultures où l’homosexualité était considérée comme normale et nous avons apprécié l’acceptation commune. Ceci peut être observé dans la civilisation romaine, au moins dans la période postérieure à la République, et en Grèce. Dans l’état de Sparte, la société a même encouragé les relations homosexuelles entre guerriers, parce que cela contribuait à accroître le courage et la coopération dans la bataille, dans la mesure où les couples donnaient leur vie l’un pour l’autre.
 
@@ -31,7 +31,7 @@ Eh bien, il faut admettre que la reproduction est seulement un aspect de la sexu
 
 Outre la reproduction, la sexualité est l’expression de l’amour, de la jouissance  commune, elle a pour fonction d’attirer deux personnes et de les garder ensemble. Comme tout dans la vie, la sexualité peut être pratiquée en harmonie avec les lois de Dieu, c’est-à-dire pratiquée dans l’amour et dans le sérieux, mais elle peut également être l’objet d’abus, que ce soit dans le domaine de l’hétérosexualité ou dans celui de l’homosexualité. Un exemple serait une grande promiscuité qui n’est certainement pas harmonieuse, la sexualité dégénérant en un pur désir dans le seul but de profiter sans donner, en échange, de l’amour, et cela a des conséquences graves.
 
-L’homosexualité, donc, est un comportement qui se développe dans une certaine partie de la population par un processus de fixation sexuelle que l’on peut observer dans toutes les classes sociales, dans toutes les sociétés, et même dans le règne animal. Elle est une inclinaison qui ne constitue pas la norme, car seule une minorité est affectée, mais elle est assez naturelle et peut être pratiquée en harmonie avec les lois de Dieu, de la même manière que l’hétérosexualité.
+**L’homosexualité**, donc, est un comportement qui se développe dans une certaine partie de la population par un processus de fixation sexuelle que l’on peut observer dans toutes les classes sociales, dans toutes les sociétés, et même dans le règne animal. Elle est une inclinaison qui ne constitue pas la norme, car seule une minorité est affectée, mais elle est assez naturelle et peut être pratiquée en harmonie avec les lois de Dieu, de la même manière que l’hétérosexualité.
 
 Il faut dire qu’il n’y a aucune raison de discriminer ou de porter préjudice à cette minorité, et que l’humanité doit accepter et aimer les homosexuels comme toute autre personne.
 

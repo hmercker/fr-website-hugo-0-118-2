@@ -11,7 +11,7 @@ weight:
 
 Robert Kennedy - reçu par FAB le 7 Décembre 2009, Santa Cruz, Californie, USA.
 
-C'est moi, Robert Kennedy.
+C'est moi, Robert Kennedy.<sup id="a2">[2](#f2)</sup>
 
 Je veux que vous tapiez les deux paragraphes importants suivants, situés à la page 345 de l'excellente biographie d'Evan Thomas sur moi, et ensuite je commenterai.
 
@@ -30,3 +30,16 @@ M. Thomas a fait un excellent travail de spéculation à mon sujet, et il m'anal
 <small>
 
 1. <large id="f1"> Ce message est la toute première fois que le médium a enregistré ses pensées directement dans un ordinateur, plutôt qu'à la main.[↩](#a1)
+
+2. <large id="f2"> Robert Kennedy s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Robert Kennedy | [Guidance divine d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-29-1-fab-robert-kennedy/) | 29 Août 2008
+Robert Kennedy | [Guidance divine d'un Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-30-1-fab-robert-kennedy/) | 30 Août 2008
+Robert Kennedy | [La première vie de Robert Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-3-1-fab-robert-kennedy/) | 3 Décembre 2009
+Robert Kennedy | [Robert Kennedy dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-1-fab-robert-kennedy/) | 4 Décembre 2009
+Robert Kennedy | [La famille Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-1-fab-robert-kennedy/) | 4 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-1-fab-robert-kennedy/) | 7 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-1-fab-robert-kennedy/) | 8 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-2-fab-robert-kennedy/) | 8 Décembre 2009

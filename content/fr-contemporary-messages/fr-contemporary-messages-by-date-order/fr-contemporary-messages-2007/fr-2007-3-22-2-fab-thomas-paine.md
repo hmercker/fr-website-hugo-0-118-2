@@ -19,7 +19,7 @@ Tout d’abord, permettez-moi de dire que je vis dans une Sphère Céleste au-de
 
 Je ne croyais pas de cette façon sur Terre, évidemment. Mais si vous lisez attentivement ma précédente canalisation, vous vous rendrez compte que je n’ai jamais justifié la violence. Laissez-moi vous expliquer.
 
-Vous vous souviendrez que dans votre canalisation [d’Oliver Cromwell](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-12-1-fab-oliver-cromwell/), vous avez appris qu’il a ressenti tout le poids de ses actions avec la loi de compensation parce qu’il avait commis ses actes de violence avec une mauvaise motivation.
+Vous vous souvenez que dans votre canalisation [d’Oliver Cromwell](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-12-1-fab-oliver-cromwell/), vous avez appris qu’il a ressenti tout le poids de ses actions avec la loi de compensation parce qu’il avait commis ses actes de violence avec une mauvaise motivation.
 
 Vous avez canalisé [Abraham Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/), qui a dit qu’il a à peine souffert, même si tant de sang a coulé à la suite de ses décisions. Je sais que cela n’a toujours pas de sens pour vous, mais c’est parce que vous n’êtes pas le Créateur.
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le langage de la première famille
+### Le langage de la première famille<sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 26 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -22,3 +22,7 @@ Nous avions de nombreux mots pour désigner les conditions météorologiques, ma
 Vous avez dans votre esprit l'idée que nos vies étaient très primitives, et dans une certaine mesure, c'est vrai. Comme vous l'avez appris, la régression de l'humanité a été relativement rapide. Le décor a été planté par le type de vie que moi et ma famille avons mené. Nous n'avions pas vraiment de conscience supérieure, puisque ma chute et celle de mon partenaire ont amené notre nature animale à dominer. Et nos enfants ont simplement suivi cette tendance, comme le font généralement les enfants.
 
 Ainsi, notre langage reflétait le type de vie que nous menions, et les besoins simples qui étaient requis.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

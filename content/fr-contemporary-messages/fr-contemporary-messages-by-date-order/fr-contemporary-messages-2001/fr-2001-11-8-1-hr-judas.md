@@ -86,7 +86,7 @@ Mais pour comprendre le développement du caractère de Satan, je recommande la 
 
 Ainsi, Dieu a donné pouvoir à Satan sur Job.
 
-Au fait, dans le livre de la Genèse, lors de la création, Satan avait déjà été précipité du haut des Cieux. Mais dans le livre de Job, à la même époque de l’histoire, Satan fréquente les cercles de Dieu, converse avec lui, etc.. Satan veut dire « adversaire », et il est le symbole pour un attribut abstrait, transformé en un être réel par l’interprétation humaine. Et donc il apparaît dans les messages reçus par certains médiums, quand les médiums ne peuvent  pas se détacher des symboles qu’ils ont appris dans leur enfance, et ils ont converti en « réalité » leur réalité.
+Au fait, dans le livre de la Genèse, lors de la création, Satan avait déjà été précipité du haut des Cieux. Mais dans le livre de Job, à la même époque de l’histoire, Satan fréquente les cercles de Dieu, converse avec lui, etc.. Satan veut dire *« adversaire »*, et il est le symbole pour un attribut abstrait, transformé en un être réel par l’interprétation humaine. Et donc il apparaît dans les messages reçus par certains médiums, quand les médiums ne peuvent  pas se détacher des symboles qu’ils ont appris dans leur enfance, et ils ont converti en *« réalité »* leur réalité.
 
 En d’autres termes, le supposé Archange Michael n’a pas écrit ces messages, mais il y a des esprits qui écrivent des messages, et les médiums leur attribuent ce nom. Satan n’a jamais argumenté contre Dieu, parce que Satan n’existe pas. Mais la qualité abstraite du mal s’élève contre Dieu et Son parfait système d’harmonies.
 

@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 23 Février 2010, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-J'ai dit dans [ma canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-24-1-fab-jesus/), intitulé « L'avènement de la paix » :
+J'ai dit dans [ma canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-24-1-fab-jesus/), intitulé « L'avènement de la paix et de  l'aharmonie » :
 
 > Je vois votre pensée, et elle est exacte : l'élection de Barack Obama à la présidence était des plus improbables, et pourtant elle s'est produite.
 

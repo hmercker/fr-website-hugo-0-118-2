@@ -37,7 +37,7 @@ Eh bien, tu as déjà accompli de nombreuses guérisons, mais laisse-moi t’exp
 
 Une fois de plus, il est évident que nous ne pouvons pas imposer des guérisons contre la volonté du peuple. Nous avons besoin de leur coopération. De nos jours, la maladie n’est plus  considérée comme un châtiment infligé par Dieu – du moins la plupart des gens se sont débarrassés de cette idée absurde. Cependant, il y a d’autres obstacles : dans ces *« temps primitifs remplis de superstitions »*, il était peut-être plus facile pour les gens d’accepter l’existence de ces sortes d’énergies. Aujourd’hui, les gens rejettent généralement, comme bizarre et absurde, tout ce qu’ils ne peuvent pas voir ou toucher.
 
-Il serait triste de penser que nous ne pouvons agir que lorsque nous sommes invités à le faire. Je ne veux pas parler du cas extrême des gens inconscients qui ne peuvent pas demander d’aide <sup id="a2">[2](#f2)</sup>. Je voudrais plutôt attirer ton attention sur un autre récit biblique : (Jean 5: 1-8)
+Il serait triste de penser que nous ne pouvons agir que lorsque nous sommes invités à le faire. Je ne veux pas parler du cas extrême des gens inconscients qui ne peuvent pas demander d’aide <sup id="a2">[2](#f2)</sup>. Je voudrais plutôt attirer ton attention sur un autre récit biblique : [Jean 5: 1-8](https://saintebible.com/john/5-1.htm)
 
 > Après cela, il y eut un jour de fête Juive, et Jésus monta à Jérusalem.
 <br>
@@ -70,6 +70,6 @@ Jean Marc.
 © Geoff Cutler 2013
 <small>
 
-1. <large id="f1"> Cela fait référence à la personne qui a posé la question originale, à savoir Geoff Cutler, l'éditeur du site "New-Birth.Net".[↩](#a1)
+1. <large id="f1"> Cela fait référence à la personne qui a posé la question originale, à savoir Geoff Cutler, l'éditeur du site "https://new-birth.net".[↩](#a1)
 
 2. <large id="f2"> L’Auteur : Dans une lettre relative à cette question, j’avais répondu : *« Si je comprends bien, ces gens pensent, par conséquent, que, s’ils sont victimes d’un accident de voiture et sont inconsciemment pris au piège dans leur voiture en flammes, les pompiers doivent attendre qu’ils se réveillent (ou que la voiture explose) pour leur demander s’ils désirent être sauvés ou non ? »*[↩](#a2)

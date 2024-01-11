@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par FAB le 23 Février 2010, Santa Cruz, Californie, USA.
 
-C'est moi, Jésus.
+C'est moi, Jésus.<sup id="a1">[1](#f1)</sup>
 
 Je veux poursuivre [ma discussion sur l'abondance matérielle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-2-fab-jesus/), car c'est un sujet qui touche directement les mortels.
 
@@ -24,3 +24,16 @@ Tout ce que font les mortels affecte leurs deux natures, que chacune soit encour
 Je pense donc que vous pouvez comprendre notre position, à savoir que l'accumulation de richesses matérielles n'a rien à voir avec notre objectif, c'est-à-dire qu'elle n'a rien à voir avec nos efforts pour héberger et protéger l'âme de nos protégés afin qu'ils soient en accord avec Dieu. En fait, comme je l'ai dit précédemment, la richesse matérielle peut facilement blesser de nombreux mortels car elle les expose à la tentation. En même temps, nous voulons que les mortels soient heureux, et pour la plupart d'entre eux, un délicieux repas chaud, ou le port d'un vêtement beau et confortable, apporte beaucoup de bonheur et de confort, et tout cela est pour le bien. Le problème survient lorsqu'il n'y a pas de connexion avec le spirituel, et cette déconnexion se fait facilement lorsque l'âme n'est pas activée. Il y a ceux pour qui les richesses matérielles et le confort n'affectent pas l'âme de ces personnes, mais il y en a beaucoup plus pour qui les plus grandes dispositions matérielles noient simplement l'âme, de sorte que cette personne peut réellement devenir un animal sous forme humaine.
 
 Je pense avoir montré clairement que notre perspective favorise le spirituel, tout en reconnaissant l'importance et la nécessité du matériel. Dieu est la source de toute bonne chose, donc lorsqu'une aide matérielle arrive alors qu'elle est désespérément nécessaire, c'est la volonté de Dieu. Mais ce n'est pas la volonté de Dieu que les gens oublient leur âme, même s'ils le font constamment. Et ce n'est pas la volonté de Dieu que les gens ignorent le fait capital que la Nouvelle Naissance peut être la leur, et avec elle, la Vie Éternelle et une joie et un bonheur sans fin.
+<small>
+
+1. <large id="f1"> Jésus s'est exprimé par le sujet de l'abondance matérielle au cours des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jésus | [Sur l'abondance matérielle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-2-fab-jesus/) | 23 Février 2010
+Jésus | [Sur l'abondance matérielle - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-3-fab-jesus/) | 23 Février 2010
+Jésus | [Sur l'abondance matérielle - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-1-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-2-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-3-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-4-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-28-1-fab-jesus/) | 28 Février 2010

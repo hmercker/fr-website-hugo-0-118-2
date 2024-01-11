@@ -27,4 +27,8 @@ J'ai dit *« en la personne des premiers parents »* parce qu'ils étaient les p
 
 En d'autres termes, bien qu'ils aient été conçus, ce qui peut être considéré comme un processus instantané, ce processus n'est pas né du néant, et derrière lui se trouve un processus naturel d'évolution.
 
-J'ai utilisé le mot « évolution » uniquement parce que c'est le mot anglais courant. Mais c'est un mot qui a une certaine histoire chargée. Dieu a bien fait naître des formes de vie, et donc des êtres humains, selon un certain plan ordonné, mais Darwin ne pouvait pas voir une image plus large que celle qu'il présentait au monde.
+J'ai utilisé le mot « évolution » uniquement parce que c'est le mot anglais<sup id="a1">[1](#f1)</sup> courant. Mais c'est un mot qui a une certaine histoire chargée. Dieu a bien fait naître des formes de vie, et donc des êtres humains, selon un certain plan ordonné, mais Darwin ne pouvait pas voir une image plus large que celle qu'il présentait au monde.
+<small>
+
+1. <large id="f1"> Ce message de jésus a été originellement reçu par un médium de langue anglaise.[↩](#a1)
+

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La curiosité de Shakespeare
+### La curiosité de Shakespeare<sup id="a1">[1](#f1)</sup>
 
 Shakespeare - reçu par FAB le 24 Janvier 2003, Santa Cruz, Californie, USA.
 
@@ -34,3 +34,7 @@ Je réalise que je n’ai pas beaucoup écrit dans ce message sur ma vie terrest
 Je vous remercie très sincèrement d’avoir reçu ce message.
 
 Amour, Shakespeare.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)
+

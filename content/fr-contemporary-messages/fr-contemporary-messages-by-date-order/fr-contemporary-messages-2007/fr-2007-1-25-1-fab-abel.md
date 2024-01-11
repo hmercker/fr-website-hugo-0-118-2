@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Abel partage ses expériences
+### Abel partage ses expériences<sup id="a1">[1](#f1)</sup>
 
 Abel - reçu par FAB le 25 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -26,3 +26,7 @@ Tout cela fait partie du passé. J'ai fait l'expérience de la Nouvelle Naissanc
 Oui, votre perception est correcte - le fait que votre médiumnité ait atteint un niveau beaucoup plus élevé et une plus grande productivité, est un signe certain que vos besoins matériels seront satisfaits. Vous servez Dieu de tout votre cœur et de tout votre être, alors Il va très certainement respecter sa part du marché en vous fournissant un travail qui réjouira votre cœur, et vous aurez du succès dans ce nouveau travail.
 
 Ne prenez pas à cœur l'erreur d'hier. Les conséquences ne seront pas graves.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

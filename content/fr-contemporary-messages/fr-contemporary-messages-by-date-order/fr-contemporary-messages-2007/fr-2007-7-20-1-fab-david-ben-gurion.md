@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Un dirigeant israélien complète son message précédent
+### Un dirigeant Israélien complète son message précédent
 
 David Ben-Gurion - reçu par FAB le 20 Juillet 2007, Santa Cruz, Californie, USA.
 

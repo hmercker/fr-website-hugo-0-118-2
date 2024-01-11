@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Souvenirs et Espoir du Paradis
+### Souvenirs et Espoir du Paradis<sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 25 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -18,3 +18,7 @@ C'est moi, Aman.
 Eh bien, ce que je voulais parler dans ce message précédent, ce sont les souvenirs spécifiques de la vie quotidienne dans l'unité complète avec Dieu. Puisque nos enfants n'ont jamais fait cette expérience, ils ne peuvent en avoir aucun souvenir.
 
 Mais d'une manière générale, oui, il est vrai que l'idée et l'espoir du Paradis ont conservé leur emprise sur l'humanité depuis lors.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

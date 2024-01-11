@@ -11,7 +11,7 @@ weight:
 
 Esprit Céleste Elevé - reçu par Kathryn Stokes le 24 Février 2001, Santa Cruz, Californie, USA.
 
-*[La question de A : Pour autant que je sache, l’idée de *« tendre l’autre joue »*, telle que présentée dans le Nouveau Testament, n’est mentionnée nulle part dans les messages de James Padgett ou du Dr Samuels. Ce concept m’a toujours dérouté parce que je n’ai pas senti qu’il était juste d’être une victime et de ne pas me défendre. Veuillez m’éclairer sur la véracité ou la fausseté de cette affirmation. Je vous remercie.]*
+*[<u>La question de A</u> : Pour autant que je sache, l’idée de *« tendre l’autre joue »*, *telle que présentée dans le Nouveau Testament, n’est mentionnée nulle part dans les messages de James Padgett ou du Dr Samuels. Ce concept m’a toujours dérouté parce que je n’ai pas senti qu’il était juste d’être une victime et de ne pas me défendre. Veuillez m’éclairer sur la véracité ou la fausseté de cette affirmation. Je vous remercie.]*
 
 Je suis ici avec toi, ma bien-aimée sœur en Christ. Nous sommes toujours heureux lorsque tu décides de te permettre d’être un canal pour nos pensées. Même si les médiums ne sont pas parfaits dans la réceptivité de nos pensées dans tous les détails, nous avons des moyens de contourner certains blocages que nous savons que vous avez ou pourriez mettre dans certaines situations ou sujets, et nous sommes majoritairement satisfaits que nos points principaux soient clairs sur la plupart des questions.
 
@@ -45,7 +45,7 @@ Mais lorsque les gens sont sur le chemin de l’évolution spirituelle, personne
 
 Ne savez-vous pas que Dieu est le seul juge et que Ses enfants n’ont de comptes à rendre qu’à lui ? Si vous décidez que quelqu’un est dans l’erreur, ce n’est pas à vous de le réprimander. Vous savez qu’il est sous le coup des lois de Dieu, et qu’il vous incombe de devenir un exemple aussi aimant que possible pour aider vos semblables à sortir des ténèbres de leur propre manque de lumière.
 
-Et *-« tendre l’autre joue »* est la meilleure façon d’illustrer la puissance de l’amour de Dieu dans votre vie et de montrer à celui qui n’est pas éclairé que se battre, se disputer, défendre ses droits, n’est pas la voie de la paix et de la joie, n’apporte pas la satisfaction et l’épanouissement du cœur et de l’âme.
+Et *« tendre l’autre joue »* est la meilleure façon d’illustrer la puissance de l’amour de Dieu dans votre vie et de montrer à celui qui n’est pas éclairé que se battre, se disputer, défendre ses droits, n’est pas la voie de la paix et de la joie, n’apporte pas la satisfaction et l’épanouissement du cœur et de l’âme.
 
 Donner de l’amour, pardonner aux autres, faire preuve d’acceptation, de tolérance, de paix, etc., contribuera davantage à faire accepter vos méthodes que toutes les défenses que vous pourriez subir.
 

@@ -23,7 +23,7 @@ Ramsès II | [Pharaon a trouvé la Nouvelle Naissance](/fr-contemporary-messages
 Samuel Beckett | [Samuel Beckett est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-13-1-fab-samuel-beckett/) | 13 Avril 2006
 Mani | [Le monde est bon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-14-1-fab-mani/) | 14 Avril 2006
 Confucius | [Le Confucianisme et le présent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-17-1-fab-confucius/) | 17 Avril 2006
-Tacitus | [Tacite fait l'expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-13-1-fab-tacitus/) | 13 Mai 2006
+Tacite | [Tacite fait l'expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-13-1-fab-tacitus/) | 13 Mai 2006
 Cotton Mather | [Expériences d’un puritain colonial](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-20-1-fab-cotton-mather/) | 20 Mai 2006
 James Padgett | [Le deuxième avènement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-1-db-james-padgett/) | 21 Mai 2006
 Cotton Mather | [Dieu regarde le cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-2-fab-cotton-mather/) | 21 Mai 2006
@@ -35,19 +35,19 @@ James Padgett | [Le pouvoir de l’amour pour effacer les erreurs](/fr-contempor
 Henry James Sr. | [Henry James Sr. fait l’expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-15-1-fab-henry-james-sr/) | 15 Juin 2006
 Roger Williams | [La liberté dans l’Amérique coloniale et dans le futur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-15-2-fab-roger-williams/) | 15 Juin 2006
 Jésus | [Jésus commente le message de Henry James](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-17-1-fab-jesus/) | 17 Juin 2006
-Jésus | [Jésus commente les messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-22-1-fab-jesus/) | 22 Juin 2006
-Jésus | [Jésus commente le Mouvement Amour Divin/Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-27-1-fab-jesus/) | 27 Juin 2006
+Jésus | [Jésus commente les messages de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-22-1-fab-jesus/) | 22 Juin 2006
+Jésus | [Jésus commente le Mouvement Amour Divin/James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-27-1-fab-jesus/) | 27 Juin 2006
 Jésus | [Jésus commente la présence Juive dans les messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-3-1-fab-jesus/) | 3 Juillet 2006
 Emerson | [Emerson ne croit toujours pas à l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-15-1-fab-emerson/) | 15 Juillet 2006
 Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
-Socrates | [Notre boussole intérieure supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
+Socrate | [Notre boussole intérieure supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
 St Pierre | [Les règles du jeu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-20-1-ks-st-peter/) | 20 Juillet 2006
 Inconnu | [Un avenir radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-24-1-ks-unknown/) | 24 Juillet 2006
 Jésus | [Les plaisirs physiques sont bons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-30-1-fab-jesus/) | 30 Juillet 2006
 Will Rogers | [La paix et l'amour sont assurés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-3-1-fab-will-rogers/) | 3 Août 2006
 David Ben-Gurion | [Le conflit Israelo-Palestinien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) | 7 Août 2006
 George Bernard Shaw | [George Bernard Shaw a trouvé l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-13-1-fab-george-bernard-shaw/) | 13 Août 2006
-Pelagius | [Pelage est conforté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-24-1-fab-pelagius/) | 24 Août 2006
+Pelage | [Pelage est conforté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-24-1-fab-pelagius/) | 24 Août 2006
 Voltaire | [Voltaire a trouvé le Dieu vivant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-28-1-fab-voltaire/) | 28 Août 2006
 Anne Hutchison | [Une courageuse dissidente de la Colonie américaine affirme que la paix viendra](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-30-1-fab-anne-hutchison/) | 30 Août 2006
 Langston Hughes | [L'Amérique sera fidèle à elle-même](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-31-1-fab-langston-hughes/) | 31 Août 2006
@@ -64,7 +64,7 @@ Jésus | [Jésus et le Talmud - L'âme et l'au-delà](/fr-contemporary-messages/
 Jésus | [Jésus et le Talmud - Les femmes, plus d'explications](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-17-1-fab-jesus/) | 17 Octobre 2006
 Jean-Baptiste | [La compréhension de la mission de Jésus par Jean le Baptiste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-19-1-fab-john-the-baptist/) | 19 Octobre 2006
 Lady Murasaki | [Une ancienne et célèbre Romancière Japonaise a fait l'expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-20-1-fab-lady-murasaki/) | 20 Octobre 2006
-Jésus | [Clarifications des messages de Padgett/Samuels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-21-1-fab-jesus/) | 21 Octobre 2006
+Jésus | [Clarifications des messages de James Padgett/Dr Samuels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-21-1-fab-jesus/) | 21 Octobre 2006
 Jésus | [L'emplacement de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-21-2-fab-jesus/) | 21 Octobre 2006
 Jésus | [Perceptions des Rabbins Talmudiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-21-3-fab-jesus/) | 21 Octobre 2006
 Moïse | [Moïse sur le Judaïsme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-23-1-fab-moses/) | 23 Octobre 2006

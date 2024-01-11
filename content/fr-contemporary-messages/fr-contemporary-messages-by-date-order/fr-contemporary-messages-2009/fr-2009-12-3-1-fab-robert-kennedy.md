@@ -11,7 +11,7 @@ weight:
 
 Robert Kennedy - reçu par FAB le 3 Décembre 2009, Santa Cruz, Californie, USA.
 
-C'est moi, Robert Kennedy.
+C'est moi, Robert Kennedy.<sup id="a1">[1](#f1)</sup>
 
 J'ai eu très tôt le sentiment d'une grande destinée, même si ce n'était pas totalement conscient. Oui, c'est vrai, malgré le fait que j'ai vécu dans l'ombre de mon père et de mes frères. Les enfants élus de Kennedy ont été élevés dans l'effort et la réussite, et il y avait quelque chose dans ma nature qui a fini par répondre à cela. Et cela a encouragé le sentiment de vouloir faire de grandes choses, au fur et à mesure que ma vie d'adulte se déroulait.
 
@@ -42,3 +42,17 @@ Vous venez de lire que je ressentais vivement l'injustice dont ma famille était
 J'étais aussi très sensible. Cela aggravait ma souffrance et ma confusion. J'étais totalement incapable de prendre la vie et ses problèmes à la légère.
 
 J'ai donc été soumis à une forte pression dans mes premières années, qui fut presque insupportable. Cela a fracturé mon âme et perturbé ma vie. En y repensant maintenant, je me rends compte que cette pression était totalement inutile. Elle n'avait absolument rien à voir avec qui j'étais et qui je voulais être en tant que personne. C'était le point de vue de mes parents sur la façon dont je devais être, et non sur qui j'étais vraiment. Les gens doivent donc se rendre compte que grandir dans un environnement privilégié peut être une malédiction aussi bien qu'une bénédiction. Mais à l'époque, je m'identifiais aussi aux notions de mes parents et de la société sur la façon dont un garçon privilégié devait se comporter. Cela a provoqué une scission à vie dans ma personnalité et mon âme.
+<small>
+
+1. <large id="f1"> Robert Kennedy s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Robert Kennedy | [Guidance divine d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-29-1-fab-robert-kennedy/) | 29 Août 2008
+Robert Kennedy | [Guidance divine d'un Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-30-1-fab-robert-kennedy/) | 30 Août 2008
+Robert Kennedy | [Robert Kennedy dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-1-fab-robert-kennedy/) | 4 Décembre 2009
+Robert Kennedy | [La famille Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-1-fab-robert-kennedy/) | 4 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-1-fab-robert-kennedy/) | 7 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-2-fab-robert-kennedy/) | 7 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-1-fab-robert-kennedy/) | 8 Décembre 2009
+Robert Kennedy | [Plus sur Robert Kennedy - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-2-fab-robert-kennedy/) | 8 Décembre 2009

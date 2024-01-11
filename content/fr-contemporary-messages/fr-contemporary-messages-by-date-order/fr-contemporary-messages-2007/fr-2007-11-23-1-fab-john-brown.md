@@ -1,4 +1,4 @@
-««---
+---
 title: "Le destin de John Brown"
 menu_title: ""
 description: "Le destin de John Brown"

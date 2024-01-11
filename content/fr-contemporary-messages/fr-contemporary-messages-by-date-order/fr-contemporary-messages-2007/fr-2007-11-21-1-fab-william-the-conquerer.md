@@ -9,7 +9,7 @@ weight:
 ---
 ### Un souverain médiéval œuvre désormais pour la paix
 
-William the Conquerer <sup id="a1">[1](#f1)</sup> - reçu par FAB le 21 Novembre 2007, Santa Cruz, Californie, USA.
+Guillaume le Conquérant <sup id="a1">[1](#f1)</sup> - reçu par FAB le 21 Novembre 2007, Santa Cruz, Californie, USA.
 
 Je suis Guillaume le Conquérant.
 

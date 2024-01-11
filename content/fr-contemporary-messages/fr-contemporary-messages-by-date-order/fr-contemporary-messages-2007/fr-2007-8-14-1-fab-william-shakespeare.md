@@ -28,7 +28,9 @@ L'anneau trouvé au 19e siècle portant les initiales W S n'était pas le mien.
 
 Je la connaissais depuis longtemps avant de lui faire la cour. La cour a évolué naturellement au fur et à mesure que je prenais conscience de mes sentiments pour elle.
 
-Nous nous sommes mariés dans l'église de Temple Grafton, et non dans l'église St. Martin de Worcester, comme il a été supposé. La cérémonie ne fut pas ouvertement Catholique, mais elle a comporté de nombreux éléments Catholiques.
+Nous nous sommes mariés dans l'église de Temple Grafton, et non dans l'église St. Martin de Worcester, comme il a été supposé. La cérémonie ne fut pas ouvertement Catholique, mais elle a comporté de nombreux éléments Catholiques.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Lors de la cérémonie traditionnelle du mariage, les futurs mariés disent chacun "I plight thee my troth", ce qui signifie "je donne ma parole". Plight signifie "promettre solennellement"..[↩](#a1)
+
+2. <large id="f2"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a2)

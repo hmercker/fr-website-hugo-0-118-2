@@ -11,7 +11,7 @@ weight:
 
 Franklin D Roosevelt - reçu par FAB le 26 Décembre 2006, Santa Cruz, Californie, USA.
 
-C'est moi, Franklin Delano Roosevelt.
+C'est moi, Franklin Delano Roosevelt.<sup id="a1">[1](#f1)</sup>
 
 Vous ne devez pas craindre d'avoir mal interprété mes [deux précédents messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-25-1-fab-franklin-d-roosevelt/).
 
@@ -26,3 +26,6 @@ Mais étant un politicien dans l'œil du public, cette moralité a souvent été
 Maintenant, laissez-moi vous aider. Le sentiment de malaise que vous éprouvez à propos de vos difficultés professionnelles est normal, mais ces problèmes ne sont que temporaires. Vous en serez délivré et vous entrerez dans une période très heureuse de votre vie. La Providence brillera à nouveau sur vous, comme elle l'a toujours fait.
 
 Votre préoccupation actuelle est le manque de capacité de rétention de votre cerveau, mais la cause n'est pas dans le fonctionnement de votre cerveau, mais plutôt dans le stress et la peur que ce dilemme provoque. Une fois cette cause éliminée, vous constaterez que votre cerveau retrouvera son rôle normal de fonctionnement. Vous avez réussi à vous débrouiller dans votre travail toute votre vie et vous continuerez à le faire.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Franklin Delano Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

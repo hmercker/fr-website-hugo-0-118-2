@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les besoins nutritionnels des Premiers Parents et du Maître
+### Les besoins nutritionnels des Premiers Parents et du Maître<sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 24 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -44,3 +44,7 @@ Vous avez pensé, n’était-ce pas injuste de la part du Créateur ? Pourquoi n
 La réponse est que nous ne voulions pas d’autre chance. Certains aspects de nos changements de notre nature se sont produits par choix – nous ne voulions pas nous rapprocher du Créateur. C’était aussi simple que ça.
 
 J’espère avoir clarifié pour vous ce que vous vouliez savoir. Si vous souhaitez des éclaircissements supplémentaires, je me ferai un plaisir d’y répondre.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

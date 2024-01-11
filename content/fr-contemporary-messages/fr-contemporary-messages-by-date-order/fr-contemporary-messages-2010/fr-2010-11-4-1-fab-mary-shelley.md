@@ -17,7 +17,7 @@ Oui, je souhaite te transmettre quelques pensées. Je suis arrivée dans ce mond
 
 J'ai observé qu'il est très utile aux esprits d'avoir une longueur d'avance sur la Terre. Je sais que c'est évident pour vous, mais ce n'est pas évident pour beaucoup. En fait, beaucoup n'ont aucune idée de l'existence d'un monde des esprits. C'est pourquoi nous, les esprits, souhaitons éduquer les mortels et leur montrer la grande prudence et la sagesse de poursuivre les choses qui mèneront au bonheur. Je pense à l'humanité dans son ensemble lorsque je fais ces commentaires, car je viens à vous avec amour.
 
-J'ai été heureux que vous ayez vu les références spirituelles dans mon roman Frankenstein. Je le relis avec vous pendant que vous le lisez à nouveau, et je perçois avec une grande vérité que le Créateur Tout-Amour m'a guidé pour l'écrire.
+J'ai été heureuse que vous ayez vu les références spirituelles dans mon roman Frankenstein. Je le relis avec vous pendant que vous le lisez à nouveau, et je perçois avec une grande vérité que le Créateur Tout-Amour m'a guidé pour l'écrire.
 
 Quant au dilemme actuel, une grande armée d'esprits est activement mobilisée, et dans la plénitude du temps, nos efforts seront mis en évidence, et nous réussirons.
 <small>

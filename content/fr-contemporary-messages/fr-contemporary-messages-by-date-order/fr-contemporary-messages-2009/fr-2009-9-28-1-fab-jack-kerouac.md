@@ -11,7 +11,7 @@ weight:
 
 Jack Kerouac - reçu par FAB le 28 Septembre 2009, Santa Cruz, Californie, USA.
 
-Je suis Jacques Kerouac.
+Je suis Jacques Kerouac.<sup id="a1">[1](#f1)</sup>
 
 Je veux vous expliquer comment je me voyais en tant que Catholique. J'ai beaucoup hérité de la tradition Catholique, et il y a de nombreux aspects de la culture et des croyances Catholiques que je n'ai jamais rejetés. Ils coïncidaient, et pas toujours de manière inconfortable, avec mes croyances Bouddhistes.
 
@@ -27,6 +27,7 @@ J'ai parlé à des esprits qui étaient alcooliques et qui m'ont dit qu'ils avai
 
 C'était comme un puissant stimulus. J'avais la preuve tangible qu'on avait toujours pris soin de moi, et cela m'a donné le courage et l'énergie d'essayer. J'ai persévéré d'une manière dont je ne me savais pas capable. Mais c'était comme si mes espoirs les plus profonds se réalisaient, et ce visage joyeux de l'espoir me donnait de l'énergie. Enfin, un sentiment différent est entré dans mon âme. C'était un sentiment de paix tranquille et doux. Cela n'a pas duré longtemps, mais c'était là.
 
-Ainsi, une chose en entraînant une autre, j'ai fini par vaincre. Ill m'a été dit qu'il était rare qu'un esprit sombre soit passé à la lumière aussi rapidement. Je n'étais pas Jacques Kerouac le mystique pour rien.<small>
+Ainsi, une chose en entraînant une autre, j'ai fini par vaincre. Ill m'a été dit qu'il était rare qu'un esprit sombre soit passé à la lumière aussi rapidement. Je n'étais pas Jacques Kerouac le mystique pour rien.
+<small>
 
-1. <large id="f1"> Jacques Kerouac s'était exprimé précédemment [le 16 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/), [le 18 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) et [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) et [le 25 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2009-9-28-1-fab-jack-kerouac/).[↩](#a1)
+1. <large id="f1"> Jacques Kerouac s'était exprimé précédemment [le 16 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/), [le 18 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/), [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) et [le 25 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2009-9-25-1-fab-jack-kerouac/).[↩](#a1)

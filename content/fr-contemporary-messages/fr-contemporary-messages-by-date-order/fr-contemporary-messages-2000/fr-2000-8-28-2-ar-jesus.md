@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Alfredo et swift bear
+### Alfredo et Swift Bear
 
 Jésus - reçu par Amada Réza le 28 Août 2000, Aptos, Californie, USA.
 

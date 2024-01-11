@@ -11,7 +11,7 @@ weight:
 
 André - reçu par Kathryn Stokes le 19 Janvier 2005, Santa Cruz, Californie, USA.
 
-Je suis ici maintenant pour écrire, ma chère sœur en Christ, et je viens  pour délivrer un message. Même si tu n'avais pas prévu de t'asseoir pour écrire, je suis heureux que tu aies été consciente de ma présence et de mon désir de communiquer.
+Je suis ici maintenant pour écrire, ma chère sœur en Christ, et je viens  pour délivrer un message. Même si vous n'aviez pas prévu de t'asseoir pour écrire, je suis heureux que vous ayez été consciente de ma présence et de mon désir de communiquer.
 
 Il y a toujours des sujets que nous pourrions développer et « peaufiner », pour ainsi dire, car au fur et à mesure que nos chers médiums progressent dans l'Amour, ils deviennent mieux équipés pour recevoir des pensées supérieures de Vérité et d'Amour.
 
@@ -31,4 +31,4 @@ J'ai voulu écrire ce petit « rappel » pour encourager les enfants bien-aimés
 
 Merci de m'avoir permis d'écrire cet après-midi. Je reviendrai bientôt.
 
-Je suis ton ami et ange gardien, André l'Apôtre, qui est avec toi depuis de nombreuses années. Je t'aime et je suis fier des progrès que tu fais. Continuez à prier et à tendre la main.
+Je suis votre ami et ange gardien, André l'Apôtre, qui est avec vous depuis de nombreuses années. Je vous aime et je suis fier des progrès que vous faites. Continuez à prier et à tendre la main.

@@ -11,9 +11,9 @@ weight:
 
 William Shakespeare - reçu par FAB le 22 Août 2007, Santa Cruz, Californie, USA.
 
-Je suis ici, William Shakespeare.
+Je suis ici, William Shakespeare.<sup id="a1">[1](#f1)</sup>
 
-J'ai dit, dans [ma canalisation du 20 août](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-20-4-fab-william-shakespeare/), que "les circonstances *[à Rufford Hall]* n'étaient pas très rigoureuses d'un point de vue religieux". Ensuite, vous lisez que Sir Hesketh a été effectivement arrêté en 1581, durant la période où j'étais engagé avec lui en tant qu'apprenti acteur.
+J'ai dit, dans [ma canalisation du 20 Août](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-20-4-fab-william-shakespeare/), que "les circonstances *[à Rufford Hall]* n'étaient pas très rigoureuses d'un point de vue religieux". Ensuite, vous lisez que Sir Hesketh a été effectivement arrêté en 1581, durant la période où j'étais engagé avec lui en tant qu'apprenti acteur.
 
 Eh bien, le bras long de la loi ne s'étendait pas rigoureusement à ses élèves adolescents. En d'autres termes, nous n'étions pas suspects aux yeux de la loi comme lui l'était. Comme nous étions là uniquement pour apprendre le théâtre, il n'y avait aucune infusion de pensée ou de pratique religieuse.
 
@@ -32,3 +32,6 @@ Eh bien, l'arrestation n'est pas allée jusqu'au bout en termes de punition. C'e
 Permettez-moi maintenant de commenter mon poème Le Phénix et la Tortue. Vous avez lu dans Shakespeare : the "lost years (les années perdues)" de E.A.J. Honigmann que le poème est en réalité une allégorie sur Sir John Salusbury et sa femme Ursula. Ce n'est pas le cas.
 
 Il a été composé en 1586, avant la première publication de l'anthologie dans laquelle il figure, Love's Martyrs de Robert Chester.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)

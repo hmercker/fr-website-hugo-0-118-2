@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La longévité dans la première famille
+### La longévité dans la première famille<sup id="a1">[1](#f1)</sup>
 
 Jael - reçu par FAB le 10 Mars 2007, Santa Cruz, Californie, USA.
 
@@ -20,3 +20,7 @@ Bien que j'aie hérité de la longévité de mes parents, je n'avais pas exactem
 Mes parents m'ont eu après leur jeunesse physique. Ma mère a pu concevoir et porter des enfants à un âge beaucoup plus avancé que ce qui est courant aujourd'hui. Sa structure hormonale était différente.
 
 Pendant de nombreuses années, elle n'a pas eu d'enfants. Le drame de la Chute s'est donc produit bien avant la naissance de l'un de leurs enfants.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Aamon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

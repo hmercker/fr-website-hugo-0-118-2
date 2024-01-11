@@ -1,21 +1,21 @@
 ---
-title: "Jésus commente les messages de Padgett"
+title: "Jésus commente les messages de James Padgett"
 menu_title: ""
-description: "Jésus commente les messages de Padgett"
+description: "Jésus commente les messages de James Padgett"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True
 weight:
 ---
-### Jésus commente les messages de Padgett
+### Jésus commente les messages de James Padgett
 
 Jésus - reçu par FAB le 22 Juin 2006, Santa Cruz, Californie, USA.
 
 C’est moi, Jésus.
 
-Vous vous interrogez sur le langage strident des messages de Padgett. Eh bien, notre but avec M. Padgett était de mettre l’accent sur les choses de la Bible qui ne sont pas conformes à la volonté de Dieu. Mais cela ne signifie pas que beaucoup d’autres choses dans ce grand Livre ne sont pas en harmonie non plus.
+Vous vous interrogez sur le langage strident des messages de James Padgett. Eh bien, notre but avec M. Padgett était de mettre l’accent sur les choses de la Bible qui ne sont pas conformes à la volonté de Dieu. Mais cela ne signifie pas que beaucoup d’autres choses dans ce grand Livre ne sont pas en harmonie non plus.
 
-Nous avions un temps et des ressources limités pour travailler. Padgett connaissait très bien les choses merveilleuses de la Bible, et il n’y avait aucune raison de répéter ce que lui et le monde Chrétien savent déjà.
+Nous avions un temps et des ressources limités pour travailler. James Padgett connaissait très bien les choses merveilleuses de la Bible, et il n’y avait aucune raison de répéter ce que lui et le monde Chrétien savent déjà.
 
 Il n’y avait jamais eu de présentation organisée et détaillée de notre sujet comme ce fut le cas dans ces messages. Nous devions donc profiter au maximum de cette occasion sans perdre de temps. Ces choses devaient être présentées exactement comme elles l’ont été.
 

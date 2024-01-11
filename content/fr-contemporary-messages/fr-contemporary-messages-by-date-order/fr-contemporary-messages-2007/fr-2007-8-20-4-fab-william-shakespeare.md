@@ -11,7 +11,7 @@ weight:
 
 William Shakespeare - reçu par FAB le 20 Août 2007, Santa Cruz, Californie, USA.
 
-C'est moi, William Shakespeare.
+C'est moi, William Shakespeare.<sup id="a1">[1](#f1)</sup>
 
 Ne soyez pas perturbé si vous lisez quelque chose d'un érudit qui semble contredire ce que je canalise. Rappelez-vous que beaucoup de choses sont des conjectures et que je suis la source.
 
@@ -26,3 +26,6 @@ On ne peut pas déduire de mes pièces de théâtre des convictions religieuses,
 Je dirai cependant que j'ai perçu la manière non religieuse dont le Pape avait dominé la politique, et cela se reflète dans les paroles de certains de mes personnages. Cela m'a paru très peu Chrétien. Mais, ayant été élevé dans un foyer plutôt favorable au Catholicisme, j'ai très tôt eu des attitudes tolérantes à son égard également.
 
 Je voyais avant tout les gens, et non leur religion. La religion n'était tout simplement pas importante pour moi en tant que personne. Je me voyais comme un dramaturge, un poète et un acteur. Je reconnaissais l'importance de la religion pour les autres, et je l'utilisais dans mes pièces. Mais, en général, je n'avais aucune hargne, seulement le désir de produire du bon théâtre.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)

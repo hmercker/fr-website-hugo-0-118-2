@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Sur l'abondance matérielle - 3
+### Sur l'abondance matérielle - 3<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par FAB le 24 Février 2010, Santa Cruz, Californie, USA.
 
@@ -30,3 +30,16 @@ Pour une personne aveugle à la vérité spirituelle, cela ressemble à de la fo
 Donc, pour revenir à ce qui vous a troublé, je faisais référence au processus d'accumulation de richesses, qui n'a rien à voir avec la voie spirituelle, même si, pour un mortel, cette voie nécessite des fonds pour vivre. Je ne faisais pas référence à la poursuite légitime d'un emploi ou d'une profession, qui est exactement en harmonie avec la volonté de Dieu. Je voulais parler de la poursuite solitaire de la richesse pour elle-même. Peut-être que « hors de propos » ne traduit pas tout ce que je veux dire, car il est clair que ce comportement peut endommager gravement l'âme. Je me heurte une fois de plus aux limites du langage des mortels.
 
 Permettez-moi donc de le reformuler autrement pour plus de clarté. Notre but avec les mortels est de renforcer cette nature spirituelle, et dans ce processus, s'ils le suivent sincèrement, ils trouveront, tout comme je l'ai enseigné dans le Sermon sur la Montagne, que ces nécessités matérielles viendront à eux. Je pense avoir exposé mon point de vue plus clairement.
+<small>
+
+1. <large id="f1"> Jésus s'est exprimé par le sujet de l'abondance matérielle au cours des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jésus | [Sur l'abondance matérielle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-2-fab-jesus/) | 23 Février 2010
+Jésus | [Sur l'abondance matérielle - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-3-fab-jesus/) | 23 Février 2010
+Jésus | [Sur l'abondance matérielle - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-1-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-2-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-3-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-4-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-28-1-fab-jesus/) | 28 Février 2010

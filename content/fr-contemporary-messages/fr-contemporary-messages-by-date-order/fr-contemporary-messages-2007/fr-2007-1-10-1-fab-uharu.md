@@ -11,7 +11,7 @@ weight:
 
 Uharu - reçu par FAB le 10 Janvier 2007, Santa Cruz, Californie, USA.
 
-Je suis là, Uharu.
+Je suis là, Uharu.<sup id="a1">[1](#f1)</sup>
 
 En lisant le livre [1491], que vous avez été guidé à acheter aujourd'hui, vous vous rendez compte que les approches autochtones étaient extrêmement diverses.
 
@@ -32,3 +32,15 @@ Mais vous avez l'avantage de canaliser les pensées d'un Amérindien, moi-même,
 Vos futurs échanges avec les autochtones confirmeront ce que je dis, à savoir que le respect de la terre et de la nature a toujours été profondément ancré dans de nombreuses cultures autochtones. Si des cultures plus urbaines ont également existé, cela ne change rien à ce que j'ai dit.
 
 Ne vous inquiétez donc pas. Faites confiance à mes pensées. Ce livre va modifier dans un sens positif les perceptions et les stéréotypes courants sur ce que nous, les autochtones, étions et sommes. Mais il ne changera pas le fait que beaucoup d'entre nous ont toujours pensé que ce que le Créateur nous a donné est en effet sacré.
+<small>
+
+1. <large id="f1"> Les différents messages comuniqués par Uharu sont listés ci-dessous :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
+Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
+Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
+Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
+Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
+Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007

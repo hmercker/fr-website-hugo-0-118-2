@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 23 Février 2010, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-Laissez-moi vous transmettre un message sur l'abondance matérielle, car je désire que vous ayez plus de clarté. Dans votre expérience du mouvement Unity, vous apprenez que l'abondance matérielle peut être attirée, et que c'est une bonne chose, et non une mauvaise chose. Vous vous demandez comment ces idées cohabitent avec ma façon de penser.
+Laissez-moi vous transmettre un message sur l'abondance matérielle<sup id="a1">[1](#f1)</sup>, car je désire que vous ayez plus de clarté. Dans votre expérience du mouvement Unity, vous apprenez que l'abondance matérielle peut être attirée, et que c'est une bonne chose, et non une mauvaise chose. Vous vous demandez comment ces idées cohabitent avec ma façon de penser.
 
 Eh bien, j'ai dit dans une canalisation précédente que pour nous, Anges Célestes, l'abondance matérielle n'est pas vraiment importante. Alors, vous vous demandez ce qu'il en est de la pensée que Dieu ? Désire-t-il l'abondance pour nous tous ? Dans votre Judaïsme natal, l'abondance matérielle est très importante, même dans un sens religieux. De plus, en ce moment dans votre vie, vous avez l'abondance matérielle, et vous savez que cela vous a apporté confort et sécurité.
 
@@ -30,3 +30,16 @@ Alors, la richesse est-elle bonne ou mauvaise ? Ma réponse est que ce n'est ni 
 Je tiens à souligner que, comme l'affirme le Judaïsme, la richesse matérielle peut certainement être une grande bénédiction. Il n'y a rien de mal à être matériellement à l'aise. Dieu veut que Ses enfants soient heureux, et le fait de savoir que des fonds sont disponibles non seulement pour les nécessités de base, mais aussi pour des plaisirs très désirés, fait partie de ce bonheur. C'est seulement lorsque cette richesse est détachée de la moralité, comme c'est souvent le cas, que les problèmes arrivent.
 
 Permettez-moi donc de conclure en disant que Dieu est Amour, et que par conséquent, Dieu désire le bonheur de ses enfants. Mettre sa confiance en Dieu, au cœur des préoccupations matérielles, c'est la méthode que j'ai enseignée, et que je continue à enseigner. Cette méthode vous a bien servi pendant plus de trente ans, et elle vous sert bien maintenant. En fait, on peut dire que c'est parce que vous l'avez appliquée que vous avez attiré cette abondance. Ainsi, elle fonctionne avec la vérité spirituelle au lieu de s'y opposer.
+<small>
+
+1. <large id="f1"> Jésus s'est exprimé par le sujet de l'abondance matérielle au cours des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jésus | [Sur l'abondance matérielle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-2-fab-jesus/) | 23 Février 2010
+Jésus | [Sur l'abondance matérielle - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-3-fab-jesus/) | 23 Février 2010
+Jésus | [Sur l'abondance matérielle - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-1-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-2-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-3-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-4-fab-jesus/) | 24 Février 2010
+Jésus | [Sur l'abondance matérielle - 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-28-1-fab-jesus/) | 28 Février 2010

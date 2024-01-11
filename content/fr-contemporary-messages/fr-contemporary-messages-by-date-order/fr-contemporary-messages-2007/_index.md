@@ -104,7 +104,7 @@ David Ben-Gurion | [Le Moyen-Orient et la vérité](/fr-contemporary-messages/fr
 Cotton Mather | [Dieu et l'Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-15-1-fab-cotton-mather/) | 15 Novembre 2007
 William Shakespeare | [La mort de sa sœur et Macbeth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-15-2-fab-william-shakespeare/) | 15 Novembre 2007
 Confucius | [La sagesse ancienne de l'humanité et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-18-1-fab-confucius/) | 18 Novembre 2007
-William the Conquerer | [Un souverain médiéval œuvre désormais pour la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-21-1-fab-william-the-conquerer/) | 21 Novembre 2007
+Guillaume le Conquérant | [Un souverain médiéval œuvre désormais pour la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-21-1-fab-william-the-conquerer/) | 21 Novembre 2007
 John Brown | [Le destin de John Brown](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-23-1-fab-john-brown/) | 23 Novembre 2007
 Dag Hammarskjold | [Les réflexions d'un dirigeant de l'ONU](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-24-1-fab-dag-hammarskjold/) | 24 Novembre 2007
 George Washington | [La protection divine et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-1-fab-george-washington/) | 25 Novembre 2007

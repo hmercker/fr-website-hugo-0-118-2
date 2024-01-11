@@ -18,9 +18,10 @@ Vous venez de terminer cette merveilleuse biographie de ma vie par Ronald C. Whi
 Eh bien, la vérité est qu'au moins au tout début, certaines choses se sont levées pour me faire face. Elles l'ont fait. Mais je n'ai pas été abandonnée, et très tôt dans ma vie spirituelle, un bel Ange m'a expliqué l'Amour Divin. Comme sur terre je ne m'alignais sur aucun credo religieux et que j'avais faim de vérité spirituelle, il m'a été très facile de me connecter à ce qu'on me disait.
 
 J'ai suivi ce chemin, qui avait un sens complet pour moi, plus que tout ce que j'avais jamais entendu, jusqu'à ce que j'arrive dans les Cieux Célestes.
+
+Dans notre pays bien-aimé, il y a maintenant des progrès vers l'apogée, et bientôt vous verrez le salut du Seigneur.
 <small>
 
 1. <large id="f1"> L'ensemble des messages communiqués par Abraham Lincoln est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
 
 
-Dans notre pays bien-aimé, il y a maintenant des progrès vers l'apogée, et bientôt vous verrez le salut du Seigneur.

@@ -15,7 +15,7 @@ C'est moi, Jésus.
 
 Je veux canaliser un message maintenant, clarifiant ce qui a été dit dans les canalisations passées, que le système est mauvais.
 
-Il est important de comprendre, [comme je l'ai dit dans un channeling passé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-14-1-fab-jesus/), que j'ai toujours eu une vision positive de la nature humaine. De mon point de vue, personne n'est irrécupérable, personne n'est mauvais.
+Il est important de comprendre, [comme je l'ai dit dans un message anérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-14-1-fab-jesus/), que j'ai toujours eu une vision positive de la nature humaine. De mon point de vue, personne n'est irrécupérable, personne n'est mauvais.
 
 Vous êtes conscients qu'il y a beaucoup, beaucoup d'actes de bonté et de bienveillance qui ont été faits, et beaucoup d'autres actes de bonté et d'amour auraient été faits si les situations l'avaient permis.
 

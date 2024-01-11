@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-### La communication des premiers parents avec Dieu
+### La communication des premiers parents avec Dieu<sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 15 Mars 2007, Santa Cruz, Californie, USA.
 
 C'est moi, Aman.
 
-Je viens ce matin en réponse à une demande d'information de M____ . Il voulait savoir comment mon partenaire et moi communiquions avec Dieu.
+Je viens ce matin en réponse à une demande d'information de M____ . Il voulait savoir comment ma partenaire et moi communiquions avec Dieu.
 
 Eh bien, comme nous l'avons appris dans le monde spirituel, avant la Chute, nous étions dans ce qui est devenu la sixième sphère de développement de l'âme. C'est-à-dire que nous n'avions ni péché ni erreur. Tous nos besoins étaient satisfaits, et nous étions en communication étroite avec Dieu.
 
@@ -28,3 +28,7 @@ Et nous savions intuitivement qu'il fallait prier pour l'Amour Divin. Cette conn
 Pour saisir la situation, il est nécessaire de comprendre la particularité de notre situation. Nous avions reçu certains privilèges, et l'un d'entre eux était une connaissance innée de Dieu et de Son projet de nous voir prier pour l'Amour Divin. Mais après la chute, cet arrangement dans notre âme s'est détérioré. Cela était dû à l'ampleur de l'orgueil qui nous possédait. Ainsi, toute proximité qui existait a été perdue.
 
 Ainsi, pour résumer, nous étions un cas spécial et, bien que nous ne possédions pas la Nouvelle Naissance, nous avions, cependant, une proximité avec Dieu et une connaissance de Ses lois. Et la bénédiction pour nous était que lorsque nous avons finalement connu la Nouvelle Naissance, l'état de notre âme a dépassé notre état initial.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

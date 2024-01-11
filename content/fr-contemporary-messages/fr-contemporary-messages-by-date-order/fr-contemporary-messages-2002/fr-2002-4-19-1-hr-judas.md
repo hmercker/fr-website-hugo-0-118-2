@@ -19,7 +19,7 @@ Un jour, au cours d’un sermon sur le thème de la justice, le Maître a prése
 
 Jésus a dit:
 
-> Un homme riche avait un économe, qui lui fut dénoncé comme dissipant ses biens. Alors, il l’appela et dit: *« Qu’est-ce que j’entends dire de toi ? Rends compte de ton administration, car tu ne pourras plus administrer mes biens.
+> Un homme riche avait un économe, qui lui fut dénoncé comme dissipant ses biens. Alors, il l’appela et dit: *« Qu’est-ce que j’entends dire de toi ? Rends compte de ton administration, car tu ne pourras plus administrer mes biens. »*
 <br>
 <br>
 > Jusqu’à présent, nous ne savons pas si cette accusation est justifiée ou fausse, mais il est clair que le gestionnaire a vraiment craint pour son travail.
@@ -37,15 +37,13 @@ Dans la campagne Palestinienne, une pauvreté terrible régnait. Beaucoup de per
 > *« Une centaine de barils d’huile »* a-t-il répondu. *« Et il lui dit : Prends ton billet, assieds-toi vite, et écrit cinquante. »*
 <br>
 <br>
-> Il dit ensuite à un autre : *« Et toi, combien dois-tu? » « Un millier de boisseaux de blé »*, répondit-il. *« Prends ton billet, dit l’administrateur et écrit huit cents. »*
+> Il dit ensuite à un autre : *« Et toi, combien dois-tu? »* *« Un millier de boisseaux de blé »*, répondit-il. *« Prends ton billet, dit l’administrateur et écrit huit cents. »*
 
 Laisse-nous jeter un œil à ce qui se passe à ce moment-là : Deux débiteurs, qui n’avaient pas la possibilité de payer leurs dettes en argent, avaient convenu de payer leur dette en nature. C’était quelque chose de très commun à cette époque. Mais étudions le montant de la dette :
 
 Le premier dit : *« Une centaine de barils d’huile »*, d’huile d’olive, bien entendu. Et bien entendu, il n’a pas dit barils, mais « bains », une mesure Hébreu correspondant à plus ou moins 40 litres ou 10 gallons, chacune. Par conséquent, le pauvre homme devait à son propriétaire la quantité de 4000 litres d’huile d’olive, ce qui correspond à la production annuelle de 100 à 200 arbres matures. Une quantité énorme !
 
-Le deuxième homme a dit : *« Un millier de boisseaux de blé. »* Il a utilisé le mot « cent kors », indiquant une mesure comprise entre 6 et 7 boisseaux de 220 litres chacun. Par conséquent, il devait
-
-22.000 litres ou 650 boisseaux de blé, peut-être dix tonnes, soit en ce temps-là la récolte annuelle de 10 à 15 hectares. Certainement il ne pouvait même pas envisager de posséder une parcelle de cette  dimension pour la culture.
+Le deuxième homme a dit : *« Un millier de boisseaux de blé. »* Il a utilisé le mot « cent kors », indiquant une mesure comprise entre 6 et 7 boisseaux de 220 litres chacun. Par conséquent, il devait 22.000 litres ou 650 boisseaux de blé, peut-être dix tonnes, soit en ce temps-là la récolte annuelle de 10 à 15 hectares. Certainement il ne pouvait même pas envisager de posséder une parcelle de cette  dimension pour la culture.
 
 Dans les deux cas, le poids de la dette écrasait le pauvre paysan.
 
@@ -73,9 +71,7 @@ Maintenant, qui sont les enfants de la lumière ? C’est la dénomination que l
 
 Cette phrase est également très controversée. Que signifie-elle ? Exactement ce que l’administrateur a fait : réduire les dettes, afin d’alléger la vie des pauvres. Ne pas charger excessivement, et, si ce n’était pas le cas, restituer l’argent réclamé en excès. Ceci est un avertissement tout à fait moderne, ne penses-tu pas?  Jésus ne parlait pas de « maisons », mais de cabanes, de huttes misérables, où les pauvres vivaient. Parce que la richesse ne dure pas éternellement, et quand cela se produit, les pauvres les accueilleront dans leurs maisons, qui elles durent. Parce que, comme tu le sais très bien, l’adjectif qui est communément traduit par « éternel », signifie en fait « durable », « qui persiste pendant un certain temps ». <sup id="a1">[1](#f1)</sup>
 
-Ultérieurement, certains responsables de l’église jugèrent les paroles du Maître inappropriées et ils essayèrent de les changer. Il existe encore des manuscrits où nous pouvons voir que le verbe a été manipulé dans ce passage, il y est écrit : « De sorte que lorsque vous viendrez à votre fin, ils pourront vous accueillir dans les maisons de l’éternité », décalant la critique sociale (qui aurait pu être utilisée
-
-contre l’église féodale) à l’au-delà.
+Ultérieurement, certains responsables de l’église jugèrent les paroles du Maître inappropriées et ils essayèrent de les changer. Il existe encore des manuscrits où nous pouvons voir que le verbe a été manipulé dans ce passage, il y est écrit : *« De sorte que lorsque vous viendrez à votre fin, ils pourront vous accueillir dans les maisons de l’éternité »*, décalant la critique sociale (qui aurait pu être utilisée contre l’église féodale) à l’au-delà.
 
 Et Jésus a dit :
 

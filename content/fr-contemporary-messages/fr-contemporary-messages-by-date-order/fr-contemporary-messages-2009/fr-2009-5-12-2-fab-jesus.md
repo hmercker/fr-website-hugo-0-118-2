@@ -1,19 +1,19 @@
 ---
-title: "Le système et les personnes - 2"
+title: "Le système et les personnes - 3"
 menu_title: ""
-description: "Le système et les personnes - 2"
+description: "Le système et les personnes - 3"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True
 weight:
 ---
-### Le système et les personnes - 2
+### Le système et les personnes - 3
 
 Jésus - reçu par FAB le 12 Mai 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-J'ai dit dans ma canalisation du 1er mai 2009, [« Le système et les gens »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-2-fab-jesus/) :
+J'ai dit dans ma canalisation du 1er mai 2009, [« Le système et les personnes »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-2-fab-jesus/) :
 
 > Mais si vous l'étudiez de plus près, vous vous rendrez compte que la tendance humaine naturelle et normale à l'amour et à la générosité est découragée.
 
@@ -31,7 +31,7 @@ Alors oui, la générosité continue chez les très riches, mais très, très pe
 
 C'est la raison pour laquelle Andrew Carnegie, a dit ce qu'il a fait, et cela vous a aussi dérouté. Mais il a dit la vérité [dans cette canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/), et vous devez le croire aussi.
 
-Vous savez que je crois et que j'enseigne la plus grande importance des besoins spirituels. Mais dans la détresse économique actuelle de votre pays, quelques-uns ont bien plus qu'assez pour toute une vie, alors que la plupart ont du mal à satisfaire les besoins de base.
+Vous savez que je crois, et que j'enseigne, la plus grande importance des besoins spirituels. Mais dans la détresse économique actuelle de votre pays, quelques-uns ont bien plus qu'assez pour toute une vie, alors que la plupart ont du mal à satisfaire les besoins de base.
 
 Ce que je veux dire, c'est que Dieu se préoccupe beaucoup d'un estomac vide, même si son plus grand intérêt est l'âme.
 

@@ -11,7 +11,7 @@ weight:
 
 William Shakespeare - reçu par FAB le 15 et 18 Août 2007, Santa Cruz, Californie, USA.
 
-C'est moi, William Shakespeare.
+C'est moi, William Shakespeare.<sup id="a1">[1](#f1)</sup>
 
 M. Ackroyd fait un superbe travail, au chapitre 26, pour décrire l'état de l'art dramatique, et les influences de ces dramaturges contemporains, à Londres lorsque je m'y suis installé.
 
@@ -20,3 +20,6 @@ J'ajouterai que même si j'ai beaucoup copié en termes d'idées et de duplicati
 Je n'ai pas fréquenté ces dramaturges parce que la plupart d'entre eux étaient irresponsables, dissolus et sauvages, alors que j'étais un père et un mari responsable. Mais les influences étaient là. Je les ai cependant fréquentés à titre professionnel, et j'ai joué dans certaines de leurs pièces.
 
 La Tragédie espagnole de Thomas Kyd a inspiré une première version de Hamlet, qu'il a lui-même écrite. Je l'ai adapté et me  et je me la suis appropriée plus tard, mais en conservant de nombreux éléments de l'intrigue.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)

@@ -29,7 +29,7 @@ Judas : Et c’était si simple. Tu as demandé dans le cadre de la prière. Le 
 
 C’est une question de foi. Ces personnes ont la foi, et c’est à cause de cette foi qu’ils se dirigent vers tous ces lieux d’apparition de Marie, avec leur cœur plein d’espoirs et de désirs. En fait, ces désirs produisent leur guérison. Ceux qui ont l’expérience de Dieu ont la foi, et cette foi attire l’amour.
 
-*[H : Le pape a-t-il l’amour de Dieu ?]*
+*[H : Le pape a-t-il l’Amour de Dieu ?]*
 
 Judas : Lui et l’archevêque de Canterbury et bien d’autres encore. Cependant, de nombreux ecclésiastiques, qui ne connaissent pas Dieu et dont la supposée vocation est seulement une fonction, ne l’ont pas. Posséder l’Amour de Dieu ne signifie pas automatiquement perdre toutes les fausses croyances. Tu as un peu de cet Amour et un peu du monde des fausses croyances.
 

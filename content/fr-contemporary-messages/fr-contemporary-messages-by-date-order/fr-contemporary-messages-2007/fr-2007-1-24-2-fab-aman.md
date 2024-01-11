@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les premiers parents - leur famille et leur langue
+### Les premiers parents - leur famille et leur langue<sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 24 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -35,4 +35,9 @@ Lorsque nous sommes entrés dans le monde spirituel, un désir ardent s'est peu 
 
 Car c'était comme si nous avions été ramenés dans un royaume de fées, cela semblait si incroyable. Mais c'était réel ! Nous pouvions retrouver notre gloire perdue ! Oh, comme c'était merveilleux ! Avec quel empressement nous avons tenté [l'expérience](/fr-james-padgett-messages/1-13-fr-the-great-experiment/), et quelle joie nous avons ressentie lorsque cela a fonctionné !
 
-Nous sommes donc entrés dans les Cieux célestes, et nous nous sommes considérés comme les êtres les plus heureux de tout l'univers de Dieu. Comme nous bénissons le Maître et le Créateur pour avoir rendu réel notre passé perdu depuis longtemps !
+Nous sommes donc entrés dans les Cieux Célestes, et nous nous sommes considérés comme les êtres les plus heureux de tout l'univers de Dieu. Comme nous bénissons le Maître et le Créateur pour avoir rendu réel notre passé perdu depuis longtemps !
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+
+

@@ -85,7 +85,7 @@ Et comment la famille de Jésus a-t-elle réagi ? Est-ce que Joseph s’est lev�
 
 Tu dois comprendre que tu ne dois pas prendre littéralement les mots de cette controverse. Toutefois, cependant tu vas facilement comprendre comment les événements se sont développés.
 
-Des années plus tard, alors que Jésus poursuivait simplement son activité, les choses ont changé à Nazareth. Beaucoup de Juifs de Nazareth ont embrassé la foi nouvelle, et le village est devenu l’un des fiefs du Judéo-christianisme, gardant les enseignements de Jésus à l’état pur. Avec la fin du Judaïsme en Palestine, après la révolte menée par Bar Kokhba an temps de l’empereur Hadrien, la communauté Judéo-Chrétienne a également disparu. Jamais elle n’a pu se manifester à nouveau, poursuivie, de manière similaire, autant  par les Juifs que par l’Église Romaine.
+Des années plus tard, alors que Jésus poursuivait simplement son activité, les choses ont changé à Nazareth. Beaucoup de Juifs de Nazareth ont embrassé la foi nouvelle, et le village est devenu l’un des fiefs du Judéo-Christianisme, gardant les enseignements de Jésus à l’état pur. Avec la fin du Judaïsme en Palestine, après la révolte menée par Bar Kokhba an temps de l’empereur Hadrien, la communauté Judéo-Chrétienne a également disparu. Jamais elle n’a pu se manifester à nouveau, poursuivie, de manière similaire, autant  par les Juifs que par l’Église Romaine.
 
 Les supposées malédictions annoncées dans le Nouveau Testament par Jésus contre plusieurs des villes proches du lac de Génésareth sont le reflet fidèle de ces persécutions. Tous ces lieux contenaient de fortes communautés Judéo-Chrétiennes. Mais de cela, nous avons déjà parlé.
 

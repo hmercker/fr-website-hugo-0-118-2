@@ -31,7 +31,7 @@ Oui et non. Il n’y a pas eu de voix, mais il y a vraiment eu la colombe, qui n
 
 *[Judas sourit]* Je vais te répondre par une autre question. Aujourd’hui, tu as envoyé un article intéressant à plusieurs personnes. Et dans cet article il était écrit :
 
-> Cela semblait complètement confus. C’est alors que j’ai trouvé un passage écrit par Bede Griffiths, un moine bénédictin contemporain. Griffiths rapporte qu’alors qu’il était jeune garçon, il était allé marcher une nuit quand soudain il fut charmé par la belle chanson de certains oiseaux. Leurs trilles réveillèrent des sens qu’il n’a jamais utilisés auparavant. Il explique que, soudainement, le monde sembla se transformer, comme s’il était confronté avec « la présence d’un mystère insondable qui semblait m’attirer vers lui. »
+> Cela semblait complètement confus. C’est alors que j’ai trouvé un passage écrit par Bede Griffiths, un moine bénédictin contemporain. Griffiths rapporte qu’alors qu’il était jeune garçon, il était allé marcher une nuit quand soudain il fut charmé par la belle chanson de certains oiseaux. Leurs trilles réveillèrent des sens qu’il n’a jamais utilisés auparavant. Il explique que, soudainement, le monde sembla se transformer, comme s’il était confronté avec *« la présence d’un mystère insondable qui semblait m’attirer vers lui. »*
 <br>
 <br>
 > Il n’y a eu ni buisson ardent, ni chars de feu. Seulement une révélation douce à laquelle beaucoup n’auraient pas prêté attention, mais cela a changé la vie de Griffiths pour toujours. L’expérience mystique – je commençais à comprendre – n’a pas été l’ascension magique vers un paradis distant. Ce fut une révélation calme et personnelle que le miraculeux et le banal sont une seule et même chose, et que les deux sont devant nos yeux.
@@ -48,7 +48,7 @@ Si tu le prends comme un signe, c’en est un. Que dis-tu ?
 
 Tu l’as dit.
 
-Maintenant il est temps de s’arrêter. Je veux seulement ajouter que certains érudits de la Bible supposent que les anciens Chrétiens pensaient que Jésus avait acquis une certaine partie de la Divinité à ce baptême. Ce point de vue est appelé adoptianisme.
+Maintenant il est temps de s’arrêter. Je veux seulement ajouter que certains érudits de la Bible supposent que les anciens Chrétiens pensaient que Jésus avait acquis une certaine partie de la Divinité à ce baptême. Ce point de vue est appelé [adoptianisme](https://fr.wikipedia.org/wiki/Adoptianisme).
 
 D’une certaine façon, cette idée est fausse, parce que Jésus avait obtenu cette partie de la Divinité beaucoup plus tôt. Il possédait déjà une âme entièrement transformée. Mais, d’autre part, l’événement du baptême de Jésus fut très important, car c’est à partir de ce moment que les premiers disciples l’ont rejoint. Mais de cela nous parlerons la prochaine fois.
 

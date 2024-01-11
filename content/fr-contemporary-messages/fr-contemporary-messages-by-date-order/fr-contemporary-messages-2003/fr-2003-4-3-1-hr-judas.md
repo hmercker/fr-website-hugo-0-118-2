@@ -9,7 +9,7 @@ weight:
 ---
 ### Le bien qui se cache
 
-![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-spiritualite36.jpg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-spiritualite-36.jpg)
 
 Judas - reçu par H____ le 3 Avril 2003, Cuenca, Équateur.
 
@@ -23,7 +23,7 @@ Ce qu’il faut retenir de ce récit est remarquable lorsque tu essaies de voir 
 
 Je suis conscient de la difficulté : Oui, ce n’est pas toujours si facile. À une époque où les gens passent beaucoup de temps devant leurs postes de télévision et ont leurs sens inondés avec des images de guerre, de crime, de faillites frauduleuses, etc., il est facile de rester conscient de tout le mal qui sévit dans le monde, mais il est aussi facile de perdre de vue tout le bien qui nous entoure.
 
-Hier, tu as vu, dans les nouvelles, un rapport sur le terrible glissement de terrain en Bolivie qui a enseveli des centaines de personnes sous des masses de roche et de boue. Encore une fois, les images étaient terribles. Ensuite, le journaliste a montré les actions de solidarité, l’aide que les Boliviens envoient aux familles des victimes, et l’aide qui vient de l’extérieur. Et tu as vu un extrait d’un court-métrage, une brève séquence d’images, quelques secondes que tu n’oublieras jamais de toute ta vie :
+Hier, tu as vu, dans les nouvelles, un rapport [sur le terrible glissement de terrain en Bolivie] (https://www.ledevoir.com/monde/24501/en-bref-glissement-de-terrain-meurtrier-en-bolivie?) qui a enseveli des centaines de personnes sous des masses de roche et de boue. Encore une fois, les images étaient terribles. Ensuite, le journaliste a montré les actions de solidarité, l’aide que les Boliviens envoient aux familles des victimes, et l’aide qui vient de l’extérieur. Et tu as vu un extrait d’un court-métrage, une brève séquence d’images, quelques secondes que tu n’oublieras jamais de toute ta vie :
 
 Un vieux portier de marché, le plus pauvre parmi les pauvres, a également laissé sa contribution pour aider les victimes. Il avait fait don de ses vieilles chaussures basses, de sorte quelles puissent être envoyées sur le site de la catastrophe. Puis le vieil homme est parti, pieds nus, prosterné et vidé de son énergie.
 

@@ -11,7 +11,7 @@ weight:
 
 St Jean et Marie - reçu par Amada Reza le 27 Décembre 2004, Aptos, Californie, USA.
 
-*Je suis ici, ma chère sœur en Christ, et je suis Jean*, un disciple de mon frère et maître, Jésus, qui connaît le chemin de l’unification avec Dieu par l’Amour Divin.
+**Je suis ici, ma chère sœur en Christ, et je suis Jean**, un disciple de mon frère et maître, Jésus, qui connaît le chemin de l’unification avec Dieu par l’Amour Divin.
 
 [Je voudrais continuer mon message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-13-1-ar-st-john/) sur la vue de l’âme, c’est-à-dire la capacité de voir le potentiel de l’âme humaine. Oui, Marie est ici, et elle vous entoure de son amour. Nous sommes reconnaissants de votre volonté de recevoir notre message.
 
@@ -23,7 +23,7 @@ Vous voyez la terre travailler sans faute pour se corriger, non pas à cause de 
 
 Je veux illustrer la puissance de l’amour qui agit à travers vous, mes amis bien-aimés, pour vous aider les uns les autres à prendre conscience de votre potentiel, car vous êtes là, avec votre amour qui se tend en réponse à cet appel le plus intérieur qu’est l’âme qui aspire à se connecter à cette vie plus grande de l’Amour de Dieu, qui vous émeut maintenant et qui accélère vos aspirations à donner.
 
-*Je suis ici, ma chère sœur, et je suis ton amie et ta gardienne, Marie.* Je veux te remercier de prendre ce moment pour recevoir mes pensées.
+**Je suis ici, ma chère sœur, et je suis ton amie et ta gardienne, Marie.** Je veux te remercier de prendre ce moment pour recevoir mes pensées.
 
 Je veux ajouter que la Volonté de Dieu est que nous devenions un avec Lui dans l’Amour, et nous sommes venus à comprendre la puissance de Son Amour à l’œuvre dans cet univers de mortels et d’esprits. C’est un pouvoir qui est très doux, mais indéniable dans son effet sur les âmes de Ses enfants. C’est l’opération de cette loi d’amour la plus élevée qui subordonne toutes les autres lois pour travailler à son accomplissement, comme un chef d’orchestre parfaitement accordé. Ce chef d’orchestre de la vie immortelle attend patiemment chaque occasion d’ouvrir les âmes de Ses enfants bien-aimés avec Son Amour. Il est toujours là, toujours prêt à être reçu par l’âme en devenir. Lorsque nous alignons notre volonté sur celle de Dieu, nous devenons Ses instruments d’amour, suggérant doucement : *« Maintenant, c’est le moment »*, et à ce moment-là, tout l’univers travaille pour guider les âmes de Ses enfants afin qu’elles voient la vérité de Son Amour à travers nos propres beaux visages d’amour.
 

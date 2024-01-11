@@ -11,9 +11,9 @@ weight:
 
 William Shakespeare - reçu par FAB le 20 Août 2007, Santa Cruz, Californie, USA.
 
-C'est moi, William Shakespeare.
+C'est moi, William Shakespeare.<sup id="a1">[1](#f1)</sup>
 
-J'ai dit dans ma canalisation [du 24 janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-24-2-fab-shakespeare/), *« Il y eut de nombreux acteurs clés dans ma vie. Certains de ces amis ont été indirectement des modèles pour les personnages de mes pièces. »*
+J'ai dit dans ma canalisation [du 24 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-24-2-fab-shakespeare/), *« Il y eut de nombreux acteurs clés dans ma vie. Certains de ces amis ont été indirectement des modèles pour les personnages de mes pièces. »*
 
 Dans le chapitre 44 du livre de M. Ackroyd, vous lisez comment mon imagination créatrice était fertile et spontanée, et comment je me suis inspiré de textes littéraires. C'est vrai.
 
@@ -26,3 +26,6 @@ En tant que poète, vous savez que vous pouvez tout à fait vous considérer com
 Les personnes avec lesquelles j'interagissais fournissaient cette matrice, qui à son tour nourrissait ma vie intérieure, de sorte que les personnages dramatiques prenaient vie grâce à cette fusion de ma propre imagination, de l'imagination d'autres écrivains et de la vie qui m'entourait.
 
 En tant qu'artiste, j'ai fait appel à mon imagination poétique ainsi qu'à des emprunts à d'autres écrivains, mais ce qui a donné à mes personnages cette substance réelle, c'est précisément ce que dit cette phrase canalisée - comme le dit le vieux cliché, l'expérience est le grand maître. Alors prenez courage - vous m'avez bien canalisé.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)

@@ -17,7 +17,7 @@ Je viens ce soir pour dire que nos destins sont inextricablement liés. Oh, comm
 
 Vous constaterez, au fur et à mesure que vos journées évolueront, que votre bonheur sera de plus en plus solidement fondé, de sorte que les troubles et les conditions terrestres n'affecteront pas vos humeurs, puisque vous construisez une fondation sur la roche et non sur le sable.
 
-Le monde a besoin de visionnaires, de mystiques, de personnes qui voient au-delà des apparences. C'est ce que j'ai essayé de transmettre dans « Brins d'Herbe », et ce que vous avez fait dans « Fleurs d'espoir ». Le poète peut aider les gens à percer le voile de l'ordinaire et à le transformer en extraordinaire.
+Le monde a besoin de visionnaires, de mystiques, de personnes qui voient au-delà des apparences. C'est ce que j'ai essayé de transmettre dans « Leaves of Grass (Brins d'Herbe) », et ce que vous avez fait dans « Fleurs d'espoir ». Le poète peut aider les gens à percer le voile de l'ordinaire et à le transformer en extraordinaire.
 
 Vous vous demandez comment je peux encore me préoccuper de l'Amérique si je suis un esprit avancé. Eh bien, la vérité n'est pas tout à fait aussi noire et blanche. Ma progression ici n'a pas été très rapide, comme l'a été celle de Marcel Proust. J'ai très tôt décidé que je voulais prendre mon temps. En outre, j'avais de nombreux problèmes à régler, dont certains me rendaient malheureux. Bien sûr, je n'étais pas essentiellement une âme pécheresse sur Terre, et pourtant certaines préoccupations m'ont vraiment fait lutter de ce côté-ci de la vie.
 

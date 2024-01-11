@@ -19,7 +19,7 @@ J’étais piégé. Il n’y avait pas d’issue. Dans ma grande détresse, je r
 
 Comme vous l’avez deviné, j’ai pu, grâce au repentir, m’élever au-dessus de ma situation triste et torturée. Je suis entré dans une meilleure sphère, mais mon expiation me suivait comme un poids énorme. Mais chaque fois que j’ai progressé, la peine a diminué, jusqu’à disparaître complètement. Cela s’est produit parce que mon âme a vu la vérité, et cela m’a libéré. J’ai vu, enfin vu, que les Irlandais, comme tous les enfants de Dieu, étaient dignes non pas d’un meurtre brutal, mais de l’amour et du respect les plus profonds.
 
-Laissez-moi maintenant répondre à votre question. Vous êtes perplexe. Vous avez canalisé [Cotton Mather](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-2-fab-cotton-mather/), qui a dit que ses souffrances n’étaient pas aussi grandes que celles des autres parce qu’il voulait vraiment servir Dieu. Alors pourquoi cela ne m’est-il pas venu à l’esprit, puisque vous avez lu que je voulais moi aussi servir Dieu ?
+Laissez-moi maintenant répondre à votre question. Vous êtes perplexe. Vous avez canalisé [Cotton Mather](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-2-fab-cotton-mather/), qui a dit que ses souffrances n’ont  pas été aussi grandes que celles des autres parce qu’il voulait vraiment servir Dieu. Alors pourquoi cela ne m’est-il pas venu à l’esprit, puisque vous avez lu que je voulais moi aussi servir Dieu ?
 
 Eh bien, la réponse est que Dieu connaissait mon cœur, et ce qu’il a vu n’était pas un croyant malavisé mais sincère, mais un meurtrier de sang-froid. Il y a une énorme différence ici.
 

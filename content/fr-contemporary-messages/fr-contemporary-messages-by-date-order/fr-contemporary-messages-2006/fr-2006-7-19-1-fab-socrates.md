@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre boussole intérieure supérieure
 
-Socrates <sup id="a1">[1](#f1)</sup> - reçu par FAB le 19 Juillet 2006, Santa Cruz, Californie, USA.
+Socrate <sup id="a1">[1](#f1)</sup> - reçu par FAB le 19 Juillet 2006, Santa Cruz, Californie, USA.
 
 C’est moi, Socrate.
 
@@ -31,9 +31,9 @@ Permettez-moi de conclure en disant qu’au-delà de ce changement éventuel, il
 
 J’ai été attiré par votre intérêt et votre amour. Puissiez-vous découvrir que la vie n’est qu’Amour et confiance, et que tout problème peut être résolu avec l’aide de Dieu.
 
-Amour, Socrate.
+Amour, Socrate.<sup id="a1">[1](#f1)</sup>
 <small>
 
 1. <large id="f1"> ***Socrate** (470-399 av. J.-C.) était un philosophe de la Grèce antique à qui l’on attribue le mérite d’avoir jeté les bases de la philosophie occidentale. (Source : Wikipedia) 
 
-Il a délivré antérieurement [un message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) par l’intermédiaire de James Padgett.[↩](#a1)
+2. <large id="f1"> Socrate a délivré antérieurement [un message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) par l’intermédiaire de James Padgett.[↩](#a2)

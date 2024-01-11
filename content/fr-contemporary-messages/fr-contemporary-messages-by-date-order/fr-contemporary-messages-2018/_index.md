@@ -203,6 +203,7 @@ Seretta Kem | [Orientations pour la session d'Octobre 2018 de Voix Directe](/fr-
 Jésus | [Je suis avec vous alors que vous accomplissez l'œuvre du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-1-af-jesus/) | 22 Septembre 2018
 Keea Atta Kem | [Demandez l'aide des anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-2-af-keea-atta-kem/) | 22 Septembre 2018
 St Luc | [La vérité passe par l'âme éveillée par l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-3-af-st-luke/) | 22 Septembre 2018
+Kea - Vicky Forest | [Premier message de l'esprit de Vicky Forest](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-24-1-af-vicky-forest/) | 24 Septembre 2018
 Seretta Kem | [Instructions pour la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-25-1-af-seretta-kem/) | 25 Septembre 2018
 Martin Luther | [Bienvenue à H et encouragements pour le groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-27-1-af-martin-luther/) | 27 Septembre 2018
 Seretta Kem | [Ouvrez-vous au plus haut niveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-27-2-af-seretta-kem/) | 27 Septembre 2018

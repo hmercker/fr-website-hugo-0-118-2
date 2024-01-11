@@ -19,7 +19,7 @@ Beaucoup de gens considèrent que mes idées sont tout à fait originales. Par e
 
 Un autre exemple est le suivant :
 
-> Quiconque s'exalte sera humilié, et quiconque s'humilie sera exalté. - (Matthieu 23:12)
+> Quiconque s'exalte sera humilié, et quiconque s'humilie sera exalté. - [Matthieu 23:12](https://saintebible.com/matthew/23-12.htm)
 
 Pourtant, nous trouvons ceci dans le Talmud :
 
@@ -55,7 +55,7 @@ Ce que je veux dire, c'est que j'ai prêché dans un contexte très spécifique,
 
 L'un des plus grands rabbins talmudiques était Hillel, dont l'influence était omniprésente lorsque je vivais. Une de mes béatitudes était :
 
-> Heureux les artisans de paix, car ils seront appelés fils de Dieu. - (Matthieu 5:9)
+> Heureux les artisans de paix, car ils seront appelés fils de Dieu. - [Matthieu 5:9](https://saintebible.com/matthew/5-9.htm)
 
 Voici ce que Hillel disait de la paix :
 

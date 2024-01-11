@@ -33,4 +33,8 @@ J’ajouterai, au sujet de votre composition, que vous finirez par reprendre, qu
 
 Je vous souhaite une agréable soirée.
 
-Je suis votre ami, Beethoven.
+Je suis votre ami, Beethoven.<sup id=”a1”>[1](#f1)</sup>
+<small>
+
+1. <large id=”f1”> Beethoven a ultérieurement communiqué [le 10 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-10-1-fab-ludwig-van-beethoven/), [le 13 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-13-1-fab-ludwig-van-beethoven/) et [le 27 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-27-2-fab-ludwig-van-beethoven/).[↩](#a1)
+

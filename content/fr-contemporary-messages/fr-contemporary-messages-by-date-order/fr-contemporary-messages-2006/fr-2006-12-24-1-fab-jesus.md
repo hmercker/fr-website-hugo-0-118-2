@@ -19,7 +19,7 @@ Oui, le message de Padgett est vrai, que nous, [Anges Célestes, ne pouvons pas 
 
 Je sais que vous trouvez ce sujet très déroutant. Vous pensez qu’Hitler devait être arrêté, et il l’a été. Mais il y a eu aussi le bombardement par saturation de Dresde et d’autres villes allemandes par les Alliés.
 
-Dans la guerre, la violence est quotidienne. Maintenant, vous savez aussi, [comme vous l’avez canalisé précédemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/), que les mortels ne peuvent pas déterminer avec précision la façon dont Dieu perçoit les actes de violence et les meurtres dans la guerre, et c’est parce que les mortels ne connaissent pas le monde intérieur des motifs, des intentions.
+Dans la guerre, la violence est quotidienne. Maintenant, vous savez aussi, [comme Avous l’avez canalisé précédemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/), que les mortels ne peuvent pas déterminer avec précision la façon dont Dieu perçoit les actes de violence et les meurtres dans la guerre, et c’est parce que les mortels ne connaissent pas le monde intérieur des motifs, des intentions.
 
 Vous vous demandez donc maintenant si Dieu détermine la moralité en fonction des motifs d’une personne, n’est-il pas logique de conclure que la violence exercée avec de bonnes intentions est bonne ?
 
