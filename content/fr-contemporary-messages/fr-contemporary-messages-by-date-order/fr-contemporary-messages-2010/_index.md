@@ -58,7 +58,6 @@ Saladin | [Les expériences d’un leader Musulman](/fr-contemporary-messages/fr
 Jésus | [L'Union Européenne - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-25-3-fab-jesus/) | 25 Août 2010
 Franklin D Roosevelt | [Franklin D. Roosevelt sur les complexités d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-1-fab-franklin-d-roosevelt/) | 26 Août 2010
 Harry Truman | [Pensées d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-2-fab-harry-truman/) | 26 Août 2010
-Jésus | [L'Union Européenne - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-25-3-fab-jesus/) | 25 Août 2010
 Jésus | [Foi et succès mondains](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-27-1-fab-jesus/) | 27 Août 2010
 Emmett Till | [Affirmation afro-américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-30-1-fab-emmett-till/) | 30 Août 2010
 Benjamin Franklin | [La Confédération iroquoise - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-3-1-fab-benjamin-franklin/) | 3 Septembre 2010

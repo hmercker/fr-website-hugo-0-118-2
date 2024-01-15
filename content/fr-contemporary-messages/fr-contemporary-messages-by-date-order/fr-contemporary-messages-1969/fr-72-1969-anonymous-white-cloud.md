@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez chercher et vous préparer à recevoir
 
-White Cloud - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Aigle Blanc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Je suis l'Indien, Nuage Blanc. Je me tiens debout. Les Indiens ne s'assoient jamais sur une chaise. Que les bénédictions du Grand Esprit Blanc tombent sur vous, mes amis. Il y a beaucoup d'Indiens ici et je suis fier de voir la lumière que les amis indiens apportent. Nous devons venir à vous mes amis lorsque nous trouvons cette porte ouverte. Nous ne pouvons pas rester sans rien faire et ne rien vous dire. Bien souvent, nous venons nous tenir à vos côtés et vous apporter la guérison lorsque vous n'êtes pas pleinement conscients de notre présence.
 

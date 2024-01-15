@@ -1,13 +1,13 @@
 ---
-title: "Chapitre XIV - La Relation du Sommeil á la Mort - extraint de « Through the Mists »"
+title: "Chapitre XIV - La Relation du Sommeil á la Mort - extraint de « Through the Mists (A travers les Brumes) »"
 menu_title: ""
-description: "Chapitre XIV - La Relation du Sommeil á la Mort - extraint de « Through the Mists »"
+description: "Chapitre XIV - La Relation du Sommeil á la Mort - extraint de « Through the Mists (A travers les Brumes)»"
 date: 2023-05-29 06:25:48+00:183
 draft: False
 hidden: True
 weight:
 ---
-## Chapitre XIV - La Relation du Sommeil á la Mort - extrait de « Through the Mists »
+## Chapitre XIV - La Relation du Sommeil á la Mort - extrait de « Through the Mists (A travers les Brumes) »
 
 ### Introduction de Robert James Lees
 

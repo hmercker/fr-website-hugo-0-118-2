@@ -1,13 +1,13 @@
 ---
-title: "Voix directe"
+title: "Voix Directe"
 menu_title: ""
-description: "Voix directe"
+description: "Voix Directe"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True
 weight:
 ---
-### Voix directe
+### Voix Directe
 
 Jacques - reçu le 2 Octobre 1969, Vancouver, Colombie-Britannique, Canada.
 

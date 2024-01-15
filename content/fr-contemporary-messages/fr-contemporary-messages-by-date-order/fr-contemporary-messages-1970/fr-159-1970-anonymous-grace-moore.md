@@ -9,7 +9,7 @@ weight:
 ---
 ### J'ai écouté les Aspirations et j'ai senti vos Désirs ardents pour l'Amour Divin.
 
-Grace Moore - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
+Grace Moore<sup id="a1">[1](#f1)</sup> - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 
 Bonsoir mes amis, je suis Grace Moore. Je me sens tellement honorée d'être autorisée à venir vous parler et à être avec vous pour me renouveler et chanter à nouveau.
 
@@ -20,3 +20,7 @@ Comme il est terrible pour une âme d'être en pleine vie sur Terre à un moment
 En écoutant vos aspirations et en ressentant vos désirs sincères d'Amour Divin dans vos âmes, j'ai réalisé combien j'avais à apprendre lorsque j'étais sur Terre et que je ne l'ai pas fait, et à travers mes contacts avec vous ces dernières semaines, j'ai réalisé plus que jamais combien nous devons impressionner les autres pour qu'ils recherchent ce merveilleux cadeau de Dieu. Avoir un grand don de quelque nature que ce soit, et  j'ai été béni, ne suffit pas. Mais avoir ce merveilleux don et la connaissance de la façon d'attirer le plus grand don de tous dans son âme, c'est vraiment atteindre le plus haut niveau que l'on puisse atteindre sur le plan terrestre. Ainsi, je vous quitterai ce soir avec un grand sentiment d'amour pour vous tous et vous vous êtes peut-être demandé pourquoi nous, qui avons passé toute notre vie terrestre dans le monde du spectacle, sommes autorisés à venir à vous, mais lorsque cet instrument sera ouvert à la voix directe, ma voix et celle des autres seront à nouveau entendues sur Terre.
 
 Que Dieu vous bénisse et merci mes amis. Bonne nuit. Grace Moore.
+<small>
+
+1. <large id="f1"> **Grace Moore**, née le 5 décembre 1898 à Slabtown (Tennessee) et morte le 26 janvier 1947 dans un accident d'avion à l'aéroport de Copenhague au Danemark. Elle était une actrice et chanteuse américaine. [↩](#a1)
+

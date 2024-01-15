@@ -33,9 +33,9 @@ Dans de nombreux cas de personnes encore dans la chair, et d'esprits liés à la
 
 Le « truc » est de « lâcher » ces négativités et fausses croyances ! C'est plus facile qu'on ne le pense, mais tant qu'on croit qu'on ne peut pas lâcher prise, on ne peut pas !
 
-C'est aussi simple que de changer ses pensées et ses schémas de pensée, mais il faut faire un certain effort pour atteindre cet objectif. Lorsque vous voyez une image ou une scène familière qui vous rappelle une réaction de colère, vous devez vous dire : « Je ne veux pas ressentir à nouveau cette colère et ce ressentiment à cause de cette scène, je veux changer ma réaction. »
+C'est aussi simple que de changer ses pensées et ses schémas de pensée, mais il faut faire un certain effort pour atteindre cet objectif. Lorsque vous voyez une image ou une scène familière qui vous rappelle une réaction de colère, vous devez vous dire : *« Je ne veux pas ressentir à nouveau cette colère et ce ressentiment à cause de cette scène, je veux changer ma réaction. »*
 
-Si vous pouvez réaliser que chacun doit répondre aux lois de Dieu pour ses propres transgressions des lois d'amour de Dieu, alors il n'est pas de votre responsabilité de penser que vous devez leur faire payer leurs péchés. Vous ne devez payer que pour vos propres péchés, c'est-à-dire tout ce que vous avez fait pour enfreindre la loi d'amour. Tout ce qui est fait dans l'amour est en harmonie avec les lois de Dieu.
+Si vous pouvez réaliser que chacun doit répondre aux lois de Dieu pour ses propres transgressions des lois d'Amour de Dieu, alors il n'est pas de votre responsabilité de penser que vous devez leur faire payer leurs péchés. Vous ne devez payer que pour vos propres péchés, c'est-à-dire tout ce que vous avez fait pour enfreindre la loi d'amour. Tout ce qui est fait dans l'amour est en harmonie avec les lois de Dieu.
 
 Même si vous devez commencer dès maintenant, aujourd'hui, à faire l'effort d'étendre votre amour à chaque situation qui se présente à vous, traitez-la avec amour ! Et lorsque vous vous trouvez dans des situations qui vous rendent extrêmement difficile d'étendre votre amour, cessez de vous associer à ces situations.
 

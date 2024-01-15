@@ -1,13 +1,13 @@
 ---
-title: "L'état de sommeil - extrait de « La Porte du Ciel »"
+title: "L'état de sommeil - extrait de « Gate of Heaven (La Porte du Ciel) »"
 menu_title: ""
-description: "L'état de sommeil - extrait de « La Porte du Ciel »"
+description: "L'état de sommeil - extrait de « Gate of Heaven(La Porte du Ciel) »"
 date: 2023-05-29 06:25:48+00:183
 draft: False
 hidden: True
 weight:
 ---
-## L'état de sommeil - extrait de « La Porte du Ciel »
+## L'état de sommeil - extrait de « Gate of Heaven (La Porte du Ciel) »
 
 Cet extrait du livre "The Gate of Heaven" de R.J. Lees présente un diagramme des sphères spirituelles et illustre le fait que l'état de sommeil a également une localisation spécifique.
 

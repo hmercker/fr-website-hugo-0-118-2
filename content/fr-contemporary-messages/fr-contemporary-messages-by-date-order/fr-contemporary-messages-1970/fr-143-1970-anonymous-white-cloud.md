@@ -9,7 +9,7 @@ weight:
 ---
 ### Apprenez à lancer des pensées d'amour
 
-White Cloud - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
+Nuage Blanc - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 
 Je suis là moi aussi, Nuage Blanc.
 

@@ -21,9 +21,11 @@ Orion : « Merci Chef Bzutu. Me voici Orion. C’est en vertu de votre statut de
 
 « Après l’implantation d’un milieu végétal vivant – créé et testé par nous – nous restons sur place pendant des millénaires et des millénaires, gardant et nourrissant les ancêtres pré-humains les plus probables, qui donneront éventuellement naissance aux tout premiers mortels connaissant Dieu. Nous supervisons ce développement et, à l’occasion, nous demandons et obtenons la permission d’améliorer un certain brin et, avec cette permission, nous pouvons même être autorisés à éradiquer un brin pré-humain indésirable.
 
-« Création contre évolution – laissons le débat se poursuivre – mais pour certains d’entre vous qui ne raisonnent jamais qu’en noir et blanc, il doit être un peu plus facile de conclure qu’il n’est pas possible d’adopter des règles strictes et rapides de type soit/soit. La question devient encore plus intrigante lorsque des enfants très précoces naissent de parents dont aucun ne possède les prérequis génétiques pour un enfant aussi exceptionnel. Contemplez de tels événements. C’est Orion. J’envoie mon amour à tous. »
+« Création contre évolution <sup id="a2">[2](#f2)</sup>– laissons le débat se poursuivre – mais pour certains d’entre vous qui ne raisonnent jamais qu’en noir et blanc, il doit être un peu plus facile de conclure qu’il n’est pas possible d’adopter des règles strictes et rapides de type soit/soit. La question devient encore plus intrigante lorsque des enfants très précoces naissent de parents dont aucun ne possède les prérequis génétiques pour un enfant aussi exceptionnel. Contemplez de tels événements. C’est Orion. J’envoie mon amour à tous. »
 
 *© The [11:11 Progress Group](http://www.1111ProgressGroup.com). Vous avez allumé une flamme, et elle deviendra un feu furieux-ABC-22.*
 <small>
 
 1. <large id="f1"> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est assez différent, du fait qu’il parle presque exclusivement à des êtres angéliques, par opposition à des ex-mortels. Néanmoins, ce message est tout à fait compréhensible.[↩](#a1)
+
+2. <large id="f2"> Ce sujet  a été particulièrement développé dans un autre texte accessible [par ce lien](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).[↩](#a2)

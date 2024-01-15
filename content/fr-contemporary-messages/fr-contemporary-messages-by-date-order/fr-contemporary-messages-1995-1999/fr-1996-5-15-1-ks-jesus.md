@@ -17,7 +17,7 @@ Jésus - reçu par Kathryn Stokes le 15 Mai 1996, Santa Cruz, Californie, USA.
 
 *Je prie pour un grand afflux de ton Amour Divin ; je prie pour que je mette mes pensées de côté, et que je ne bloque pas ce que les esprits souhaitent transmettre.]*
 
-Je suis ici maintenant pour écrire, ma chère sœur en Christ, et je viens comme d'habitude pour transmettre un message à travers toi, et pour donner quelques informations à une nouvelle adepte des Vérités qui pourraient satisfaire ses désirs d'en savoir plus sur le médium qui a été si essentiel pour recevoir des messages de ma part au début de ce siècle.
+Je suis ici maintenant pour écrire, ma chère sœur en Christ, et je viens comme d'habitude pour transmettre un message à travers vous, et pour donner quelques informations à une nouvelle adepte des Vérités qui pourraient satisfaire ses désirs d'en savoir plus sur le médium qui a été si essentiel pour recevoir des messages de ma part au début de ce siècle.
 
 Je suis votre ami et votre frère en esprit, Jésus de la Bible et Maître des Cieux Célestes, et je me réjouis de l'occasion qui m'est donnée de livrer ainsi mes pensées à travers vous.
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La loi de l'activation (3ème partie)
+### La loi de l'activation (3ème partie)<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par Révérend Dave Lampron le 4 Juin 1987.
 
@@ -42,3 +42,6 @@ Eh bien, cela a été un message assez long, mais je pense qu’il s’agit d’
 Ainsi, avec mon amour étendu à tous mes collaborateurs bien-aimés qui travaillent avec nous pour rendre « l’Apparence » et la Nature de notre Père plus claires aux cœurs et aux âmes de Ses enfants, je vous remercie pour la réception réussie de mon message de ce jour, et je vous laisse avec ma prière que, avec vos propres œuvres, vous aussi vous voyez Dieu plus clair dans les développements supérieurs de ses magnifiques vérités. Je suis votre frère et votre ami,
 
 Je suis votre frère et ami, Jésus de la Bible, et Maître des Cieux Célestes.
+<small>
+
+1. <large id="f1"> Ce message fait suite au message de Jésus [du 28 Mai 1987](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-28-1-dl-jesus/)[↩](#a1)

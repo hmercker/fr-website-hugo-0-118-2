@@ -42,7 +42,7 @@ Jésus | [Le levain de l'amour](/fr-contemporary-messages/fr-contemporary-messag
 Jésus | [Sans amour, je suis comme une cymbale qui tinte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-17-1-dl-jesus/) | 17 Décembre 1987
 Jésus | [Le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-31-1-dl-jesus/) | 31 Décembre 1987
 Jésus | [La loi de l’équipoise et de l’équilibre.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-1-18-1-dl-jesus/) | 18 Janvier 1988
-Jésus | [Né sans péché](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-2-4-1-dl-jesus/) | 4 Février 1988
+Jésus | [Né sans péché_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-2-4-1-dl-jesus/) | 4 Février 1988
 Jésus | [Les guérisons ne se font pas toujours instantanément](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-3-31-1-dl-jesus/) | 31 Mars 1988
 Jésus | [L'Amour Divin ne connaît pas la douleur du regret, du retard ou du manque d'accomplissement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-4-29-1-dl-jesus/) | 29 Avril 1988
 Jésus | [La vérité et le voyage vers la perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-8-11-1-dl-jesus/) | 11 Août 1988

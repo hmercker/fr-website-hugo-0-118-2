@@ -1,13 +1,13 @@
 ---
-title: "Instructions sur la voix directe"
+title: "Instructions sur la Voix Directe"
 menu_title: ""
-description: "Instructions sur la voix directe"
+description: "Instructions sur la Voix Directe"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True
 weight:
 ---
-### Instructions sur la voix directe
+### Instructions sur la Voix Directe
 
 Jacques - reçu le 23 Octobre 1969, Vancouver, Colombie-Britannique, Canada.
 

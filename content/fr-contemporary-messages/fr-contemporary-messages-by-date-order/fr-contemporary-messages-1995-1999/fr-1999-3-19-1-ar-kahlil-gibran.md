@@ -19,6 +19,6 @@ Rappelez-vous le passé avant que le temps ne touche votre mémoire, lorsque vou
 
 C’est le pur désir, de devenir en un seul instant parfait, un individu dans la nature de toutes les choses. La promesse de ce que nous sommes n’est pas oubliée, elle est inscrite dans notre désir et notre passion. Tu es l’étoile, mon Dieu, mon bienheureux, qui guide mes pas lents vers l’escalier du ciel.
 
-Alors, en mon temps, qu’il soit possible que Tu ouvres à nouveau mes yeux pour Te voir et que, dans cet Amour, parfait et Divin, seul accomplissement de cet enfant exalté, ton fils, ta fille, le joyau de Ton cœur, se rencontrent dans les canyons des étoiles.
+Alors, en mon temps, qu’il soit possible que Tu ouvres à nouveau mes yeux pour Te voir et que, dans cet Amour, parfait et Divin, seul accomplissement de cet enfant exalté, Ton fils, Ta fille, le joyau de Ton cœur, se rencontrent dans les canyons des étoiles.
 
 J’aime comme cette grande musique qui chante dans mon cœur et dans ma peau. Avec Ton Amour, laisse-moi éclairer le reste de mes jours. Que Dieu m’aide à T’aimer comme Tu m’aimes pour que j’aime le monde.

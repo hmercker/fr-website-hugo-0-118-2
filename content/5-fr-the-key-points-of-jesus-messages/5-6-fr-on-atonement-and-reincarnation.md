@@ -23,3 +23,4 @@ Jésus | [Jésus parle de possession et nie la réincarnation](/fr-james-padgett
 Jésus | [Jésus parle de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/) | 11 Mai 2017
 Jésus | [36ème Révélation : Joseph et Marie; l’expiation déléguée; l’interprétation erronée concernant les Gentils](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/) | 20 Décembre 1954
 Jésus | [20ème Révélation : La réincarnation est une doctrine orientale](/fr-samuels-messages/fr-revelations/fr-rev-20-1955-3-10-samuels-jesus/) | 10 Mars 1955
+Aristote | [Sur la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-19-2-Alfredo-aristotle/) | 19 Novembre 1999
