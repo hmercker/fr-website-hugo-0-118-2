@@ -311,3 +311,7 @@ Confucius | [Préparez-vous pour les temps qui viennent](/fr-contemporary-messag
 Seretta Kem | [Changements terrestres – Le temps est venu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-16-2-af-seretta-kem/) | 16 Décembre 2018
 Marie | [Beaucoup croient que leur mental apporte la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-17-1-af-mary/) | 17 Décembre 2018
 Seretta Kem | [Faites face aux changements à venir dans le monde avec la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-30-1-af-seretta-kem/) | 30 Décembre 2018
+
+[Lien vers les messages de l’année 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -39,3 +39,6 @@ Jésus | [Journée de la joie de l'Amour Divin](/fr-contemporary-messages/fr-con
 Michelangelo | [Artisan de la Renaissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-18-1-na-michelangelo/) | 18 Décembre 2005
 Abraham Lincoln | [Le véritable esprit du Pardon.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/) | 31 Décembre 2005
 John Wilkes Booth | [Le meurtre [d’Abraham Lincoln] est pardonné.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-2-fab-john-wilkes-booth/) | 31 Décembre 2005
+
+[Lien vers les messages de l’année 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

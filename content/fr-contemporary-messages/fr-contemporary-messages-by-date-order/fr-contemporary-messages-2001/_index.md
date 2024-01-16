@@ -121,3 +121,6 @@ Judas | [Le poids de l’Amour](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [Les fêtes religieuses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/) | 17 Décembre 2001
 Judas | [Jésus et Judas – amis d’enfance ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-26-1-hr-judas/) | 26 Décembre 2001
 Judas | [La transe Médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-27-1-hr-judas/) | 27 Décembre 2001
+
+[Lien vers les messages de l’année 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

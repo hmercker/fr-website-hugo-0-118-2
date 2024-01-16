@@ -167,3 +167,7 @@ Alec Gaunt | [En progressant à l’intérieur de votre âme, vous serez en mesu
 Jésus | [Je viens prendre vos fardeaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-21-2-af-jesus/) | 21 Décembre 2016
 Alec Gaunt | [Cherchez la vérité dans votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-28-1-af-alec-gaunt/) | 28 Décembre 2016
 St Matthieu | [Il est temps d’accepter une nouvelle façon d’être](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-29-1-af-st-matthew/) | 29 Décembre 2016
+
+[Lien vers les messages de l’année 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

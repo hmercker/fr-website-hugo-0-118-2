@@ -117,3 +117,6 @@ Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contem
 William Jennings Bryan | [Un leader populiste américain est confiant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-24-1-fab-william-jennings-bryan/) | 24 Décembre 2007
 William Jennings Bryan | [Égalité et liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-25-1-fab-william-jennings-bryan/) | 25 Décembre 2007
 Jésus | [Guerre et paix et le plan de Dieu Partie 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-28-1-fab-jesus/) | 28 Décembre 2007
+
+[Lien vers les messages de l’année 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

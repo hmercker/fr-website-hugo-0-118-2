@@ -57,3 +57,6 @@ Walter Teagle | [Commerce avec les Nazis](/fr-contemporary-messages/fr-contempor
 John | [Les péchés des parents et des grand parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-10-1-wv-john/) | 10 Décembre 2014
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
 St Jean | [Volonté et Libre Arbitre et le sens de 666](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-21-1-wv-st-john/) | 21 Décembre 2014
+
+[Lien vers les messages de l’année 2015](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

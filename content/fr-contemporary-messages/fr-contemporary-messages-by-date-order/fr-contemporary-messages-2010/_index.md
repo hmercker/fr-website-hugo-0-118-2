@@ -87,3 +87,6 @@ Jésus | [L'aide à venir](/fr-contemporary-messages/fr-contemporary-messages-by
 Jésus | [Jésus et l'Égypte ancienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-12-5-1-fab-jesus/) | 5 Décembre 2010
 Jésus | [Jésus, le mythe et la Bible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-12-15-1-fab-jesus/) | 15 Décembre 2010
 Jésus | [Le pardon de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-12-25-1-fab-jesus/) | 25 Décembre 2010
+
+[Lien vers les messages de l’année 2011](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

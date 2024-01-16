@@ -113,3 +113,7 @@ Ida Tarbell | [Quelque chose de merveilleux à attendre avec impatience](/fr-con
 Jésus | [Clarification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-25-1-fab-jesus/) | 25 Décembre 2009
 Woodrow Wilson | [Le point de vue d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-1-fab-woodrow-wilson/) | 28 Décembre 2009
 Jésus | [Clarification - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-2-fab-jesus/) | 28 Décembre 2009
+
+[Lien vers les messages de l’année 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

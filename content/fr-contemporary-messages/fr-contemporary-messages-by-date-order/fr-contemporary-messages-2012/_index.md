@@ -105,3 +105,6 @@ Judas | [Le vent du changement souffle](/fr-contemporary-messages/fr-contemporar
 Anne Rollins | [Sur le Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-10-1-hm-ann-rollins/) | 10 Décembre 2012
 Père | [Retrouve ton innocence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-11-1-cog-father/) | 11 Décembre 2012
 Père | [L'amour imprègne le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-23-1-hm-father/) | 23 Décembre 2012
+
+[Lien vers les messages de l’année 2013](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

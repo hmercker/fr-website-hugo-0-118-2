@@ -59,3 +59,6 @@ Esprit Céleste Elevé | [La foi et comment découvrir la vérité](/fr-contempo
 Jésus | [Un message de Noël.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-25-1-ar-jesus/) | 25 Décembre 2000
 Marie | [Qu’est-ce que la Foi ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-28-1-ar-mary/) | 28 Décembre 2000
 Marie | [Âme, foi et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-30-1-ar-mary/) | 30 Décembre 2000
+
+[Lien vers les messages de l’année 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

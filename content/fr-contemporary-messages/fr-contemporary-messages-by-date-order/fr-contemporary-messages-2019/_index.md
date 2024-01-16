@@ -395,3 +395,7 @@ Augustin | [À la fin, il y aura la paix et l'harmonie](/fr-contemporary-message
 Yogananda | [Priez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-20-2-jw-yogananda/) | 20 Décembre 2019
 André | [Dieu ne vous abandonne jamais](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-27-1-af-andrew/) | 27 Décembre 2019
 Augustin | [Partager la bonne nouvelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-29-1-af-augustine/) | 29 Décembre 2019
+
+[Lien vers les messages de l’année 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

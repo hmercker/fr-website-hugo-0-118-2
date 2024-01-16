@@ -44,3 +44,6 @@ St Jean | [Logos et pensée Juive](/fr-contemporary-messages/fr-contemporary-mes
 Marilyn Monroe | [Les expériences de Marilyn Monroe de l’autre côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-1-1-fab-marilyn-monroe/) | 1 Décembre 2011
 Jésus | [Mémoire des rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-4-1-fab-jesus/) | 4 Décembre 2011
 Jésus | [Puissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-6-1-fab-jesus/) | 6 Décembre 2011
+
+[Lien vers les messages de l’année 2012](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
