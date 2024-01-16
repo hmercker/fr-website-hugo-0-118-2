@@ -409,5 +409,7 @@ Jésus | [Une bénédiction profonde](/fr-contemporary-messages/fr-contemporary-
 Jude, le frère de Jésus | [Chaque voyage commence par un premier pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-30-1-jw-jesus-brother-jude/) | 30 Décembre 2021
 
 [Lien vers les messages de l’année 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

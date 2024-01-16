@@ -119,4 +119,6 @@ William Jennings Bryan | [Égalité et liberté](/fr-contemporary-messages/fr-co
 Jésus | [Guerre et paix et le plan de Dieu Partie 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-28-1-fab-jesus/) | 28 Décembre 2007
 
 [Lien vers les messages de l’année 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

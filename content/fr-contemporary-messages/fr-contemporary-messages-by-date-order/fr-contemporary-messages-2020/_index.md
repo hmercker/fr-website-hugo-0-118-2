@@ -406,5 +406,7 @@ Claire d'Assise | [Accrochez-vous à l'espoir](/fr-contemporary-messages/fr-cont
 Jésus | [Leçon 14 : Les efforts mentaux de l’humanité en matière de science et de religion ne réveilleront pas l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-31-1-af-jesus/) | 31 Décembre 2020
 
 [Lien vers les messages de l’année 2021](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

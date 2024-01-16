@@ -313,5 +313,7 @@ Marie | [Beaucoup croient que leur mental apporte la conscience de l’âme](/fr
 Seretta Kem | [Faites face aux changements à venir dans le monde avec la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-30-1-af-seretta-kem/) | 30 Décembre 2018
 
 [Lien vers les messages de l’année 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

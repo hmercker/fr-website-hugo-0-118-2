@@ -304,4 +304,6 @@ Goldie | [Dansez sur la musique de l'amour de Dieu](/fr-contemporary-messages/fr
 Samuel | [Message pour la Nouvelle Année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-31-2-af-samuel/) | 31 Décembre 2017
 
 [Lien vers les messages de l’année 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

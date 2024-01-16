@@ -123,6 +123,8 @@ Moïse | [Moïse partage ses expériences](/fr-contemporary-messages/fr-contempo
 Jean Sebastian Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) | 31 Décembre 2002
 
 [Lien vers les messages de l’année 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 
 

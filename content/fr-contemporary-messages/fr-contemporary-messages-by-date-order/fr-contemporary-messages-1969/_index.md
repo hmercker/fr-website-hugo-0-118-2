@@ -125,4 +125,6 @@ Jésus | [Nous ne faisons qu'un avec Dieu, frères et sœurs](/fr-contemporary-m
 Solomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-175-1969-anonymous-solomon/) |   1969
 
 [Lien vers les messages de l’année 1970]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

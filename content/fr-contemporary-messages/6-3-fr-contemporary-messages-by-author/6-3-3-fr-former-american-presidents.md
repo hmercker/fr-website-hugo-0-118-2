@@ -11,7 +11,7 @@ weight:
 
 Parmi les très nombreux esprits qui se sont exprimés, il convient de remarquer qu’un nombre non négligeables d’anciens présidents l'ont effectué dans un intervalle de temps assez restreint puisqu’une grande partie, quatorze d’entre eux, ont communiqué leurs messages au cours des dix première années de ce 3ème millénaire. Dix sept présidents se sont exprimés et ont communiqué un total de 78 messages. Parmi les sept pères fondateurs de l’Amérique, seul Alexander Milton de n’est pas exprimé. Certains d’entre eux ont exprimé qu’ils ont dû affronter une véritable bataille entre les forces de la lumière et les forces de l’obscurité. Ils ont tous témoigné que leur statut d’ancien président des USA ne leur fut d’aucune aide. Le dernier président à s’être exprimé fut Ronald Reagan qui, suite à son arrivée dans le monde des esprits, a été confronté à de nombreuses souffrances avant de pouvoir bénéficier de la lumière.
 
-<p align="center">George Washington 1er président</p>
+<p align="center">**George Washington 1er président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -20,7 +20,7 @@ George Washington | [La protection divine et la guerre](/fr-contemporary-message
 George Washington | [Le fondateur de son pays apporte son soutien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-3-fab-george-washington/) | 20 Décembre 2006
 George Washington | [Le salut de l'Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-3-1-fab-george-washington/) | 3 Décembre 2007
 
-<p align="center">Benjamin Franklin Père Fondateur</p>
+<p align="center">**Benjamin Franklin Père Fondateur**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -41,13 +41,13 @@ Benjamin Franklin | [Les Pères fondateurs en tant que classe](/fr-contemporary-
 Benjamin Franklin | [Providence Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-1-fab-benjamin-franklin/) | 18 Avril 2008
 Benjamin Franklin | [Sur les Pères fondateurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-1-16-1-fab-benjamin-franklin/) | 16 Janvier 2010
 
-<p align="center">John Adams 2ème président</p>
+<p align="center">**John Adams 2ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 John Adams | [La crise de la liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-3-fab-john-adams/) | 11 Janvier 2008
 
-<p align="center">Thomas Jefferson 3ème président</p>
+<p align="center">**Thomas Jefferson 3ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -58,7 +58,7 @@ Thomas Jefferson | [Un changement spirituel dans la politique américaine.](/fr-
 Thomas Jefferson | [Une bataille entre la lumière et les ténèbres - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-2-1-fab-thomas-jefferson/) | 2 Juin 2008
 Thomas Jefferson | [Une bataille entre les forces de la lumière et les forces de l’obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-1-1-fab-thomas-jefferson/) | 1 Janvier 2008
 
-<p align="center">James Madison 4ème président</p>
+<p align="center">**James Madison 4ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -66,13 +66,13 @@ James Madison | [Le soi-disant problème de Madison](/fr-contemporary-messages/f
 James Madison | [Un principe supérieur de gouvernement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-25-1-fab-james-madison/) | 25 Juillet 2008
 James Madison | [Une pensée d'un père fondateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-31-1-fab-james-madison/) | 31 Août 2009
 
-<p align="center">Andrew Jackson 7ème président</p>
+<p align="center">**Andrew Jackson 7ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Andrew Jackson | [Un changement de perspective](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-4-fab-andrew-jackson/) | 11 Janvier 2008
 
-<p align="center">Abraham Lincoln – 16ème président</p>
+<p align="center">**Abraham Lincoln – 16ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -90,42 +90,42 @@ Abraham Lincoln | [Lincoln gagne en confiance](/fr-contemporary-messages/fr-cont
 Abraham Lincoln | [Seul Dieu peut rendre l'homme libre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-71-1969-anonymous-abraham-lincoln/) |   1969
 Abraham Lincoln | [Une grande soif dans mon pays](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-1-af-abraham-lincoln/) | 3 Novembre 2017
 
-<p align="center">Ulysses Grant 18ème président</p>
+<p align="center">**Ulysses Grant 18ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Ulysses S Grant | [Ulysses S. Grant a eu ses yeux spirituels ouverts et il recherche l’Amour Divin du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-19-2-jep-ulysses-s-grant/) | 19 Octobre 1915
 
-<p align="center">Groover Cleveland 22 et 24ème président</p>
+<p align="center">**Groover Cleveland 22 et 24ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Grover Cleveland | [Grover Cleveland vient vers M. Padgett pour demander de l’aide](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-13-6-jep-grover-cleveland/) | 13 Août 1915
 Grover Cleveland | [L’écrivain exprime sa gratitude envers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-4-12-2-jep-grover-cleveland/) | 12 Avril 1917
 
-<p align="center">Willam McKinley 25ème président</p>
+<p align="center">**Willam McKinley 25ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 President McKinley | [President McKinley et d’autres dans le monde des esprits s’efforcent de mettre fin à la guerre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-8-2-jep-president-mckinley/) | 8 Février 1917
 
-<p align="center">WThéodore Roosevelt 26ème président</p>
+<p align="center">**Théodore Roosevelt 26ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Théodore Roosevelt | [Théodore Roosevelt, la guerre et l'empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-1-23-2-fab-theodore-roosevelt/) | 23 Janvier 2010
 Theodore Roosevelt | [Un président américain se confronte au monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-2-fab-theodore-roosevelt/) | 20 Décembre 2006
 
-<p align="center">William Howard Taft 27ème président</p>
+<p align="center">**William Howard Taft 27ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+William Howard Taft | [Les politiciens dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-1-fab-william-howard-taft/) | 18 Juin 2008
 William Howard Taft | [Les politiciens dans le monde des esprits - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-2-fab-william-howard-taft/) | 18 Juin 2008
 William Howard Taft | [Les politiciens dans le monde des esprits - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-3-fab-william-howard-taft/) | 18 Juin 2008
 William Howard Taft | [Les politiciens dans le monde des esprits - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-4-fab-william-howard-taft/) | 18 Juin 2008
-William Howard Taft | [Les politiciens dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-1-fab-william-howard-taft/) | 18 Juin 2008
 
-<p align="center">Woodrow Wilson 28ème président</p>
+<p align="center">**Woodrow Wilson 28ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -139,7 +139,7 @@ Woodrow Wilson | [Les souffrances d'un président](/fr-contemporary-messages/fr-
 Woodrow Wilson | [Un président s’explique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-6-1-fab-woodrow-wilson/) | 6 Mars 2013
 Woodrow Wilson | [Woodrow Wilson et le traité de Versailles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-15-1-fab-woodrow-wilson/) | 15 Juin 2010
 
-<p align="center">Franklin D Roosevelt 32ème président</p>
+<p align="center">**Franklin D Roosevelt 32ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -157,19 +157,19 @@ Franklin D Roosevelt | [Les expériences d'un Président Américain](/fr-contemp
 Franklin D Roosevelt | [Les péchés d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-19-1-fab-franklin-d-roosevelt/) | 19 Mars 2012
 Franklin D Roosevelt | [Quelques autres réflexions de FDR](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-7-24-1-fab-franklin-d-roosevelt/) | 24 Juillet 2012
 
-<p align="center">Harry Truman 33ème président</p>
+<p align="center">**Harry Truman 33ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Harry Truman | [Pensées d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-2-fab-harry-truman/) | 26 Août 2010
 
-<p align="center">Dwight Eisenhower 34ème président</p>
+<p align="center">**Dwight Eisenhower 34ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Dwight Eisenhower | [Les douleurs d'un président par Dwight Eisenhower](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-18-1-fab-dwight-eisenhower/) | 18 Octobre 2010
 
-<p align="center">Ronald Reagan 40ème président</p>
+<p align="center">**Ronald Reagan 40ème président**</p>
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

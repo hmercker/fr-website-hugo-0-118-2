@@ -61,4 +61,6 @@ Marie | [Qu’est-ce que la Foi ?](/fr-contemporary-messages/fr-contemporary-mes
 Marie | [Âme, foi et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-30-1-ar-mary/) | 30 Décembre 2000
 
 [Lien vers les messages de l’année 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -295,4 +295,6 @@ Orion | [Nous allons de l'avant à l'aube d'une nouvelle année](/fr-contemporar
 Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/) | 31 Décembre 2022
 
 [Lien vers les messages de l’année 2023](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -169,5 +169,7 @@ Alec Gaunt | [Cherchez la vérité dans votre propre âme](/fr-contemporary-mess
 St Matthieu | [Il est temps d’accepter une nouvelle façon d’être](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-29-1-af-st-matthew/) | 29 Décembre 2016
 
 [Lien vers les messages de l’année 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

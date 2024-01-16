@@ -59,4 +59,6 @@ Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-mes
 St Jean | [Volonté et Libre Arbitre et le sens de 666](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-21-1-wv-st-john/) | 21 Décembre 2014
 
 [Lien vers les messages de l’année 2015](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

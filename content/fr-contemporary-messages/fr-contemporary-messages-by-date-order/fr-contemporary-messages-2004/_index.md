@@ -39,4 +39,6 @@ St Jean et Jésus | [L’égalité de l’Amour de Dieu](/fr-contemporary-messag
 St Jean et Marie | [La vue de l’âme (suite)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-27-1-ar-st-john-mary/) | 27 Décembre 2004
 
 [Lien vers les messages de l’année 2005](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+<br>
+<br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
