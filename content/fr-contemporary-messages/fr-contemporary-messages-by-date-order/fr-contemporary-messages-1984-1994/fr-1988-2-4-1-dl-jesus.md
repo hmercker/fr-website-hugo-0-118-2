@@ -1,13 +1,13 @@
 ---
-title: "Né sans péché"
+title: "Né sans péché_2"
 menu_title: ""
-description: "Né sans péché"
+description: "Né sans péché_2"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True
 weight:
 ---
-### Né sans péché
+### Né sans péché_2
 
 Jésus - reçu par Révérend Dave Lampron le 4 Février 1988.
 
@@ -25,7 +25,7 @@ Jésus - reçu par Révérend Dave Lampron le 4 Février 1988.
 
 > *Comme vous avez compris et accepté le fait que les âmes naissent avec des prédispositions pour certains talents et orientations de la vie, alors vous pouvez accepter le fait que le Père m’avait choisi pour être le porteur de la Bonne Nouvelle…*
 
-*En outre, à la page 10 du volume I, vous indiquez :*
+* En outre, dans le message communiqué à James Padgett [le 08 Juin 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-8-1-jep-jesus/) et publié dans [le premier volume des Nouvelles Révélations de Jésus de Nazareth](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-1/), vous indiquez :*
 
 > *Je sais que j’ai été envoyé par le Père pour accomplir la mission que j’ai accomplie, et qu’il était prévu au départ que je sois oint comme le Christ. Cela, cependant, je ne l’ai su qu’après être devenu un homme. L’ange et ma propre voix intérieure m’ont alors dit quelle était ma mission.*
 

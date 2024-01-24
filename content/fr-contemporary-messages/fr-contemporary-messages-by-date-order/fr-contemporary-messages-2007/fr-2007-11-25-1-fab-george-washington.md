@@ -11,7 +11,7 @@ weight:
 
 George Washington - reçu par FAB le 25 Novembre 2007, Santa Cruz, Californie, USA.
 
-Je suis George Washington.
+Je suis George Washington.<sup id="a1">[1](#f1)</sup>
 
 Permettez-moi de discuter d'une question qui vous a troublé.
 
@@ -78,3 +78,6 @@ Je sais que cette canalisation a été très longue, mais j'ai senti qu'il étai
 Cette canalisation a été très bonne pour vous, car vous avez dû mettre de côté votre propre façon de penser et essayer de voir un autre point de vue. Dans l'univers de Dieu, les gens sont divers, et leurs choix découlent de modes de pensée entièrement différents, qui affectent les motivations à partir desquelles ces choix sont faits.
 
 Mais tout cela ne nie pas que nous, les Anges célestes, travaillons dur pour empêcher définitivement le fléau de la guerre.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par George Washington est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

@@ -47,6 +47,6 @@ Que Dieu te bénisse.
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 
-Judas.
+    Simon le Zélote.
 
 © Geoff Cutler 2013

@@ -1,13 +1,13 @@
 ---
-title: "Abraham Lincoln comllète à son message précédent"
+title: "Abraham Lincoln complète à son message précédent"
 menu_title: ""
-description: "Abraham Lincoln comllète à son message précédent"
+description: "Abraham Lincoln complète à son message précédent"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True
 weight:
 ---
-### Abraham Lincoln comllète à son message précédent
+### Abraham Lincoln complète à son message précédent<sup id="a1">[1](#f1)</sup>
 
 Abraham Lincoln - reçu par FAB le 7 Juillet 2007, Santa Cruz, Californie, USA.
 
@@ -18,3 +18,6 @@ C'est moi, Abraham Lincoln.
 J'ai essayé de prendre mes distances avec cette façon de parler, mais cela ressortait naturellement de toute façon. J'ai cherché à ne pas me présenter comme un homme du fond des bois, mais certaines façons de parler ont persisté.
 
 Ce que je veux dire, c'est que j'avais beau essayer, je ne pouvais pas communiquer dans la vie quotidienne de la même manière que celle de l'auteur du discours de Gettysburg.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Abraham Lincoln est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

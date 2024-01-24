@@ -52,7 +52,7 @@ Tu as toujours aimé cette histoire, récit typique de Jésus, montrant son amou
 
 C’est vrai, la Loi de Moïse exigeait la mort en cas d’adultère :
 
-> Deutéronome 22:22 : Si l’on trouve un homme couché avec une femme mariée, ils mourront tous deux, l’homme qui a couché avec la femme, et la femme aussi. Tu ôteras ainsi le mal du milieu d’Israël.
+> [Deutéronome 22:22](https://saintebible.com/deuteronomy/22-22.htm) : Si l’on trouve un homme couché avec une femme mariée, ils mourront tous deux, l’homme qui a couché avec la femme, et la femme aussi. Tu ôteras ainsi le mal du milieu d’Israël.
 
 Note que seule la femme a été traînée devant Jésus. Parmi les hommes, il y avait beaucoup plus de tolérance.
 
@@ -69,7 +69,7 @@ Dans l’Évangile de Thomas, tu peux trouver cette phrase significative :
 > Simon Pierre leur dit : *« que Mariam (Marie Madeleine) sorte de chez nous car les femmes ne sont pas dignes de la vie. »*
 <br>
 <br>
-> Jésus a dit : *« voici que je l’attirerai afin qu’elle devienne mâle pour qu’elle aussi soit un esprit vivant semblable à vous mâles. Car toute femme qui se fera mâle entrera dans le royaume des Cieux.» * - [Logion 114](https://lanouvellenaissance.com/2017/07/12/les-femmes-autour-de-jesus/)
+> Jésus a dit : *« voici que je l’attirerai afin qu’elle devienne mâle pour qu’elle aussi soit un esprit vivant semblable à vous mâles. Car toute femme qui se fera mâle entrera dans le royaume des Cieux. »* - [Logion 114](https://lanouvellenaissance.com/2017/07/12/les-femmes-autour-de-jesus/)
 
 Des paroles difficiles, ne penses-tu pas?  Bien sûr, il y a eu beaucoup de frictions entre les hommes et les femmes parmi les disciples de Jésus. En fait, les femmes ont mieux compris son message et elles ont généralement implanté le Christianisme au sein de leur famille, tandis que leurs maris se distinguaient souvent par leur indifférence et leur incapacité à saisir ce que le Maître enseignait. Les femmes auraient mérité le rôle de leaders du mouvement Chrétien à ses débuts, mais en raison de l’incompréhension masculine et à cause des préjugés masculins, elles ont été reléguées au second plan.
 

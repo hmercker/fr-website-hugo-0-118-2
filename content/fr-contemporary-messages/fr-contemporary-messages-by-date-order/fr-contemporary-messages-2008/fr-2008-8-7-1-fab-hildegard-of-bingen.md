@@ -9,7 +9,7 @@ weight:
 ---
 ### Une mystique médiévale exulte dans le monde spirituel
 
-Hildegard of Bingen <sup id="a1">[1](#f1)</sup> - reçu par FAB le 7 Août 2008, Santa Cruz, Californie, USA.
+Hildegarde de Bingen <sup id="a1">[1](#f1)</sup> - reçu par FAB le 7 Août 2008, Santa Cruz, Californie, USA.
 
 Je suis Hildegarde de Bingen.
 

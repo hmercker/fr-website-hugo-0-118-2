@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La loi de l'activation (Deuxième partie)
+### La loi de l'activation (Deuxième partie)<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par Révérend Dave Lampron le 28 Mai 1987.
 
@@ -31,4 +31,8 @@ Ainsi, en tant que vue d’ensemble, il existe, dans l’Univers de la Création
 
 Eh bien, je me réjouis de la manière satisfaisante dont vous avez reçu mon message de ce jour, et j’attends avec impatience de partager de nombreux autres messages avec l’humanité grâce à vos efforts de canalisation et votre coopération volontaire. C’est tout ce que je veux dire pour l’instant, sinon de vous demandez de transmettre à nouveau ma gratitude et mon amour à vous tous qui travaillez pour apporter l’Activation du Grand Amour de Dieu et toutes Ses nombreuses autres Bénédictions à Ses enfants nécessiteux sur terre. En attendant la prochaine occasion, je vous souhaite une bonne journée et vous laisse avec ma prière pour que le Père vous bénisse tous pour ce que vous faites en Son Nom et pour Sa Cause.
 
-Jésus de la Bible,et Maître des Cieux Célestes.
+Jésus de la Bible et Maître des Cieux Célestes.
+<small>
+
+1. <large id="f1"> Ce message fait suite au message de Jésus [du 20 Mai 1987](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-20-1-dl-jesus/)[↩](#a1)
+

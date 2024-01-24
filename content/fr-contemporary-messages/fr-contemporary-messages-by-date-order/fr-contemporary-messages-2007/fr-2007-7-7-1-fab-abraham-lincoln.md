@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Abraham Lincoln commente son style dans les Messages reçus par James Padgett
+### Abraham Lincoln commente son style dans les Messages reçus par James Padgett<sup id="a1">[1](#f1)</sup>
 
 Abraham Lincoln - reçu par FAB le 7 Juillet 2007, Santa Cruz, Californie, USA.
 
-Je suis Abraham Lincoln.
+Je suis Abraham Lincoln.<sup id="a2">[2](#f2)</sup>
 
 Je viens cet après-midi pour répondre à une préoccupation d'un membre de l'église concernant le ton et le style de mes pensées telles qu'elles sont canalisées par M. Padgett.
 
@@ -28,5 +28,10 @@ Ainsi, le style que j'ai choisi pour écrire à travers M. Padgett était plus p
 Je n'ai utilisé aucune de ces expressions "ploucs", car elles ont disparu de la langue et n'auraient pas été reconnues.
 
 Si j'avais choisi le style oratoire formel, j'aurais eu le sentiment de ne pas parler naturellement, et pire, d'avoir rivalisé avec le Maître et d'autres esprits plus élevés. Non, j'ai conservé mon humilité même à ce moment-là, comme je l'ai fait dans ma vie terrestre. Je sentais que le monde pouvait se sentir plus proche de "l'honnête Abe" tel qu'il était dans une conversation normale et quotidienne.
+<small>
 
-**Note :** Ce message a été reçu après des critiques concernant les différences de style perçues entre Abraham Lincoln dans ses déclarations politiques officielles et son style dans les messages de Padgett.
+1. <large id="f1"> Ce message a été reçu après des critiques concernant les différences de style perçues entre Abraham Lincoln dans ses déclarations politiques officielles et son style dans les messages de Padgett.[↩](#a1)
+
+2. <large id="f2"> L'ensemble des messages communiqués par Abraham Lincoln est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)
+
+

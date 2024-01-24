@@ -11,7 +11,7 @@ weight:
 
 William Shakespeare - reçu par FAB le 14 Août 2007, Santa Cruz, Californie, USA.
 
-C'est moi, William Shakespeare.
+C'est moi, William Shakespeare.<sup id="a1">[1](#f1)</sup>
 
 Je souhaite évoquer maintenant les circonstances qui m'ont amené à chercher fortune à Londres, alors que j'avais une femme et trois enfants. Les difficultés antérieures de mon père m'ont fait prendre la résolution de ne jamais échouer. J'ai eu de nombreuses discussions sur mon avenir avec ma femme, et lorsque j'ai pris congé, nous nous sommes séparés amicalement.
 
@@ -30,3 +30,6 @@ Cette confiance qu'ils m'ont accordée fut un grand cadeau pour moi. Elle m'a so
 La volonté de réussir pour le bien de ma famille était tout aussi forte que mon besoin de m'exprimer. En fait, le premier a servi de moteur au second.
 
 Lorsque j'ai réfléchi, dans le monde spirituel, à ma vie terrestre, je voyais la main de Dieu tendue pour me soutenir et m'appuyer, afin que je puisse accomplir ma destinée, qui est finalement devenue importante pour le monde. Mais à l'époque, je n'avais aucune idée de ces choses. Je ne me sentais pas proche de Dieu, et ne pouvais donc pas discerner Ses conseils. Mais le Créateur m'a quand même guidé, et je ne peux aujourd'hui que le remercier.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)

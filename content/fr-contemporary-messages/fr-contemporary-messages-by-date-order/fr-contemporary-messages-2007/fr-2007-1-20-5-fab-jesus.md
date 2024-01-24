@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Guerre et paix et le plan de Dieu Partie 3
+### Guerre et paix et le plan de Dieu Partie 3<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par FAB le 20 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -40,3 +40,17 @@ En fait, cette opposition croissante du président renforce la cause de la paix 
 Non, l’humanité doit simplement apprendre que la guerre n’est pas la solution, et la seule façon de l’apprendre est la manière dure, par l’expérience, même si de nombreux innocents sont blessés et tués.
 
 Et, planant au-dessus des régions déchirées de la Terre, se trouve le Créateur, qui guide l’humanité vers l’amour et la paix.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Jésus sur le thème « Guerre et Paix  dans le plan de Dieu » est accessible par l'intermédiaire des liens ci-dessous indiqués :[↩](#a1)
+
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jésus | [Guerre et paix et le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-24-1-fab-jesus/) | 24 Décembre 2006
+Jésus | [Guerre et paix et le plan de Dieu - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-2-fab-jesus/) | 26 Décembre 2006
+Jésus | [Guerre et paix et le plan de Dieu Partie 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-5-fab-jesus/) | 20 Janvier 2007
+Jésus | [Guerre et paix et le plan de Dieu Partie 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-28-1-fab-jesus/) | 28 Décembre 2007
+Jésus | [Guerre et paix et le plan de Dieu Partie 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-5-fab-jesus/) | 11 Janvier 2008
+Jésus | [Guerre et paix et le plan de Dieu Partie 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-1-fab-jesus/) | 14 Décembre 2008
+Jésus | [Guerre et paix et le plan de Dieu Partie 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-2-fab-jesus/) | 14 Décembre 2008

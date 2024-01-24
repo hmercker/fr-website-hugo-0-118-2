@@ -1,4 +1,4 @@
----
+«---
 title: "La crise de la liberté"
 menu_title: ""
 description: "La crise de la liberté"
@@ -29,7 +29,7 @@ Le pays survivra à des calamités telles que le Patriot Act <sup id="a4">[4](#f
 
 2. <large id="f2"> L'ensemble des messages communiqués par John Adams est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)
 
-3. <large id="f3"> Les Alien and Sedition Acts sont quatre lois qui furent présentées en 1798 par les Fédéralistes au Congrès des États-Unis, lors d'une guerre navale avec la France, puis ratifiées par le président John Adams.[↩](#a3)
+3. <large id="f3"> « Les Alien and Sedition Acts sont quatre lois qui furent présentées en 1798 par les Fédéralistes au Congrès des États-Unis, lors d'une guerre navale avec la France, puis ratifiées par le président John Adams. »[↩](#a3)
 
-4. <large id="f4"> Le USA PATRIOT Act est une loi antiterroriste qui fut votée par le Congrès des États-Unis et signée par George W. Bush le 26 Octobre 2001.[↩](#a4)
+4. <large id="f4"> Le « USA PATRIOT Act » est une loi antiterroriste qui fut votée par le Congrès des États-Unis et signée par George W. Bush le 26 Octobre 2001.[↩](#a4)
 

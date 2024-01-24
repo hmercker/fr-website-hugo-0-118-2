@@ -13,11 +13,11 @@ Judas - reçu par H____ le 9 Septembre 2001, Cuenca, Équateur.
 
 Mon cher frère H____ , ayant maintenant achevé la description des plans terrestres, laquelle n’est pas du tout exhaustive comme tu l’auras compris, je pense qu’il convient de traiter les questions que Geoff a posées dans ce contexte.
 
-La première question concerne le tunnel de lumière que tant de gens décrivent dans leur expérience de mort imminente. Dans le récit de ma propre mort, je n’ai pas mentionné ce phénomène.
+*La première question* concerne le tunnel de lumière que tant de gens décrivent dans leur expérience de mort imminente. Dans le récit de ma propre mort, je n’ai pas mentionné ce phénomène.
 
-La deuxième question porte sur la recommandation des spiritualistes que les esprits sombres des plans terrestres devraient aller vers la lumière. Si ces esprits vivent sur les plans terrestres, c’est en raison de leur état d’âme. Alors, quelle est la signification d’aller vers la lumière ? Doivent-ils prendre conscience de leurs limites, ou doivent-ils se diriger vers certains esprits lumineux ?
+*La deuxième question porte* sur la recommandation des spiritualistes que les esprits sombres des plans terrestres devraient aller vers la lumière. Si ces esprits vivent sur les plans terrestres, c’est en raison de leur état d’âme. Alors, quelle est la signification d’aller vers la lumière ? Doivent-ils prendre conscience de leurs limites, ou doivent-ils se diriger vers certains esprits lumineux ?
 
-Et la troisième partie de la requête de Geoff fait référence à un message reçu par James Padgett, où le mari et la femme semblent s’être « perdus » dans le plan terrestre, c’est-à-dire sur la terre, après leur mort et la séparation d’avec leur corps physique. Comment est-ce possible ? <sup id="a1">[1](#f1)</sup>
+*Et la troisième partie de la requête de Geoff* fait référence à un message reçu par James Padgett, où le mari et la femme semblent s’être *« perdus »* dans le plan terrestre, c’est-à-dire sur la terre, après leur mort et la séparation d’avec leur corps physique. Comment est-ce possible ? <sup id="a1">[1](#f1)</sup>
 
 Commençons par le tunnel de lumière. Il y a l’idée que ce tunnel est un phénomène très particulier, parce que les gens qui ont vécu une telle expérience de mort imminente décrivent ce tunnel qui les attire par la force. Certains ont même réussi à passer à travers, comme ils le décrivent, et, à l’autre extrémité, ils trouvent une atmosphère de paix absolue et le bonheur. Et cette expérience est indépendante de la culture, de la religion ou de l’éducation populaire.
 

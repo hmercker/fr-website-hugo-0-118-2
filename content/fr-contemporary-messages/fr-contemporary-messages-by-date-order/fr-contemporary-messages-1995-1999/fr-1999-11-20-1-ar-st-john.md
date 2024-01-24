@@ -19,7 +19,7 @@ Je dis cela à Alfredo pour qu’il cherche avec son âme et sa pensée à attei
 
 C’est une situation intéressante dans laquelle il se trouve à ce moment de sa vie, et il peut se demander, pourquoi maintenant, avec une jeune famille à élever, et pourquoi lui ? Mais je veux qu’il ait la foi que nous sommes avec lui et que nous le guidons dans cette voie. Il a un don qu’il veut utiliser pour la gloire de Dieu et, ainsi, cela sera fait.
 
-*[Jean s’adresse directement à Alfredo.]*
+**[Jean s’adresse directement à Alfredo.]**
 
 Parce que ce genre d' »attention » est nouveau pour toi, tu es quelque peu incrédule, mais comprends que tu as été en compagnie d’anges la majeure partie de ta vie, et qu’ils travaillent de manière si calme et si douce que tu es peut-être incapable de détecter leur présence. Lorsqu’une prière est élevée, la réponse vient de Dieu, et son amour est prompt à déplacer ses messagers de miséricorde et de bonté aux côtés de ceux qui l’appellent.
 

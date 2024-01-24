@@ -11,7 +11,7 @@ weight:
 
 Ho Sing - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
-Bonsoir, mes amis, Ho Sing.
+Bonsoir, mes amis, je suis Ho Sing.
 
 C'est merveilleux de venir vous voir ce soir. D'être autorisé à vous parler en présence du plus grand maître de tous, mes amis. De me tenir ici en présence de tous les merveilleux enseignants de mon pays.
 

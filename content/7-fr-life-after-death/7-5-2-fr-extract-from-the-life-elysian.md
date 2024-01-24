@@ -1,13 +1,13 @@
 ---
-title: "Chapitre V - L'Ange de la Mort - extrait de « The Life Elysian »"
+title: "Chapitre V - L'Ange de la Mort - extrait de « The Life Elysian (la Vie Elyséenne) »"
 menu_title: ""
-description: "Chapitre V - L'Ange de la Mort - extrait de « The Life Elysian »"
+description: "Chapitre V - L'Ange de la Mort - extrait de « The Life Elysian (la Vie Elyséenne) »"
 date: 2023-05-29 06:25:48+00:183
 draft: False
 hidden: True
 weight:
 ---
-## Chapitre V - L'Ange de la Mort - extrait de « The Life Elysian »
+## Chapitre V - L'Ange de la Mort - extrait de « The Life Elysian (la Vie Elyséenne) »
 
 ### Au sujet de Robert James Lees
 

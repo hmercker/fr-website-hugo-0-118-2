@@ -39,11 +39,11 @@ Si tu le souhaites, tu pourrais dire que Nathanaël fut le premier disciple du m
 
 Le lendemain, Jésus marcha vers le lac. Nathanaël ne l’a pas suivi, mais il le fera peu après lors de leur nouvelle rencontre à l’occasion de la fête du célèbre mariage de Cana.
 
-Nathanaël est l’un des grands personnages des premiers jours de l’église primitive. Il n’y a pas beaucoup d’informations sur lui, il n’a pas accompli des « exploits », il n’a pas entrepris de longs voyages en tant que missionnaire, et rien n’est enregistré à son sujet dans l’histoire.
+Nathanaël est l’un des grands personnages des premiers jours de l’église primitive. Il n’y a pas beaucoup d’informations sur lui, il n’a pas accompli des *« exploits »*, il n’a pas entrepris de longs voyages en tant que missionnaire, et rien n’est enregistré à son sujet dans l’histoire.
 
 Après la mort du maître, il est revenu avec les autres disciples en Galilée, et après les multiples apparitions de Jésus et son dernier adieu, il est resté dans son village natal.
 
-J’ai déjà mentionné une fois que la Galilée fut un centre ferme du Judéo-christianisme primitif. Et cela s’est produit en grande partie grâce au travail silencieux de Nathanaël. Cana, Nazareth, les villages au bord du lac, tous deviendraient des centres du Christianisme.
+J’ai déjà mentionné une fois que la Galilée fut un centre ferme du Judéo-Christianisme primitif. Et cela s’est produit en grande partie grâce au travail silencieux de Nathanaël. Cana, Nazareth, les villages au bord du lac, tous deviendraient des centres du Christianisme.
 
 Nathanaël a vécu suffisamment longtemps pour connaître les premières persécutions à l’encontre de certains Chrétiens, ceux que l’on appelle les Hellénistes, à Jérusalem. Il apprit la mort de ses amis, Jacques et Jean, les fils de Zébédée, mais peu de temps après, il est décédé d’une mort naturelle, en paix, dans le sein de sa famille.
 
@@ -63,4 +63,6 @@ Judas.
 
 © Geoff Cutler 2013
 
-![title](/3-fr-judas-of-kerioth-messages/fr-2002-nathanael_small.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-nathanael_small.jpg)
+                
+     Nathanaël

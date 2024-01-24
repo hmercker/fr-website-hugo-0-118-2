@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 20 Janvier 2007, Santa Cruz, Californie, USA.
 
 Je suis là, Jésus.
 
-Vous savez que vous n'êtes pas un économiste (et nous le savons aussi), il y a donc beaucoup de choses en économie que vous ne comprenez pas. Et pourtant, vous avez ressenti, en réfléchissant à la canalisation précédente, que ce que j'ai dit est désespérément naïf - les riches ne renoncent tout simplement pas à leur richesse, à moins d'une expropriation lors d'une révolution, et l'élite du pouvoir occidental est tout simplement trop enracinée pour céder. Alors comment la justice peut-elle venir dans les pays pauvres ?
+Vous savez que vous n'êtes pas un économiste (et nous le savons aussi), il y a donc beaucoup de choses en économie que vous ne comprenez pas. Et pourtant, vous avez ressenti, en réfléchissant à [la canalisation précédente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-1-fab-jesus/), que ce que j'ai dit est désespérément naïf - les riches ne renoncent tout simplement pas à leur richesse, à moins d'une expropriation lors d'une révolution, et l'élite du pouvoir occidental est tout simplement trop enracinée pour céder. Alors comment la justice peut-elle venir dans les pays pauvres ?
 
 J'ai mentionné certains événements dramatiques. L'un d'eux, vous le connaissez déjà. Mais il y en aura beaucoup d'autres qui feront basculer la marée vers la justice.
 

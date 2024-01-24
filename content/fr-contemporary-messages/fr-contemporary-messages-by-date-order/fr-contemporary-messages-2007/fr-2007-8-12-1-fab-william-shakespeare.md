@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Shakespeare - L'enfance et la Bible
+### Shakespeare - L'enfance et la Bible<sup id="a1">[1](#f1)</sup>
 
 William Shakespeare - reçu par FAB le 12 Août 2007, Santa Cruz, Californie, USA.
 
@@ -30,3 +30,6 @@ Je me suis beaucoup inspiré de la Bible dans mes écrits d'adulte. J'ai adoré 
 Mais mon livre préféré, d'un point de vue littéraire, n'était pas les Psaumes, mais les Lamentations. Oui, vous avez bien canalisé cela. Vous êtes perplexe. Pourquoi pas les Psaumes, en raison de leur belle poésie ?
 
 Eh bien, j'ai effectivement apprécié leur belle poésie lorsque j'étais enfant, mais les Lamentations sont plus poignantes et plus dramatiques. Elles correspondaient davantage aux désirs d'un dramaturge en herbe. J'aimais aussi le livre de Job, mais les Lamentations me tiraient le cœur.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)

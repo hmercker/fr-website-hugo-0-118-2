@@ -11,7 +11,7 @@ weight:
 
 Abraham Lincoln - reçu par FAB le 30 Juin 2005, Santa Cruz, Californie, USA.
 
-Je suis, Abraham Lincoln.
+Je suis, Abraham Lincoln.<sup id="a1">[1](#f1)</sup> 
 
 Oui, c’est moi, et, lorsque je considère ma vie terrestre, je suis aussi étonné que vous que j’aie pu survivre et faire face comme je l’ai fait. Mais je considère que c’est l’œuvre du Seigneur.
 
@@ -34,3 +34,7 @@ Ainsi, mon ami, considérez mes paroles, et *« ne jugez pas pour ne pas être j
 Alors que vous continuez votre cheminement dans la vie, aimez tout le monde et laissez le jugement au Seigneur. Tout le monde fait de son mieux pour vivre cette vie difficile. Nous faisons tous des choix différents pour prendre soin de nous-mêmes. Si vous sentez que vous avez fait de votre mieux pour prendre soin de vous-même en honorant le Seigneur, ne vous inquiétez pas, Dieu ne peut rien vous demander de plus. Tout le monde et tout le reste sont en dehors de votre domaine, et ils ne devraient pas affecter cette paix que seul le Seigneur peut donner.
 
 Avec amour, Abraham Lincoln.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Abraham Lincoln est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+

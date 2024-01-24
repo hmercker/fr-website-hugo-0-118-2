@@ -100,3 +100,8 @@ Anonyme | [La loi des harmonies Sympathiques](/fr-contemporary-messages/fr-conte
 Solomon | [Appel à tous les médiums](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-4-1-cc-solomon/) | 4 Décembre 2003
 St Pierre | [Des millions d’âmes, des millions de chemins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-5-1-ks-st-peter/) | 5 Décembre 2003
 Jacques | [Le pouvoir de s’élever au-dessus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-17-1-ks-james/) | 17 Décembre 2003
+
+[Lien vers les messages de l’année 2004](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+<br>
+<br>
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

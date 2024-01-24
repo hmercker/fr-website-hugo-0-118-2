@@ -1,13 +1,13 @@
 ---
-title: "Sur l’autodéfense"
+title: "Sur l’autodéfense_2"
 menu_title: ""
-description: "Sur l’autodéfense"
+description: "Sur l’autodéfense_2"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True
 weight:
 ---
-### Sur l’autodéfense
+### Sur l’autodéfense_2
 
 Marie - reçu par Amada Reza le 7 Juillet 1999, Aptos, Californie, USA.
 

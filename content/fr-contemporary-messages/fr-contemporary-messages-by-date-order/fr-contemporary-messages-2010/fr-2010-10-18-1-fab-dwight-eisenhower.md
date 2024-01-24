@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les douleurs d'un président par Dwight Eisenhower<
+### Les douleurs d'un président par Dwight Eisenhower
 
 Dwight Eisenhower - reçu par FAB le 18 Octobre 2010, Berkeley, Californie, USA.
 
@@ -29,6 +29,6 @@ Alors qu'il vient d'être nommé commandant en chef de l'OTAN (1950) et qu'il in
 
 Réélu en 1956 contre le même Adlai Stevenson, ses deux mandats sont marqués par la fin de la guerre de Corée, le début de contacts directs avec les dirigeants de l'URSS, concrétisé notamment par la visite de Khrouchtchev aux États-Unis en 1959, mais aussi par la poursuite d'une politique d'endiguement du communisme, la condamnation de l'expédition anglo-franco-israélienne en Égypte, l'arrivée de Fidel Castro à Cuba, la création de la NASA, la lutte contre la ségrégation raciale dans l'armée et à l'école ou encore la réduction de l'inflation.
 
-Ne pouvant solliciter un troisième mandat, Eisenhower quitte la Maison-Blanche en janvier 1961. Il se retire dans sa ferme de Gettysburg en Pennsylvanie (devenu depuis le Eisenhower National Historic Site) où il se consacre à la rédaction de ses mémoires. Son successeur sera John Fitzgerald Kennedy. (Source : Wikipédia)
+Ne pouvant solliciter un troisième mandat, Eisenhower quitte la Maison-Blanche en Janvier 1961. Il se retire dans sa ferme de Gettysburg en Pennsylvanie (devenu depuis le Eisenhower National Historic Site) où il se consacre à la rédaction de ses mémoires. Son successeur sera John Fitzgerald Kennedy. (Source : Wikipédia)
 
 

@@ -11,7 +11,7 @@ weight:
 
 Jack Kerouac - reçu par FAB le 25 Septembre 2009, Santa Cruz, Californie, USA.
 
-Je suis Jack Kerouac.
+Je suis Jack Kerouac.<sup id="a1">[1](#f1)</sup>
 
 J'ai découvert ici les profondeurs de mon incapacité à être sensible aux besoins des autres. Ce qui se profilait dans ma conscience était ma négligence envers ma fille Jan. C'était vraiment horrible. Mais j'étais un chercheur, et en cherchant, j'ai trouvé. Mes péchés n'étaient pas excusés - ils étaient remplacés par la grâce de l'Amour Divin.
 
@@ -26,3 +26,7 @@ Ce qui m'attendait lorsque je me suis retrouvé ici fut inconcevable. J'avais su
 Il m'a été lancé une bouée de sauvetage et je m'y suis accroché. Je suis fier de mon passage de l'obscurité à la lumière. J'avais la volonté de le faire, et je l'ai fait. Au début, c'était impossible. Tout me frappait en même temps. C'était un flot continu de souvenirs qui brûlaient comme du feu. Je n'avais pas prévu cela. Comme je vous l'ai dit précédemment, mes croyances bouddhistes ne m'ont pas aidé. Ce qu'on m'a dit sur l'Amour Divin l'était.
 
 Je suis donc un exemple vivant du fait, que ce monde spirituel démontre amplement que, quelle que soit la quantité de ténèbres dans l'âme d'un homme, Dieu est capable de le racheter.
+<small>
+
+1. <large id="f1"> Jacques Kerouac s'était exprimé précédemment [le 16 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/), [le 18 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/), [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) et [le 28 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/).[↩](#a1)
+

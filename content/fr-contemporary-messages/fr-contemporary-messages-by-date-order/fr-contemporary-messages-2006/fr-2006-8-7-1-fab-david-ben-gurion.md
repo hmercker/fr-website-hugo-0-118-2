@@ -15,7 +15,7 @@ C’est moi, David Ben-Gourion.
 
 Vous connaissez bien mon nom. J’ai fait ce que j’ai pu pour servir les intérêts de l’État Juif moderne d’Israël. J’ai, bien sûr, été partiel quant à ses intérêts et je croyais un peu dans la religion de mes ancêtres.
 
-Vous êtes perplexe au sujet de la guerre par les Israéliens. Vous pensez que Dieu ne justifie pas la mise à mort dans la guerre. Vous pensez qu’Israël n’aurait pas pu survivre si elle ne s’était pas défendue contre les Arabes, et pourtant vous vous sentez innocent vis à vis des Arabes et des Musulmans qui sont morts suite aux bombardements israéliens.
+Vous êtes perplexe au sujet de la guerre par les Israéliens. Vous pensez que Dieu ne justifie pas la mise à mort dans la guerre. Vous pensez qu’Israël n’aurait pas pu survivre si elle ne s’était pas défendue contre les Arabes, et pourtant vous vous sentez innocent vis à vis des Arabes et des Musulmans qui sont morts suite aux bombardements Israéliens.
 
 Vous êtes allés jusqu’à affirmer que Dieu a une providence spéciale dans la sauvegarde de l’État Juif, et cependant vous avez haï toutes les effusions de sang provoquées par Israël.
 
@@ -25,7 +25,7 @@ La réponse est que Dieu prend soin d’Israël, mais seulement de la même mani
 
 J’ai vu tellement de choses ici qui m’ont surpris, et qui m’ont convaincu que Dieu n’a certainement pas de favoris. J’ai vu des Arabes musulmans qui étaient mes contemporains, qui sont heureux et en paix, et j’ai vu certains de mes contemporains Israéliens dans l’obscurité totale. Et j’ai vu également l’inverse. Alors, j’ai conclu que ce n’est pas sur l’État Juif que Dieu met l’accent, mais sur l’âme humaine individuelle, qu’elle soit Juive ou Arabe.
 
-Vous êtes surpris que j’aie cet avis, compte tenu de mon importance dans les affaires Israéliennes. Eh bien, même sur terre, je n’étais pas dévot et, lorsquee je suis venu ici, je ne suis pas venu avec un très grand attachement à l’État d’Israël. Vous avez l’impression de ne pas canaliser ceci correctement. Je m’explique.
+Vous êtes surpris que j’aie cet avis, compte tenu de mon importance dans les affaires Israéliennes. Eh bien, même sur terre, je n’étais pas dévot et, lorsque je suis venu ici, je ne suis pas venu avec un très grand attachement à l’État d’Israël. Vous avez l’impression de ne pas canaliser ceci correctement. Je m’explique.
 
 Vers la fin de ma vie terrestre, lorsque j’ai vu que mon mandat touchait à sa fin, j’ai commencé à réfléchir différemment sur beaucoup de choses. C’est assez fréquent chez les personnes âgées. Une chose qui a changé à ce moment-là fut mon allégeance à Israël. Bien sûr, je la défendrais et servirais toujours. Mais d’autres questions étaient plus importantes pour moi. J’ai commencé à penser à la vie d’une manière très différente. Et après être arrivé ici, ce processus s’est poursuivi – en fait, il s’est intensifié.
 

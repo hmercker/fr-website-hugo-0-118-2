@@ -11,13 +11,13 @@ weight:
 
 Judas - reçu par H____ le 29 Juin 2003, Cuenca, Équateur.
 
-*« Je me souviens aussi qu’une fois, alors que je cherchais des petits objets et les êtres minuscules de mon monde à l’arrière de ma maison, j’ai remarqué un trou dans une planche de la clôture. J’ai regardé à travers le trou et j’ai vu beaucoup de choses semblables à celles de mon domicile, jachères et sauvages. J’ai fait quelques pas en arrière car, vaguement, je savais que quelque chose était sur le point de se passer. Soudain, une main est apparue. C’était la petite main d’un enfant de mon âge. Quand je me suis approché, la main avait disparue et à sa place, il y avait un petit mouton blanc.
+*« Je me souviens aussi qu’une fois, alors que je cherchais des petits objets et les êtres minuscules de mon monde à l’arrière de ma maison, j’ai remarqué un trou dans une planche de la clôture. J’ai regardé à travers le trou et j’ai vu beaucoup de choses semblables à celles de mon domicile, jachères et sauvages. J’ai fait quelques pas en arrière car, vaguement, je savais que quelque chose était sur le point de se passer. Soudain, une main est apparue. C’était la petite main d’un enfant de mon âge. Quand je me suis approché, la main avait disparue et à sa place, il y avait un petit mouton blanc.*
 
-C’était un mouton de laine défraîchie. Les roues sur lequel il avait roulé avaient disparu. Je n’avais jamais vu un mouton aussi joli. Je suis allé à mon domicile et je suis revenu avec un cadeau que j’adorais et j’ai laissé dans le même lieu : un cône de pin, semi-ouvert, parfumé et balsamique.
+*C’était un mouton de laine défraîchie. Les roues sur lequel il avait roulé avaient disparu. Je n’avais jamais vu un mouton aussi joli. Je suis allé à mon domicile et je suis revenu avec un cadeau que j’adorais et j’ai laissé dans le même lieu : un cône de pin, semi-ouvert, parfumé et balsamique.*
 
-Je n’ai jamais revu la main de l’enfant. Je n’ai jamais revu un mouton comme celui-ci. Je l’ai perdu dans un incendie. Et même maintenant, dans ces années, quand je passe devant un magasin de jouets, je regarde furtivement les vitrines. Mais c’est en vain. Plus jamais un mouton comme celui-là a été fabriqué. »*
+*Je n’ai jamais revu la main de l’enfant. Je n’ai jamais revu un mouton comme celui-ci. Je l’ai perdu dans un incendie. Et même maintenant, dans ces années, quand je passe devant un magasin de jouets, je regarde furtivement les vitrines. Mais c’est en vain. Plus jamais un mouton comme celui-là a été fabriqué. »*
 
-Pablo Neruda : J’avoue ce que j’ai vécu. Mémoires.
+[Pablo Neruda : J’avoue ce que j’ai vécu. Mémoires.](https://fr.wikipedia.org/wiki/J%27avoue_que_j%27ai_v%C3%A9cu)<sup id="a1">[1](#f1)</sup>
 
 Et tu te rappelles que, étant un garçon, tu avais pour habitude de passer des heures, allongé sur le dos, dans l’herbe, regardant les nuages et reconnaissant en eux des animaux, des figures, toutes sortes de choses. Te tournant, tu as vu les fleurs des prés, les couronnes jaunes du pissenlit et les abeilles assis sur elles, avec leurs queues inclinant la tête en haut et en bas, alors qu’elles recueillaient le pollen sur leurs jambes. Tu as vu les libellules à vol d’oiseau coupant l’air avec une habilité remarquable, cristalline et pointue, et ton grand-père les a toujours appelées *« tailleuses de verre. »* C’était un monde mystérieux et fascinant, un monde qui s’est perdu.
 
@@ -48,5 +48,8 @@ L’affirmation selon laquelle nous devons devenir comme des enfants pour entrer
 Je te souhaite une belle journée.
 
 Judas.
+<small>
+
+1. <large id="f1"> Pablo Neruda a communiqué un premier message [le 05 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-2-fab-pablo-neruda/), un second message [le 06 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-1-fab-pablo-neruda/), un troisième message le même jour, [le 06 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-2-fab-pablo-neruda/) et un dernier message [le 07 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-7-1-fab-pablo-neruda/)
 
 © Geoff Cutler 2013

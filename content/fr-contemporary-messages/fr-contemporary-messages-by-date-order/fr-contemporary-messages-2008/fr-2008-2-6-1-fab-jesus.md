@@ -24,3 +24,17 @@ Vous vous demandez comment nous, Anges Célestes, aussi développés que nous le
 Eh bien, la réponse est que nous savons certaines choses, et que nous ignorons d'autres aspects. Vous vous doutez bien que, aussi décevant que cela puisse paraître pour les mortels à l'esprit scientifique désireux de connaître la vérité, ce sujet ne nous intéresse pas. Mais au fil du temps, j'essaierai de vous éclairer ici avec toutes les informations que vous jugerez utiles et instructives.
 
 Cependant, les gens doivent comprendre que de tels sujets, aussi curieux et fascinants qu'ils soient, n'affectent pas le progrès spirituel de l'âme. Une âme développée dans l'Amour Divin a des intérêts ailleurs.
+
+**Note :** Six messages ont été canalisés sur le sujet de la création de l'espèce humaine par James Padgett. Il s'agit  :
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Aman | [Aman, le premier parent révèle sa tentation et sa chute](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/) | 29 Août 1915
+Amon | [Amon, la mère de tous les humains, partage son expérience, sa tentation et désobéissance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/) | 30 Août 1915
+St Jean | [Jean affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/) | 30 Août 1915
+Aman | [Aman apporte une correction](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/) | 7 Septembre 1915
+Jésus | [La relation de l’homme à la création du monde et l’origine de vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 Janvier 1916
+St Luc | [Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/) | 22 Juillet 1917
+
+Ce sujet concernant l'évolution est complexe et fait l'objet [d'une section séparée](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).
+

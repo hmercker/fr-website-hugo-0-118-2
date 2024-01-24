@@ -16,11 +16,13 @@ C'est moi, Jésus.
 Je veux décrire davantage ce que je ressens et pense du système économique actuellement en place.
 
 Nous, les Anges, avons pour but premier d'encourager les mortels à suivre la voie Divine. Mais comme un mortel a aussi des besoins matériels de base, nous devons aussi être conscients de ces besoins.
+
 Nous ne sommes pas indifférents aux préoccupations sociales, économiques ou politiques, même si nous nous concentrons sur le spirituel. Et la nature critique de la façon dont le monde a évolué exige que nous nous intéressions à ces questions, en complément de notre plus grande préoccupation spirituelle.
 
 Comme je l'ai dit précédemment, nous travaillons ensemble avec des esprits non-divins d'amour qui souhaitent également améliorer le bien-être de l'humanité.
 
 Je veux maintenant parler de ce que j'avais mentionné précédemment au sujet du système. J'ai dit que la façon dont l'argent est gagné n'est pas harmonieuse. Mais alors, j'ai exclu certaines catégories.
+
 Ce que je voulais dire, c'est que le système, tel qu'il est aujourd'hui, n'est pas équitable ; il ne fournit pas un accès égal aux besoins matériels, comme certains l'avaient espéré par le passé. Au lieu de cela, la richesse, et avec elle le pouvoir, s'accumulent pour un très petit nombre. Telle est la réalité actuelle.
 
 Et une autre réalité est que de plus en plus de personnes dans votre monde souffrent parce qu'elles ne sont pas en mesure de subvenir à leurs besoins fondamentaux.

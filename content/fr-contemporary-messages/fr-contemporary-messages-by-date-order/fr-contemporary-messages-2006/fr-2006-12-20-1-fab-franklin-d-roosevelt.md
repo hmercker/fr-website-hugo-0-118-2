@@ -11,7 +11,7 @@ weight:
 
 Franklin D Roosevelt <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 
-Je suis, Franklin Delano Roosevelt.
+Je suis, Franklin Delano Roosevelt.<sup id="a2">[2](#f2)</sup>
 
 Oui, j’ai appris tellement de choses ici, qui ont été complètement nouvelles. Je vois tout – mon pays, la politique, l’humanité et ma propre vie – d’un point de vue complètement différent.
 
@@ -46,3 +46,5 @@ Alors prenez courage, tant dans votre propre vie que dans celle de votre pays, c
 
 1. <large id="f1"> **Franklin Delano Roosevelt** (30 Janvier 1882 – 12 Avril 1945), souvent désigné par ses initiales FDR, fut le 32e président des États-Unis. Élu pour quatre mandats, il a servi de 1933 à 1945, et est le seul président américain à avoir servi plus de deux mandats. Figure centrale du XXe siècle, il a toujours été classé comme l’un des trois plus grands présidents des États-Unis dans les enquêtes savantes. (Source : Wikipedia)
 [↩](#a1)
+
+2. <large id="f2"> L'ensemble des messages communiqués par Franklin Delano Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)

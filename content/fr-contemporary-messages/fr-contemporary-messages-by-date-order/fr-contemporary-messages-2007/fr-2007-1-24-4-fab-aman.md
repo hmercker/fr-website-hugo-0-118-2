@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Changements dans le programme "The First Parents"
+### Changements dans le programme "The First Parents"<sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 24 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -32,3 +32,7 @@ Vous pensez toujours que le Créateur a été injuste en supprimant complètemen
 Vous pouvez appeler cela une punition, et vous pouvez appeler cela un choix logique. Mais le Créateur ne punit pas. Il ne se comporte envers Ses enfants que de la manière dont ils le méritent. La conclusion est donc que nous avons mérité ce destin malheureux.
 
 Mais tout cela est du passé, et ce qui était perdu a maintenant été retrouvé, et oh, comme nous sommes reconnaissants d'avoir retrouvé le chemin de la grâce et de l'amour du Créateur !
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 21 Mai 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-Je veux clarifier ce que j'ai voulu dire dans la [canalisation d'aujourd'hui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-21-1-fab-jesus/) lorsque j'ai dit : " Nous ne sommes pas indifférents aux préoccupations sociales, économiques ou politiques, même si nous nous concentrons sur le spirituel. "
+Je veux clarifier ce que j'ai voulu dire dans la [canalisation d'aujourd'hui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-21-1-fab-jesus/) lorsque j'ai dit :  *« Nous ne sommes pas indifférents aux préoccupations sociales, économiques ou politiques, même si nous nous concentrons sur le spirituel. »*
 
 Permettez-moi de préciser que notre priorité a toujours été, et sera toujours, de guider les âmes des mortels sur la voie Divine.
 

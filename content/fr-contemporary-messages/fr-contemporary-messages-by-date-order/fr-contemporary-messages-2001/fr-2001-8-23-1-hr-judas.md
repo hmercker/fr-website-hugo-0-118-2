@@ -31,7 +31,7 @@ Les mortels perçoivent leurs instructions et avertissements de la même manièr
 
 *[Alfredo m’a écrit aujourd’hui. Entre autres, il remarque :*
 
-*“… En lisant ton dernier message, je pensais que, peut-être, tu devrais essayer l’écriture automatique.*
+* « … En lisant ton dernier message, je pensais que, peut-être, tu devrais essayer l’écriture automatique.*
 
 *Tu peux demander à ton guide (Judas), si tu peux essayer l’écriture automatique, peut-être réussiras-tu, tu pourras alors recevoir les messages plus clairement et tes doutes disparaîtront, les doutes sont cependant normaux et tu ne devrais pas t’inquiéter à leur sujet… »*
 

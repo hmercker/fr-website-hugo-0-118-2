@@ -274,7 +274,7 @@ Seretta Kem | [Priez pour les portails de lumière et pour que d'autres soient �
 Copernic | [Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) | 9 Septembre 2019
 Care Derby Walsh | [Suivez le chemin le moins fréquenté, le chemin de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-4-jw-care-derby-walsh/) | 9 Septembre 2019
 Marc | [Se concentrer sur l'âme où se trouve la fontaine de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-1-af-mark/) | 11 Septembre 2019
-White Cloud | [Demander les bénédictions et les dons de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-2-af-white-cloud/) | 11 Septembre 2019
+Nuage Blanc | [Demander les bénédictions et les dons de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-2-af-white-cloud/) | 11 Septembre 2019
 Rumi | [La loi de Dieu est progressive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-3-jw-rumi/) | 11 Septembre 2019
 Confucius | [Dieu assigne des anges pour être avec ceux qui sont sur le Chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-13-1-af-confucius/) | 13 Septembre 2019
 Yogananda | [Le yoga de l'Amour de Dieu est le yoga le plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-15-1-jw-yogananda/) | 15 Septembre 2019
@@ -395,3 +395,9 @@ Augustin | [À la fin, il y aura la paix et l'harmonie](/fr-contemporary-message
 Yogananda | [Priez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-20-2-jw-yogananda/) | 20 Décembre 2019
 André | [Dieu ne vous abandonne jamais](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-27-1-af-andrew/) | 27 Décembre 2019
 Augustin | [Partager la bonne nouvelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-29-1-af-augustine/) | 29 Décembre 2019
+
+[Lien vers les messages de l’année 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+<br>
+<br>
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

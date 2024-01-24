@@ -73,3 +73,5 @@ Je reconnais que les commentaires de Judas peuvent sembler inexacts et même fau
 <small>
 
 1. <large id="f1"> Le médium qui a canalisé ce message était d’origine Juive.[↩](#a1)
+
+

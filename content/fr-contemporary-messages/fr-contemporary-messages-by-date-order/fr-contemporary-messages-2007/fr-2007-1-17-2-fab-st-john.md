@@ -13,7 +13,7 @@ St Jean - reçu par FAB le 17 Janvier 2007, Santa Cruz, Californie, USA.
 
 C’est moi, Jean.
 
-Vous avdez dis que si je n’étais qu’un simple pêcheur, comment aurais-je pu écrire un Évangile ?
+Vous avez dit que si je n’étais qu’un simple pêcheur, comment aurais-je pu écrire un Évangile ?
 
 Eh bien, comme vous le savez, les Juifs ont toujours accordé une grande importance à l’éducation, et c’est pourquoi j’ai appris à lire et à écrire dès mon enfance, et j’ai pu étudier, dans une certaine mesure, certains des écrits qui sont devenus la Bible, c’est-à-dire l’Ancien Testament.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La foi inébranlable de Bach en Dieu
 
-Johann Sebastian Bach - reçu par FAB le 27 Février 2003, Santa Cruz, Californie, USA.
+Johann Sébastian Bach - reçu par FAB le 27 Février 2003, Santa Cruz, Californie, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-basilique-st-augustin.jpg)
 

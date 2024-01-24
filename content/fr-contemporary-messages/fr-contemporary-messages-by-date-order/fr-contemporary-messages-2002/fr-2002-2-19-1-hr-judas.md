@@ -20,10 +20,10 @@ Il y a quelques jours, M____ t’a envoyé un message où il te disait avoir tro
 > Celui qui boit de ma bouche deviendra comme moi; Je dois moi-même « – c’est-à-dire le Christ – »  devenir cette personne, et les choses cachées lui seront révélées.
 <br>
 <br>
-> « Nous as-tu quitté et t’es-tu séparé de nous ? » Mais Jésus a dit : « Non, mais je dois rejoindre le lieu d’où je viens. Si vous souhaitez venir avec moi, venez » Tous répondirent et dirent, « Si tu nous le demandes, nous venons. »
+> *« Nous as-tu quitté et t’es-tu séparé de nous ? »* Mais Jésus a dit : *« Non, mais je dois rejoindre le lieu d’où je viens. Si vous souhaitez venir avec moi, venez »* Tous répondirent et dirent, *« Si tu nous le demandes, nous venons. »*
 <br>
 <br>
-> Il a dit : « En vérité je vous le dis, personne n’entrera jamais dans le Royaume des cieux à ma demande, mais (seulement) parce que vous êtes vous-mêmes complet… Donc, je vous le dis, « Devenez complet et ne laissez aucun espace, en vous, vide. »
+> Il a dit : *« En vérité je vous le dis, personne n’entrera jamais dans le Royaume des cieux à ma demande, mais (seulement) parce que vous êtes vous-mêmes complet… Donc, je vous le dis, « Devenez complet et ne laissez aucun espace, en vous, vide. »*
 
 Comme nous l’avons dit à plusieurs reprises, toutes les paroles de Jésus ne sont pas présentes dans les Évangiles canoniques, et certaines de celles qui y sont n’apparaissent pas dans leur forme originale. Même celles qui apparaissent sous leur forme originale ont perdu une grande partie, ou presque, de leur beauté originelle suite à une mauvaise traduction. En disant cela je ne pense pas à la traduction du Grec en Anglais, mais à celle faite à partir de la langue originale dans laquelle ces écrits ont été livrés, c’est à dire de l’Araméen en Grec.
 
@@ -41,9 +41,9 @@ Ce sont deux déclarations faisant état de l’Amour Divin et de la transformat
 
 Mais je voudrais revenir au problème de la langue. Dans un [message reçu par l’intermédiaire du Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-1-1955-3-24-samuels-jesus/), Jésus a déjà souligné un exemple très typique et inoffensif :
 
-> Il y a plus de choses dont que je voudrais vous parler et cela concerne les mots : « Il est plus facile de faire passer une corde par le chas d’une aiguille qu’il ne l’est pour un homme riche d’entrer dans le Royaume des cieux. » Je n’ai pas utilisé le mot « chameau » car il n’a aucune association avec le mot « aiguille », et il ne m’est jamais venu à l’idée de l’utiliser, comme on le retrouve dans de nombreuses versions du Nouveau Testament.
+> Il y a plus de choses dont que je voudrais vous parler et cela concerne les mots : *« Il est plus facile de faire passer un chameau par le chas d’une aiguille qu’il ne l’est pour un homme riche d’entrer dans le Royaume des Cieux. »* Je n’ai pas utilisé le mot *« chameau »* car il n’a aucune association avec le mot *« aiguille »*, et il ne m’est jamais venu à l’idée de l’utiliser, comme on le retrouve dans de nombreuses versions du Nouveau Testament.
 
-J’ai dit sans danger, parce que je ne fais pas allusion à la substitution du mot « mortel » pour le mot « riche ». En araméen, chameau se dit « gamla », mais « gamla » signifie aussi la corde ou le câble. Cela a déjà été expliqué, mais c’est un bel exemple de comment le traducteur a choisi la mauvaise correspondance de mot parmi plusieurs possibilités.
+J’ai dit sans danger, parce que je ne fais pas allusion à la substitution du mot *« mortel »* pour le mot *« riche »*. En araméen, chameau se dit *« gamla »*, mais *« gamla »* signifie aussi la corde ou le câble. Cela a déjà été expliqué, mais c’est un bel exemple de comment le traducteur a choisi la mauvaise correspondance de mot parmi plusieurs possibilités.
 
 Regardons un autre exemple. [Dans Luc 14:26](https://saintebible.com/luke/24-26.htm), nous lisons :
 
@@ -63,13 +63,13 @@ Les mots Araméens permettaient parfois un excellent jeu de mots, lequel a total
 
 > Car il y a des eunuques, qui sont nés ainsi du ventre de leur mère : et il y a des eunuques qui ont été faits eunuques d’hommes : et il y aura les eunuques, qui se seront fait eunuques pour le Royaume de l’Amour du Ciel. Celui qui est capable de le recevoir, qu’il le reçoive.
 
-Cela est également traité par Jésus dans un [message reçu par le Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-16-1955-9-27-samuels-jesus/). Mais j’ai voulu aller un peu plus profondeur, parce qu’une fois de plus, nous trouvons un mot Araméen avec un double sens. Dans un autre cas, nous trouvons le mot eunuque dans les Actes des Apôtres :
+Cela est également traité par Jésus dans un [message reçu par le Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-16-1955-9-27-samuels-jesus/). Mais j’ai voulu aller un peu plus profondeur, parce qu’une fois de plus, nous trouvons un mot Araméen avec un double sens. Dans un autre cas, nous trouvons le mot eunuque<sup id=”a1”>[1](#f1)</sup> dans les Actes des Apôtres :
 
-> Et voici, un Éthiopien, un eunuque, ministre de Candace, reine d’Éthiopie, et surintendant de tous ses trésors, venu à Jérusalem pour adorer…
+> Et voici un homme d'Éthiopie, un eunuque ayant une grande autorité auprès de Candace, reine des Éthiopiens, qui avait la garde de tous ses trésors, et qui était venu à Jérusalem pour adorer
 
 Ici, nous voyons le cas absurde qu’un eunuque éthiopien est venu à Jérusalem pour l’adoration dans le Temple du Seigneur. Selon la Torah, les eunuques ne pouvaient en aucun cas se convertir au Judaïsme, par conséquent, cet éthiopien n’a pas pu être un prosélyte et les Juifs castrés étaient exclus du Temple et de toute Assemblée religieuse.
 
-Le mot « eunuque » en araméen original, dans les deux cas, est « imhaimna », ce qui en fait peut signifier eunuque, mais aussi « croyant » ou « homme fidèle ».
+Le mot *« eunuque »* en araméen original, dans les deux cas, est *« imhaimna »*, ce qui en fait peut signifier eunuque, mais aussi *« croyant »* ou *« homme fidèle »*.
 
 Dans le premier exemple de l’Évangile selon Matthieu, nous pouvons apprécier un excellent jeu de mots. Dans le second cas, la traduction est tout simplement mauvaise. Il était un Éthiopien, un homme fidèle ou croyant.
 
@@ -78,5 +78,8 @@ Comprends-tu maintenant ma tristesse ? Lorsque tu lis les paroles de Jésus, tu 
 Le temps est venu de se dire au revoir. Puisse Dieu te bénir toujours.
 
 Judas de Kerioth.
+<small>
+
+1. <large id=”f1”> Rappel : Homme castré chargé de fonctions administratives et militaires importantes, ainsi que de la garde des harems impériauxour text for the reference.[↩](#a1)
 
 © Geoff Cutler 2013

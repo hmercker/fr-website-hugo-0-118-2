@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le language des premiers parents - 2
+### Le language des premiers parents - 2<sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 19 Septembre 2007, Santa Cruz, Californie, USA.
 
@@ -24,3 +24,6 @@ Dans cet état béni d'avant la chute, nous n'étions préoccupés que par le bo
 Vous vous demandez pourquoi nous n'avions aucun concept de grammaire. Eh bien, même avant la chute, la grammaire n'était pas quelque chose dont nous étions conscients, bien qu'il y ait évidemment des parties du discours. Ce que je voulais dire dans cette canalisation précédente, c'est que ce n'était tout simplement pas quelque chose auquel nous pensions. La parole était comme la respiration, donc nous ne réfléchissions pas au langage lui-même.
 
 Vous pensez que, en tant que premiers parents de la plus haute création de Dieu, nous devions avoir de grands dons intellectuels. Eh bien, si je me souviens bien, le potentiel de développement intellectuel était certainement présent. Mais ce potentiel s'est arrêté avec la Chute, de sorte qu'après cette tragédie, nos esprits sont devenus plus primitifs parce que la nature animale s'était affirmée.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)

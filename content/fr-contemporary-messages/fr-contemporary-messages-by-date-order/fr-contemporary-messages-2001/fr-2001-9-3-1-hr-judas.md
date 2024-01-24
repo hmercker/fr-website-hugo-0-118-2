@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 3 Septembre 2001, Cuenca, Équateur.
 
-Mon cher frère H____ , tu proposes un mélange étrange de questions, et certaines d’entre elles nous ont vraiment fait rire. Mais il est vrai; tu as également touché certains sujets importants et complexes. Mais ne t’inquiète pas, nous allons tout clarifier, pour autant que tu puisses saisir les réponses.
+Mon cher frère H____ , tu proposes un mélange étrange de questions, et certaines d’entre elles nous ont vraiment fait rire. Mais il est vrai tu as également touché certains sujets importants et complexes. Mais ne t’inquiète pas, nous allons tout clarifier, pour autant que tu puisses saisir les réponses.
 
 Un sujet très intéressant concerne la fermeture des Cieux Célestes. Nous allons tout d’abord définir le problème, et puis nous te donnerons la réponse.
 
@@ -27,19 +27,19 @@ Une autre partie de ces enseignements, tels que transmis dans les messages de Ja
 
 Tout cela a été présenté régulièrement dans les messages de James Padgett comme un fait, qui se produira, un jour, dans un futur encore inconnu, même de Jésus, conformément au décret du Père.
 
-Très bien. Tu sais cela déjà. Mais ça vaut la peine de le répéter. Et puis, d’un seul trait, [tu lis la déclaration suivante dans un message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-24-1-ar-jesus/) :
+Très bien. Tu sais cela déjà. Mais ça vaut la peine de le répéter. Et puis, d’un seul trait, tu lis la déclaration suivante dans un message communiqué [le 24 Juin 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-24-1-ar-jesus/) :
 
 > C’est un Cadeau. Mais ne pensez pas un instant que Dieu est méchant ou injuste. Sachez que ce jour viendra, chacun de Ses enfants aura fait un choix, un choix conscient. Ils sauront quelle est leur relation avec Dieu. Toutes les œillères seront supprimées. Ils connaîtront leur origine. Ne vous inquiétez pas ; cela ne se produira avant longtemps, très longtemps, si toutefois cela se produit. C’est à Dieu de décider.
 
 *« Quelle surprise ! »*, tu as pensé. *« Et maintenant, n’est-il plus certain que les Cieux Célestes fermeront ? »*
 
-Je vais répondre à cela très directement : **Les cieux célestes se fermeront.** C’est un fait qui a été répété maintes et maintes fois par le biais de différents messages reçus par différents médiums. Je vais t’expliquer pourquoi la solution à ce problème n’est pas si simple que cela puisse paraître à première vue.
+Je vais répondre à cela très directement : **Les cieux Célestes se fermeront.** C’est un fait qui a été répété maintes et maintes fois par le biais de différents messages reçus par différents médiums. Je vais t’expliquer pourquoi la solution à ce problème n’est pas si simple que cela puisse paraître à première vue.
 
 Tu te souviens qu’il y a un délai de grâce pour ceux dont les âmes sœurs vivent dans les Cieux Célestes. Elles sont gratifiées d’un temps supplémentaire pour obtenir l’Amour Divin. Tu te souviens aussi que ces âmes qui ont déjà obtenu une petite partie de l’Amour de Dieu auront toujours la possibilité d’en obtenir plus à travers toute l’éternité.
 
 Si tu y réfléchis, tu peux voir que le Père a la facilité de retirer, sélectivement, le privilège de recevoir Sa Substance<sup id=”a1”>[1](#f1)</sup>. C’est pourquoi je ne peux pas te dire s’il y aura un jour précis où ce privilège sera retiré de toutes les âmes en manque d’Amour Divin, ou si cela se produira graduellement, à savoir, s’Il retirera le privilège à certaines âmes, tandis que d’autres âmes continueront d’en bénéficier.
 
-Parfois, tu as pensé qu’il était injuste que les âmes qui ont vécu sur terre il y a 5000 ans ont bénéficié de temps pour se décider alors que d’autres âmes, qui se sont incarnées il y a relativement peu de temps, doivent se décider plus « rapidement ». Je ne veux pas m’étendre une fois de plus sur le terme de «juste», mais en fait nous ne savons pas si le Père accorde le même terme à chaque âme. Mais une chose est sûre : Chaque âme bénéficiera de suffisamment d’opportunités, et aucune âme ne pourra se plaindre d’un traitement « injuste ».
+Parfois, tu as pensé qu’il était injuste que les âmes qui ont vécu sur terre il y a 5000 ans ont bénéficié de temps pour se décider alors que d’autres âmes, qui se sont incarnées il y a relativement peu de temps, doivent se décider plus *« rapidement »*. Je ne veux pas m’étendre une fois de plus sur le terme de « juste », mais en fait nous ne savons pas si le Père accorde le même terme à chaque âme. Mais une chose est sûre : Chaque âme bénéficiera de suffisamment d’opportunités, et aucune âme ne pourra se plaindre d’un traitement *« injuste »*.
 
 En outre, toutes ces pensées ne prennent pas en considération le fait que notre Père Céleste est omniscient, c’est-à-dire, qu’il peut prévoir l’avenir, et qu’il sait exactement qui profitera de l’occasion et qui ne le fera pas.
 

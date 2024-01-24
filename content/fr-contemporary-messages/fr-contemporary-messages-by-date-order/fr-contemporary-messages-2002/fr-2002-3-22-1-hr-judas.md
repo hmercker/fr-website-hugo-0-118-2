@@ -86,7 +86,7 @@ D’ailleurs, il y a une chose de plus que je souhaite te dire : Tu te rappelles
 > *« De quoi parles-tu,  papa ? »* répondit son fils. *« J’ai vu qu’ils ont quatre chiens alors que nous en avons juste un.*
 <br>
 <br>
-> *Nous avons une piscine qui s’étend à peine à mi-chemin dans le jardin, alors qu’eux un fleuve qui ne finit jamais.*
+> *Nous avons une piscine qui s’étend à peine à mi-chemin dans le jardin, alors qu’eux ont un fleuve qui ne finit jamais.*
 <br>
 <br>
 > *Nous avons des lampes dans le jardin, eux ils ont les étoiles.*

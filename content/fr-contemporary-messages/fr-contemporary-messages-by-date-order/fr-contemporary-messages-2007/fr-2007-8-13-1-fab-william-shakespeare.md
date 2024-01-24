@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Shakespeare - Adolescence
+### Shakespeare - Adolescence<sup id="a1">[1](#f1)</sup>
 
 William Shakespeare - reçu par FAB le 13 Août 2007, Santa Cruz, Californie, USA.
 
@@ -28,3 +28,7 @@ Certains ont pensé que l'écriture annotant les Chroniques de Hall était la mi
 J'ai reçu ma formation et mes premières expériences d'acteur à Rufford Hall, dans la troupe de Sir Thomas Hesketh.
 
 Je suis retourné à Stratford quand j'avais 18 ans, c'est-à-dire en 1582. Mon père et moi avons alors discuté de mon avenir. Il a été convenu que je deviendrais clerc de juriste. Mon employeur serait Henry Rogers, le greffier de la ville de Stratford. C'est grâce à cette expérience que j'ai acquis la connaissance des termes juridiques, que j'ai utilisés en abondance dans mes pièces.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)
+

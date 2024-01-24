@@ -23,7 +23,7 @@ Joseph a subi des tortures infernales parce qu’il pensait que si Jésus n’é
 
 Et maintenant, alors qu’il avait presque perdu l’espoir que le Sauveur des Juifs était né dans sa famille, son fils a déclaré ouvertement qu’il était le Messie, mais il l’a fait d’une manière tellement incompréhensible que Joseph a craint le pire. Il était confus, et son cri que son fils était un « cinglé » reflète vraiment ce qu’il pensait à ce moment-là : un fils fou, un Messie impossible et le grand danger que Dieu le punirait, utilisant son peuple comme l’instrument d’exécution.
 
-Joseph aimait son fils Jésus, mais ce conflit, le produit de son éducation, son incompréhension et ses idées fixes dureront jusqu’à la mort du Maître. Jésus décrit cette situation très clairement dans un [message au Dr Samuel](/fr-samuels-messages/fr-revelations/fr-rev-25-1955-5-17-samuels-jesus/). Inclue le ici.
+Joseph aimait son fils Jésus, mais ce conflit, le produit de son éducation, son incompréhension et ses idées fixes dureront jusqu’à la mort du Maître. Jésus décrit cette situation très clairement dans un [message au Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-25-1955-5-17-samuels-jesus/). Inclue le ici.
 
 *« Je tiens également à préciser que mon père, Joseph, était présent à ce procès inique et me regardait secoué et condamné, et qu’il était vraiment malade de voir le traitement que je recevais et ses pires craintes confirmées. Ses yeux se sont ouverts à l’état stagnant du Sanhédrin, et il se rendit compte que ce qu’ils considéraient comme religion était simplement une mascarade. Et ses yeux s’ouvrirent à l’immense fossé entre d’une part la religion telle que pratiquée par son corps auguste et d’autre part ce que je proposais à la place, non seulement la restauration de son autorité immaculée et de sa pureté, mais aussi de lui conférer sa sublimité culminante et sa grandeur. Et de cette honte et humiliation qu’il a souffert de voir son fils premier-né condamné et exécuté comme un criminel, est née la conviction de l’innocence de son fils et de la justice de sa cause et de la vérité de sa mission. »*
 
@@ -39,7 +39,7 @@ Finalement, ils ont convenu que le frère qui portait le nom de son père, Josep
 
 Je mentionne tout cela afin que tu puisses comprendre qu’au début de l’année 26, le rejet et la moquerie de la part de la famille de Jésus s’étaient transformés en soutien du côté de ses frères, dans l’acquiescement et le silence terrible de son père.
 
-Et leur mère ? Mary le comprenait plus qu’elle ne comprenait Joseph. Mais elle ne pouvait que lui apporter un soutien moral. Les décisions étaient du ressort des hommes. Les femmes n’avaient pas d’autorité dans la société juive du premier siècle. Et ses sœurs, voyant la mise en garde de leur père et sa réserve, ont eu beaucoup de doutes au sujet de l’attitude de leur frère aîné.
+Et leur mère ? Mary le comprenait plus qu’elle ne comprenait Joseph. Mais elle ne pouvait que lui apporter un soutien moral. Les décisions étaient du ressort des hommes. Les femmes n’avaient pas d’autorité dans la société Juive du premier siècle. Et ses sœurs, voyant la mise en garde de leur père et sa réserve, ont eu beaucoup de doutes au sujet de l’attitude de leur frère aîné.
 
 Depuis l’époque du retour de ses disciples jusqu’au début du voyage à Jérusalem, Jésus ne s’est pas éloigné de Capharnaüm. Il est resté là et dans ses environs, travaillant et prêchant.
 

@@ -120,4 +120,12 @@ Joseph (AT) | [William Shakespeare dans le monde des esprits](/fr-contemporary-m
 Joseph (AT) | [Victor Hugo dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-28-1-fab-joseph-ot/) | 28 Décembre 2002
 Joseph (AT) | [Saint François dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-29-1-fab-joseph-ot/) | 29 Décembre 2002
 Moïse | [Moïse partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-30-1-fab-moses/) | 30 Décembre 2002
-Johann Sebastian Bach | [Les expériences de Johann Sebastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) | 31 Décembre 2002
+Jean Sebastian Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) | 31 Décembre 2002
+
+[Lien vers les messages de l’année 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+<br>
+<br>
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+

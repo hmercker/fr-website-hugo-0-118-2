@@ -7,13 +7,13 @@ draft: False
 hidden: True
 weight:
 ---
-###  Guerre et paix et le plan de Dieu - 2
+###  Guerre et paix et le plan de Dieu - 2<sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par FAB le 26 Décembre 2006, Santa Cruz, Californie, USA.
 
 C’est moi, Jésus.
 
-Je vois que vous êtes confus. [Le message que j’ai communiqué par l’intermédiaire de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-24-2-jep-helen-padgett/) semble dire que nous, les Anges Célestes, n’essayons pas d’influencer l’issue de la guerre. Et pourtant, comme le dit le Livre de Jérémie, et comme vous avez [canalisé le président Franklin Roosevelt](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-1-fab-franklin-d-roosevelt/), Dieu lève des empires et les fait tomber.
+Je vois que vous êtes confus. [Le message que j’ai communiqué par l’intermédiaire de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-24-1-jep-jesus/) semble dire que nous, les Anges Célestes, n’essayons pas d’influencer l’issue de la guerre. Et pourtant, comme le dit le Livre de Jérémie, et comme vous avez [canalisé le président Franklin Roosevelt](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-1-fab-franklin-d-roosevelt/), Dieu lève des empires et les fait tomber.
 
 Regardons les déclarations elles-mêmes de ce message de Padgett qui discute de ce que nous, Anges Célestes, pensons de la guerre.
 
@@ -57,5 +57,15 @@ Ainsi, l’idée de ce message de James Padgett est que Dieu n’est pas un patr
 Comme le dit la vieille chanson, « Il a le monde entier entre ses mains ». Et maintenant que les dirigeants de votre pays semblent inconscients du mal qu’ils causent, et de la façon dont ils détruisent l’environnement, Dieu influencera les événements pour que le bon sens prévale, et que Son plan de préservation de la Terre soit accompli.
 
 J’espère avoir clarifié dans votre esprit ce qui semblait être une contradiction, mais qui ne l’est pas vraiment.
+<small>
 
-**Note :** La [première partie de ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-24-1-fab-jesus/) a été transmise.
+1. <large id="f1"> La [première partie de ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-24-1-fab-jesus/) a été transmise le 24 Décembre 2006. Jésus a également communiqué sur ce sujet "Guerre et paix" dans les messages suivants :[↩](#a1)
+
+Jésus | [Guerre et paix et le plan de Dieu Partie 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-5-fab-jesus/) | 20 Janvier 2007
+Jésus | [Guerre et paix et le plan de Dieu Partie 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-28-1-fab-jesus/) | 28 Décembre 2007
+Jésus | [Guerre et paix et le plan de Dieu Partie 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-5-fab-jesus/) | 11 Janvier 2008
+Jésus | [Guerre et paix et le plan de Dieu Partie 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-1-fab-jesus/) | 14 Décembre 2008
+Jésus | [Guerre et paix et le plan de Dieu Partie 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-2-fab-jesus/) | 14 Décembre 2008
+
+
+

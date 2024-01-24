@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Cain raconte ses expériences
+### Cain raconte ses expériences<sup id="a1">[1](#f1)</sup>
 
 Cain - reçu par FAB le 25 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -28,3 +28,7 @@ J'habite les Cieux célestes, mais non sans avoir beaucoup souffert, car je ne s
 Lorsque Jésus a enseigné la Nouvelle Naissance, j'ai décidé, comme tant d'autres esprits, de croire, et j'ai donc prié pour l'Amour et l'ai reçu. À ce moment-là, je m'étais libéré d'une partie de ma douleur, mais je n'étais toujours pas heureux, et, désireux d'être heureux, j'ai accueilli cette nouvelle méthode.
 
 À l'aube d'une nouvelle journée, vous devriez vous rendre compte que vous n'avez vraiment aucune raison d'être malheureux maintenant, car Dieu pourvoira littéralement à tous vos besoins.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

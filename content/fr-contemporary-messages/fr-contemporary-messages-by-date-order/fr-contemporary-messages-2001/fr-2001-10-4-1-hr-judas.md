@@ -65,6 +65,6 @@ Ton frère en esprit, Judas.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-joseph-large.jpg)
 
-*Joseph alors qu'il était un jeune père*
+        *Joseph alors qu'il était un jeune père*
 
 © Geoff Cutler 2013

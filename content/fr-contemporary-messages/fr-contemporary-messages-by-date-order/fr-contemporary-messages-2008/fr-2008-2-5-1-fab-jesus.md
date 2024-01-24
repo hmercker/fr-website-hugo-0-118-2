@@ -23,4 +23,15 @@ Votre cerveau n'est pas encore conscient d'une vision élargie et amplifiée de 
 
 Vous êtes maintenant confus. Ce qui vous trouble, c'est l'état imparfait qu'occupe la théorie de l'évolution dans votre monde contemporain. Ce que je dirai, c'est que la vie est apparue sur terre selon un certain plan organisé. Charles Darwin n'est que le début de l'évolution de la théorie de l'évolution.
 
-**Note de Geoff Cutler (Créateur du site Internet https://new-birth.net/) :** Six messages ont été canalisés sur le sujet de la création de l'espèce humaine par James Padgett. Il s'agit [d'Aman](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/), [Aman](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/), [Amon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/), [St Jean](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/), [Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) et [St Luc](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/). Ce sujet est complexe et fait l'objet [d'une section séparée](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).
+**Note :** Six messages ont été canalisés sur le sujet de la création de l'espèce humaine par James Padgett. Il s'agit  :
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Aman | [Aman, le premier parent révèle sa tentation et sa chute](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-29-1-jep-aman/) | 29 Août 1915
+Amon | [Amon, la mère de tous les humains, partage son expérience, sa tentation et désobéissance](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-2-jep-amon/) | 30 Août 1915
+St Jean | [Jean affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-3-jep-st-john/) | 30 Août 1915
+Aman | [Aman apporte une correction](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-7-1-jep-aman/) | 7 Septembre 1915
+Jésus | [La relation de l’homme à la création du monde et l’origine de vie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-15-1-jep-jesus/) | 15 Janvier 1916
+St Luc | [Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/) | 22 Juillet 1917
+
+Ce sujet concernant l'évolution est complexe et fait l'objet [d'une section séparée](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).

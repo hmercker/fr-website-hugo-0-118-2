@@ -11,7 +11,7 @@ weight:
 
 William Shakespeare - reçu par FAB le 20 Août 2007, Santa Cruz, Californie, USA.
 
-C'est moi, William Shakespeare.
+C'est moi, William Shakespeare.<sup id="a1">[1](#f1)</sup>
 
 Je réponds à la demande de J____ de connaître mes pensées sur l'Amour Divin, et de connaître ma progression.
 
@@ -28,3 +28,6 @@ Ainsi, ma vie terrestre illustre la grande vérité que le génie artistique ne 
 Lorsque je suis arrivé dans le monde des esprits, j'ai apporté ma confusion avec moi, mais j'ai aussi apporté une grande richesse et une intense curiosité. En observant attentivement les esprits, comme j'avais observé attentivement les mortels, j'ai commencé à comprendre les lois qui régissent ce monde des esprits, et je m'en suis émerveillé. Il est si différent, bien que je discerne des principes qui s'appliquent également des deux côtés de la ligne de partage.
 
 J'ai observé que nos vies sont régies par des lois. J'ai trouvé cette idée révolutionnaire par rapport à la façon dont j'avais auparavant pensé à la nature humaine. Cette idée a donné un ordre et une structure à ma confusion. Et plus je recevais l'Amour Divin, plus je faisais l'expérience de la clarté.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)

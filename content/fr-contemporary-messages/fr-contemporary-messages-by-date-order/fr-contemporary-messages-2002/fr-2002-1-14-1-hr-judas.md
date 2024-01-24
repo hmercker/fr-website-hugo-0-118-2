@@ -21,7 +21,7 @@ Maintenant, quand tu as l’impression que cela se répète, bien que ton mouvem
 
 Tu dois apprendre à te contrôler et essayer d’abandonner ta grande fierté. A de nombreuses reprises, nous avons souligné qu’en fait, l’humilité est l’une des caractéristiques les plus importantes qui distinguent les personnes qui cherchent l’Amour du Père. Les manifestations émotives, comme tu les as exprimées récemment, ne favorisent pas l’harmonie entre les personnes qui sont censées travailler ensemble.
 
-Au lieu d’exploser et de créer un conflit ouvert, tu pourrais dire: « Je respecte tes idées, mais je ne suis pas d’accord avec toi. »  C’est tellement simple. Avec cela, tu ne blesses personne.
+Au lieu d’exploser et de créer un conflit ouvert, tu pourrais dire: *« Je respecte tes idées, mais je ne suis pas d’accord avec toi. »*  C’est tellement simple. Avec cela, tu ne blesses personne.
 
 Je crois que tu comprends que l’humilité ne signifie pas la faiblesse. Sois humble mais ferme, ferme dans tes décisions et tes objectifs. Tu reçois des conseils à travers nous, comme toute personne peut recevoir des conseils à travers nous. Après tout, nous ne sommes que des guides, tu décides de ta destination, qui est l’unité avec Dieu par Son Amour, et nous essayons de te guider le long de la route la plus sûre et la plus efficace. Tu es le capitaine de ton navire de la vie ; Je suis ton pilote, guidant ton vaisseau en toute sécurité au port de destination. Aussi dans tes efforts pour diffuser le message de l’amour, nous essayons de te donner nos conseils. Comment peux-tu répandre un message d’amour si tu n’es pas capable de manifester l’amour en face de tes voisins ?
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les deux natures des premiers parents et de l'humanité
+### Les deux natures des premiers parents et de l'humanitésup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 24 Septembre 2007, Santa Cruz, Californie, USA.
 
@@ -26,3 +26,7 @@ Il a été contre-productif de dénigrer la nature animale, car elle vient de Di
 Donc, pour conclure, avant la Chute, Aman et moi comprenions notre double nature, et nous étions naturellement capables d'affirmer notre nature spirituelle d'une manière qui ne niait pas notre nature inférieure.
 
 Les gens réclament de plus en plus leur droit de naissance, qui est un rapport correct et donc heureux et sain entre ces deux natures données par Dieu.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

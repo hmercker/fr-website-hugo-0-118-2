@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La tristesse d’un poète
+### La tristesse d’un poète<sup id="a1">[1](#f1)</sup>
 
 Pablo Neruda - reçu par FAB le 7 Mars 2008, Santa Cruz, Californie, USA.
 
@@ -22,3 +22,6 @@ J’ai fait de mon mieux, mais étant athée, qu’aurais-je pu voir de plus ? N
 La tristesse adolescente de mes premières années a cédé la place à quelque chose de plus positif et de plus large, mais elle n’a pas pu approcher le bonheur profond et l’épanouissement qui viennent à ceux qui ont intériorisé la voie spirituelle.
 
 Une autre source de malheur fut ma vie amoureuse. À cause des choix que j’ai faits, j’ai fait souffrir les femmes de ma vie, et cela m’a rendu malheureux également.
+<small>
+
+1. <large id="f1"> Pablo Neruda a communiqué  un premier message [le 05 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-2-fab-pablo-neruda/), un second message [le 06 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-1-fab-pablo-neruda/), un troisième second message le même jour, [le 06 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-2-fab-pablo-neruda/).[↩](#a1)

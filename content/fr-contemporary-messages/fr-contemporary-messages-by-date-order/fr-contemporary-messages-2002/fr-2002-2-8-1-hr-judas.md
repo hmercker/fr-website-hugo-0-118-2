@@ -41,7 +41,7 @@ Dès qu’André fut parti pour visiter le Baptiste, la belle-mère de Pierre es
 
 *[H : Une péritonite]*
 
-Oui, une péritonite. Eh bien, aujourd’hui, un cas d’appendicite ne présente, en général, aucune gravité. Une petite intervention systématique et quelques antibiotiques suffisent pour guérir la maladie. Cependant, ce ne fut pas toujours le cas. Eh bien, en quelques mots, la probabilité que la femme allait mourir était très élevée.
+Oui, une péritonite. Eh bien, aujourd’hui, un cas d’appendicite ne présente, en général, aucune gravité. Une petite intervention et quelques antibiotiques suffisent pour guérir la maladie. Cependant, ce ne fut pas toujours le cas. Eh bien, en quelques mots, la probabilité que la femme allait mourir était très élevée.
 
 Alors, Jésus demanda à Pierre : *« Simon, pourquoi n’irions-nous pas visiter ensemble ta belle-mère ? »*
 
@@ -71,6 +71,6 @@ Ton frère Céleste, Judas.
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 
-Simon
+    Simon
 
 © Geoff Cutler 2013

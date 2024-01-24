@@ -11,7 +11,7 @@ weight:
 
 James Madison - reçu par FAB le 2 Août 2009, Santa Cruz, Californie, USA.
 
-Je suis, James Madison.
+Je suis, James Madison.<sup id="a1">[1](#f1)</sup>
 
 Permettez-moi d'ajouter ma voix à celle des autres pères fondateurs. Tout d'abord, laissez-moi vous dire que le Créateur va restaurer notre cher pays, et d'une manière qui sera sans précédent. Vous avez donc beaucoup à attendre. Comment puis-je le savoir ? Eh bien, je vois de mes propres yeux tant de bons esprits et tant d'Anges Célestes déjà mobilisés et au travail.
 
@@ -26,3 +26,8 @@ Ce n'est donc pas la Constitution qui m'a rendu malheureux, car j'ai vu que, mal
 Naturellement, nous étions tous des pragmatiques. Mais nous étions aussi des idéalistes. La Déclaration des droits était l'acte ultime de l'idéalisme, c'est-à-dire de la croyance en des principes supérieurs. C'est cette tension dans notre esprit entre un réalisme total sur la nature humaine et une perception supérieure des droits et des libertés qui explique en grande partie notre comportement lors de la création du gouvernement Américain.
 
 En guise d'espoir et de consolation, il est vrai que le Créateur a remarqué, au cours de notre courte histoire, qu'il y a toujours eu des Américains qui considéraient la vérité comme plus importante que l'argent ou le pouvoir. C'est pourquoi notre pays a perduré et perdurera.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par James Madison est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+
+

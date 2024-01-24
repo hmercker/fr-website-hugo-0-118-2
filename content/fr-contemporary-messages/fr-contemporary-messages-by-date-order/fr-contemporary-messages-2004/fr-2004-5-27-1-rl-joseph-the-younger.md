@@ -1,13 +1,13 @@
 ---
-title: "Pourquoi faut-il prier pour l’amour de Dieu ?"
+title: "Pourquoi faut-il prier pour l’Amour de Dieu ?"
 menu_title: ""
-description: "Pourquoi faut-il prier pour l’amour de Dieu ?"
+description: "Pourquoi faut-il prier pour l’Amour de Dieu ?"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True
 weight:
 ---
-### Pourquoi faut-il prier pour l’amour de Dieu ?
+### Pourquoi faut-il prier pour l’Amour de Dieu ?
 
 Joseph le jeune - reçu par RL le 27 Mai 2004, Atlanta, Georgia, USA.
 

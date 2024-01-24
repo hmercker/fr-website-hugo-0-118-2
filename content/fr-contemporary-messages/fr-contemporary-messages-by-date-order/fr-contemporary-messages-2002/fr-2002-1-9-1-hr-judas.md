@@ -37,9 +37,9 @@ La prière n’a pas besoin de mots. Elle a besoin d’envies, de désirs, elle 
 
 Passons maintenant, à l’autre question. Oui, la sensation que quelqu’un te regarde fixement est une forme de communication d’âme à âme. Tu ne perçois pas de mots, mais tu perçois des informations chargées de valeurs positives ou négatives. Tu perçois des sentiments, des intentions et des attitudes.
 
-Lors de la transmission de messages, il se produit la chose suivante : Tu sais déjà que l’âme peut émettre et recevoir des signaux. Et, en fait, elle le fait constamment. Cependant, lorsque tu es en mesure de te concentrer sur les signaux que nous émettons, et quand un mortel se branche sur ce signal, on parle de la formation d’un canal. C’est le principe de la « canalisation ». Si le mortel n’est pas accordé, mais nous concentrons notre signal sur lui, il reçoit également le message, mais sans beaucoup de clarté. Il perçoit des impulsions, des désirs, etc., et donc de cette manière nous pouvons essayer d’exercer notre influence sur les gens, même si ils ne sont pas à notre écoute.
+Lors de la transmission de messages, il se produit la chose suivante : Tu sais déjà que l’âme peut émettre et recevoir des signaux. Et, en fait, elle le fait constamment. Cependant, lorsque tu es en mesure de te concentrer sur les signaux que nous émettons, et quand un mortel se branche sur ce signal, on parle de la formation d’un canal. C’est le principe de la *« canalisation »*. Si le mortel n’est pas accordé, mais nous concentrons notre signal sur lui, il reçoit également le message, mais sans beaucoup de clarté. Il perçoit des impulsions, des désirs, etc., et donc de cette manière nous pouvons essayer d’exercer notre influence sur les gens, même si ils ne sont pas à notre écoute.
 
-L’antenne du « radar » de l’âme couvre toujours certaines zones. Et lorsque cette zone est notre bande de fréquences, notre réussite est très bonne, et les influences négatives passent sans effet sur l’âme du mortel. Lorsque la zone couverte par le radar est le secteur du négatif, les influences des esprits négatifs se manifesteront sous la forme de désirs et d’impulsions pour le mortel. Comprends-tu cela ? OK.
+L’antenne du *« radar »* de l’âme couvre toujours certaines zones. Et lorsque cette zone est notre bande de fréquences, notre réussite est très bonne, et les influences négatives passent sans effet sur l’âme du mortel. Lorsque la zone couverte par le radar est le secteur du négatif, les influences des esprits négatifs se manifesteront sous la forme de désirs et d’impulsions pour le mortel. Comprends-tu cela ? OK.
 
 *[H : Et l’Amour Divin a à voir avec la qualité de transmission, je suppose.]*
 
@@ -59,7 +59,7 @@ Nous rencontrons maintenant quelque chose que les psychologues appellent « l’
 
 C’est correct. Ce sont des pensées du mental qui viennent de ce genre d’esprit. Mais, comme dans l’exemple de la prière, ces pensées portent une certaine influence de l’âme. Dans le cas des esprits négatifs, la négativité de leurs mauvaises intentions arrive dans l’âme du mortel sous forme d’impulsions ou de désirs. Cela se produit lorsque le mortel est à l’écoute, d’une certaine façon, des esprits. J’ai déjà dit que chaque âme a la capacité de filtrer certaines fréquences. Mais dans bien des cas, elles ne le font pas. Elles sont comme des navires à la dérive, perdues dans un océan d’influences, acceptant n’importe quoi qui pourrait venir.
 
-Mais je vais expliquer en détail, pour ceux qui éventuellement liront ce message, ce qu’est « l’esprit menteur ».
+Mais je vais expliquer en détail, pour ceux qui éventuellement liront ce message, ce qu’est *« l’esprit menteur »*.
 
 *[H : Tu as en tête l’expérience de Freud ?]*
 

@@ -13,7 +13,7 @@ Jésus - reçu par Amada Réza le 25 Juin 2000, Aptos, Californie, USA.
 
 *[Le médium prie à haute voix : Cher Père Céleste, je prie pour que Ton Amour remplisse mon âme en ce moment. Je prie pour que cet amour m’élève pour entrer en relation avec Tes anges Célestes qui nous entourent de leur amour et de leur influence. Je sais qu’ils aimeraient partager avec nous leur amour et leurs pensées et je prie pour être un canal pour ceux-ci comme le permet le développement de mon âme dans Ton Amour. Je prie pour avoir la foi dans le pouvoir de Ton Amour pour m’élever au-dessus des tentations de ce plan terrestre. Je prie pour être un canal clair pour Ton amour et Ta vérité. Je veux Ta protection contre tout esprit qui pourrait vouloir faire du mal ; qu’ils soient entourés d’une influence angélique et qu’on leur montre le chemin vers toi. Car nous savons que nous voulons être dans Ton amour et dans Tes bras. Merci. Je T’aime Amen.]*
 
-<u>Jésus<u> : Je suis ici avec vous maintenant, mes chers frères et sœur et je suis votre frère et ami, Jésus ; et oui, je suis le Jésus de la Bible, mais je suis aussi le Jésus qui vous aime avec l’Amour Divin de notre Père Céleste. Je suis ici maintenant pour répondre aux questions qui brûlent dans vos cœurs et qui vous aideront à vous élever dans votre progression spirituelle pour devenir un avec notre Père Céleste. Car c’est la plus grande mission que nous ayons ici sur terre et dans le monde spirituel : arriver une fois de plus dans la Grâce et la Présence de notre Dieu aimant, qui est la Source. Et donc, j’accueille vos questions en ce moment.
+<u>Jésus</u> : Je suis ici avec vous maintenant, mes chers frères et sœur et je suis votre frère et ami, Jésus ; et oui, je suis le Jésus de la Bible, mais je suis aussi le Jésus qui vous aime avec l’Amour Divin de notre Père Céleste. Je suis ici maintenant pour répondre aux questions qui brûlent dans vos cœurs et qui vous aideront à vous élever dans votre progression spirituelle pour devenir un avec notre Père Céleste. Car c’est la plus grande mission que nous ayons ici sur terre et dans le monde spirituel : arriver une fois de plus dans la Grâce et la Présence de notre Dieu aimant, qui est la Source. Et donc, j’accueille vos questions en ce moment.
 
 *[<u>Doug</u> : Bonjour, Maître. Merci d’être ici avec nous. Je ne sais même pas quelle est ma question, mais j’espère que vous pourrez y répondre de toute façon. Je me suis réveillé ce matin et j’ai pensé à notre cercle ici et j’ai vu toute la douleur que chacun de nous porte, toutes les blessures, toutes les guérisons qui attendent de se produire, et j’ai juste … je voulais demander, sans paraître impatient, mais que pouvons-nous faire pour accélérer la guérison, pour l’amener ici, maintenant, pour chacun de nous ?]*
 
@@ -65,7 +65,7 @@ Si vous ne pouvez pas faire confiance, vous commencez à apprendre à vouloir et
 
 <u>Jésus</u> : Il y a un esprit ici, qui est près de toi et t’entoure de son amour. C’est ton ange gardien. Ce qu’il fait en ce moment, c’est t’embrasser et te dire à quel point il veut que tu sois toi-même, parce que c’est le plus beau cadeau que tu puisses faire à ce monde, Céleste.
 
-Il t’aime tellement et il veut t’aider. Il veut te montrer, lorsque tu demandes « que puis-je faire ? », que tu es une âme si brillante et merveilleuse. Tu es si généreuse, tu es si prête à aider. Il est prêt pour toi. Il s’appelle David. Il t’aime.
+Il t’aime tellement et il veut t’aider. Il veut te montrer, lorsque tu demandes *« que puis-je faire ? »*, que tu es une âme si brillante et merveilleuse. Tu es si généreuse, tu es si prête à aider. Il est prêt pour toi. Il s’appelle David. Il t’aime.
 
 *[<u>Céleste</u> : Merci, Jésus.]*
 
@@ -119,7 +119,7 @@ Si l’on suppose qu’une organisation militaire, qui vous demande de prendre l
 
 *[<u>B.W.</u> : Si.]*
 
-<u>Jésus</u> : Et ce qu’il faut, ce sont des âmes comme toi qui se lèvent et disent : « Ce n’est pas la vérité. Je le sais parce que Dieu aime et que Dieu m’a aimé, comme Dieu a aimé tous ses enfants – c’est la vérité ! ». Cherche la vérité, B__ ; elle te sera montrée.
+<u>Jésus</u> : Et ce qu’il faut, ce sont des âmes comme toi qui se lèvent et disent : *« Ce n’est pas la vérité. Je le sais parce que Dieu aime et que Dieu m’a aimé, comme Dieu a aimé tous ses enfants – c’est la vérité ! »*. Cherche la vérité, B__ ; elle te sera montrée.
 
 *[<u>Arthur</u> : Maître Jésus, je suis si reconnaissant pour ce merveilleux privilège, je veux vous remercier, vous et vos amis, les disciples Célestes, et je veux remercier Dieu pour tous les merveilleux cadeaux qu’Il nous a donnés, et en particulier je suis reconnaissant pour ce groupe d’amis. Ma question est, Maître, d’ordre général. Je sais que vous n’avez pas pour mission, surtout dans cette situation, de nous donner des conseils pratiques. Une toute nouvelle vie s’ouvre à moi, Maître, un tout nouveau départ, et c’est très, très exaltant ; et je suis très reconnaissant pour ce privilège que j’ai de pouvoir recommencer à zéro, Maître, et je suppose que j’aimerais juste que vous me fassiez quelques commentaires généraux sur… sous forme de conseils, sur la façon dont je peux intégrer mon… Par exemple, ma recherche d’un nouvel emploi, ma nouvelle vie, comment puis-je intégrer cela dans mon plus grand désir de servir le Père Céleste ?]*
 
@@ -131,7 +131,7 @@ Il est parfois difficile de ne pas savoir ce qui se profile à l’horizon. Il e
 
 *[<u>Karl</u> : Merci Jésus d’être ici et de partager ces vérités infinies et votre sagesse. S’il vous plaît, transmettez à Dieu mes remerciements pour l’Amour Divin qu’Il m’a montré et aussi les nombreuses bénédictions qu’Il m’a données, et ce que je percevais autrefois comme des obstacles insurmontables n’étaient en fait que des bénédictions. Je suis très reconnaissant que ma femme, Glenda, soit entrée dans ma vie ; et ma question est la suivante : Glenda a-t-elle connu une guérison totale et complète ? Je vous remercie.]*
 
-<u>Jésus<u> : Glenda, je te demande maintenant de regarder dans ton cœur et de te demander si Dieu voit dans ton cœur, comme Il le peut, est-ce que tu L’as laissé toucher chaque partie de ton cœur ?
+<u>Jésus</u> : Glenda, je te demande maintenant de regarder dans ton cœur et de te demander si Dieu voit dans ton cœur, comme Il le peut, est-ce que tu L’as laissé toucher chaque partie de ton cœur ?
 
 *[<u>Glenda</u> : Je crois que oui, je le sens vraiment.]*
 

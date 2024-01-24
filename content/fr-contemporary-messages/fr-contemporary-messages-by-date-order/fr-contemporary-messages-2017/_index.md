@@ -302,3 +302,8 @@ Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary
 Seretta Kem | [Lutter contre le mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-23-1-af-seretta-kem/) | 23 Décembre 2017
 Goldie | [Dansez sur la musique de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-31-1-af-goldie/) | 31 Décembre 2017
 Samuel | [Message pour la Nouvelle Année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-31-2-af-samuel/) | 31 Décembre 2017
+
+[Lien vers les messages de l’année 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+<br>
+<br>
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

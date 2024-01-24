@@ -9,7 +9,7 @@ weight:
 ---
 ### Un roi anglais est maintenant heureux
 
-Roi George I <sup id="a1">[1](#f1)</sup> - reçu par FAB le 25 Novembre 2007, Santa Cruz, Californie, USA.
+Roi George Ier <sup id="a1">[1](#f1)</sup> - reçu par FAB le 25 Novembre 2007, Santa Cruz, Californie, USA.
 
 Je suis George 1er
 

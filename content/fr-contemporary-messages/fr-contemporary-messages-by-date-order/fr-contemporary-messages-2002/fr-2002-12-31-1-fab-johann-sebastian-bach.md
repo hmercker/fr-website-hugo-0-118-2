@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Les expériences de Jean Sebastian Bach
+### Les expériences de Jean Sébastian Bach
 
-Jean Sebastian Bach - reçu par FAB le 31 Décembre 2002, Santa Cruz, Californie, USA.
+Jean Sébastian Bach - reçu par FAB le 31 Décembre 2002, Santa Cruz, Californie, USA.
 
 C'est moi, Jean Sebastian Bach.
 

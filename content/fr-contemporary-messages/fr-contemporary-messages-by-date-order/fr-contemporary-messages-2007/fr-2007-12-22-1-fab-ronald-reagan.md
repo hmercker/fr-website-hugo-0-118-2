@@ -11,7 +11,7 @@ weight:
 
 Ronald Reagan - reçu par FAB le 22 Décembre 2007, Santa Cruz, Californie, USA.
 
-C'est moi, Ronald Reagan.
+C'est moi, Ronald Reagan.<sup id="a1">[1](#f1)</sup>
 
 Contrairement à ce que vous pensiez, je fus une bonne personne, et j'avais un cœur. J'aimais vraiment mon pays, et beaucoup ont répondu à cet amour.
 
@@ -21,3 +21,8 @@ Je sais que la politique est un sujet très sensible, surtout en ce moment. Mais
 Je continue à aimer mon pays et je veux l'aider du mieux que je peux, mais je dois d'abord surmonter mes souffrances. Il m'est dit que prier pour l'Amour de Dieu peut m'aider.
 
 Je vous souhaite de passer de bonnes fêtes de fin d'année.
+
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Ronald Reagan est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+

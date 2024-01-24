@@ -11,7 +11,7 @@ weight:
 
 Franklin D Roosevelt - reçu par FAB le 25 Décembre 2006, Santa Cruz, Californie, USA.
 
-C'est moi, Franklin Delano Roosevelt.
+C'est moi, Franklin Delano Roosevelt.<sup id="a1">[1](#f1)</sup>
 
 Je veux discuter d'une déclaration que j'ai faite dans[ mon dernier message que j'ai canalisé à travers vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-1-fab-franklin-d-roosevelt/). J'ai dit : *« Je suis resté un politicien jusqu'à la fin, ce qui signifie que j'ai abordé la vie, et ma propre vie, sous cet angle. »*
 
@@ -22,3 +22,6 @@ Ce que je voulais dire dans cette déclaration, c'est que ma vision de la vie ne
 Cela finira par changer en Amérique. Il y aura une rencontre entre la vraie spiritualité et la politique, mais habituellement cela ne se produit pas. C'est en train de se produire.
 
 Non, jusqu'à présent, la politique n'a pas été propice au progrès spirituel.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Franklin Delano Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)

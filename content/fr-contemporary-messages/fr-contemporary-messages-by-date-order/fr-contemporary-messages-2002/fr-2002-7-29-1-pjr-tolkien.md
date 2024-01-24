@@ -46,7 +46,7 @@ Ainsi, alors que vous utilisez votre stylo, maintenant, en tant que scribe, je v
 Avec mon amour pour vous, et l’amour du Père, je suis J. R. R. Tolkien.
 <small>
 
-1. <large id="f1"> Il me vient finalement à l’esprit, en relisant ceci le 7⁄30, que les esprits écrivains reconnaîtront quelque chose dans mon esprit en faisant une remarque à ce sujet lorsqu’ils verront que quoi que ce soit, cela ne disparaîtra pas, mais continuera à s’immiscer dans la session. Une fois qu’ils l’ont reconnu, le problème est résolu ![↩](#a1)
+1. <large id="f1"> Il me vient finalement à l’esprit, en relisant ceci le 30 Juillet que les esprits écrivains reconnaîtront quelque chose qui me préoccupe en faisant une remarque à ce sujet lorsqu’ils verront que cela ne disparaîtra pas, mais continuera à s’immiscer dans la session. Une fois qu’ils l’ont reconnu, le problème est résolu ![↩](#a1)
 
 2. <large id="f2"> A G R (Albert Georges Riddle) fut un ancien collègue avocat de James Padgett qui a très souvent communiqué à travers lui au cours des années 1914 à 1920.[↩](#a2)
 

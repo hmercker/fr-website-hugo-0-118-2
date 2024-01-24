@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon
 
-Solomon - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Salomon - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Shalom - Je suis Salomon.
 

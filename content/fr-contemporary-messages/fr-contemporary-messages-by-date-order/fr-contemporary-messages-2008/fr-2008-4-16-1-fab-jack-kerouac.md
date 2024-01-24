@@ -11,7 +11,7 @@ weight:
 
 Jack Kerouac <sup id="a1">[1](#f1)</sup> - reçu par FAB le 16 Avril 2008, Santa Cruz, Californie, USA.
 
-Je suis Jack Kerouac.
+Je suis Jack Kerouac.<sup id="a2">[2](#f2)</sup>
 
 Je vous ai incité à acheter mon livre, "The Dharma Bums", ce soir. Merci d'avoir écouté vos conseils.
 
@@ -33,3 +33,5 @@ Je vois que cette canalisation vous a aidé à avoir une meilleure opinion de mo
 <small>
 
 1. <large id="f1"> **Jack Kerouac** (12 Mars 1922 - 21 Octobre 1969) fut un romancier, écrivain, poète et artiste américain de Lowell, Massachusetts. Avec William S. Burroughs et Allen Ginsberg, il est l'un des écrivains (et amis) les plus connus de la « Beat Generation ». L'œuvre de Kerouac était très populaire, mais n'a guère été saluée par la critique de son vivant. Aujourd'hui, il est considéré comme un écrivain important et influent qui en a inspiré d'autres, notamment Tom Robbins, Lester Bangs, Richard Brautigan et Ken Kesey, ainsi que les écrivains du nouveau journalisme. Kerouac a également influencé des musiciens tels que les Beatles, Ben Gibbard, Bob Dylan, Morrissey, Tom Waits, Simon & Garfunkel, Lebris, Ulf Lundell et Jim Morrison. Les livres les plus connus de Kerouac sont On the Road, The Dharma Bums, Big Sur et Visions of Cody. (Source : Wikipedia)[↩](#a1)
+
+2. <large id="f2"> Jacques Kerouac s'est également exprimé [le 18 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/), [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/),[le 25 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-25-1-fab-jack-kerouac/) et [le 28 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/).[↩](#a2)

@@ -13,13 +13,13 @@ James Padgett - reçu par Kathryn Stokes le 9 Mars 1991, Santa Cruz, Californie,
 
 *[Cher Père de l’Amour, A____ m’a demandé si je pouvais recevoir un message écrit de James E. Padgett pour lui demander ce qu’il pense du travail que nous essayons d’accomplir en présentant des questions relatives aux messages qu’il a reçus de Jésus et des esprits Célestes, où lui et ou le Dr Stone ont manifestement posé une question aux anges. Je pense que ce serait un plus grand honneur pour lui, pour le grand travail qu’il a fait, si nous lui donnions le crédit des questions qu’il a posées et qui ont été suivies de réponses utiles. Aide-moi, cher Père, à être un canal clair pour les pensées de M. Padgett. Protège-moi de tout esprit qui aurait tendance à interférer avec mon désir de connaître la Vérité, afin que nous puissions poursuivre notre travail spirituel pour Toi de la manière que les esprits Célestes voient être la plus efficace pour atteindre un plus grand pourcentage de Tes enfants avec les Vérités de Ton Amour qui sont disponibles à leurs âmes par la prière. Je T’aime et je Te remercie pour toutes les nombreuses bénédictions que Tu nous accordes. Amen.]*
 
-*[M. Padgett a établi un rapport avec moi avant que je ne finisse d’écrire ma prière. La différence entre l’écriture et l' »aide » reçue par écrit en est la preuve]*
+*[M. Padgett a établi un rapport avec moi avant que je ne finisse d’écrire ma prière. La différence entre l’écriture et « l'aide » reçue par écrit en est la preuve]*
 
 Bonjour, ma chère sœur en Christ. Cela fait plusieurs années que je n’ai pas eu le privilège d’écrire à travers toi de cette manière. Je suis ton ami et frère en Christ, qui est souvent avec toi pour t’aider dans ce travail très important de diffusion des Vérités de l’Amour de Dieu dans le monde des hommes, James E. Padgett, un vrai disciple de Jésus de Nazareth qui est Maître des Cieux Célestes.
 
 Je te remercie, chère sœur, ainsi que notre frère Jésus, pour ta foi en nos soins affectueux à ton égard, pour avoir su dans ton toi, âme que nous sommes avec toi, te protégeant et te guidant à travers toutes ces controverses qui t’ont fait perdre courage dans l’œuvre que tu cherches à accomplir.
 
-Je te dirai que tu as repris ma pensée lorsque tu as eu l' »idée » que ce serait faire preuve d’un plus grand respect et d’un plus grand honneur pour moi et mon travail si tu permettais aux futurs lecteurs, de ces merveilleux messages que j’ai eu le privilège de recevoir lorsque je vivais sur terre, de réaliser que j’ai joué un rôle dans les messages écrits par les esprits Célestes en posant des questions pertinentes auxquelles ils ont pu, à leur tour, répondre de manière approfondie avec leur sagesse et leur amour.
+Je te dirai que tu as repris ma pensée lorsque tu as eu « l'idée » que ce serait faire preuve d’un plus grand respect et d’un plus grand honneur pour moi et mon travail si tu permettais aux futurs lecteurs, de ces merveilleux messages que j’ai eu le privilège de recevoir lorsque je vivais sur terre, de réaliser que j’ai joué un rôle dans les messages écrits par les esprits Célestes en posant des questions pertinentes auxquelles ils ont pu, à leur tour, répondre de manière approfondie avec leur sagesse et leur amour.
 
 Il importe peu que la question soit formulée de la manière exacte dont j’ai pu la formuler. L’objectif principal de la présentation de la question est de préparer le lecteur à la réponse, et de lui permettre de réaliser, ou d’avoir une conscience mentale de ce qui va suivre, afin qu’il attende avec impatience ce qui va suivre.
 
@@ -43,7 +43,7 @@ Lorsque vous réalisez qu’il y a beaucoup de personnes dans le monde qui ne li
 
 Ainsi, mes chers collègues, je vous remercie encore une fois pour votre dévouement au travail. Rappelez-vous toujours que nous ne sommes pas loin de vos côtés lorsque vous étendez votre amour dans ce que vous faites pour le Père.
 
-K. S. : Cher Monsieur Padgett, si vous n’êtes pas trop fatigué, peut-être pourriez-vous répondre aux questions de D____ sur son ami décédé le 1er Mars 1991. D_ s’est assis dans sa chambre et a parlé à A.B. (qui se fait appeler S.B.) pour lui expliquer l’Amour de Dieu.
+*K. S. : Cher Monsieur Padgett, si vous n’êtes pas trop fatigué, peut-être pourriez-vous répondre aux questions de D____ sur son ami décédé le 1er Mars 1991. D_ s’est assis dans sa chambre et a parlé à A.B. (qui se fait appeler S.B.) pour lui expliquer l’Amour de Dieu.*
 
 Premièrement, D____ aimerait savoir si S____ était présent à ce moment-là ; et deuxièmement, s’il l’était, a-t-il compris ce que D____ essayait de lui enseigner ; et troisièmement, si les deux premières questions ont une réponse « oui », y a-t-il des réponses ou des réactions que S____ aimerait communiquer à D____ ? Des démarches personnelles qu’il voudrait que D_ fasse pour sa famille ou ses amis ?
 

@@ -17,7 +17,7 @@ Je sais que tu as une longue liste de questions, et nous allons les traiter une 
 
 Aujourd’hui, nous allons parler de la quatrième sphère dans le monde des esprits.
 
-Comme tu le sais déjà, les esprits de la quatrième sphère sont très sérieux dans leur objectif de retour à « l’Union et à la Réconciliation ». Ce travail n’est plus considéré comme un fardeau ou une obligation car il est déjà devenu un moyen d’atteindre sa propre réalisation.
+Comme tu le sais déjà, les esprits de la quatrième sphère sont très sérieux dans leur objectif de retour à *« l’Union et à la Réconciliation »*. Ce travail n’est plus considéré comme un fardeau ou une obligation car il est déjà devenu un moyen d’atteindre sa propre réalisation.
 
 La plupart des esprits de la quatrième sphère travaillent comme enseignants dans les institutions éducatives et scientifiques des sphères inférieures. Ils agissent aussi comme guides spirituels. Par-dessus tout, c’est dans cette sphère qu’ils développent leurs étonnantes capacités de guérison.
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La sœur de Caïn et Abel raconte ses expériences
+### La sœur de Caïn et Abel raconte ses expériences<sup id="a1">[1](#f1)</sup>
 
 Jael - reçu par FAB le 25 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -36,3 +36,7 @@ Je ne sais pas comment compter les années, mais ils sont morts à un âge qui a
 Ils n'ont jamais parlé de leur première heure de gloire, mais je pouvais sentir qu'il y avait un grand trouble à ce sujet.
 
 Bien, laissez-moi conclure pour le moment. Je ne connais pas l'histoire, mais l'humanité (ou du moins beaucoup de ceux qui ne sont pas fixés sur la Bible) s'éloigne d'une interprétation littérale de la Bible, et dans ce processus, le monde ancien devra être vu d'une nouvelle manière.
+<small>
+
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+

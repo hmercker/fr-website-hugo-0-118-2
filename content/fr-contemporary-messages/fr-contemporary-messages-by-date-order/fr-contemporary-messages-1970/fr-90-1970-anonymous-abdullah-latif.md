@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plus grand guérisseur de tous est notre créateur, Dieu
 
-Abdullah Latif - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
+Abdullah Latif<sup id="a1">[1](#f1)</sup> - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 
 Je viens apporter la guérison au milieu de vous. Cela fait un certain temps que je ne vous ai pas parlé et ce soir, alors que vous priez pour la guérison, j'ai ressenti un besoin de guérison pour beaucoup d'entre vous ici ce soir, en fait tous les hommes sur Terre ont besoin de guérison.
 
@@ -30,3 +30,7 @@ Si l'homme ne fait pas cela rapidement, il aura des années et des années de pe
 Lorsque cette paix, ce calme et cette tranquillité recouvrent l'homme, celui-ci doit alors demander et prier pour que Dieu le bénisse. Pourquoi l'homme sur Terre est-il si perdu alors qu'il est si simple de trouver tout ce dont il a besoin par la bénédiction de Dieu. Vous pouvez tout attirer à vous mes amis par la prière, il n'y a qu'un seul moyen et c'est celui-là. Alors, unissons-nous tous, vous sur Terre et nous en esprit, pour essayer de ramener un semblant d'ordre sur la Terre. Faites de cette planète un endroit où il fait bon vivre. Faites rayonner votre lumière et répandez cette simple vérité sur la façon d'acquérir le bonheur et toutes les choses que l'homme doit avoir. Au fur et à mesure que votre lumière rayonnera autour de la Terre, elle pénétrera dans le grand univers et dans les autres planètes qui cherchent comme vous et qui seront guidées par votre lumière. Mes chers, je ne souhaite pas aborder l'espace extra-atmosphérique, car quelqu'un de beaucoup plus versé dans ce domaine que moi peut vous donner des connaissances dans ce domaine, mais chacun d'entre vous ici est un parfait spécimen de lumière. Dans votre corps se trouve tout ce dont vous avez besoin pour la vie sur Terre et par votre désir d'une plus grande part de l'Amour de Dieu, vous pouvez rayonner une lumière à partir de votre propre petite aura et lorsque tous les hommes rayonneront cette grande lumière, alors toute votre planète Terre sera illuminée, et non plus sombre comme elle l'est maintenant, et comme cette lumière devient plus forte et plus étendue, elle touchera certainement ceux qui cherchent un chemin vers leur salut comme vous le faites. Nous avons tous une durée de vie trop courte sur Terre et il appartient à chacun d'entre nous de tirer le meilleur parti de ce temps, car vous ne passez par là qu'une seule fois.
 
 Alors, ayez foi en vos prières et toutes les choses qui démolissent un homme tomberont loin de vous. Au moment où je vous quitte, la couleur verte avec une teinte bleue s'abat sur vous tous. Le soleil que nous adorions en Égypte symbolise l'Amour de Dieu, la force qui fait tout grandir et fleurir. Ainsi, partez de ce lieu ce soir, dévoués à l'œuvre de Dieu, mais pas avant d'avoir vous-mêmes fleuri comme les fleurs, car vous cherchez à obtenir le don de Dieu et c'est ce que fait toute vie. Si vous ne le faites pas ici, vous le ferez dans des sphères plus élevées. Que la paix, la sagesse et un grand bonheur viennent à vous et que chacun de vous ici vive sa vie dans la vérité. Que Dieu vous bénisse, Latif.
+<small>
+
+1. <large id="f1"> Physicien et philosphe Egyptien.[↩](#a1)
+

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La moi de la Prière
+### La loi de la Prière
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

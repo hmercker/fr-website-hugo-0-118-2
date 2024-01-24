@@ -66,7 +66,7 @@ Encore une fois, la version modifiée:
 
 Chers frères et sœurs ! En ce temps, tandis que vous vous retournez encore sur l’année passée, je vous appelle, mes frères et sœurs, à regarder profondément dans votre cœur et à vous décider d’être plus près de Dieu et de la prière. Frères et sœurs, vous êtes encore attachés aux choses terrestres et peu à la vie spirituelle. Que mon appel aujourd’hui puisse être aussi une invitation à vous décider pour Dieu et pour recevoir quotidiennement son Amour. Vous ne pouvez pas recevoir Son Amour, frères et sœurs, si vous n’abandonnez vos péchés et si vous ne vous décidez pour l’Amour envers Dieu et envers le prochain. Je vous remercie d’avoir répondu à mon appel.
 
-> Message à Jacob Colo, 25.12.2001:
+> Message à Jacob Colo du 25 Décembre, 2001 :
 <br>
 <br>
 > Chers enfants, aujourd’hui, alors que Jésus est né de nouveau pour vous, je veux vous appeler particulièrement  à la conversion. Priez, priez, priez pour la conversion de votre cœur, de sorte que Jésus naisse à nouveau pour vous tous, habite en vous et règne sur tout votre être. Je vous remercie d’avoir répondu à mon appel.

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le voyage d’un poète vers la foi
+### Le voyage d’un poète vers la foi<sup id="a1">[1](#f1)</sup>
 
 Pablo Neruda - reçu par FAB le 6 Mars 2008, Santa Cruz, Californie, USA.
 
@@ -30,3 +30,7 @@ J’ai donc beaucoup lutté. Ce ne fut pas facile. Mais avec le temps, et avec l
 Un autre facteur qui a contribué à mon progrès vers la lumière fut ma joie dans la nature créative de la réalité, qui était avec moi sur terre. J’ai toujours su, lorsque j’écrivais un poème, que cette expérience était en quelque sorte plus élevée et plus rare que toute autre expérience. Mais je n’ai jamais imaginé qu’un jour, cette perception s’épanouirait dans la fleur de la foi et de la croyance.
 
 Ne doutez donc pas de votre canalisation, et acceptez les meilleurs vœux d’un collègue poète.
+<small>
+
+1. <large id="f1"> Pablo Neruda a communiqué un autre message [le 06 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-2-fab-pablo-neruda/), un message [le 05 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-2-fab-pablo-neruda/) et un autre message [le 07 Mars 2008](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-7-1-fab-pablo-neruda/).[↩](#a1)
+

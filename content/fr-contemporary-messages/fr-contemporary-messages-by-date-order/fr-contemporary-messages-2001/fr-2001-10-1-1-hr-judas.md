@@ -47,7 +47,7 @@ Comment appellerais-tu un homme d’affaires, qui réduit les salaires de ses tr
 
 Comment appellerais-tu les gens qui se considèrent comme des aristocrates, et considèrent que tous les autres sont tout simplement des plébéiens sans nom ni importance ? Ils font profession d’appartenir à une religion qui prône l’égalité des hommes, mais ils monopolisent les privilèges.
 
-Comment appellerais-tu un membre du clergé d’une religion qui s’appelle « paix » et qui prêche la « guerre sainte »? Quelle invention dans ce mot ! Ça sonne comme du « sel doux ! »
+Comment appellerais-tu un membre du clergé d’une religion qui s’appelle « paix » et qui prêche la *« guerre sainte »?* Quelle invention dans ce mot ! Ça sonne comme du *« sel doux ! »*
 
 Et je pourrais continuer encore avec cette liste, et écrire des milliers de lignes. Mais tu comprends déjà ce que je veux dire.
 

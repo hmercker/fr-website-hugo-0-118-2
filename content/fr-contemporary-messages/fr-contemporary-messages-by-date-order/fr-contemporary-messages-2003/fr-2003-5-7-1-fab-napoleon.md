@@ -31,4 +31,4 @@ Nous apprécions vos efforts en notre nom. Vous serez heureux d’apprendre que 
 
 Sincèrement, Napoléon.
 
-**Note :** Vous pouvez lire ici Le dernier [message de Napoléon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-2-jep-napoleon/).
+**Note :** Vous pouvez lire ici Le précédent  [message de Napoléon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-2-jep-napoleon/).

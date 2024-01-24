@@ -16,7 +16,7 @@ Marie & Jean - reçu par Amada Reza le 17 Décembre 1999, Aptos, Californie, USA
 *Je prie pour être protégé de toute influence d’esprit inférieur qui pourrait vouloir faire du mal, et j’ai foi en la puissance de Ton Amour pour me maintenir en bonne harmonie et en bon rapport. Je mets ma propre volonté de côté, et je demande que si les anges ont quelque chose à écrire à nos frères, M____ et A__, concernant leurs progrès, qu’ils partagent leur sagesse en ce moment. Je T’aime, mon précieux Créateur, de toute mon âme. Merci.]*
 
 
-*Je suis ici avec toi, ma chère sœur en Christ, et je suis ton amie et ta tutrice, Marie, la mère de Jésus*, et une vraie disciple de mon fils, qui nous montre par son exemple ce que signifie être enfant de Dieu.
+**Je suis ici avec toi, ma chère sœur en Christ, et je suis ton amie et ta tutrice, Marie, la mère de Jésus**, et une vraie disciple de mon fils, qui nous montre par son exemple ce que signifie être enfant de Dieu.
 
 Je veux que mon frère, A____, sache qu’il se prépare, par ses prières ferventes à Dieu, à l’afflux de l’Amour Divin, pour l’œuvre qu’il souhaite tant accomplir. Ne soyez pas découragé si vous ne voyez pas le résultat que vous attendez, ces attentes limitent quelque peu votre capacité à embrasser les dons que vous possédez actuellement et que vous manifestez aux autres.
 
@@ -24,11 +24,11 @@ Laissez votre foi s’élever vers Dieu comme son véritable fils, en l’aimant
 
 C’est comme si on vous demandait de peindre une partie particulière d’une scène, que vous laissiez Dieu vous guider alors que vous mettez la main sur cette toile de votre vie, en appliquant les coups de pinceau avec amour et soin, et en ayant confiance que l’image deviendra claire pour vous et les autres au fil du temps. Faites chaque pas avec soin et avec beaucoup d’amour, en priant d’être dans la Grâce de Dieu et laissez-vous convaincre que les nombreux détails s’arrangeront d’eux-mêmes par la manifestation du principe du Christ. Les anges sont capables d’exercer de nombreuses influences qui élimineront efficacement tout obstacle sur votre chemin vers Dieu, et grâce à votre foi continue et à votre désir de servir avec votre âme, pleine d’amour pour Lui et tous Ses enfants, il y aura de telles influences que vous ne verrez peut-être même pas, qui agiront sur votre vie quotidienne et vos interactions avec les autres. Soyez patient avec vous-même, dites à votre esprit d’être calme, et priez chaque jour pour que l’Amour, l’Amour Divin, vous remplisse et vous amène à une plus grande harmonie et sagesse.
 
-M, je souhaite que tu considères ce que j’ai écrit A, et que tu voies que cela s’applique aussi à toi. Tu dois avoir confiance que Dieu te conduira, comme Il l’a toujours fait, dans la voie de l’Amour. Tu as de bons instincts et il est important que tu leur fasses confiance, même si tu ne les reconnais pas encore comme les perceptions de ton âme.
+M, je souhaite que tu considères ce que j’ai écrit à A, et que tu voies que cela s’applique aussi à toi. Tu dois avoir confiance que Dieu te conduira, comme Il l’a toujours fait, dans la voie de l’Amour. Tu as de bons instincts et il est important que tu leur fasses confiance, même si tu ne les reconnais pas encore comme les perceptions de ton âme.
 
 Respire profondément dans cet Amour paisible qui t’entoure, et sache que Je suis avec toi chaque fois que tu le demandes. Ne t’empêche pas de sentir que je suis ta sœur qui t’aime et qui prend soin de toi. Je suis ton amie et je ne t’abandonnerai jamais.
 
-*[Jean parle maintenant :]*
+**[Jean parle maintenant :]**
 
 Je suis ici, Jean de l’Amour, et un vrai disciple de mon Maître, Jésus, qui a été mon maître sur terre et le reste encore après toutes ces années.
 

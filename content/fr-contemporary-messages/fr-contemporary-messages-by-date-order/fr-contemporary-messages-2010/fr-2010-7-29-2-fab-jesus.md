@@ -20,5 +20,12 @@ Comme je l'ai dit précédemment, lorsque cette émotion est étroitement focali
 Si une personne est indignée d'être maltraitée, et que cette indignation ne va pas au-delà de son sens étroit du moi, alors elle n'est pas productive. Mais si cette personne est capable d'élargir ses perceptions à une vérité supérieure, alors l'indignation juste a atteint son objectif.
 <small>
 
-1. <large id="f1"> Cette communication fait suite aux communications précédentes [du 30 Mai 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-30-1-fab-jesus/) et [du 13 Juin 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-13-1-fab-jesus/).[↩](#a1)
+1. <large id="f1"> Le sujet de l'indignation vertueuse a également été traitée dans les messages  suivants :[↩](#a1)
 
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jésus | [Indignation vertueuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-26-2-fab-jesus/) | 26 Janvier 2007
+Jésus | [Indignation vertueuse II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-1-fab-jesus/) | 16 Mai 2008
+Jérémie | [Indignation vertueuse III](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-2-fab-jeremiah/) | 16 Mai 2008
+Jésus | [Jésus parle de l'indignation vertueuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-30-1-fab-jesus/) | 30 Mai 2010
+Jésus | [Jésus parle de la juste indignation - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-13-1-fab-jesus/) | 13 Juin 2010

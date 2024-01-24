@@ -11,9 +11,9 @@ weight:
 
 Uharu - reçu par FAB le 10 Janvier 2007, Santa Cruz, Californie, USA.
 
-Je suis là, Uharu.
+Je suis là, Uharu.<sup id="a1">[1](#f1)</sup>
 
-Oui, j'ai été choisi par mon peuple pour le représenter auprès de vous. Je vais maintenant canaliser des informations supplémentaires sur ma culture terrestre. *[Message du 18 Juillet 20026](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/).*
+Oui, j'ai été choisi par mon peuple pour le représenter auprès de vous. Je vais maintenant canaliser des informations supplémentaires sur ma culture terrestre. *[Message du 18 Juillet 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/).*
 
 Nous, les indigènes Ohlone de Californie, percevions la vie dans un contexte sacré. Nous ne faisions donc pas de distinction entre le sacré et le profane. Vous notez que c'est un aspect majeur de votre propre culture Juive autochtone, et c'est le cas. Il y a donc un lien de parenté.
 
@@ -43,3 +43,17 @@ Et en effet, dans votre pays, les États-Unis, un changement crucial se produira
 Et pourtant, tout le meilleur de la société américaine contemporaine - la richesse, la technologie et le savoir-faire - sera conservé. Ce que j'entends par "meilleur", c'est l'utilisation de ces facteurs pour faire progresser le bien-être humain.
 
 Sur une note personnelle, la délivrance est proche pour vous. Votre esprit retrouvera sa capacité de rétention normale. C'est le stress et la peur qui causent cette difficulté, et lorsque la difficulté sera éliminée, vous retrouverez un fonctionnement normal. Anticipez donc le bonheur et le soulagement à venir. Et dans un sens plus large, anticipez également une vie de service passionnant à Dieu dans laquelle vos rêves deviendront réalité, chacun d'entre eux.
+<small>
+
+1. <large id="f1"> Uharu a égalment comuniqué par les messages listés ci-dessous :[↩](#a1)
+
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
+Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
+Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
+Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
+Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007
+
+

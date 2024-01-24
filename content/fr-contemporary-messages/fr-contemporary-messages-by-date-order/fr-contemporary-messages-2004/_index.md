@@ -20,7 +20,7 @@ Le Père | [Vos tentatives pour vous adresser à moi](/fr-contemporary-messages/
 Joseph | [C’est vous qui fixez le rythme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-3-23-1-ks-joseph/) | 23 Mars 2004
 Jérémie et Salomon | [Donnez de votre Essence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-4-10-1-cc-jeremiah-soloman/) | 10 Avril 2004
 Marie | [L'humble corps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-5-15-1-ar-mary/) | 15 Mai 2004
-Joseph le jeune | [Pourquoi faut-il prier pour l’amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-5-27-1-rl-joseph-the-younger/) | 27 Mai 2004
+Joseph le jeune | [Pourquoi faut-il prier pour l’Amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-5-27-1-rl-joseph-the-younger/) | 27 Mai 2004
 Joseph le jeune | [Qu’arrive-t-il aux personnes qui ne prient pas pour l’amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-6-3-1-rl-joseph-the-younger/) | 3 Juin 2004
 Archange Gabriel | [La mort et la résurrection de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-6-21-1-rl-archangel-gabriel/) | 21 Juin 2004
 Jérémie et Salomon | [Allez à l'intérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-7-9-1-cc-jeremiah-soloman/) | 9 Juillet 2004
@@ -37,3 +37,8 @@ Marie | [L’amour d’une mère](/fr-contemporary-messages/fr-contemporary-mess
 St Matthieu & St André | [Message d’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-15-1-ks-st-matthew-st-andrew/) | 15 Décembre 2004
 St Jean et Jésus | [L’égalité de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-17-1-ar-st-john-jesus/) | 17 Décembre 2004
 St Jean et Marie | [La vue de l’âme (suite)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-27-1-ar-st-john-mary/) | 27 Décembre 2004
+
+[Lien vers les messages de l’année 2005](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+<br>
+<br>
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

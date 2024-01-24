@@ -29,4 +29,4 @@ Merci de bien vouloir canaliser nos pensées ; vous pouvez ressentir notre amour
 
 Je suis votre ami et votre frère dans l’Esprit de l’Amour de Dieu manifesté dans mon âme, et l’un de vos gardiens qui vous aime.
 
-Matthew, avec André et d’autres anges Célestes.
+Matthieu, avec André et d’autres anges Célestes.

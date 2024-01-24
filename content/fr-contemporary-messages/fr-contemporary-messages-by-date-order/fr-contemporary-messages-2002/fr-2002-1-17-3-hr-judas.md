@@ -33,13 +33,13 @@ Judas - reçu par H____ le 17 Janvier 2002, Cuenca, Équateur.
 > Cela me dérangeait parce que j’ai remarqué que pendant les périodes les plus difficiles de ma vie.
 <br>
 <br>
-> Alors que je souffrais d’angoisse, de tristesse ou de défaite, Je n’ai pu voir qu’un seul ensemble d’empreintes. J’ai donc dit à Jésus: « tu m’avais promis, Jésus, Que si je te suivais, tu marcherais toujours avec moi. »
+> Alors que je souffrais d’angoisse, de tristesse ou de défaite, Je n’ai pu voir qu’un seul ensemble d’empreintes. J’ai donc dit à Jésus: *« tu m’avais promis, Jésus, Que si je te suivais, tu marcherais toujours avec moi. »*
 <br>
 <br>
 > Mais j’ai remarqué que pendant les périodes les plus difficiles de ma vie ll y avait seulement un ensemble d’empreintes dans le sable.
 <br>
 <br>
-> « Pourquoi, quand j’ai eu le plus besoin de toi, tu n’étais pas là pour moi ? » Jésus répondit : « Toutes les fois où tu as vu qu’un seul ensemble d’empreintes de pas, c’est lorsque je te portais. »
+> *« Pourquoi, quand j’ai eu le plus besoin de toi, tu n’étais pas là pour moi ? »* Jésus répondit : *« Toutes les fois où tu as vu qu’un seul ensemble d’empreintes de pas, c’est lorsque je te portais. »*
 
 Oui, je t’ai fait rappeler ces paroles. Parce que tu as un problème non résolu.
 

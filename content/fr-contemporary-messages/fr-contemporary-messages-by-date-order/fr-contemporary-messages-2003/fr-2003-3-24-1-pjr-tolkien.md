@@ -17,7 +17,7 @@ Cher Papa et amis,
 
 *PJR.]*
 
-Je suis là pour écrire, ton père.
+**Je suis là pour écrire, ton père.**
 
 C’est bien d’avoir envoyé le message de David à ceux qui pourraient le rendre public. Oui, tu vois quel soulagement cela donne à ton âme de devenir enfin un participant plus actif dans la diffusion du message de l’Amour Divin. C’est la plus grande chose dans laquelle tu peux t’engager. Oui, juste à côté du sauvetage réussi d’une âme de la seconde mort éventuelle en l’amenant à la lumière de l’Amour Divin. En parlant d’une telle personne, Tolkien aimerait écrire.
 

@@ -46,4 +46,4 @@ Et, ainsi, je vous souhaiterais, pour l’instant, une bonne journée, et je vou
 Je suis votre frère d’esprit et votre cher ami, Jésus.
 <small>
 
-1. <large id="f1"> Jésus nuance ici sa déclaration, ce qui est peut-être essentiel. Parce que, dans au moins un livre canalisé, un esprit a subi une régression après avoir obsédé un être humain vivant. C’est peut-être presque la seule façon d’y parvenir ? G.J.C.[↩](#a1)
+1. <large id="f1"> Jésus nuance ici sa déclaration, ce qui est peut-être essentiel. Parce que, dans au moins un livre canalisé, un esprit a subi une régression après avoir obsédé un être humain vivant. C’est peut-être presque la seule façon d’y parvenir ? (Geoff Cutler)[↩](#a1)

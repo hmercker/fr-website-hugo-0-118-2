@@ -40,7 +40,7 @@ Joseph | [Mental et spiritualité](/fr-contemporary-messages/fr-contemporary-mes
 Kahlil Gibran | [Poésie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-19-1-ar-kahlil-gibran/) | 19 Mars 1999
 Jésus | [Message annuel en transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/) |  Juin 1999
 Jésus | [Sur l’autodéfense](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-7-6-1-ks-jesus/) | 6 Juillet 1999
-Marie | [Sur l’autodéfense](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-7-7-1-ar-mary/) | 7 Juillet 1999
+Marie | [Sur l’autodéfense_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-7-7-1-ar-mary/) | 7 Juillet 1999
 Jésus | [Apportez vos problèmes à Dieu et laissez-les là](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-7-27-1-ks-jesus/) | 27 Juillet 1999
 Jésus | [Jésus : Les canalisations du Dr Samuels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-8-1-1-ks-jesus/) | 1 Août 1999
 Marie | [Sur le don de la communication avec les esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-8-5-1-ar-mary/) | 5 Août 1999
@@ -54,7 +54,7 @@ Marie & White Eagle | [Le soleil bondissant de Fatima](/fr-contemporary-messages
 Marie | [Comment les lois de Dieu agissent sur la vie des hommes et des femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-12-1-ar-mary/) | 12 Octobre 1999
 Jésus | [Les pensées pécheresses et la loi de compensation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-25-1-ks-jesus/) | 25 Octobre 1999
 Marie | [Sur la cruauté envers les animaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-30-1-ar-mary/) | 30 Octobre 1999
-White Eagle | [La guérison par l’intermédiaire des guérisseurs spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-3-1-ar-white-eagle/) | 3 Novembre 1999
+Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-3-1-ar-white-eagle/) | 3 Novembre 1999
 Jésus | [Sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-6-1-ks-jesus/) | 6 Novembre 1999
 Marie | [Vous Vous demandez ce que Dieu attend de vous ? Seulement votre amour !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-7-1-ar-mary/) | 7 Novembre 1999
 Marie & Jean | [Sur le manque d’amour de soi de M___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-12-1-ar-mary-john/) | 12 Novembre 1999
@@ -73,3 +73,8 @@ Marie & Jean | [Message d’encouragement](/fr-contemporary-messages/fr-contempo
 St Pierre | [Encouragements donnés à Alfredo](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-19-1-Alfredo-st-peter/) | 19 Décembre 1999
 Joseph | [Permettre à la lumière de descendre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-20-1-ks-joseph/) | 20 Décembre 1999
 Jésus | [Dr Samuels et l’importance de la capacité du lecteur à utiliser ses propres perceptions de ces vérités par son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-25-1-ar-jesus/) | 25 Décembre 1999
+
+[Lien vers les messages de l’année 2000](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+<br>
+<br>
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

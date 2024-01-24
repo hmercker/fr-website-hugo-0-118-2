@@ -55,4 +55,4 @@ Judas.
 © Geoff Cutler 2013
 <small>
 
-1. <large id="f1"> Le Dr Samuels a reçu un nombre significatif de messages de la part de Jésus, au cours des années 1954 à 1966, sous la forme de révélations et de sermons sur l’Ancien Testament. Ces messages ont été publiés récemment, en Français, sur ce site. Vous pouvez les lire ici.[↩](#a1)
+1. <large id="f1"> Le Dr Samuels a reçu un nombre significatif de messages de la part de Jésus, au cours des années 1954 à 1966, sous la forme de révélations et de sermons sur l’Ancien Testament. Ces messages ont été publiés récemment, en Français, sur ce site. Vous pouvez les lire [ici](/fr-samuels-messages/).[↩](#a1)

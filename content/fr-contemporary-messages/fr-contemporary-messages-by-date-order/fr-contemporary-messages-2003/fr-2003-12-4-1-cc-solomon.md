@@ -9,9 +9,9 @@ weight:
 ---
 ### Appel à tous les médiums
 
-Solomon - reçu par CC le 4 Décembre 2003, New York, USA.
+Salomon - reçu par CC le 4 Décembre 2003, New York, USA.
 
-Bonjour CC. C’est moi Solomon. Tu n’as pas besoin de dire que je te manque. J’ai souvent été avec toi. Ne crois-tu pas ce qu’on t’a dit ? Nous t’aimons. Oui, nous sommes tous ici. Nous n’avons pas pu venir te voir parce que tu participes à une étude que nous jugeons importante pour ta croissance. De plus, tu as vécu quelques aventures et ton état ne nous a pas permis de communiquer. Bien que de nombreuses choses, nous avons été en mesure de te faire comprendre au moment opportun. Mais tu dois savoir que tu n’as, à aucun moment, été laissé seul. Je sais que tu aimes notre compagnie et que nous sommes heureux d’être avec toi, même si tu ne t’en rends pas compte parfois.
+Bonjour CC. C’est moi Salomon. Tu n’as pas besoin de dire que je te manque. J’ai souvent été avec toi. Ne crois-tu pas ce qu’on t’a dit ? Nous t’aimons. Oui, nous sommes tous ici. Nous n’avons pas pu venir te voir parce que tu participes à une étude que nous jugeons importante pour ta croissance. De plus, tu as vécu quelques aventures et ton état ne nous a pas permis de communiquer. Bien que de nombreuses choses, nous avons été en mesure de te faire comprendre au moment opportun. Mais tu dois savoir que tu n’as, à aucun moment, été laissé seul. Je sais que tu aimes notre compagnie et que nous sommes heureux d’être avec toi, même si tu ne t’en rends pas compte parfois.
 
 Maintenant, passons à l’objet de cette communication. Comme tu l’as appris, il y a beaucoup d’esprits dans le monde spirituel qui sont poussés par leur amour à choisir un groupe particulier sur terre pour travailler avec lui, dans le but d’apporter l’harmonie à ton monde avec leur connaissance de la vérité. Il y a des millions de groupes impliqués dans l’aide à l’évolution de votre monde à partir de son état actuel. Ce sont des esprits avides et ont un amour pour l’humanité qui surpasse tout ce que les humains ont connu. Tout comme un groupe varié et diversifié habite la terre, le monde des esprits a un groupe important et varié de croyants et d’esprits de différentes cultures et manières.
 

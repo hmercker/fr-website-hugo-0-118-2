@@ -29,15 +29,15 @@ Joseph | [Prier pour l’Amour Divin sans avoir l’impression d’être un impo
 Marie | [Avec l’amour, vous pouvez affronter tout mal avec confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-5-13-1-ar-mary/) | 13 Mai 2000
 Jésus | [La vérité qui est écrite dans votre âme doit être parlée dans toutes les langues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-4-1-ar-jesus/) | 4 Juin 2000
 Esprit Céleste Elevé | [Un Esprit Céleste Élevé : Conseil personnel ; sur les Premiers Parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-19-1-ks-a-high-celestial-spirit/) | 19 Juin 2000
-Rev Dave Lampron | [Une qualité de Dieu rarement mentionnée.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-dl-rev-dave-lampron/) | 22 Juin 2000
 Jésus | [Message annuel de transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-25-1-ar-jesus/) | 25 Juin 2000
+Rev Dave Lampron | [Une qualité de Dieu rarement mentionnée.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-dl-rev-dave-lampron/) | 22 Juin 2000
 André | [Conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-7-21-1-ks-andrew/) | 21 Juillet 2000
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-7-30-1-ar-jesus/) | 30 Juillet 2000
 Esprit Céleste Elevé | [Sur les relations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-8-1-ks-a-high-celestial-spirit/) | 8 Août 2000
 Marie | [Sur les canalisations à travers Patricia Talbott Borrero](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-8-2-ar-mary/) | 8 Août 2000
 St Jean | [Se débarrasser de l’influence négative des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-14-1-ks-st-john/) | 14 Août 2000
 Haut Esprit Céleste | [Le sens de la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-1-ar-a-high-celestial-spirit/) | 28 Août 2000
-Jésus | [Alfredo et swift bear](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
+Jésus | [Alfredo et Swift Bear](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
 Marie et Jean | [Encouragement donné à W___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-2-1-ar-mary-john/) | 2 Septembre 2000
 Marie | [Prière et réponse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-2-2-ar-mary/) | 2 Septembre 2000
 André | [Le parler en langues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-4-1-ks-andrew/) | 4 Septembre 2000
@@ -59,3 +59,8 @@ Esprit Céleste Elevé | [La foi et comment découvrir la vérité](/fr-contempo
 Jésus | [Un message de Noël.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-25-1-ar-jesus/) | 25 Décembre 2000
 Marie | [Qu’est-ce que la Foi ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-28-1-ar-mary/) | 28 Décembre 2000
 Marie | [Âme, foi et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-30-1-ar-mary/) | 30 Décembre 2000
+
+[Lien vers les messages de l’année 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+<br>
+<br>
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

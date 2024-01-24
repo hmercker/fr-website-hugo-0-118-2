@@ -23,7 +23,7 @@ Pourquoi ne cherchent-ils pas ce qui est raisonnable et logique ?
 
 Ces lois naturelles, et elles ne pourraient pas être réalisées comme n’étant pas naturelles, en aucun cas. Ils l’acceptent ainsi, parce que c’est plus facile, ils ne recherchent que le plaisir et le bien-être matériel, ce n’est pas mauvais, car il y a des besoins à satisfaire, mais c’est une facilité absolue pour leurs âmes, qui les comprime et leur refuse la réalité de la raison.
 
-« Vivons aujourd’hui du mieux que nous pouvons, car demain il n’y aura plus rien à apprécier », (pensent-ils). Ils se trouveront trompés lorsqu’ils quitteront leur enveloppe charnelle et verront combien ils ont retardé leur esprit en n’utilisant pas mieux leur raisonnement.
+*« Vivons aujourd’hui du mieux que nous pouvons, car demain il n’y aura plus rien à apprécier »*, (pensent-ils). Ils se trouveront trompés lorsqu’ils quitteront leur enveloppe charnelle et verront combien ils ont retardé leur esprit en n’utilisant pas mieux leur raisonnement.
 
 L’intelligence n’est-elle pas une excellente qualité ? Néanmoins, ils ne l’utilisent pas dans le but sincère des désirs du Père, mais pour rechercher leurs propres intérêts, et comme ils l’utilisent bien, mais comme cela s’avère parfois désastreux.
 

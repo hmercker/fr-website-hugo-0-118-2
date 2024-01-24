@@ -24,7 +24,7 @@ St Jean | [La culture Grecque et les Juifs dans l’Ancienne Palestine](/fr-cont
 Le roi Arthur | [Un roi légendaire - le roi Arthur - est réel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-1-1-fab-king-arthur/) | 1 Février 2009
 St Jean | [Le choc des Juifs et des Gentils au premier siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-3-1-fab-st-john/) | 3 Février 2009
 Jésus | [La fermeture des Cieux Célestes - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-7-1-fab-jesus/) | 7 Février 2009
-Jésus | [Pré-existence des Cieux Célestes - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-7-2-fab-jesus/) | 7 Février 2009
+Jésus | [Pré-existence des Cieux Célestes - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-7-2-fab-jesus/) | 7 Février 2009
 Jésus | [L'unicité avec Dieu et les Soufis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-9-1-fab-jesus/) | 9 Février 2009
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009
 St Jean | [La culture Juive du premier siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-11-1-fab-st-john/) | 11 Février 2009
@@ -51,7 +51,7 @@ Aristote | [La progression d'Aristote, et l'âme](/fr-contemporary-messages/fr-c
 Alexandre | [L'expérience d'Alexandre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-2-fab-alexander/) | 7 Mai 2009
 Jésus | [Le système et la générosité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-10-1-fab-jesus/) | 10 Mai 2009
 Jésus | [Le système et la générosité - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-12-1-fab-jesus/) | 12 Mai 2009
-Jésus | [Le système et les personnes - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-12-2-fab-jesus/) | 12 Mai 2009
+Jésus | [Le système et les personnes - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-12-2-fab-jesus/) | 12 Mai 2009
 Jésus | [La richesse matérielle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-21-1-fab-jesus/) | 21 Mai 2009
 Jésus | [Forces sociales, économiques et politiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-21-2-fab-jesus/) | 21 Mai 2009
 Jochebed, la mère de Moïse | [Expérience de la mère de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-23-1-fab-jochebed-moses-mother/) | 23 Mai 2009
@@ -113,3 +113,9 @@ Ida Tarbell | [Quelque chose de merveilleux à attendre avec impatience](/fr-con
 Jésus | [Clarification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-25-1-fab-jesus/) | 25 Décembre 2009
 Woodrow Wilson | [Le point de vue d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-1-fab-woodrow-wilson/) | 28 Décembre 2009
 Jésus | [Clarification - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-2-fab-jesus/) | 28 Décembre 2009
+
+[Lien vers les messages de l’année 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+<br>
+<br>
+[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
