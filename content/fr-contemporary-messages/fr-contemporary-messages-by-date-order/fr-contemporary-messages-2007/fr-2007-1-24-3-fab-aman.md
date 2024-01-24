@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les besoins nutritionnels des Premiers Parents et du Maître<sup id="a1">[1](#f1)</sup>
+### Les besoins nutritionnels des Premiers Parents et du Maître <sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 24 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -47,4 +47,3 @@ J’espère avoir clarifié pour vous ce que vous vouliez savoir. Si vous souhai
 <small>
 
 1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
-

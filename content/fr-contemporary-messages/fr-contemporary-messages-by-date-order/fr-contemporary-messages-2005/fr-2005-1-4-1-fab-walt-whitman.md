@@ -29,4 +29,4 @@ Je sais que vous vous attendiez à ce que ce premier message me soit entièremen
 
 Avec amour, Walt Whitman.
 
-**Walter Whitman**, plus connu sous le nom de Walt Whitman, (Né le 31 Mai 1819 à West Hills, New York (Long Island) et mort le 26 Mars 1892 à Camden (New Jersey)), est un poète, romancier, journaliste, éditeur américain. Son recueil de poèmes Feuilles d'herbe (Leaves of Grass) est considéré comme son chef-d'œuvre. 
+**Walter Whitman**, plus connu sous le nom de Walt Whitman, (Né le 31 Mai 1819 à West Hills, New York (Long Island) et mort le 26 Mars 1892 à Camden (New Jersey)), est un poète, romancier, journaliste, éditeur américain. Son recueil de poèmes Feuilles d'herbe (Leaves of Grass) est considéré comme son chef-d'œuvre.

@@ -78,4 +78,3 @@ Moïse | [Le temps est venu pour Dieu de transformer ce monde](/fr-contemporary-
 Jésus & Moïse & Elie | [Bénédictions de lumière pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-13-1-af-jesus-moses-elijah/) | 13 Juin 2021
 Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-2-af-moses/) | 31 Mai 2022
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
-

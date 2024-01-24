@@ -32,4 +32,3 @@ Le pays survivra à des calamités telles que le Patriot Act <sup id="a4">[4](#f
 3. <large id="f3"> « Les Alien and Sedition Acts sont quatre lois qui furent présentées en 1798 par les Fédéralistes au Congrès des États-Unis, lors d'une guerre navale avec la France, puis ratifiées par le président John Adams. »[↩](#a3)
 
 4. <large id="f4"> Le « USA PATRIOT Act » est une loi antiterroriste qui fut votée par le Congrès des États-Unis et signée par George W. Bush le 26 Octobre 2001.[↩](#a4)
-

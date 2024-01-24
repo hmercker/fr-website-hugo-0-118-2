@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-###  Guerre et paix et le plan de Dieu - 2<sup id="a1">[1](#f1)</sup>
+### Guerre et paix et le plan de Dieu - 2 <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par FAB le 26 Décembre 2006, Santa Cruz, Californie, USA.
 
@@ -66,6 +66,3 @@ Jésus | [Guerre et paix et le plan de Dieu Partie 4](/fr-contemporary-messages/
 Jésus | [Guerre et paix et le plan de Dieu Partie 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-5-fab-jesus/) | 11 Janvier 2008
 Jésus | [Guerre et paix et le plan de Dieu Partie 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-1-fab-jesus/) | 14 Décembre 2008
 Jésus | [Guerre et paix et le plan de Dieu Partie 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-2-fab-jesus/) | 14 Décembre 2008
-
-
-

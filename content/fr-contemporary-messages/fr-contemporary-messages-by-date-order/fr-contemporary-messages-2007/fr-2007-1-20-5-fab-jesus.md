@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Guerre et paix et le plan de Dieu Partie 3<sup id="a1">[1](#f1)</sup>
+### Guerre et paix et le plan de Dieu Partie 3 <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par FAB le 20 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -43,7 +43,6 @@ Et, planant au-dessus des régions déchirées de la Terre, se trouve le Créate
 <small>
 
 1. <large id="f1"> L'ensemble des messages communiqués par Jésus sur le thème « Guerre et Paix  dans le plan de Dieu » est accessible par l'intermédiaire des liens ci-dessous indiqués :[↩](#a1)
-
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
