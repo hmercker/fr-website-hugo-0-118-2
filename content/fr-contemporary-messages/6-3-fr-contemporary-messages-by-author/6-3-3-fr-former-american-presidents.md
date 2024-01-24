@@ -13,6 +13,7 @@ Parmi les très nombreux esprits qui se sont exprimés, il convient de remarquer
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+| <p align="center"><strong>George Washington 1er président </strong></p> |
 Abraham Lincoln | [Abraham Lincoln comllète à son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-3-fab-abraham-lincoln/) | 7 Juillet 2007
 Abraham Lincoln | [Abraham Lincoln commente son style dans les Messages reçus par James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-1-fab-abraham-lincoln/) | 7 Juillet 2007
 Abraham Lincoln | [Abraham Lincoln et la Guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/) | 30 Juin 2005
