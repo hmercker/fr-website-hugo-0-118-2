@@ -11,10 +11,9 @@ weight:
 
 Parmi les très nombreux esprits qui se sont exprimés, il convient de remarquer qu’un nombre non négligeables d’anciens présidents l'ont effectué dans un intervalle de temps assez restreint puisqu’une grande partie, quatorze d’entre eux, ont communiqué leurs messages au cours des dix première années de ce 3ème millénaire. Dix sept présidents se sont exprimés et ont communiqué un total de 78 messages. Parmi les sept pères fondateurs de l’Amérique, seul Alexander Milton de n’est pas exprimé. Certains d’entre eux ont exprimé qu’ils ont dû affronter une véritable bataille entre les forces de la lumière et les forces de l’obscurité. Ils ont tous témoigné que leur statut d’ancien président des USA ne leur fut d’aucune aide. Le dernier président à s’être exprimé fut Ronald Reagan qui, suite à son arrivée dans le monde des esprits, a été confronté à de nombreuses souffrances avant de pouvoir bénéficier de la lumière.
 
-<p align="center">**George Washington 1er président**</p>
-
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+| <p align="center">**George Washington 1er président**</p> |
 George Washington | [La culpabilité de George Washington](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-23-1-fab-george-washington/) | 23 Juillet 2008
 George Washington | [La protection divine et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-1-fab-george-washington/) | 25 Novembre 2007
 George Washington | [Le fondateur de son pays apporte son soutien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-3-fab-george-washington/) | 20 Décembre 2006
