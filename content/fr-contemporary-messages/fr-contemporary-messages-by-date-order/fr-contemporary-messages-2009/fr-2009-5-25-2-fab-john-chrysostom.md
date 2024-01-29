@@ -19,3 +19,5 @@ Par conséquent, j'ai pu supporter mes malheurs plus facilement. Et lorsque je s
 <small>
 
 1. <large id="f1"> **Saint Jean Chrysostome** (vers 347-407), archevêque de Constantinople, fut un important Père de l'Église primitive. Il est connu pour son éloquence dans la prédication et l'expression publique, sa dénonciation des abus d'autorité de la part des dirigeants ecclésiastiques et politiques, la Divine Liturgie de Saint Jean Chrysostome et sa sensibilité ascétique. Après sa mort (ou, selon certaines sources, pendant sa vie), il reçut le surnom grec chrysostomos, qui signifie "bouche d'or", rendu en anglais par Chrysostom. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

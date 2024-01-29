@@ -63,3 +63,5 @@ Judas.
 <small>
 
 1. <large id="f1"> Les Cieux Célestes, selon les messages de James Padgett, sont situés au-delà de la 7ème Sphère Spirituelle et sont seulement habités par ceux qui sont *« nés à nouveau en esprit »*. Dans des communications ultérieures Judas rentre en détail sur les caractéristiques de chacune des 7 sphères plus basses qui sont celles où nous nous retrouvons après notre mort.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

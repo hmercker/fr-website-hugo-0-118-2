@@ -28,3 +28,5 @@ Tout comme Moïse a été choisi pour libérer son peuple d'Egypte, j'ai été c
 Il est vrai que longtemps après que l'humanité ait perdu ce privilège, rien de tel n'était même désiré, car les mortels étaient préoccupés par la nature animale et l'existence matérielle. Mais lentement, l'humanité a évolué, et quelques âmes courageuses et inhabituelles sont apparues, qui se sont distinguées par leur développement dans l'amour et dans leur dévouement à Dieu. Mais même quelqu'un comme Moïse ne comprenait pas que Dieu était un pur Amour ; il avait été influencé à croire que Dieu avait de la colère, et désirait une punition pour avoir désobéi à Ses lois.
 
 Lorsque je suis apparu en Terre Sainte pour prêcher la Bonne Nouvelle, mon avènement avait été soigneusement préparé par un ordre très précis d'apparitions mortelles. Ainsi, mes prédécesseurs ont préparé la voie à ma venue. S'ils n'ont pas eu le privilège de recevoir l'Amour Divin, c'est uniquement à cause du fonctionnement du Plan de Dieu, et non à cause d'une quelconque injustice de la part de Dieu.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

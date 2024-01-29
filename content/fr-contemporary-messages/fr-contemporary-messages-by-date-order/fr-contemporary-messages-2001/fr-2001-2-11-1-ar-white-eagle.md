@@ -9,7 +9,7 @@ weight:
 ---
 ### L’autre vision
 
-White Eagle <sup id="a1">[1](#f1)</sup> - reçu par Amada Reza le 11 Février 2001, Aptos, Californie, USA.
+Aigle Blanc <sup id="a1">[1](#f1)</sup> - reçu par Amada Reza le 11 Février 2001, Aptos, Californie, USA.
 
 Je suis ici avec toi, ma chère sœur en Christ, et je suis Aigle Blanc, un vrai disciple de mon maître, Jésus, et un participant de l'Amour Divin, l'Essence de l'Âme de Dieu.
 
@@ -43,3 +43,5 @@ Je suis Aigle Blanc, ton frère et ami dans la Vue Divine.
 <small>
 
 1. <large id="f1"> Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu'il a communiqué à travers James Padgett [le 15 Février 2001](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/)[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

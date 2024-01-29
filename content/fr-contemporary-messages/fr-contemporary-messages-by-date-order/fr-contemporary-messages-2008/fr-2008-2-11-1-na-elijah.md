@@ -9,7 +9,7 @@ weight:
 ---
 ### La véritable âme sœur de Jésus
 
-Élias - reçu par NA le 11 Février 2008, Melbourne, Australia.
+Élie - reçu par NA le 11 Février 2008, Melbourne, Australia.
 
 **Je suis ici pour présenter un message visant à faire la lumière sur la relation de Jésus avec le Père. L'âme sœur parfaite pour Jésus est le Père. Le Père a créé l'âme de Jésus, sans âme sœur, ce qui diffère de la façon dont le Père crée toutes les âmes qui deviendront mortelles une fois leur incarnation sur Terre terminée.** Cet enseignement est tout à fait cohérent avec le travail qui a été transmis par James Padgett. Toutes les âmes mortelles sont créées à l'image et au potentiel d'être en harmonie avec leur âme sœur dans l'Amour Divin. Ce qui n'a pas été révélé dans le travail avec James Padgett, c'est que c'est dans le Père que tous les besoins de l'âme de Jésus sont satisfaits. Jésus est si proche du Père et l'âme de Jésus demeure dans l'Amour du Père, ce qui est très évident lorsqu'on a le plaisir de le rencontrer.
 
@@ -20,3 +20,5 @@ Il a été mentionné précédemment dans ce travail de prise de conscience de l
 **Jésus dans son corps d'esprit est une vision Céleste glorieuse et il ne s'incarnera plus jamais dans la chair mortelle.** Ceux qui croient une telle chose possible et ceux qui croient un individu qui croit une telle chose possible sont dans l'erreur par rapport aux enseignements de Jésus, car comme il l'a enseigné, une fois qu'une âme est confinée dans son corps d'esprit, il est impossible pour cette âme dans un corps d'esprit de s'incarner à nouveau. L'amour est important dans tout cela, et beaucoup de gens aiment savoir que dans leur avenir, ils pourront rencontrer et voir des êtres chers, qui vivent en tant qu'esprits, et cela se produit. La personnalité d'un individu est toujours conservée par l'âme et le corps spirituel reflète cette personnalité et cet amour. Dans l'Âme du Père, dans l'Amour Divin du Père, Jésus est à l'unisson et cette Vérité est connue dans toutes les Sphères d'Amour Divin et il continue à aider les âmes à apprendre et à prendre conscience de l'Amour Divin afin que chacun puisse jouir de l'Âme du Père.
 
 Merci pour cette opportunité de transmettre ce message d'Amour, Votre ami et enseignant céleste, Élie.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

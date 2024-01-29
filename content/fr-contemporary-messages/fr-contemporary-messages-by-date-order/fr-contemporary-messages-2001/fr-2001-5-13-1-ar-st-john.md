@@ -30,3 +30,5 @@ Ne sous-estimez pas le nombre d’anges qui sont présents pour apporter cette i
 Vous êtes mes homologues spirituels sur la terre. Nous travaillons les uns à côté des autres. Nous vous aimons comme notre famille dans le Christ. Ayez la foi que Dieu et tous les anges vous aiment. C’est la vérité, et c’est vous qui l’avez fait.
 
 Je suis Jean, l’apôtre de Jésus, votre ami et votre frère.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

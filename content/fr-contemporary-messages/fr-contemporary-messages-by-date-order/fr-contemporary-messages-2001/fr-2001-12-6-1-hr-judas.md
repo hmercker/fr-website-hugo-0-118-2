@@ -46,3 +46,5 @@ Beaucoup diront que c’est impossible. Et c’est vraiment impossible quand tu 
 C’est ce que la méditation t’enseigne. Est-ce que tu comprends ?
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

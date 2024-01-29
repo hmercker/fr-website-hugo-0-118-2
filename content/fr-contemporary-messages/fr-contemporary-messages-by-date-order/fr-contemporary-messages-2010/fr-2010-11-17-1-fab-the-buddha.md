@@ -19,3 +19,5 @@ Je crois toujours en ce que j'ai enseigné, et cela m'a apporté le bonheur et l
 <small>
 
 1. <large id="f1"> Ce message va essentiellement dans le sens d'un [message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-1-fab-buddha/).[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

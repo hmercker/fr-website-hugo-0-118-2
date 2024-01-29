@@ -24,3 +24,5 @@ Or, l’humilité est l’humilité, où qu’elle se trouve. Ainsi, le grand co
 Et vous ne serez pas surpris d’apprendre que les péchés et les erreurs d’un grand compositeur doivent être comptabilisés, comme tout autre esprit. Mais dans ce cas, il y a une consolation, c’est que la musique est restée derrière pour réjouir le cœur des futures générations de mortels.
 
 Comme vous le comprendrez, si un Esprit d’Amour Divin ou Céleste possède un don musical inhabituel, il n’y a aucun souci d’argent ou de soutien, car tous soutiendront ce don. En fait, tous les esprits Célestes ont un talent musical – il est profondément ancré dans l’âme humaine, et lorsqu’il est activé par la Nouvelle Naissance, ce don fleurit. Cependant, certains esprits arrivent dans le monde des esprits en ayant déjà activé un grand don musical donné par Dieu. Ce don reste en place à travers toutes les vicissitudes de la compensation. Mais lorsque cet esprit entre en harmonie, il est alors libre de développer ce don, tout à la gloire de Dieu.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

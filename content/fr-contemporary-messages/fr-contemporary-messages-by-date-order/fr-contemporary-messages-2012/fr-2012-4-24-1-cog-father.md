@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pardon est un art délicat
 
-Père - reçu par Enfant de Dieu le 24 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 24 Avril 2012.
 
 Cher enfant, au milieu de la nuit, tu t’es réveillé en hurlant à cause d’un rêve. Il s’agissait de ta mère et tu étais perplexe parce que tu te sentais si bouleversé et en colère, et que tu te sentais trahi par elle. Tu n’avais pas eu de tels sentiments depuis longtemps et tu avais l’impression d’avoir laissé cela derrière toi il y a longtemps.
 
@@ -24,3 +24,5 @@ Tu dois toujours faire confiance à tes sentiments. Ils feront apparaître au gr
 Je t’aime, mon enfant.
 
 Ton père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

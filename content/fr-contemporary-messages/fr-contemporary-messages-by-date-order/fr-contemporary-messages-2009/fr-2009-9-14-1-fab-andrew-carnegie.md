@@ -26,3 +26,5 @@ Vous vous demandez, si j'ai fait tant de bien, et que les esprits l'ont reconnu,
 Mais en réalité, j'avais l'impression de n'avoir rien fait de mal - je ne faisais que suivre la tendance « naturelle » à acquérir des richesses. Ce n'était pas du tout comme ça que Dieu voyait les choses. Et si je ne m'étais pas engagé dans la philanthropie, ma situation aurait été encore pire.
 
 Andrew Carnegie a communiqué divers messages [au cours de l'année 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/).
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

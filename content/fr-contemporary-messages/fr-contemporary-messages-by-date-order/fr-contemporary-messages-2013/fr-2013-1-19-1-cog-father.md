@@ -9,7 +9,7 @@ weight:
 ---
 ### Te connaître pour me connaître
 
-Père - reçu par Enfant de Dieu le 19 Janvier 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 19 Janvier 2013.
 
 Te connaitre pour Me connaitre.
 
@@ -22,3 +22,5 @@ L’amour est partout et l’amour est tout ce qui compte.
 Un désir éternel.
 
 Ton Créateur.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

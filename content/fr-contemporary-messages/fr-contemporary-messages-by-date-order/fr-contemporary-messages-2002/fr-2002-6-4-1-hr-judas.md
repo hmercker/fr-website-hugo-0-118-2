@@ -93,3 +93,5 @@ C’est tout pour aujourd’hui. Je te dis au revoir avec mes bénédictions.
 Ton frère en Christ, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

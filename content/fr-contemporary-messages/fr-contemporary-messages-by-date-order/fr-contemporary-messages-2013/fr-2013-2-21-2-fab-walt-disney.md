@@ -11,7 +11,7 @@ weight:
 
 Walt Disney - reçu par FAB le 21 Février 2013, Berkeley, Californie, USA.
 
-C’est moi, Walt Disney.
+C’est moi, Walt Disney.<sup id="a1">[1](#f1)</sup>
 
 Vous vous demandez si j’ai dû rendre compte de mon soutien à l’effort de guerre [Seconde Guerre mondiale]. Vous vous êtes également demandé si je fumais.
 
@@ -24,3 +24,18 @@ Les messages de James Padgett vous ont appris que le militarisme est une mauvais
 Alors on peut discuter, mais les militaires ont pris le contrôle de mon studio ! Je n’avais pas le choix. Mais j’ai soutenu l’effort des Alliés, non pas parce que j’étais favorable aux effusions de sang et aux tueries, mais parce que je pensais qu’il était nécessaire de gagner la guerre pour préserver la liberté de mon pays. Et je l’ai fait de manière désintéressée, comme le révèlent les faits.
 
 Mais cela n’a pas empêché la perspicacité que j’ai expliquée, et toute l’ignorance et l’obstination du monde ne peuvent changer le fait qu’avec la mentalité de guerre, il y a toujours un prix à payer dans l’équilibre moral de la vie.
+<small>
+
+1. <large id="f1"> Walt Disney  s'est également exprimé dans les messages ci-dessous indiqués :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Walt Disney | [L'espoir de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-1-fab-walt-disney/) | 1 Mai 2009
+Walt Disney | [Un changement de perspective](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-8-1-fab-walt-disney/) | 8 Septembre 2009
+Walt Disney | [Walt Disney et La grève de ses studios](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-30-1-fab-walt-disney/) | 30 Octobre 2010
+Walt Disney | [Walt Disney et ses studios en grève - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-20-1-fab-walt-disney/) | 20 Novembre 2010
+Walt Disney | [Walt Disney, l’histoire et l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-6-1-fab-walt-disney/) | 6 Janvier 2011
+Walt Disney | [Inharmonie et Boomerang](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-10-1-fab-walt-disney/) | 10 Juin 2012
+Walt Disney | [Le sens moral de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-21-2-fab-walt-disney/) | 21 Juin 2012
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

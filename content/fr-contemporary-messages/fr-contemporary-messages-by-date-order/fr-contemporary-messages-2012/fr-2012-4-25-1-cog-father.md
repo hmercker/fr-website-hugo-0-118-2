@@ -9,7 +9,7 @@ weight:
 ---
 ### La vitesse de ton âme
 
-Père - reçu par Enfant de Dieu le 25 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 25 Avril 2012.
 
 Mon cher enfant, parlons de vivre à la vitesse de ton âme. Ton âme est une partie très délicate de toi. La partie éternelle. La partie qui est connectée à moi pour toujours. La partie qui vivra éternellement. Ton âme a sa propre vibration, son propre son, sa propre odeur et son propre goût. Je sens ton âme comme une partie de moi. Je ressens ton âme. Nous ne faisons qu’un.
 
@@ -20,3 +20,5 @@ Revoilà ces sentiments (sourire). Je ne saurais trop insister sur l’importanc
 Je t’aime aujourd’hui comme toujours.
 
 Ton père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

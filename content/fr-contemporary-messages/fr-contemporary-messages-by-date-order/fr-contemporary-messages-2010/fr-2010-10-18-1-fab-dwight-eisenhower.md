@@ -31,4 +31,5 @@ Réélu en 1956 contre le même Adlai Stevenson, ses deux mandats sont marqués 
 
 Ne pouvant solliciter un troisième mandat, Eisenhower quitte la Maison-Blanche en Janvier 1961. Il se retire dans sa ferme de Gettysburg en Pennsylvanie (devenu depuis le Eisenhower National Historic Site) où il se consacre à la rédaction de ses mémoires. Son successeur sera John Fitzgerald Kennedy. (Source : Wikipédia)
 
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
 

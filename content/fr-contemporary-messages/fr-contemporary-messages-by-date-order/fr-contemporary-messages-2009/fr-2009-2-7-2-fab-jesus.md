@@ -26,3 +26,5 @@ Le Royaume Céleste est constitué des Anges Célestes qui l'habitent, tout comm
 C'est une question, comme on dit en anglais, de sémantique. L'existence du Royaume Céleste est totalement basée sur la possession de l'Amour Divin par les Anges qui l'habitent. Mais ce Royaume est aussi un lieu, et ce lieu préexistait, bien qu'incomplet et dépourvu du souffle de vie qui lui a été fourni par les Anges qui l'ont transformé par l'Amour de leur âme.
 
 Le problème (comme c'est souvent le cas) est la limitation du langage des mortels.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

@@ -39,3 +39,5 @@ Avec amour, Will Rogers.
 <small>
 
 1. <large id="f1"> **William Penn Adair "Will" Rogers** (4 Novembre 1879 - 15 Août 1935) était un comédien, humoriste, artiste de vaudeville et acteur américain. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

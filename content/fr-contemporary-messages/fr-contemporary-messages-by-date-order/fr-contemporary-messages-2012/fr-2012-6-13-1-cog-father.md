@@ -9,7 +9,7 @@ weight:
 ---
 ### Aime-toi d’abord
 
-Père - reçu par Enfant de Dieu le 13 Juin 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 13 Juin 2012.
 
 Mon enfant bien aimé, nous avons parlé du besoin humain d’amour humain et tu étais un peu déconcerté.
 
@@ -22,3 +22,5 @@ Lorsque tu grandiras dans l’amour de toi-même, tes relations humaines deviend
 Tu dois d’abord t’aimer toi-même. Ton amour pour toi-même ne peut être remplacé. Apprends à t’aimer comme je t’aime. Sans limite. Sans conditions. Je t’aime.
 
 Ton Père, toujours.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

@@ -29,3 +29,5 @@ N’oublie pas d’utiliser la clé. Avec mon amour, je suis Pierre, l’un de t
 <small>
 
 1. <large id="f1"> Je n’ai jamais ressenti de proximité ou de connexion avec Pierre dans ses écrits dans la bible. Par conséquent, je n’ai jamais pensé que je recevrais une communication de sa part.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

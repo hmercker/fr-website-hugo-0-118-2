@@ -40,3 +40,5 @@ Seul Dieu ne change pas. Il est la réalité inaltérable et éternelle. Si tu c
 Ainsi en est-il, mon ami. La vision globale est la vision de Dieu. Et notre foi est de la partager. Tu as bien reçu le message. J’aimerais écrire plus sur certains enseignements de vie. Nous nous rencontrerons bientôt à nouveau. Que Dieu te bénisse, ton frère en esprit, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

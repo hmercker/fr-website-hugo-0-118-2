@@ -20,3 +20,5 @@ Je tiens à dire que je crois de tout mon cœur et de toute mon âme à l'Amour 
 De plus, je crois que ce précieux Amour sera le salut de l'humanité.
 
 Que Dieu bénisse tous les enfants de Dieu.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

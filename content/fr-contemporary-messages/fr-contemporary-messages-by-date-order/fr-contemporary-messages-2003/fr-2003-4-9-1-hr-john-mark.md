@@ -73,3 +73,5 @@ Jean Marc.
 1. <large id="f1"> Cela fait référence à la personne qui a posé la question originale, à savoir Geoff Cutler, l'éditeur du site "https://new-birth.net".[↩](#a1)
 
 2. <large id="f2"> L’Auteur : Dans une lettre relative à cette question, j’avais répondu : *« Si je comprends bien, ces gens pensent, par conséquent, que, s’ils sont victimes d’un accident de voiture et sont inconsciemment pris au piège dans leur voiture en flammes, les pompiers doivent attendre qu’ils se réveillent (ou que la voiture explose) pour leur demander s’ils désirent être sauvés ou non ? »*[↩](#a2)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

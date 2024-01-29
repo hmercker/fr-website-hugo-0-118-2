@@ -24,3 +24,6 @@ Nous étions au courant de toutes les tractations en coulisses et des plans secr
 Il y a en effet un plan Divin qui se déroule, mais il est accompagné de résistance, car c'est la nature du processus - avec une plus grande possibilité de lumière vient une plus grande force d'obscurité. Au fil du temps, tout cela deviendra de plus en plus clair. Nous ne pouvons que vous rencontrer là où vous êtes. Mais puisque vous êtes progressifs, cela signifie que nous pouvons vous communiquer la vérité avec plus de précision au fil du temps.
 
 Ne doutez donc pas de votre don de canalisation, et ne doutez pas que nous sommes juste à côté de vous pour vous guider et vous protéger.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+

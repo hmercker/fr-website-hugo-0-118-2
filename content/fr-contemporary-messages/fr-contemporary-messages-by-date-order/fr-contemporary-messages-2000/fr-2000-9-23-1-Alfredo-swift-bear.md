@@ -32,3 +32,6 @@ Luttons pour oublier la complainte, pour éliminer ce mot de notre vocabulaire, 
 Que Dieu vous bénisse.
 
 Swift Bear.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

@@ -50,3 +50,5 @@ Et *« tendre l’autre joue »* est la meilleure façon d’illustrer la puissa
 Donner de l’amour, pardonner aux autres, faire preuve d’acceptation, de tolérance, de paix, etc., contribuera davantage à faire accepter vos méthodes que toutes les défenses que vous pourriez subir.
 
 J’ai le sentiment d’avoir suffisamment couvert les sujets pour que mes arguments soient clairs. Je prie pour que ceux qui cherchent la vérité soient capables de voir la validité de ce que j’ai écrit. Je vous laisse maintenant avec mes bénédictions et vous remercie de m’avoir permis de transmettre mes pensées à travers vous ce matin. Je suis un adepte des enseignements de Jésus et un esprit Céleste élevé. Amen.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

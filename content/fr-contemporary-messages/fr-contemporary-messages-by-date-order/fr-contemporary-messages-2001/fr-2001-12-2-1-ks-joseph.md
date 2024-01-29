@@ -50,3 +50,5 @@ Je vous laisse maintenant avec mes bénédictions, et je vous remercie de m’av
 Nous pensons que l’essentiel du message est important pour que vous appreniez à l’appliquer dans vos efforts pour construire le Royaume de l’Amour sur cette terre : Faites de votre mieux, étendez votre amour, ayez foi en la bonté de vos désirs, ayez confiance dans le fonctionnement des lois de Dieu pour obtenir un résultat harmonieux, et ne cessez jamais de prier pour obtenir l’Amour et la guidance.
 
 Nous sommes là pour vous. Soyez là pour vous-mêmes en faisant confiance à votre propre bonté divine. Dieu vous bénit chaque jour, et nous veillons sur vous et vous guidons autant que vous nous le permettez.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

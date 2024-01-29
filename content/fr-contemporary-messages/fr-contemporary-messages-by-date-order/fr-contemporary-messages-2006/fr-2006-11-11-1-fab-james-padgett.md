@@ -38,3 +38,5 @@ D’une part, je n’aurais pas pu réussir à transmettre les messages si je m�
 Je vais conclure pour le moment. Dans les prochains messages, je développerai d’autres aspects de ma vie.
 
 Permettez-moi également de dire que, de toute évidence, il n’était pas nécessaire que je joue un rôle important de célébrité et d’exposition au monde. Je suis mort, comme vous le dites, dans la discrétion. Mais la chose la plus importante à garder à l’esprit est que ce que j’ai canalisé appartient exclusivement au Royaume Céleste. Je n’étais qu’un simple porte-parole. Ce n’était donc pas du tout une expérience « Padgett ».
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

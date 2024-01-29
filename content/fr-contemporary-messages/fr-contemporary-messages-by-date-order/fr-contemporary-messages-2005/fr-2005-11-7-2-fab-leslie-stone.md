@@ -20,3 +20,5 @@ C'est ainsi qu'au moment de ma mort, après une longue vie de travail dans les v
 Restez fidèle à votre objectif, et vous verrez la Providence du Seigneur se manifester de telle manière que personne ne doutera que Dieu est un Dieu de Puissance et d'Amour.
 
 Amour, Leslie.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

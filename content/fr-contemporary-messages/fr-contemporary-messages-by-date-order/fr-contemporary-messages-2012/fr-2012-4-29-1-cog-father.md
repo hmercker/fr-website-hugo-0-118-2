@@ -9,7 +9,7 @@ weight:
 ---
 ### Rêver du rêve impossible
 
-Père - reçu par Enfant de Dieu le 29 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 29 Avril 2012.
 
 Mon enfant bien aimé, je suis ravi que nous soyons à nouveau réunis ici. Aujourd’hui, nous allons parler de rêver le rêve impossible.
 
@@ -20,3 +20,5 @@ Parler avec moi, c’est comme rêver. Tu ne peux créer notre relation et commu
 Quel genre de Père serais-je si je n’étais pas disponible pour mes enfants ? Tu sais que je suis ton Père aimant. Lorsque tu pries de tout ton cœur, je te sens et nous pouvons parler. Si ton désir est de communiquer, nous le ferons. Ne limite jamais tes rêves par tes pensées. Ose rêver et rêve haut.
 
 Je t’aime comme toujours, ton père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

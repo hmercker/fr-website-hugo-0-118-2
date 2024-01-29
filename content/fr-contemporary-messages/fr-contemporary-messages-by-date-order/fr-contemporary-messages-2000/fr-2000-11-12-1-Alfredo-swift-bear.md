@@ -36,3 +36,6 @@ Ainsi, nous réalisons quelque chose de fondamental, en obtenant une relation é
 Que Dieu vous couvre de riches bénédictions dans son amour infini.
 
 De la part de votre frère Swift Bear.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

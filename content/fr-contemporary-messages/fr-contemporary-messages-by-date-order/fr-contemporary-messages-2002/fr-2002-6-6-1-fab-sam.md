@@ -42,3 +42,5 @@ En grandissant dans la réalité céleste, vous découvrirez de nombreuses chose
 Vous êtes venus non seulement pour travailler et partager avec dévouement, mais aussi parce que chacun d'entre vous désire comprendre pourquoi sa vie respective a évolué de la sorte. Lorsque vous rentrerez chez vous, soyez assurés qu'il y aura une aide abondante pour soutenir vos efforts visant à comprendre vos vies et le rôle que les forces extérieures ont joué dans la création de la personne que vous êtes aujourd'hui. En attendant, emportez chez vous les cadeaux que vous avez reçus ici et sachez que nous serons toujours avec vous pour vous aider à vous ressaisir et à guérir.
 
 Nous vous remercions pour votre amour et votre dévouement. Si vous pouviez mieux comprendre à quel point nous vous aimons, vous vous rapprocheriez de la venue des Cieux Célestes sur terre, car c'est alors que la transformation que vous recherchez s'accomplira.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

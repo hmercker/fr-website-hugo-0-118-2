@@ -23,4 +23,6 @@ Vous voyez donc que ce que vous faites en réalité, c’est vous canaliser vous
 
 Il n’y a donc rien de complexe. C’est de la simple logique et cela peut être compris par l’esprit le plus simple. Merci mon cher ami de m’avoir permis de vous délivrer ce petit message mais j’ai vu que cela vous ferait du bien, ainsi qu’à beaucoup d’autres personnes, d’avoir quelques clarifications sur le sujet.
 
-Ton ami, Joseph.
+Votre ami, Joseph.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

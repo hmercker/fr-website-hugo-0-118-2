@@ -26,3 +26,5 @@ J’avais vécu sur terre de nombreux moments merveilleux de communion avec Dieu
 Comme j’étais le leader de ma famille sur terre, je les ai encouragés à me suivre en esprit. Ils avaient aussi été curieux, mais j’étais plus avancé et j’avais une compréhension plus profonde de cette réalité.
 
 Finalement, chacun de mes frères et ma sœur ont trouvé leur chemin vers les Cieux Célestes. Mon père Jacob a également connu la Nouvelle Naissance. Vous recevrez bientôt un message de sa part.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

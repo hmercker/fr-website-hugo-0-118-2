@@ -28,3 +28,5 @@ Je fais cette remarque pour vous aider à comprendre l’importance de chacun de
 Je ne suis aussi que votre frère, et je suis heureux de la relation personnelle que chacun de vous entretient avec moi et avec d’autres qui m’ont accompagné dans ces sphères d’amour.
 
 Je vous aime, ma famille. Je suis toujours avec vous dans les moments difficiles, et je vous soutiens avec ma foi que rien ne pourra séparer nos âmes les unes des autres, car nous sommes unis dans la vie éternelle par l’Amour de Dieu. Je suis votre ami et votre compagnon dans le Christ, Jésus.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

@@ -32,3 +32,5 @@ Il est passionnant de voir les autres découvrir la vérité - vous célébrez l
 Merci, ma chère sœur, d'avoir pris ce temps. Je suis avec vous, ainsi que Marie, et nous vous aimons tous.
 
 Jean le Bien-Aimé.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

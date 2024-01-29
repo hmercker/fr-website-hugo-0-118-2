@@ -63,3 +63,5 @@ Votre ami Céleste, Judas.
 <small>
 
 1. <large id="f1"> Un message reçu par le Dr. Samuels le 17 Mai 1955. Ce message confirme simplement le mois de Mars. Mais un [second message](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/) reçu le 20 Décembre 1954 indique l’année 29.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

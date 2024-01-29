@@ -44,3 +44,6 @@ Ce genre de carton de couleur grenat, était un symbole de billets de voyage, et
 *[La pensée d’Alfredo : Peut-être que la couleur grenat est semblable au sang, peut-être qu’il voulait me dire que pendant son voyage il a trouvé la mort, mais c’est juste une opinion personnelle.]*
 
 Quant au stylo, il devait faire des papiers importants. Déguster un verre, en regardant les gens passer, symbolise qu’il aimait méditer, et qu’il aimait connaître les gens à fond. Il ne faisait pas un pas sans être sûr. Je peux te dire qu’il y a d’autres caractéristiques, qui étaient simplement l’objet de tes propres pensées mêlées à celles des deux esprits.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

@@ -18,3 +18,5 @@ Ma relation avec Dieu était si forte qu'elle éclipsait toutes les préoccupati
 Et lorsque j'étais suspendu à la croix, le corps torturé par la douleur, j'étais encore capable de maintenir cette joie. Oui, c'est vrai, et cette joie m'a permis d'y faire face, et comme je vous l'ai déjà dit, ma foi en Dieu s'est renforcée à ce moment-là. Je savais que j'approchais de ma fin, et je savais que les plus grandes joies et les plus grands plaisirs m'attendaient.
 
 C'est donc dans ce sens que j'ai béni ma situation tragique, et pas du tout dans le sens d'embrasser un type de mort qui n'était pas du tout en harmonie avec les intentions de Dieu pour ma vie.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

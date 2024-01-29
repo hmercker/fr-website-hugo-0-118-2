@@ -9,11 +9,11 @@ weight:
 ---
 ### Comment corriger un péché ?
 
-Père - reçu par Enfant de Dieu le 28 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 28 Avril 2012.
 
 Mon enfant bien-aimé, comment corriger un péché ?
 
-Comme je te l’ai dit hier, tu dois d’abord reconnaître que tu as péché, et sentir dans ton cœur que tu as agi sans amour, puis demander Mon amour et Mon pardon. Je ne te laisserai jamais tomber.
+[Comme je te l’ai dit hier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-27-2-cog-father/), tu dois d’abord reconnaître que tu as péché, et sentir dans ton cœur que tu as agi sans amour, puis demander Mon amour et Mon pardon. Je ne te laisserai jamais tomber.
 
 Lorsque nous parlions des dix commandements il y a quelques jours, nous parlions d’une époque de l’histoire de l’humanité où les gens n’avaient pas l’amour dans leur âme, et où leurs actions ne pouvaient pas être corrigées par leurs sentiments d’une mauvaise action. Les dix commandements sont apparus pour apprendre aux gens à ne pas agir sans amour envers leurs semblables.
 
@@ -24,3 +24,5 @@ Maintenant, cet Amour Divin est disponible pour tous les humains et si vous suiv
 L’amour est simple. Ne le complique pas (sourire).
 
 Ton Père aimant.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

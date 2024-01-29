@@ -18,3 +18,5 @@ Vous m'avez canalisé correctement dans [mon message du 12 Janvier 2007](/fr-con
 Comme je l'ai dit sur terre, la violence ne fait qu'engendrer plus de violence, et j'ai été affligé de voir que tant de gens considéraient la violence comme une alternative plus viable.
 
 Vous avez maintenant dans notre pays ceux qui ont appris leur leçon, de sorte qu'au moment opportun, l'histoire donnera raison à mon message. Je sais que cela vous semble faux et irréaliste, car il y a beaucoup d'Américains qui battent les tambours de la guerre. Mais beaucoup ne le font pas. C'est une question de justice, et le Créateur aura son mot à dire.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

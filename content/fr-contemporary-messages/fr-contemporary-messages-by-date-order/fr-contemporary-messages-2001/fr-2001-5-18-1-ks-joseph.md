@@ -40,3 +40,5 @@ Tant que vous attendez d’une autre personne qu’elle vous apporte le bonheur 
 Je vous laisse maintenant avec mes bénédictions pour une journée harmonieuse. Donnez votre amour dans chaque pensée et chaque acte. Sachez que Dieu vous aime au-delà de toute mesure et que lorsque vous puiserez dans son grand amour, votre vie sera grandement transformée. Cela dépend entièrement de vous et de vos choix de libre arbitre.
 
 Que Dieu vous bénisse et vous garde dans les bras protecteurs de l’amour. Je suis ton ami et gardien, Joseph, le père de Jésus – le père terrestre ; Dieu est le Père de nos âmes, Celui que nous devons vénérer afin de réaliser notre potentiel spirituel. Je suis un véritable adepte des enseignements de Jésus et je suis né de nouveau dans la Grâce de l’Amour de Dieu.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

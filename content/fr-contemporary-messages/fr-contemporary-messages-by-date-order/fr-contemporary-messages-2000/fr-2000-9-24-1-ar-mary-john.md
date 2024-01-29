@@ -39,3 +39,6 @@ Je suis Marie et je suis une disciple dévouée de mon fils, Jésus, et je suis 
 <small>
 
 1. <large id="f1"> Ce message a une saveur assez différente d’un [autre reçu à peu près en même temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-4-1-ks-andrew/), mais par un autre médium.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

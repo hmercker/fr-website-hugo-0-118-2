@@ -44,3 +44,5 @@ Sur ces belles paroles, je vais te dire au revoir. Ce fut un thème intéressant
 Merci pour le temps que tu m’as accordé et de m’avoir donné l’occasion d’exprimer mes pensées, ton frère dans l’esprit, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

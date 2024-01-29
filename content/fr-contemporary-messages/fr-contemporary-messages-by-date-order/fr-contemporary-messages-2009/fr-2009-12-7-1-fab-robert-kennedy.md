@@ -30,3 +30,5 @@ Robert Kennedy | [Robert Kennedy dans le monde des esprits](/fr-contemporary-mes
 Robert Kennedy | [Plus sur Robert Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-2-fab-robert-kennedy/) | 7 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-1-fab-robert-kennedy/) | 8 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-2-fab-robert-kennedy/) | 8 Décembre 2009
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

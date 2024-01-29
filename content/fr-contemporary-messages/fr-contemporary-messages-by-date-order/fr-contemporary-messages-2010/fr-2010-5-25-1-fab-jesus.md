@@ -22,3 +22,5 @@ En dernière analyse, tout dépend des choix qui sont faits, et quelle que soit 
 La capacité de résister au mal et à la tentation est à la portée de tous. Si l'occasion n'est pas saisie, l'individu ne peut s'en prendre qu'à lui-même. Et même s'il y a une chute, il y a toujours la possibilité de se repentir et de tenter de se racheter, ce qui implique également des choix.
 
 Cela signifie que le caractère que nous possédons est le résultat de ces choix, et que ce caractère défini détermine notre sort immédiat dans le monde des esprits après que la mort soit survenue.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

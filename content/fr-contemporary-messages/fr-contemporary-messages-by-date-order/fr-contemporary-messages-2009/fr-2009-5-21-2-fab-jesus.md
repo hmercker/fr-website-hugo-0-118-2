@@ -24,3 +24,5 @@ La Bible en est pleinement consciente. Ainsi, nous lisons dans ses livres des de
 Et c'est bien normal, car les vies des êtres humains se croisent d'innombrables façons. Il est même possible de dire que ces influences définissent une vie, car elles appellent des réponses qui façonnent l'âme individuelle. Et tandis que ces forces sociales, politiques et économiques tourbillonnent autour de l'individu, le voyage de la vie prend sa forme, au fur et à mesure que l'individu réagit. Et nous sommes toujours en train de guider l'âme sincère qui cherche à être guidée par rapport à ces forces.
 
 Et toujours, planant au-dessus du plan terrestre, se trouve le Créateur aimant, qui se soucie avant tout du bien-être spirituel de ses enfants.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

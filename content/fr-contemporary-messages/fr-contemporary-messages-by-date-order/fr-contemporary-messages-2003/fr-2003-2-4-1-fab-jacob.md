@@ -28,3 +28,5 @@ Et j’ai continué à vivre. Uni à mon père Isaac et à ma mère Rebecca, à 
 Voilà, c’est tout pour le moment. Je suis heureux de la façon dont vous avez reçu ce message. Sachez que de nombreux messages futurs que nous canaliserons seront d’un grand intérêt pour les mortels.
 
 Sincèrement, Jacob.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

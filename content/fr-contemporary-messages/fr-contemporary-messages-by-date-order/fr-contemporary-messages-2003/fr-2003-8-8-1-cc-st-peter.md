@@ -23,3 +23,5 @@ N’oublie donc pas d’être joyeux et sache que Dieu t’aime et que tous Ses 
 <small>
 
 1. <large id="f1"> Après avoir lu ce message pour moi-même, je crois qu’il a utilisé « talents » à la place de « pièces d’or », faisant ainsi allusion à une parabole de la bible.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

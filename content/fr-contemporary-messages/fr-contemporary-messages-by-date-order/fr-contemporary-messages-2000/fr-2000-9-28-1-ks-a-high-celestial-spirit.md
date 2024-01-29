@@ -44,3 +44,6 @@ Un jour, ils décideront qu’ils sont fatigués de se battre et que vivre en pa
 J’espère que vous pourrez trouver dans ce message une réponse satisfaisante à votre question. Nous guidons et influençons l’humanité depuis de nombreux siècles, nous efforçant d’instiller un désir de paix dans leur cœur. Mais pour que notre influence se fasse sentir, et avant qu’elle ne soit efficace, les âmes doivent vouloir changer, et être prêtes à reconnaître que certaines des choses auxquelles elles ont cru sont incorrectes, que leurs attitudes sont négatives et doivent être inversées.
 
 C’est à vous, chaque âme individuelle, de développer une relation significative avec Dieu et de vous amener dans le domaine de la vérité spirituelle, où vous vous réjouirez dans la plénitude et l’amour. Je vous laisse avec mes bénédictions. Je suis un esprit Céleste élevé.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

@@ -53,3 +53,5 @@ Amour, David Ben-Gurion.
 <small>
 
 1. <large id="f1"> **David Ben-Gourion** (16 Octobre 1886 – 1er Décembre 1973) a été le premier premier ministre d’Israël. (Source : Wikipedia.) [Un message plus récent peut-être trouvé ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/).[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

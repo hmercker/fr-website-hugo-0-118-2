@@ -44,3 +44,6 @@ Aussi, je vous assure que Jean-Paul est ici avec vous aussi, et qu’il est une 
 Je vous laisse maintenant, en espérant que cela suffise comme mot pour vous, nos chers frères et sœurs de la terre. Nous vous aimons et vous soutenons chaque jour. Puissiez-vous trouver la paix et le bonheur dans votre foi en cet Amour immortel, qui est vraiment votre possession et votre grâce salvatrice.
 
 Je suis Leslie Stone… comme je suis James Padgett… et nous vous souhaitons une bonne journée.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

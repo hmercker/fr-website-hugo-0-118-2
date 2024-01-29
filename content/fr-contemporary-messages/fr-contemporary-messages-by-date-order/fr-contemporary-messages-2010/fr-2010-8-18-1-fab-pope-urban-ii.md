@@ -20,3 +20,5 @@ Et puis, au milieu de mes pensées, un Arabe qui avait été tué lors de la pre
 Je sais qu’il vous est difficile de comprendre comment un important chef d’église a pu violer directement le grand enseignement de Jésus, qui consiste à aimer ses ennemis, mais c’est ainsi que nous pensions. Nous ne l’avons pas vu avec la clarté du temps et du recul. Nous avons seulement réagi aux exigences du moment.
 
 Mais tout cela est du passé. Je souhaite vous donner une parole de réconfort quant à la situation actuelle. Dieu est fidèle, et Il aidera l’humanité de manière indéniable, comme Il l’a promis.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

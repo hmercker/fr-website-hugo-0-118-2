@@ -41,3 +41,5 @@ Sincèrement, Henry James, père.
 2. <large id="f2"> Dans le message mentionné ci-dessus, Swedenborg est assez dur envers lui-même, semble-t-il. Dans [ce sous-menu](/fr-james-padgett-messages/1-15-fr-messages-concerning-swedenborg/) sont répertoriés tous les messages concernant Swedenborg, et si l’on étudiait ses œuvres, on y trouverait sans doute aussi une part de vérité, ainsi que des erreurs. Comme le médium était préoccupé par l’exactitude du message qu’il avait reçu, il a demandé des éclaircissements. [C’est ce qu’il a reçu dans ce message de Jésus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-17-1-fab-jesus/)[↩](#a2)
 
 3. <large id="f3"> Malheureusement, cela ne s’est jamais produit.[↩](#a3)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

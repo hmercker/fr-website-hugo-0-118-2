@@ -44,3 +44,5 @@ Car lorsque l'âme est guérie et transformée en une nouvelle création, l'espr
 Nous serons toujours là pour vous aider, pour prier avec vous, lorsque vous nous y inviterez. Pour vous protéger des esprits négatifs, si vous désirez cette protection. Mais comme vous le voyez, c'est vous qui décidez ; nous ne pouvons pas interférer avec votre libre arbitre et vous imposer notre amour et notre protection si vous ne le demandez pas.
 
 Je vous laisse maintenant avec mes bénédictions, et je dirai que j'ai apprécié l'opportunité d'écrire à travers vous aujourd'hui. Je suis votre ami et gardien de longue date, André l'Apôtre de Jésus, et même si j'écris rarement, je ne suis jamais loin de votre appel. Je vous aime, et je continuerai à veiller sur vous jusqu'à la fin de votre vie sur terre. Je suis un véritable adepte des enseignements de notre Maître, qui est Jésus, et Maître des Cieux Célestes.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

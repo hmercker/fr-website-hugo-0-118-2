@@ -34,3 +34,5 @@ Alors j’ai commencé à prier pour l’Amour. Quand je l’ai senti pour la pr
 La pièce manquante était ainsi fournie, et j’ai senti un accomplissement que je n’avais jamais connu auparavant. Et mon bonheur est devenu beaucoup plus profond.
 
 Ainsi, j’ai brièvement décrit mon parcours vers la voie Divine. Ce fut un chemin très facile pour moi de suivre, parce que je me suis rendu compte, rétrospectivement, que Dieu m’avait préparé pour cela par mes expériences de vie et par ma personnalité.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

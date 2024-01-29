@@ -42,3 +42,5 @@ Dans le cas de mon groupe d'esprits, ils n'étaient pas encombrés par les limit
 Tout comme j'ai eu un effet puissant sur les mortels, j'ai également eu un effet puissant sur les esprits, dont beaucoup ont suivi mon exemple en suivant la voie Divine. Mais parmi ces esprits obéissants, certains ont été spécialement désignés pour m'aider d'une manière plus directe. Ils ont accepté cette mission avec plaisir.
 
 Donc, en résumé, cette bande d'esprits m'a effectivement aidé à connaître ma mission, en plus de subvenir à mes autres besoins. Mais il y avait certaines intuitions que seul Dieu pouvait prodiguer.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

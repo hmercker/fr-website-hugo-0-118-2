@@ -70,4 +70,6 @@ Ton frère en Christ, Judas.
 © Geoff Cutler 2013
 <small>
 
-1. <large id="f1"> *[H: Min (pluriel minim) indique « hérétique », c’est-à-dire le Juif qui s’était converti au Christianisme ou à une forme de Gnosticisme Juif. On les appelait « minim » parce qu’ils étaient toujours considérés comme Juifs, mais des Juifs aberrants. Le texte de  Shemone Esre Berakot (18 bénédictions, qui sont en fait 19, grâce à l’ajout de la soi-disant Birkat ha Minim : la bénédiction des hérétiques, qui est en fait une malédiction) : « Que les Nazaréens (Chrétiens) et les minim (hérétiques) disparaissent en un clin d’œil. »]*[↩](#a1)
+1. <large id="f1"> H: Min (pluriel minim) indique « hérétique », c’est-à-dire le Juif qui s’était converti au Christianisme ou à une forme de Gnosticisme Juif. On les appelait « minim » parce qu’ils étaient toujours considérés comme Juifs, mais des Juifs aberrants. Le texte de  Shemone Esre Berakot (18 bénédictions, qui sont en fait 19, grâce à l’ajout de la soi-disant Birkat ha Minim : la bénédiction des hérétiques, qui est en fait une malédiction) : *« Que les Nazaréens (Chrétiens) et les minim (hérétiques) disparaissent en un clin d’œil. »*[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

@@ -14,3 +14,5 @@ Jésus - reçu par FAB le 6 Novembre 2011, Santa Cruz, Californie, USA.
 C’est moi, Jésus.
 
 Ce que nous avons dit par l’intermédiaire de M. Padgett, nous vous l’avons dit maintes fois, et nous le répétons aujourd’hui : nous formons une armée puissante contre les forces des ténèbres, et nous réussirons. Rien ne peut nous résister.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)

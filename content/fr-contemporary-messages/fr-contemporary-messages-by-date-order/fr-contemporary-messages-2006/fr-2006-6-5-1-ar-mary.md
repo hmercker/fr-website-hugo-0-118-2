@@ -24,3 +24,5 @@ La foi est donc l'activité qui découle de cet amour et qui met en œuvre la pl
 Si vous pouvez faire confiance à l'Amour Divin pour ouvrir vos yeux et voir ce que vous pouvez faire, faites le saut supplémentaire pour savoir que vous pouvez le faire. Laissez faire l'amour - il sait déjà ce qu'il faut faire - et regardez toutes les pièces se mettre en place lorsque vous exercez votre amour et votre foi. La main de Dieu est là ; les lois se plieront à la loi suprême de l'amour.
 
 Merci, ma chère sœur. Tu n'es pas seule. Je suis Marie, et ta gardienne dans l'Amour Divin.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

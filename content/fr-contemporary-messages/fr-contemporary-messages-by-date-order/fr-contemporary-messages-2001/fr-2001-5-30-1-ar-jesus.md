@@ -36,3 +36,5 @@ Laissez vos âmes vous guider maintenant pour répondre à vos questions, car ch
 Je suis avec vous. Ne doutez pas, mes chers frères et sœurs. Vous n'êtes jamais seuls. Vous trouverez la réponse, et il sera clair pour vous quelle est la meilleure ligne de conduite pour vous et votre famille en Christ. Nous sommes un seul corps, un seul esprit et un seul cœur dans l'amour divin. Vous pouvez en être sûr.
 
 Je suis votre ami et votre frère qui vous aime tendrement et prie Dieu pour votre réveil spirituel et votre renaissance dans l'Amour, Jésus.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

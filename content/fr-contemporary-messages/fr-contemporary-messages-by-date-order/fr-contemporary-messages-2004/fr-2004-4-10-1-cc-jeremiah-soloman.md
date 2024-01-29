@@ -36,3 +36,5 @@ Souvent, vous sentez la « puissance » (joie et force spirituelles) vous quitte
 C’est pourquoi l’altruisme vous rend fort en esprit. C’est la loi. Donner, c’est recevoir. C’est la vie. C’est la lumière qui brille avec éclat. Alors donnez votre amour, manifestez votre amour. Ne vous inquiétez pas si c’est naturel ou divin. Donnez de votre essence. Vous demandez l’amour à Dieu. Il ne peut vous donner que de Sa Substance. Il ne peut pas vous donner l’amour créé. Vous le possédez déjà. Alors donnez de vous-même, donnez de votre essence.
 
 Je suis Jérémie de l’Ancien Testament et un disciple de Jésus le Nazaréen. Et je suis votre ami et votre tuteur Salomon.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

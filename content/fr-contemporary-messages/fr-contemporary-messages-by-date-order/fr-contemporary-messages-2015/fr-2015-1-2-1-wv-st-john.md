@@ -39,7 +39,7 @@ Oui, bien entendu, l’Amour Divin (en soi) est assez puissant pour surmonter to
 
 Que les gens ne font pas les choses que le Père veut vraiment. Ils font les choses, qu’ils « pensent » que le Père veut et espèrent recevoir une récompense. Et bien qu’ils récolteront des avantages de chaque acte affectueux qu’ils font, ils ne recevront jamais ce qu’ils ont vraiment besoin à cause de leurs propres attentes et limites. Si tu donnes sous certaines conditions, tu recevras sous certaines conditions ; et tu ne verras pas (ni ne recevras) tout le reste des avantages qui viennent à ta rencontre. Mais quand tu donnes inconditionnellement, tu reçois  inconditionnellement ; ce qui signifie que tu ne mets aucune limite ou attente sur ce que tu donnes et donc qu’il n’y aura pas de limites à ce qui va te revenir ; et tout (dont tu as vraiment besoin) a la capacité de venir à ta rencontre car tu n’es pas focalisé à recevoir quelque chose en retour.
 
-Beaucoup croient qu’ils ont « la foi », en fait ils ont plutôt « des croyances. » La Foi est du domaine de l’âme ; c’est savoir que le Père fera tout en son pouvoir pour fournir et laissant le quoi, quand et où ouvert pour que Lui puisse les remplir. La croyance est du domaine du mental ; c’est penser que tu connais ce dont tu as besoin en remplissant toi-même le quoi, quand et où. Et la difficulté pour la plupart des gens dans tout ce processus est : leur esprit bloque les cordons de leur âme. C’est pourquoi il est si important de ramener l’esprit en harmonie.
+**Beaucoup croient qu’ils ont « la foi », en fait ils ont plutôt « des croyances. » La Foi est du domaine de l’âme ;** c’est savoir que le Père fera tout en son pouvoir pour fournir et laissant le quoi, quand et où ouvert pour que Lui puisse les remplir. **La croyance est du domaine du mental ;** c’est penser que tu connais ce dont tu as besoin en remplissant toi-même le quoi, quand et où. Et la difficulté pour la plupart des gens dans tout ce processus est : leur esprit bloque les cordons de leur âme. C’est pourquoi il est si important de ramener l’esprit en harmonie.
 
 Cela nous amène au point où nous avons répété la différence entre l’âme et l’esprit (ou le mental), la volonté et le libre arbitre, etc. plus que nécessaire et nous voyons et sentons que tu es prêt à recevoir plus d’informations sur « les émotions ». Ne t’inquiète pas. Ce n’est pas compliqué. Toi (et les autres) vont voir et embrasser la simplicité de ce que nous sommes sur le point de transmettre.
 
@@ -71,7 +71,7 @@ Parce que …
 
 Parfait !
 
-Maintenant, je vois déjà que tu penses à la question suivante : « Si les émotions négatives sont le résultat de l’absence de l’énergie de l’amour, comment se fait-il, que nous puissions les sentir ? (Puisque qu’elles sont le résultat de l’absence d’énergie.) »
+Maintenant, je vois déjà que tu penses à la question suivante : *« Si les émotions négatives sont le résultat de l’absence de l’énergie de l’amour, comment se fait-il, que nous puissions les sentir ? (Puisque qu’elles sont le résultat de l’absence d’énergie.) »*
 
 Parce que chaque acte (ou pensée) crée une quantité d’énergie ; et c’est cette énergie qui se traduira par quelque chose de physiquement et spirituellement détectable ou palpable. Et quand l’esprit prend la décision d’agir selon les règles de l’amour, l’énergie d’amour pourra s’écouler et être présente dans cette création. Mais si l’esprit prend une décision d’agir non conformément aux règles de l’amour, seule l’énergie créée par le mental lui-même sera présente et fera sentir l’absence de l’énergie de l’amour ; parce que le mental est capable de bloquer la circulation vers et à partir de l’âme, donc agissant en dehors de la portée de l’amour et créant l’énergie manquant de l’énergie de l’amour : ce qui signifie sans amour ou énergie négative.
 
@@ -100,3 +100,5 @@ Nous savons. Mais la patience est nécessaire parce que l’esprit humain a beso
 Mais j’ai peur que je doive arrêter maintenant. S’il te plaît, reste ouvert d’esprit [afin que nous puissions continuer à t’aider (et les autres) afin de mieux comprendre ces choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-1-19-1-wv-st-john/).
 
 Avec mon amour pour toi, Jean.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)

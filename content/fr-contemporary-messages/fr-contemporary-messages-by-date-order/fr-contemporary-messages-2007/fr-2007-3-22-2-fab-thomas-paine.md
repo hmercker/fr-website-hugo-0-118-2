@@ -30,3 +30,5 @@ Mais la vérité est qu’en raison des conséquences de mes actes, et du fait q
 J’ai ajouté qu’indépendamment de la façon dont ils sont arrivés là, le fait est que les colons ont pu mettre en place une Constitution et un gouvernement inhabituels et extraordinaires dans l’histoire des mortels. La guerre, comme toutes les guerres, était un méli-mélo de motifs, de haine pécheresse et de nobles idéaux, de conviction et de trahison. Le résultat direct de ce fatras a été la Constitution et la Déclaration des droits, qui n’ont pas été entachées par les impuretés et les péchés de la guerre. Et ce, parce que le Créateur y a participé.
 
 J’espère donc avoir clarifié le fait que je ne souhaitais en aucun cas excuser la violence dans mon message précédent. Je faisais simplement remarquer que le nouveau gouvernement américain lui-même était une chose à part, entièrement séparée de l’ambivalence et des horreurs de la guerre qui l’a précédé.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

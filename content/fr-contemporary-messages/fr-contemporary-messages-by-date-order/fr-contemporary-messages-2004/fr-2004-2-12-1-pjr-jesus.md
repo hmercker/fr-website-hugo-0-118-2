@@ -58,3 +58,5 @@ Vous ne l'avez perdue ; vous avez simplement été trop éprouvée pour vous lai
 Je vous laisse maintenant, à contrecœur, mais votre vie de mortel est dans un train pour le travail et cela au service du Père. Vous pouvez aussi en faire une partie de votre quête.
 
 Jusqu'à ce que nous nous asseyions et plions nos efforts ensemble à nouveau sur ce sujet ou sur tout autre, je suis votre ami et votre professeur, Jésus que tu connais par la Bible.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

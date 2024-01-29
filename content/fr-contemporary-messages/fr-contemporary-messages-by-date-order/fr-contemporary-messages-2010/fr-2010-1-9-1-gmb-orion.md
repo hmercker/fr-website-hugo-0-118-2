@@ -29,3 +29,5 @@ Orion : « Merci Chef Bzutu. Me voici Orion. C’est en vertu de votre statut de
 1. <large id="f1"> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est assez différent, du fait qu’il parle presque exclusivement à des êtres angéliques, par opposition à des ex-mortels. Néanmoins, ce message est tout à fait compréhensible.[↩](#a1)
 
 2. <large id="f2"> Ce sujet  a été particulièrement développé dans un autre texte accessible [par ce lien](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).[↩](#a2)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

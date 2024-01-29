@@ -86,3 +86,5 @@ Eh bien, H____ , je vais te dire au revoir. J’étends mes bénédictions à to
 Ton frère en esprit, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -30,3 +30,5 @@ J'ai le sentiment d'avoir bien souligné le point que j'espérais faire passer d
 Que Dieu vous bénisse et vous garde en sécurité. Je reviendrai vous écrire lorsque vous en aurez l'occasion. Nous restons avec vous en esprit, toujours diligents, veillant sur vous et vous guidant pour réaliser vos désirs de servir Dieu de la meilleure façon possible.
 
 Nous vous aimons au-delà de toute mesure, et nous prions avec vous lorsque vous nous y invitez. Votre frère en Christ, Jésus de la Bible et Maître des Cieux Célestes.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

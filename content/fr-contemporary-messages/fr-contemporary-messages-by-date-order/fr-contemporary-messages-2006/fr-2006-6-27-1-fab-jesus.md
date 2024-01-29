@@ -21,3 +21,5 @@ Vous avez raison de penser que les messages de James Padgett ne peuvent pas êtr
 <small>
 
 1. <large id="f1"> Pour ajouter aux problèmes, nous attirons beaucoup de personnes, mais elles préfèrent marcher seules. Elles ne participent pas aux différentes retraites et ne s'expriment pas non plus  sur les forums de messages. Nous devons donc faire face à un problème encore plus grand - celui de créer un groupe cohésif suffisamment grand et prêt à assumer une vision et un projet uniques. (Geoff Cutler)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

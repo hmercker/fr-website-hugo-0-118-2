@@ -100,3 +100,5 @@ Je te remercie pour ton temps et ton intérêt, et j’espère que tu me donnera
 Avec beaucoup d’amour, Judas Iscariote.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

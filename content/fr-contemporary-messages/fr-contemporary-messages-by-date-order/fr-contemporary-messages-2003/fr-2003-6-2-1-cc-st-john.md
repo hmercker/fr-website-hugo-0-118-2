@@ -22,3 +22,5 @@ Les perceptions s’élargissent et tu commences à voir les choses d’un point
 Mais tu dois avoir confiance. C’est comme allumer la lumière verte pour que l’amour entre dans ton âme. Je sais que tu as lu que la foi et la confiance vont de pair. La foi, c’est savoir que la confiance t’apportera les bénédictions dont tu as le plus besoin. Lorsque tu doutes, tu peux facilement voir combien tu as besoin, bien que tu ne saches pas tous les détails de ce que cela pourrait être. Mais demande-toi s’il est plus raisonnable de choisir une porte qui ne te couvre pas de bénédictions. Vois-tu que les portes les moins favorables t’ont laissé vide ?
 
 Et pourtant, ces portes moins favorables sont utilisées. Choisis de faire confiance et ferme les portes du doute. L’inquiétude est ta récompense pour avoir douté. Quelle porte choisir, quand les résultats sont connus ?
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

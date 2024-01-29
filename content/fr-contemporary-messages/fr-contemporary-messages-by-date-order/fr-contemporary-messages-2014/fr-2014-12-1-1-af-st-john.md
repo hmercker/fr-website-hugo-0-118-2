@@ -22,3 +22,5 @@ En effet, c’est votre défi de vous aimer vous-mêmes et, ce faisant, d’aime
 Il y aura un moment dans votre vie où ce sera la motivation et la conscience prédominantes en vous ; les désirs de vos âmes et de connaître la Volonté de Dieu et pour ce canal d’amour en vous d’être une rivière puissante coulant à travers vous vers le monde. C’est le pouvoir de l’Amour de Dieu. C’est la guérison de l’Amour de Dieu. C’est la sagesse de l’Amour de Dieu. Et c’est la vérité qui brûle en vous qui fera disparaître tous les obstacles, les doutes et les perceptions déformées. Soyez bénis, mes bien-aimés, soyez bénis. Je suis Jean et je vous aime. Je vous aime.
 
 Buvez profondément, mes enfants, car l’Amour de Dieu se déverse sur vous en grande abondance en ce moment. Buvez profondément, ouvrez grand et acceptez ce cadeau afin qu’il puisse rapprocher votre âme de Dieu.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

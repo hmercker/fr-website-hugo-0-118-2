@@ -9,7 +9,7 @@ weight:
 ---
 ### Gardez votre foi en moi
 
-Le Père - reçu par Michael le 14 Février 2013.
+Le Père Céleste - reçu par Michael le 14 Février 2013.
 
 *[Michael : Père j’ai vraiment besoin de ton aide, de ton amour et de ton soutien dans tous les aspects de ma vie. Je prie pour que tu me guides et que j’entende et écoute.]*
 
@@ -26,3 +26,5 @@ Garde ta foi en moi car je suis ta foi et ton amour. Je suis ta vérité, ton av
 Considère-moi comme le pasteur de ta vie, le prophète de ton avenir, l’amour de ta vie – pur et simple, sain et vrai. Je suis ton ami comme aucun autre. Fais-Moi confiance, je ne te laisserai jamais tomber. Garde la vérité et la foi. Avec l’amour, tu déplaceras des montagnes. Avec la compassion, tu vaincras les armées de la haine. Tu élèveras tes âmes avec l’amour. Aime-Moi comme je t’aime avec l’Amour Divin dans Mon cœur et Mon âme pour ton cœur et ton âme. Amour toujours.
 
 Ton Père.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

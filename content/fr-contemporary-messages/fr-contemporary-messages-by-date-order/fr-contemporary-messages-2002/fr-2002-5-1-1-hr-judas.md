@@ -54,3 +54,5 @@ Je te remercie pour le temps que tu m’as accordé, et que Dieu te bénisse.
 Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

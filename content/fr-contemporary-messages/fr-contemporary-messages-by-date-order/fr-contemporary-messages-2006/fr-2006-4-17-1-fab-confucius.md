@@ -14,3 +14,6 @@ Confucius - reçu par FAB le 17 Avril 2006, Santa Cruz, Californie, USA.
 Je suis là, Confucius. Lorsque vous lisez ma pensée, vous la traitez à travers votre filtre. C'est exactement ce que Dieu veut.
 
 Évidemment, là où le Confucianisme nie l'égalité en mettant l'accent sur des rôles fixes, il a tort. Mais vous découvrirez tant de vérités merveilleuses dans ma pensée, des vérités dont l'humanité a grandement besoin.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+

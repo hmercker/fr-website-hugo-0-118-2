@@ -20,3 +20,5 @@ Maintenant que vous avez une certaine perspective objective de ce qui s'est pass
 Permettez-moi de souligner et d'affirmer que cela ne va pas du tout à l'encontre des messages de James Padgett, qui devaient être diffusés de la manière dont ils l'ont été. Ils devaient insister sur les effets néfastes d'un assouvissement excessif des appétits physiques, car c'est la cause du péché. C'est le contexte de cette révélation particulière qui a nécessité cette insistance.
 
 Une fois cela accompli, la voie était libre pour affirmer le corps et ses plaisirs d'une manière appropriée. Certes, ce n'était pas l'approche la plus gracieuse, mais votre intention avait un motif pieux.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Je ne choisirai jamais pour toi
 
-Père - reçu par Enfant de Dieu le 27 Mai 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 27 Mai 2012.
 
 Enfant bien-aimé, cela fait un moment et tu t’es demandé où j’étais passé (sourire).
 
@@ -26,3 +26,5 @@ Vous êtes tous porteurs des péchés du passé. Vous êtes une partie de l’en
 Cela commence par vous. Vous pouvez vous changer. Vous pouvez vous guérir. Il n’y a qu’un seul vous. Vous seul pouvez faire votre travail. Je suis avec vous mais je ne ferai pas votre travail. Parfois je suis silencieux mais je suis toujours avec vous. Continue à faire du bon travail. N’oubliez pas que je vous t’aime.
 
 Votre Père Céleste qui vous sourit dans votre faiblesse.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

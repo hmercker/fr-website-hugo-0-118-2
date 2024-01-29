@@ -20,3 +20,5 @@ Cette croissance ne s’accomplit pas par des gestes spectaculaires. Elle se pro
 Vous avez à l’esprit la sagesse de votre défunt père, selon laquelle *« pour obtenir quelque chose de valeur, il faut travailler. »* Je dis la même chose. Un sermon passionné peut effectivement amorcer ce processus.
 
 Cependant, ce processus ne se déroulera pas grâce à l’humeur excitée du prédicateur, mais comme je l’ai dit.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

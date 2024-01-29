@@ -26,3 +26,5 @@ Des problèmes sont apparus parce que de nombreuses traditions religieuses ont c
 Le monde entier se dirige vers la Vérité, vers la compréhension de la bonté fondamentale de la Vie. De nombreux instruments sont en place pour faire avancer ce travail.
 
 Soyez assurés que vous trouverez la vérité que vous cherchez, pour votre bonheur. Gardez la foi en vos idéaux les plus élevés, et dans la plénitude du temps, la compréhension viendra à vous, et vous vivrez votre vie, assuré que vous êtes en harmonie avec la Volonté de Dieu.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

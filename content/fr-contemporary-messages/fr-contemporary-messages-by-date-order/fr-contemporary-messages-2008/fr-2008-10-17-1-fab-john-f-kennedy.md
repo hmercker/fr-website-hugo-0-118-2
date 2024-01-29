@@ -28,3 +28,5 @@ Mon ange-guide en savait tellement plus que ma grand-mère. Ils m'ont tous les d
 Oui, j'ai dit "c'est une vie formidable", car c'est ainsi que je la voyais en tant que mortel. Il y avait donc l'obscurité causée par ma folie, et ma vision positive de la vie. Les deux étaient forts.
 
 La bonne nouvelle est que j'ai maintenant l'espoir d'être heureux, même si je suis toujours bloqué par des circonstances qui ne peuvent être inversées. Mais je ne suis plus totalement désespéré.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

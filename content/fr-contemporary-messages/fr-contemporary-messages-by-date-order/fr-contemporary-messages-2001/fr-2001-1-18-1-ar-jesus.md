@@ -36,3 +36,5 @@ Vous réaliserez, avec le temps, l’importance de simplifier votre vie et de re
 J’écrirai plus, ultérieurement, sur ce sujet, ma chère sœur, et je vous remercie pour cette opportunité d’avoir pu vous écrire à cette heure inhabituelle.
 
 Votre frère et ami, Jésus de la Bible et Maître des Cieux Célestes.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

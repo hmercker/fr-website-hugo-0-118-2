@@ -13,7 +13,7 @@ Anne Rollins - reçu par Jospeh B. le 29 Mai 2012, Arizona, USA.
 
 Je suis Anne Rollins.
 
-Je suis venue pour confirmer le message de votre ami et guide, Martin.
+Je suis venue [pour confirmer le message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-1-jb-martin-luther/) de votre ami et guide, Martin.
 
 Il est vrai que des changements sont en cours sur vous et votre monde ; vous et d’autres personnes dans le monde ont déjà vu de nombreux changements, pourtant, vous êtes toujours là, et vous continuerez à être là. Ne concentrez pas votre attention sur ceux-ci ou sur d’autres possibilités de changement. N’envisagez pas de changer d’endroit. Vous serez en sécurité là où vous êtes.
 
@@ -22,4 +22,6 @@ Nous, dans les Cieux Célestes, nous vous aimons, vous et tous les merveilleux e
 Bénédictions à vous et à tous ceux qui lisent ceci, Anne Rollins.
 <small>
 
-1. <large id="f1"> Ce message, tout comme le précédent communiqué par Martin Luther et les deux suivants communiqués par d'une part Martin Luther et d'autre part par Jésus, ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.[↩](#a1)
+1. <large id="f1"> Ce message, [tout comme le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-1-jb-martin-luther/) communiqué par Martin Luther et les deux suivants communiqués par d'une part [par Martin Luther](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-3-jb-martin-luther/) et d'autre part [par Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-4-jb-jesus/), ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.[↩](#a1)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

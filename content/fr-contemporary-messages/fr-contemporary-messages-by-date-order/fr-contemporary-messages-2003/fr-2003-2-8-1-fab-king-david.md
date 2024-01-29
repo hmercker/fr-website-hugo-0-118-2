@@ -34,3 +34,5 @@ Eh bien, comme vous l’avez compris, j’habite les Cieux Célestes, où nous t
 Gardez votre courage. Continuez à vous fier à votre guide. Sachez que le chemin est préparé pour vous, de sorte que lorsque vous viendrez ici, vous serez un esprit des plus heureux.
 
 Avec amour, David.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

@@ -22,3 +22,5 @@ Donc ce que nous faisons, c'est que nous influençons ces leaders obscurs dans l
 Dès qu'un empire est en train d'être planifié, ce qui est également créé est, comme je l'ai dit, les graines de sa propre destruction. C'est un processus automatique qui participe à l'équilibre moral de l'univers.
 
 Maintenant, nous planifions quelque chose de glorieux pour l'humanité, et le retour de bâton contre l'obscurité sera si puissant et si répandu que l'obscurité devra céder. Oui, c'est vrai, et c'est ce que nous mettons soigneusement en place pour que nos efforts soient couronnés de succès. Nous le ferons savoir, et nous aiderons l'humanité dans sa lutte pour la justice et la paix. Nous voyons la bonté dans chaque partie de la Terre, et nous voyons partout des gens prêts à tout risquer pour le bien de la vérité. Et tout comme le mal semé produit le mal récolté, le courage et la valeur récoltent les bénédictions de Dieu et le succès final.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

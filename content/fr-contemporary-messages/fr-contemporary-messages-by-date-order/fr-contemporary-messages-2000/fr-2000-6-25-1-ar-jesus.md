@@ -196,3 +196,6 @@ Si tu ouvres ton cœur et le donnes à Dieu, K____, je te promets qu’Il l’ut
 Je vous aime aussi beaucoup, et je suis reconnaissant à chacun d’entre vous pour le dévouement dans vos propres vies à cette progression que vous nourrissez chaque jour. Je vous en remercie, c’est le plus grand honneur que vous me faites, que vous faites aux Anges et que vous faites à notre Père céleste. Merci.
 
 *[Fin de la session de transe.]*
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

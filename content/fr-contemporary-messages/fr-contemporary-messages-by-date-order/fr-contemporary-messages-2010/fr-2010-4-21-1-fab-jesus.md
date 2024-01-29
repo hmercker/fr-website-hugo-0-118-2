@@ -29,3 +29,5 @@ Mais je vous fais cette promesse : au moment opportun, quelque chose de spectacu
 <small>
 
 1. <large id="f1"> La marée noire de Deepwater Horizon (également appelée "marée noire de BP", "catastrophe pétrolière de BP", "marée noire du Golfe du Mexique" et "explosion de Macondo") s'est produite le 20 Avril 2010 dans le Golfe du Mexique sur le prospect Macondo exploité par BP. Pour plus d'informations [consulter le lien](https://fr.wikipedia.org/wiki/Deepwater_Horizon).[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

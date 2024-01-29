@@ -20,3 +20,5 @@ Au moment de la mort de M. Padgett, il n'y a donc pas eu de traumatisme. En fait
 En tant que mortel, les chocs du krach boursier, de la Grande Dépression, de Pearl Harbor et de la Seconde Guerre mondiale ont eu un effet sur moi. Mais je croyais de tout mon cœur aux messages, qui enseignent que le péché et l'erreur finiront par ne plus exister. Cela m'a apporté un grand réconfort, même dans les jours les plus sombres de la guerre, car je savais qu'une Main invisible guidait le cours des événements.
 
 De même, cette même Main invisible continue de façonner l'histoire, et tout comme dans ma vie j'ai vu la délivrance, la délivrance viendra aussi à votre époque.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

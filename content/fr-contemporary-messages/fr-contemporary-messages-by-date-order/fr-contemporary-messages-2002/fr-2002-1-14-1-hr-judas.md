@@ -38,3 +38,5 @@ Ceci est tout pour aujourd’hui. C’est un simple conseil. Sois ferme dans tes
 Ton frère dans le Ciel, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les attentes ne laissent aucune place au mystère
 
-Père - reçu par Enfant de Dieu le 29 Janvier 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 29 Janvier 2013.
 
 Mon Royaume est pour tous. Dans Mon royaume, il y a un amour sans fin pour chacun de Mes enfants. Personne n’est jamais laissé de côté.
 
@@ -18,3 +18,5 @@ Les attentes ne laissent aucune place au mystère. Pour ceux d’entre vous qui 
 Donne-toi au mystère. ose ouvrir ton cœur et ton âme pour que mon royaume entre en toi. Sois courageux et fais confiance à Mon amour. Tu dois t’abandonner complètement pour que Je te montre ton chemin. Je connais ton cœur et je te guiderai avec mon amour.
 
 Ton Père.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

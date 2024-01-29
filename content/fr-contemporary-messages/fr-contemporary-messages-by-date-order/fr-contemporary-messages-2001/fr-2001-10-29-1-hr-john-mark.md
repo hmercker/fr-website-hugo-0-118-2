@@ -76,3 +76,5 @@ OK, je vais aussi te dire au revoir. Ce fut un message extérieur à notre calen
 Nous continuerons demain. Jusqu’alors, avec mes bénédictions, ton frère en esprit, Judas de Kerioth
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

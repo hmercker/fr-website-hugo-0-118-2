@@ -30,3 +30,5 @@ N'hésitez pas à diffuser cette information sur Internet. Nous sommes nombreux 
 Nous sommes une famille humaine. Notre peuple, qui vit dans une belle sphère, est très heureux, et souhaite à vos compatriotes le meilleur.
 
 Amitiés, Mala.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

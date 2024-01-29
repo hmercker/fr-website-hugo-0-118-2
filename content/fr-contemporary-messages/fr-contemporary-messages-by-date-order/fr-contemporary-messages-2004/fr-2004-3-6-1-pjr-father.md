@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos tentatives pour vous adresser à moi
 
-Le Père - reçu par PJR le 6 Mars 2004, New York, USA.
+Le Père Céleste - reçu par PJR le 6 Mars 2004, New York, USA.
 
 *[Père, je suis insatisfait de ma capacité à vous prier pour le don de votre Amour, PJR.]*
 
@@ -59,3 +59,5 @@ Avec mon amour et le tien, Amen.
 <small>
 
 1. <large id="f1"> Commentaire de PJR : Inutile de dire que j’ai été plus que surpris de recevoir une réponse aussi claire et directe à mon approche claire et directe. Peut-être le Père aurait-il pu continuer à me « parler » directement, à la première personne. Mais quelqu’un a eu la gentillesse d’intervenir et de sauver la situation, après avoir vu à quel point j’étais soudainement désorienté. J’ai toujours supposé que toute communication directe de Sa part ne se ferait pas avec des mots ou même des pensées, mais qu’elle prendrait la forme d’un désir et d’une intention modulés, transmis d’âme à âme. J’ai également supposé que tous les mots que je pourrais écrire ne seraient, par nécessité, que le résultat de mon interprétation de Lui et, par conséquent, ne viendraient pas directement de Lui. Cette expérience a ébranlé cette supposition, qui reste néanmoins, ni étayée ni réfutée.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

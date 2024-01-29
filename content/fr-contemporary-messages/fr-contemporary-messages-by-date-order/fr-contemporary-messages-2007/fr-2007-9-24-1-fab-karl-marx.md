@@ -32,3 +32,5 @@ J’ai considéré leurs idées, mais cela a été extrêmement difficile pour m
 Comme vous l’avez compris, je ne crois toujours pas en un Dieu. J’ai éprouvé beaucoup de perplexité et d’introspection.
 
 Je n’ai jamais connu sur terre le bonheur qui vous accompagne aujourd’hui. Et j’observe que ce bonheur vient de l’intérieur. Il doit être lié à cette lueur. Vous dites que c’est la cause de votre bonheur. Tout cela est un mystère pour moi.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

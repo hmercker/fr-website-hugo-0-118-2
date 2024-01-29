@@ -9,7 +9,7 @@ weight:
 ---
 ### L’extraordinaire se cache dans l’ordinaire
 
-Père - reçu par Enfant de Dieu le 11 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 11 Avril 2012.
 
 Enfant de Dieu, tu ne peux pas croire ce que tu entends même si tu sens que c’est vrai. Tu dois cesser de comprendre avec ton mental et libérer ton âme. Je suis toujours là et tu me sens près de toi dans tes activités quotidiennes même lorsque tu ne peux pas capable écrire ce que tu entends. Parfois, tu changes les mots pour qu’ils te conviennent davantage et c’est bien ainsi, tant que le sens n’est pas déformé de quelque manière que ce soit. Et je te dirai si c’est le cas. Il est important que les mots te conviennent, car cette langue ne t’est pas totalement familière.
 
@@ -25,4 +25,7 @@ Vous êtes libres d’aimer et je vous ai donné cette liberté. Vous êtes libr
 
 Il y a beaucoup de sujets sur lesquels nous pouvons avoir une conversation et tu ne dois pas t’inquiéter car tout viendra en temps voulu. Je promets d’être là pour toi et de ne pas trop te distraire quand tu as besoin de repos.
 
-Ton Père Céleste qui t’aime comme tous ses enfants.
+Ton Père Céleste qui t’aime comme tous Ses enfants.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+

@@ -66,3 +66,5 @@ Ce message n’a pas été si court finalement et tu l’as reçu de façon sati
 Avec beaucoup d’amour, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

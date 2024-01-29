@@ -27,4 +27,7 @@ Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contem
 Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
 Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
 Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007
+Uharu | [Un concept amérindien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-3-1-fab-uharu/) | 3 Janvier 2008
 Uharu | [Des dispositions pour les Amérindiens dans le monde de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-4-2-fab-uharu/) | 4 Septembre 2008
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

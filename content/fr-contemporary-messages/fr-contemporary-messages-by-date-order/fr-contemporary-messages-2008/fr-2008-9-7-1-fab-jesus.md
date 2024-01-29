@@ -16,3 +16,5 @@ C'est moi, Jésus.
 Le changement viendra lorsque le dysfonctionnement actuel évoluera vers une approche plus positive. C'est possible, et cela se produira. De nombreuses personnes, à part vous, savent que cela se produira. Dieu ne travaille que par l'Amour, en respectant le libre arbitre, donc le changement se fera dans ce contexte.
 
 Nous voyons chaque personne dans ce système actuel comme un enfant bien-aimé de Dieu, et nous voulons aider l'humanité à surmonter cette épreuve actuelle.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

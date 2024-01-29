@@ -42,3 +42,6 @@ Consacrez-vous à votre développement spirituel. Chérissez ces moments pendant
 Je vous aime, ma chère famille en Christ, et je prie pour la progression de vos âmes dans cette merveilleuse qualité d’Amour qui est une partie si forte de vos vies.
 
 Je suis Marie, la mère de Jésus et je suis une vraie disciple de mon fils, qui est notre Maître et frère aîné.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

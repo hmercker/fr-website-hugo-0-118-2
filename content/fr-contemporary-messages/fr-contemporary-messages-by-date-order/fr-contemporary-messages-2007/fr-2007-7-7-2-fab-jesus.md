@@ -34,3 +34,5 @@ Je suis conscient que de nombreuses valeurs et cultures traditionnelles demeuren
 Ici, dans le monde des esprits, de nombreux esprits continuent à agir selon les conventions de leur culture terrestre, et ne sont donc pas conscients de cette individualité. Leur libre arbitre continue comme sur Terre. D'autres esprits, plus chanceux, ont embrassé leur personnalité individuelle et ont activé un style de vie qui reflète vraiment leur caractère unique.
 
 Je sais que je me suis éloigné du sujet, mais je voulais profiter de l'occasion pour exprimer ces autres pensées.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

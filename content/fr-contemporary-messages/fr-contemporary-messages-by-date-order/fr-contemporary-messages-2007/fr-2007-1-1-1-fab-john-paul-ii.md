@@ -25,3 +25,5 @@ Ici, je continue à soutenir mes croyances Catholiques. Il y a un Créateur qui 
 <small>
 
 1. <large id="f1"> **Le pape Jean-Paul II** (18 Mai 1920, Wadowice, Pologne - 2 Avril 2005, Cité du Vatican) a régné en tant que pape de l'Église Catholique Romaine du 16 Octobre 1978 jusqu'à sa mort plus de 26 ans plus tard, faisant de son pontificat le deuxième plus long des temps modernes après le règne de 31 ans [de Pie IX](https://fr.wikipedia.org/wiki/Pie_IX). Il est le seul pape polonais à ce jour, et le premier pape non italien depuis le néerlandais Adrien VI dans les années 1520. Il est l'une des seules quatre personnes à avoir été nommées comme personnalité de l'année dans le Time 100 à la fois pour le 20e siècle et pour une année du 21e siècle. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

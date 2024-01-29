@@ -30,3 +30,5 @@ Tout le monde est capable de faire cette auto-évaluation, et si les gens négli
 Afin de se débarrasser d'une émotion négative telle que le ressentiment ou la colère, nous devons d'abord l'identifier sans jugement. Une fois que nous pouvons nous dire « Je suis en colère » ou « J'ai du ressentiment », alors nous pouvons simplement laisser partir cette émotion. Il est surprenant de constater combien il est facile de lâcher prise une fois que nous sommes objectivement conscients de cette émotion négative en nous.
 
 Mais il peut y avoir confusion, car dans votre langage, le ressentiment peut parfois signifier en fait l'indignation. La différence entre les deux est une différence d'objectif.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

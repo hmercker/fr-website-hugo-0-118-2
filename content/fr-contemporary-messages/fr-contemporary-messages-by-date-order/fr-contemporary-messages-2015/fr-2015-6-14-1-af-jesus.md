@@ -20,3 +20,5 @@ Marchez avec moi sur ce chemin. Soyez dans la lumière de l’Amour du Père. Ch
 Soyez en paix. Soyez en paix, belles âmes, et sachez que vous êtes mes frères et sœurs qui marchent dans la paix et l’amour, qui aspirent à ce qu’il y a de plus élevé, qui veulent être rachetés et renaître dans l’amour. Et il en sera ainsi si vous marchez avec moi. Vous suivrez le chemin de la renaissance de l’âme, une grande bénédiction de Dieu, qui vous permettra d’habiter dans le royaume de Dieu, son ciel d’amour.
 
 Continuez à prier, continuez à désirer ce don. Et comme vous priez et désirez ardemment cela, les anges vous accompagneront, prieront avec vous, vous réconforteront et vous protégeront dans les conditions de ce monde, créant un lieu de lumière et de refuge où vous et Dieu marcherez main dans la main dans une sainte communion. Je vous bénis, mes bien-aimés. Je vous aime de tout mon cœur et vous êtes mes disciples de la vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)

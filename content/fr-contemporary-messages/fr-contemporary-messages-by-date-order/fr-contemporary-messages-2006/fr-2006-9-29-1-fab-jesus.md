@@ -68,3 +68,5 @@ Ailleurs dans le Talmud, on trouve cette idée de Rabbi Shimon ben Gamliel :
 Il est habituel de se concentrer sur les zélotes Juifs, qui voulaient chasser les Romains. Et pourtant, certains pensaient, comme moi, que la paix et non le conflit était la bonne priorité. Bien sûr, dans ces circonstances, il était très difficile de maintenir cette conviction - mais certains à mes côtés l'ont fait.
 
 J'ai montré que ce que je représentais était connu et partagé par mes contemporains juifs. Mais ce qu'ils ne savaient pas, c'est que l'Amour de Dieu avait été répandu dans mon âme et que, par conséquent, le souci minutieux et exquis de mes contemporains de vivre correctement s'était accompli dans mon âme, qui avait connu la Nouvelle Naissance.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Je t’ai toujours aimé
 
-Père - reçu par Enfant de Dieu le 12 Juin 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 12 Juin 2012.
 
 Je suis là, mon enfant.
 
@@ -24,3 +24,5 @@ Ne résiste jamais à cet amour et priez et demande-moi l’Amour (Divin) à tou
 Oui, je suis Ton Père, Ton Père aimant. Je vous chante pour t’endormir et pour que tes rêves te montrent la gloire de l’Amour dont je parle. Je suis avec toi, toujours.
 
 Ton Père, qui t’aime.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

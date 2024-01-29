@@ -12,3 +12,5 @@ weight:
 Jésus - reçu par FAB le 30 Mars 2012, Berkeley, Californie, USA.
 
 Je suis là, Jésus. Oui, l’aide de Dieu sera juste à temps, et l’humanité recevra de l’aide pour guérir de toute cette dévastation.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

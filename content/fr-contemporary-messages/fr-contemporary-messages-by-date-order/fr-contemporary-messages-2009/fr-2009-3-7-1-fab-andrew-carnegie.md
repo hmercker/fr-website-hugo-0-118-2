@@ -20,3 +20,5 @@ Je sais que vous lisez que je n'étais pas vraiment avide, et que j'ai utilisé 
 Oui, vous avez raison - être un homme d'affaires n'est pas du tout un péché en soi. Mais comme les affaires ont évolué dans le monde réel, elles le sont souvent.
 
 **Note :** Andrew Carnegie a antérieurement délivré un message [le 03 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/).
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

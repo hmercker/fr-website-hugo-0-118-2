@@ -24,3 +24,5 @@ La question suivante est donc : comment sortir de cette impasse, de ce carcan ? 
 Je sais que la pierre d'achoppement pour vous est que le système est tellement enraciné, et tout est tellement contrôlé, que la réforme semble impossible. Mais rappelez-vous le cliché qui dit que lorsque Dieu ferme une porte, il en ouvre une autre. En d'autres termes, lorsque l'on ne trouve pas de solution, Dieu en trouve une. Votre propre expérience, et celle de tant d'autres, confirme que c'est vrai.
 
 Le problème est donc que vous devez renoncer à vous fier à votre cerveau mortel limité et faire confiance aux perceptions de votre âme, qui sait déjà que cette voie sera poursuivie avec succès, et que la paix et l'harmonie viendront sur la terre, comme Dieu l'a promis dans des cultures et des traditions de foi, en plus du Judéo-Christianisme.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

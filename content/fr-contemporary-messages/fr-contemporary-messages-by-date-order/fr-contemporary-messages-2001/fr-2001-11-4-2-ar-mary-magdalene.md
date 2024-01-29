@@ -34,3 +34,5 @@ Je veux transmettre l’amour de mon Maître à chacun de vous. Il vous remercie
 Je vous aime ma famille. Je suis votre sœur qui a besoin de votre amour, et je suis reconnaissante pour la bonté que vous exprimez.
 
 Marie Madeleine.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

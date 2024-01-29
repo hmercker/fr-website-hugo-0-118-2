@@ -51,3 +51,5 @@ Il est essentiel pour nous d’apprendre, d’éduquer, nous sommes des personne
 Alors, allez-y, apprenez ! Vous n’êtes pas seuls, vous avez l’Amour de Dieu et ses messagers pour prendre soin de vous, pour vous aider, pour vous guider. Ne désespérez pas, car finalement vous récolterez les fruits bénéfiques de votre vie.
 
 Swift Bear.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)

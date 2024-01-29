@@ -34,3 +34,5 @@ Mais à long terme, le facteur le plus important n'est pas la quantité ou le ma
 Ainsi, par exemple, il est arrivé à de nombreuses reprises que de vrais croyants qui avaient vraiment compris les lois de Dieu voient de l'argent leur parvenir là où ils en avaient le plus besoin. Votre expérience a été la même.
 
 Lorsqu'un mortel place les lois de Dieu au-dessus des pensées terrestres concernant l'argent, les lois supérieures travaillent pour assurer le bien-être matériel de cette personne. C'est ce que je voulais dire quand j'ai dit : *« Cherchez d'abord le Royaume de Dieu et sa justice, et toutes ces choses vous seront données par-dessus. »* [Matthieu 6:33](https://saintebible.com/matthew/6-33.htm).
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

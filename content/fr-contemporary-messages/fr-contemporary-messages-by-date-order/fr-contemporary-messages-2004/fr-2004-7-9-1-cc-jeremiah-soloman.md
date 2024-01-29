@@ -28,3 +28,5 @@ Imaginez la mouette lorsqu'elle prend son premier envol. Au début, elle bat des
 Ainsi, chers enfants, apprenez à voler et à vous laisser aller. Les lois aideront votre ascension, ses courants vous emmèneront vers un lieu qui vous attend. Allez à l'intérieur et commencez par battre des ailes et faites confiance à Dieu et à Son amour pour vous guider.
 
 Nous vous aimons, jeunes frères, Jérémie et Salomon.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

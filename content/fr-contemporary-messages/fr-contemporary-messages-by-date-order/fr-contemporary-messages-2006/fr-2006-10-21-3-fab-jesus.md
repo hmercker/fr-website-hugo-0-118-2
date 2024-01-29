@@ -20,3 +20,5 @@ J'ai utilisé le mot « remarquable » pour exprimer l'idée que les rabbins tal
 Je voulais leur donner le crédit d'avoir souvent été proches de comprendre ces choses. Mais malgré cela, ils n'avaient pas une idée claire, car aux brillantes prémonitions se mêlaient de nombreuses croyances erronées.
 
 Votre canalisation, donc, était exacte. Il s'agissait d'un hommage gracieux à mes coreligionnaires.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

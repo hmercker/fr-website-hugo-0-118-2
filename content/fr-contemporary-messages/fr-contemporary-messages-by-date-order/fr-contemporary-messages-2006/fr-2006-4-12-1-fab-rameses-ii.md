@@ -22,3 +22,5 @@ Ne doutez jamais, quelle que soit la noirceur des choses, que le bien l’emport
 Vous entrez dans une phase plus intensive de votre médiumnité. Nous vous utiliserons pour apporter sur Terre de très nombreux faits importants que le monde finira par chérir.
 
 Oh, l’Égypte ancienne ! Si seulement tu avais pu voir que tes dieux n’étaient que de vulgaires babioles !
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

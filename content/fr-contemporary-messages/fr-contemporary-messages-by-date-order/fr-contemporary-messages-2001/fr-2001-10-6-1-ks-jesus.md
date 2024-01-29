@@ -44,3 +44,5 @@ Reconnaissez que vous êtes des âmes, et que vos esprits et vos corps n'existen
 Je vous laisse maintenant avec mes bénédictions, et je vous remercie de m'avoir donné l'occasion d'écrire. Continuez à faire de bonnes prières, et vous continuerez à avoir de bonnes expériences spirituelles.
 
 Je suis votre ami et frère en Christ, Jésus de la Bible et Maître des Cieux Célestes.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -24,3 +24,5 @@ Bien sûr, c'est le péché qui fait souffrir les esprits - je faisais référen
 L'idée centrale à laquelle vous devez réfléchir pendant que vous luttez contre ce conflit est la suivante : à qui voulez-vous plaire le plus, aux gens ou à Dieu ? Pendant de nombreuses années, vous avez désiré le premier.
 
 Il est donc important que vous sachiez clairement que vous souhaitez avant tout plaire à Dieu. Personne ne peut vous conseiller à ce sujet. Vous devez faire la paix avec vous-même.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

@@ -32,3 +32,5 @@ Vous n’êtes pas perdus, mes enfants. Vous êtes les saints de Dieu qui accomp
 **La deuxième loi est la loi de la progression**, qui vous place dans ce fleuve d’Amour sans fin et sans cesse mouvant dont Marie a parlé. Vous avez goûté le nectar de l’Amour de Dieu, et vous ne serez satisfaits de rien d’autre. C’est la vérité, et cette vérité existera plus longtemps que toute loi matérielle qui vous réconforte. Oui, le soleil se lèvera tous les jours, jusqu’à ce que cette étoile ancienne s’éteigne. Mais la lumière immortelle que l’Âme de Dieu vous apporte ne s’éteindra jamais, et vous chercherez toujours sa chaleur.
 
 Je vous aime, ma chère famille en Christ. Je suis votre frère, Jean.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

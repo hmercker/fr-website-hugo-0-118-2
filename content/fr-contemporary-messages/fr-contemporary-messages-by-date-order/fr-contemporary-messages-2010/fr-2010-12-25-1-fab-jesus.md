@@ -28,3 +28,5 @@ L'impression que vous avez est que je disais littéralement que je pouvais pardo
 Ce que je disais donc, c'est que j'étais simplement utilisé par Dieu, et que c'est Dieu et Dieu seul qui pardonne les péchés.
 
 Permettez-moi maintenant de répondre à votre autre préoccupation. Certes, les mortels peuvent pardonner les péchés que les autres leur infligent. Cela est nécessaire sur le chemin spirituel. C'est le pardon de l'effet de ce péché. Mais c'est seulement Dieu qui peut pardonner, et donc effacer, le péché lui-même.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

@@ -47,3 +47,5 @@ Avec tout mon amour, je suis ton frère en Christ, Judas, un esprit des Cieux C�
 <small>
 
 1. <large id="f1"> La grand-mère de James Padgett. Elle fut une communicante très prolifique.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

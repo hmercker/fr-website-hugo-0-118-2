@@ -20,3 +20,5 @@ Tu souhaites être pleine de bonté et d’intégrité et puis tu vois que ton a
 Je ris, oui. Je dis cela seulement parce que je veux que tu saches que je serai toujours avec toi pour t’aider dans ce merveilleux voyage de l’amour qui est parfois si difficile.
 
 Je te laisse maintenant, ma chère sœur. Je suis Marie, la mère de Jésus, qui prie pour que l’Amour Divin de Dieu remplisse chaque jour davantage mon âme afin que je puisse vous aimer, ma très chère famille.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

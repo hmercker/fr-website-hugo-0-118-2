@@ -28,3 +28,5 @@ Ainsi, tout comme vous pouvez croire avec confiance et fierté en la liberté qu
 Vous faites l'expérience de la réalité que la vie terrestre est imparfaite, et pourtant, parce que vous êtes un idéaliste, vous choisissez de relever les meilleurs aspects de l'humanité, et vous vivez selon ces valeurs privilégiées.
 
 J'ai donc moi aussi compris que mes compatriotes Juifs n'honoraient souvent pas leur héritage, mais j'ai pu voir au-delà de cela, dans la belle tradition qui honorait essentiellement les femmes, même si celles-ci ont souvent souffert de l'incapacité de certains Juifs à se montrer à la hauteur d'un idéal sanctionné dans leur culture.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

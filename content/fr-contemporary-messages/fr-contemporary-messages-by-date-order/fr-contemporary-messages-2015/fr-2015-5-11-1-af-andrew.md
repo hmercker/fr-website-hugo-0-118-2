@@ -20,3 +20,5 @@ Je vous invite donc à chercher sérieusement de cette manière, et tout l’uni
 Saisissez chaque jour, mes bien-aimés, comme une opportunité de découvrir la beauté de la création de Dieu, saisissez chaque jour comme une invitation à être avec Dieu, à marcher dans la lumière de l’Amour de Dieu. Chaque pas vous rapproche, chaque prière et chaque désir de votre âme vous amènera plus haut dans cette grande compréhension. Oui, il y a beaucoup à apprendre et à expérimenter, et si vous accumulez en vous la vérité, l’émerveillement, l’amour, alors vous serez un phare de lumière et vous transmettrez à votre manière votre savoir, la force de ceci, la beauté de cela, la certitude de cette vérité.
 
 C’est l’univers de l’amour et de la création de Dieu. Marchez avec Dieu, mes bien-aimés. Marchez avec nous, les anges, et les découvertes seront époustouflantes, merveilleuses, grandioses et belles. Que Dieu vous bénisse, mes bien-aimés, je suis André et je vous aime. Que Dieu vous bénisse.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)

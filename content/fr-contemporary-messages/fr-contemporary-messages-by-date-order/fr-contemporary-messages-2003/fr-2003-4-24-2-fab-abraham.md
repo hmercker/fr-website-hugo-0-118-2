@@ -32,3 +32,5 @@ Vous voyez donc que j’ai toujours été fidèle à Dieu et que j’ai fait Sa 
 Je vous remercie de votre amabilité à recevoir ce message.
 
 Je suis Abraham.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

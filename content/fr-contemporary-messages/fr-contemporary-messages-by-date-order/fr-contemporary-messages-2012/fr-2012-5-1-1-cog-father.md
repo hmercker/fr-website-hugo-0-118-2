@@ -9,7 +9,7 @@ weight:
 ---
 ### Volonté
 
-Père - reçu par Enfant de Dieu le 1 Mai 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 1 Mai 2012.
 
 Mon enfant bien aimé, la communication d’aujourd’hui porte sur la volonté. Ta volonté d’accepter tout ce qui est. Ta volonté de tout abandonner à la Vérité.
 
@@ -22,3 +22,5 @@ Mais d’abord tu dois tout abandonner. C’est douloureux. Tu vas avoir peur. C
 Je suis avec toi.
 
 Père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

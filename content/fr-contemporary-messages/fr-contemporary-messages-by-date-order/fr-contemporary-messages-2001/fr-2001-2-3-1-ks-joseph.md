@@ -34,3 +34,5 @@ Arrête d’être ton propre pire ennemi. Suis le courant. Accepte les changemen
 Si tu suis ces suggestions et si tu crois ce que je t’ai donné ici, tu te sentiras bien en un rien de temps. Je t’aime et je te laisse maintenant avec mes bénédictions. Tu as opposé une certaine résistance à mon message, mais tu as reçu les points principaux, qui peuvent te guider correctement. Que Dieu vous bénisse. Amen.
 
 *[Bien que non signé, nous pensons que Joseph, le père de Jésus, a délivré ce message.]*
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

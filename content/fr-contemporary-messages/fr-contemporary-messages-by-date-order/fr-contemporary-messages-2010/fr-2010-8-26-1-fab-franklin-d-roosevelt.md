@@ -21,3 +21,5 @@ Ai-je conspiré avec des éléments peu recommandables ? Oui, je l'ai fait. Et e
 <small>
 
 1. <large id="f1"> L'ensemble des messages communiqués par Franklin Delano Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

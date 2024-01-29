@@ -32,3 +32,5 @@ J’ai fait de mon mieux pour mener une vie juste. Mais je ne fus certainement p
 Mais tout cela est du passé, et j’ai trouvé mon bonheur auprès d’un Dieu qui m’a accordé [la nouvelle naissance de l’âme](/9-fr-topical-subjects/9-3-fr-the-process-of-transformation-of-the-soul/), avec le bonheur correspondant.
 
 Sincèrement, Noé.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

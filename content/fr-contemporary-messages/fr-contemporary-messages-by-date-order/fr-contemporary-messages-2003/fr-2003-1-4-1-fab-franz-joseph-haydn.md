@@ -28,3 +28,5 @@ Comme c’est vraiment la première fois que je communique avec un mortel, je tr
 En terminant, permettez-moi de vous remercier de nous avoir permis de transmettre nos pensées à la terre. Je vous souhaite une soirée paisible et agréable.
 
 Avec amour, Franz Joseph Haydn.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

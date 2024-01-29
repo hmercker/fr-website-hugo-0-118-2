@@ -9,7 +9,7 @@ weight:
 ---
 ### Tu demandes comment Me servir
 
-Père - reçu par Enfant de Dieu le 3 Septembre 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 3 Septembre 2012.
 
 Mon cher enfant, tu me demandes comment Me servir. Pour ceux d’entre vous qui connaissent et ressentent Mon Amour, Je veux que vous rayonniez cet Amour dans le monde. Soyez cet Amour. Chacun d’entre vous a des dons particuliers, soyez ce don. Exprimez pleinement ce don. Écoutez votre voix intérieure et vous entendrez ce que Je vous demande. Vous êtes les plus nécessaires.
 
@@ -18,3 +18,5 @@ Mon Amour a vécu en silence pendant de nombreuses années. Il y a eu beaucoup d
 J’ai besoin de vous. J’ai besoin que vous sortiez du lot. Vous êtes les Seuls. Je ne peux pas le faire pour vous. Utilisez vos dons particuliers pour changer le monde. Ressentez Mon Amour dans votre cœur et laissez cet Amour toucher le monde. Vous pouvez le faire. Je suis avec vous comme toujours. Vous n’avez pas besoin d’être pleinement conscient de votre destination pour faire le premier pas. Laissez-le se dérouler. Ayez confiance et ayez la foi.
 
 Ton Père qui t’aime tendrement.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Laissez tes larmes couler comme des diamants
+### Laissez vos larmes couler comme des diamants
 
-Père - reçu par Enfant de Dieu le 3 Août 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 3 Août 2013.
 
 Mon cher enfant. Mon cher ange sur terre. Je t’aime profondément. Je suis avec toi. Je veille sur toi et ne te quitte jamais des yeux.
 
@@ -18,3 +18,5 @@ Tu travailles si dur, toujours à la recherche de la Vérité. Laisse tes larmes
 Laisse ton cœur se reposer en étant assuré que la paix viendra et avec la paix, la joie. Aie la foi et le reste suivra.
 
 Ton Père, qui t’aime profondément.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

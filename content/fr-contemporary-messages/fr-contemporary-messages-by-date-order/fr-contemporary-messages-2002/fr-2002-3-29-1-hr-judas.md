@@ -93,3 +93,5 @@ Il est temps de se quitter… Je vais te laisser maintenant et te donner ma bén
 Ton frère en Christ, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

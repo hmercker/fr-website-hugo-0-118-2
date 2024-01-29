@@ -24,3 +24,5 @@ Nous, les Anges Célestes, vous avons littéralement préparé pendant toute une
 Et ceux d'entre vous qui luttent avec certains problèmes, sachez que le soulagement est en vue pour certains de ces problèmes, et la voie est rendue claire pour chacun d'entre vous, de sorte que lorsque vous vous présenterez devant le monde, vous serez prêts.
 
 Que Dieu vous bénisse.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

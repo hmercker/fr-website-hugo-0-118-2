@@ -22,3 +22,5 @@ Eh bien, la vérité est que le Ciel Céleste a toujours existé, mais aucun esp
 Mais si cela est vrai, néanmoins, la forme spécifique qu’elle a prise, et continue de prendre, est déterminée par la personnalité de ceux qui viennent l’habiter. Ce que je veux dire, c’est qu’il est, comme vous le dites, plastique, c’est-à-dire qu’il s’adapte avec souplesse aux traits de la personnalité de ceux qui y séjournent.
 
 Mais le lieu, le Ciel Céleste, a toujours été là, en attente d’être occupé.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

@@ -28,3 +28,5 @@ Mon cœur est plein d'amour pour vous, ma famille. Je suis toujours présent dan
 Considérez cela lorsque vous répondez à vos besoins quotidiens : Lorsque vous restez conscient de votre but d'amour, vous honorez chaque être vivant, qui n'est peut-être pas parfait mais qui est digne d'amour. Et cette chose s'épanouira comme une fleur dans votre amour - une lumière dans ce monde.
 
 Je suis votre bien-aimé comme vous êtes le mien, Jésus de la Bible.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

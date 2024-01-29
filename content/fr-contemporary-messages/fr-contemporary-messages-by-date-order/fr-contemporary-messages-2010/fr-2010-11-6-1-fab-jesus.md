@@ -16,3 +16,5 @@ C'est moi, Jésus.
 Oui, nous voyons toute la destruction en cours, mais nous ne pouvons pas l'arrêter par notre seule volonté. Cependant, nous mettrons fin à cette tyrannie à la manière de Dieu. Il doit y avoir une évolution du développement vers les situations qui apporteront le succès. Et ces situations ne ressembleront à aucune autre, à rien de ce que la Terre a vu. Je sais que cela semble extravagant, mais cela est vrai.
 
 L'optimisme que Dieu vous a donné ne vaut pas seulement pour vous, mais pour le monde entier. Ils ne pourront aller que jusqu'à un certain point et pas plus loin.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

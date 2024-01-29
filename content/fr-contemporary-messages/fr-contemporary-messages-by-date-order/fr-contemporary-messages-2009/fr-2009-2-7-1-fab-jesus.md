@@ -16,3 +16,5 @@ C'est moi, Jésus.
 Le Royaume Céleste sera fermé un jour, et ceux qui ne possèdent pas l'habit de noces de l'Amour Divin en seront exclus.
 
 Je l'ai dit sur terre, comme l'indiquent de nombreuses paraboles du Nouveau Testament, et je l'ai dit par l'intermédiaire de M. Padgett. C'est une perception de l'âme qui est restée en moi depuis ma vie de mortel.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

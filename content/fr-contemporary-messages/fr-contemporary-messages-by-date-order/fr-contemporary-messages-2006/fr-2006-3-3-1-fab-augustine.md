@@ -18,3 +18,5 @@ Je souhaite aborder la question des appétits physiques, car cela doit être cla
 Comme vous le savez, tout au long des messages, il est également question du fait que ces mêmes appétits sont par nature bons, car ils viennent de Dieu.
 
 La condamnation sans restriction de ces plaisirs par le Christianisme a fait beaucoup de mal. Nous réalisons à quel point de nombreux Chrétiens ont progressé dans ce domaine, et pourtant cela doit encore être dit. Bien que ce que j'ai dit soit évident, il y a néanmoins un malaise sous-jacent dans l'esprit de beaucoup à ce sujet, et je m'attaque à cet aspect moins conscient.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

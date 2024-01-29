@@ -9,7 +9,7 @@ weight:
 ---
 ### Le but est que tu ressentes Mon Amour
 
-Père - reçu par Enfant de Dieu le 22 Août 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 22 Août 2012.
 
 Bonjour, mon cher enfant. Tu as eu l’impression d’avoir vécu un miracle. Hier, un grand changement a eu lieu dans ton état émotionnel. Presque d’un instant à l’autre, tu as vécu un alignement complet entre ton cœur et tes pensées. Je ressens ta joie et je me réjouis avec toi. Tout est parfait.
 
@@ -22,3 +22,5 @@ Je t’aime. Je t’aime avec tous tes sentiments. Mais tu n’es pas tes sentim
 Va et sois libre. Déploie tes ailes et vole. Je suis avec toi.
 
 Ton Père dans les Cieux.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

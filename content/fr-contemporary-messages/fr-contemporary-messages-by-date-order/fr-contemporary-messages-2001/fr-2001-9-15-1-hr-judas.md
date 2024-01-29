@@ -57,3 +57,5 @@ Ton frère en esprit, Judas.
 1. <large id=”f1”> <u>Note du traducteur</u> : dans le texte original, l’expression *« Law of Compensation »* est utilisée. Je l’ai traduite le plus souvent par *« Loi de l’Indemnisation »*, bien que parfois j’ai également utilisé l’expression *« Loi de compensation »*..[↩](#a1)
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

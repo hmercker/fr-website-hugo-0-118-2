@@ -32,3 +32,5 @@ Ces personnes doivent percevoir M. Padgett dans son milieu social, car c'est là
 La vie terrestre est imparfaite, mais les vérités de Dieu sont parfaites. Et l'une de ces Vérités est que Dieu n'a pas de sexe humain. ...une autre grande Vérité est que les femmes sont les égales des hommes dans tous les domaines imaginables.
 
 Aux personnes qui ont ce problème, je dis : *« Cherchez dans votre cœur. Trouvez-y un désir ardent de connaître Dieu, de faire l'expérience de ce merveilleux Amour, et si vous y parvenez, vous serez en mesure de mettre cette question, certes importante, dans sa juste perspective.»*
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

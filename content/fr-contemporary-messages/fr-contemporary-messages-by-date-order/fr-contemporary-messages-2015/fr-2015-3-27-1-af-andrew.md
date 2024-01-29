@@ -28,3 +28,5 @@ Ces efforts de guérison intérieure ont de grandes conséquences pour votre vie
 Chaque jour apporte une nouvelle épreuve et une nouvelle récompense et une nouvelle opportunité de grandir et de s’étendre dans cet Amour. Et certains jours, vous ressentez la lourdeur de cette douleur, tandis que d’autres jours, vous êtes dans la félicité. Et cela reste un mystère pour vous, mes bien-aimés, pourquoi il en est ainsi. Mais les conditions au sein de votre âme se manifestent dans votre conscience et vous causent parfois de la détresse, un rappel qu’il y a plus de guérison à faire. Désirez donc être complètement dans l’Amour de Dieu, car le processus d’expiation de l’âme doit faire partie de votre voyage.
 
 C’est la vérité, mes bien-aimés. Et vous devez être honnêtes avec Lui, reconnaître ces parties qui vous retiennent, reconnaître que pour être ce canal clair d’Amour, ces éléments intérieurs qui bloquent le passage, qui inhibent l’Amour, doivent être nettoyés.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)

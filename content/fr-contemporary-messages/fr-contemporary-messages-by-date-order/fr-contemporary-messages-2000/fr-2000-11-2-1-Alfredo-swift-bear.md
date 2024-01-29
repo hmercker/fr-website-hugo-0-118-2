@@ -30,3 +30,6 @@ C’est une chaîne, construite dans le but d’accorder le progrès à tous, po
 Que Dieu vous bénisse, et restez avec Lui.
 
 Swift Bear.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

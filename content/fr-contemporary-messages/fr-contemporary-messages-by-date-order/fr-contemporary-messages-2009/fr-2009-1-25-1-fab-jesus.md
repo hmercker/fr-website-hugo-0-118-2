@@ -30,3 +30,5 @@ Votre confusion est venue du fait que vous pensiez que le concept était de reni
 Ce que je veux dire, c'est qu'un véritable acte d'amour sacrificiel devrait élever quelqu'un à ses propres yeux, au lieu de nier sa propre bonté.
 
 Sans l'écran de fumée que le Christianisme Orthodoxe a érigé, vous pouvez voir comment un acte d'amour peut bénéficier à celui qui le donne en donnant à cette âme aimante un meilleur sentiment envers elle-même.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

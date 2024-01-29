@@ -24,3 +24,7 @@ La paix intérieure ne sera pas atteinte par l’esprit. La paix mondiale ne ser
 Quand suffisamment d’individus pratiquent cela, les problèmes à grande échelle pourront être résolus grâce à la sagesse intérieure de l’âme. Cela semblera miraculeux, car avec très peu de débat et de procédures, il y se formera un consensus. Les solutions se présenteront comme si elles venaient de l’éther. L’âme éveillée et active reconnaîtra la sagesse derrière ces solutions et l’esprit n’aura pas besoin d’être consulté. Ayez confiance dans le fait que ce changement est déjà en cours. Si cela ne vous est pas arrivé, ce sera le cas. La paix et la sagesse de votre âme régneront sur l’esprit faussement mis sur un piédestal.
 
 Soyez en paix, mes enfants. Allez à l’intérieur de vous-mêmes. Libérez vous des pensées aussi souvent que possible. Ayez confiance, votre âme vous guidera. Dieu parle à votre âme. Écoutez avec votre âme.
+
+<u>Note</u> : Jésus a complété son message sur la paix par l'intermédiaire [du message suivant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-7-1-jg-jesus.md)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

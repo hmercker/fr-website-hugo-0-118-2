@@ -18,3 +18,5 @@ Vous avez lu des choses inquiétantes sur la crise environnementale. Vous craign
 Mais alors, pensez-vous, si Dieu ne contrôle pas le libre arbitre et laisse la vie sur Terre aux mortels, comment peut-elle changer ? Car vous avez observé que c'est une vérité que les forces des ténèbres se mobilisent en fait d'une manière sans précédent pour favoriser les élites et asservir la race humaine.
 
 Je sais que c'est difficile à voir et à prévoir, mais nous sommes en train de mettre en place quelque chose qui va aider. Ce seront les efforts de l'humanité qui changeront le cours des événements, mais dans cet effort, nous allons aider.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

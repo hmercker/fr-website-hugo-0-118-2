@@ -57,3 +57,5 @@ Donc, pour conclure, il y a de bonnes raisons d’être optimiste, même mainten
 <small>
 
 1. <large id="f1"> **Thomas Paine** (Thetford, Angleterre, 29 Janvier 1737 – 8 Juin 1809, New York City, USA) était un pamphlétaire, révolutionnaire, intellectuel radical et déiste. Né en Grande-Bretagne, il a vécu en Amérique, ayant émigré dans les colonies américaines juste à temps pour prendre part à la Révolution américaine, principalement en tant qu’auteur du puissant pamphlet, Common Sense, largement diffusé, prônant l’indépendance des colonies américaines vis-à-vis de la Grande-Bretagne. Paine a eu une grande influence sur la Révolution française. Il a écrit les Droits de l’homme comme un guide des idées des Lumières. Il est devenu célèbre avec son livre, L’âge de raison, qui prône le déisme et s’oppose aux doctrines chrétiennes. Dans La justice agraire, il a introduit des concepts similaires au socialisme. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

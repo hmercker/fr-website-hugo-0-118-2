@@ -26,3 +26,5 @@ Ma sœur Anne est morte en 1579, quand j'avais 15 ans. Ce fut ma toute première
 <small>
 
 1. <large id="f1"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

@@ -30,3 +30,5 @@ Oui, j’ai lutté contre ces manquements. Je l’ai fait. Je sais que j’aurai
 C’est le cœur qui fait la personne, et qui détermine notre destin ici. Cela présente la réalité humaine sous un jour entièrement différent. Les pressions que j’ai subies étaient énormes, car étant une femme, j’étais fortement influencée par la pression de mon frère, qui entrait parfois en conflit avec mes idéaux.
 
 Certains jugeraient défavorablement plusieurs de mes actions, et je peux le comprendre. Placée dans une position intenable, et tiraillée par des impulsions contradictoires, j’ai fait certains choix, dont certains se sont dressés devant moi. Comment une personne ayant certains idéaux peut-elle affirmer ces idéaux, lorsque les cartes semblent empilées contre elle ? En canalisant les pères fondateurs, vous vous êtes rendu compte que sur la question de l’esclavage, ils avaient l’impression d’avoir les mains liées.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

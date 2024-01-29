@@ -139,3 +139,5 @@ Tu n’as pas à t’inquiéter ; ça ne sera pas avant longtemps, très longtem
 <small>
 
 1. <large id="f1"> Je suis étonné, 15 ans plus tard, de lire à quel point j’étais certain de quelque chose qui est complètement faux. Mais à cette époque, j’ai accepté la « Sagesse commune » d’autres disciples de longue date de l’Amour Divin qui ont trouvé quelque chose dans les messages de James Padgett qui semble indiquer que les humains ne peuvent pas communiquer de façon audible avec Dieu. Je n’ai jamais vraiment localisé ce passage, c’est vraiment regrettable.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -13,7 +13,7 @@ Sri Yarisupta - reçu par WV le 4 Février 2014, Frankfurt, Allemagne.
 
 Je suis ici, votre ami et votre aide, Sri Yukteswar. Je suis venu parce que je voulais répondre à la question de savoir qui était (Sathya) Sai Baba.
 
-Laissez-moi commencer par dire qu’il n’était pas un avatar <sup id="a1">[1](#f1)</sup>. Lorsqu’il est mort, il est entré dans ce que l’on appelle la quatrième sphère. Il n’était pas plus spécial que n’importe quel autre homme sur terre. Il est né d’une femme et il est mort comme tout autre homme, une fois.
+Laissez-moi commencer par dire qu’il n’était pas un avatar<sup id="a1">[1](#f1)</sup>. Lorsqu’il est mort, il est entré dans ce que l’on appelle la quatrième sphère. Il n’était pas plus spécial que n’importe quel autre homme sur terre. Il est né d’une femme et il est mort comme tout autre homme, une seule fois.
 
 La raison pour laquelle il était capable de faire certaines choses que d’autres ne pouvaient pas faire, c’est qu’il comprenait les lois de la création. Ces lois régissent la façon dont les choses sont créées et aussi comment elles sont détruites. Lorsque vous apprendrez comment votre libre arbitre peut interagir avec ces lois, vous comprendrez leur fonctionnement.
 
@@ -21,7 +21,7 @@ Sai Baba n’était pas différent, sauf qu’il savait comment interagir avec l
 
 Le problème de la plupart des humains est qu’ils ne croient pas qu’il soit possible de créer des choses à partir de rien ou de l’air. Mais si vous observez attentivement le fonctionnement de Mère Nature, vous verrez qu’elle le fait tout le temps. Les seules choses dont elle a besoin sont les bonnes conditions pour le faire, et elle s’en va créer ce qui doit être.
 
-Donc l’apprenant rapide, ou du moins l’attentif, comprendra que la dernière phrase est la clé de tout le mystère : « créer les bonnes conditions. « 
+Donc l’apprenant rapide, ou du moins l’attentif, comprendra que la dernière phrase est la clé de tout le mystère : *« créer les bonnes conditions. »* 
 
 Comment ? Eh bien, tout ce qui est créé l’est avec « intention ». Donc vous voyez, ces trois choses sont très importantes quand il s’agit de matérialiser ou de dématérialiser des choses : *le libre arbitre, l’intention et les bonnes conditions. Le troisième paramètre est en fait influencé ou créé par les deux premiers.
 
@@ -33,3 +33,5 @@ Au revoir, votre ami et aide, Sri Yukteswar.
 <small>
 
 1. <large id="f1"> Un avatar, dans la religion Hindoue, est une incarnation de Vishnou.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

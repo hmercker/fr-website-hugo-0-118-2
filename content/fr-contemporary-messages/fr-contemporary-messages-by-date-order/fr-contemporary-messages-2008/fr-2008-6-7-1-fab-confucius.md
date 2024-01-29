@@ -34,3 +34,5 @@ Tout se met en place et se construit jusqu'à son apogée. Je sais que vous le v
 La colère, la haine et la violence ont une durée de vie relativement courte sur la scène mondiale. Ce qui est plus durable, c'est la transformation des tendances négatives en pardon et en amour. Et comme de plus en plus de gens s'éveillent à cette grande vérité transcendante, le monde évoluera en conséquence.
 
 Je réalise que j'ai parlé d'une manière quelque peu rhapsodique. Mais j'ai dit la vérité, que l'histoire confirmera.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

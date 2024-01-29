@@ -43,7 +43,11 @@ Donc, si les gens s’efforcent de devenir sages plutôt qu’intelligents, ils 
 
 Je sais qu’il y a des gens qui croient fermement que s’ils ne peuvent pas le comprendre avec leur mental, il n’y a aucun moyen de le comprendre. Mais ce n’est pas la vérité. Donc, à partir de là, il incomberait à une âme en quête de connaître la Vérité comme l’une des premières étapes de son voyage vers l’illumination spirituelle.
 
-Je vous aime, tous et chacun. Vous êtes tous des enfants bien-aimés de Dieu, aimés par Lui bien au-delà de ce que vous ne pourrez jamais savoir par votre intellect, mais vous pouvez vous rapprocher de la connaissance de ce Grand Amour par le développement de l’amour de votre âme. Priez pour que l’Amour de Dieu vous éclaire. Abandonnez votre volonté à la sienne. Faites ces pas chaque jour et grandissez dans l’Amour. Rapprochez-vous de l’union avec la Source et trouvez un épanouissement inimaginable par l’esprit de raisonnement. Je vous écrirai à nouveau bientôt. Amen.
+Je vous aime, tous et chacun. Vous êtes tous des enfants bien-aimés de Dieu, aimés par Lui bien au-delà de ce que vous ne pourrez jamais savoir par votre intellect, mais vous pouvez vous rapprocher de la connaissance de ce Grand Amour par le développement de l’amour de votre âme. Priez pour que l’Amour de Dieu vous éclaire. Abandonnez votre volonté à la sienne. Faites ces pas chaque jour et grandissez dans l’Amour. Rapprochez-vous de l’union avec la Source et trouvez un épanouissement inimaginable par l’esprit de raisonnement. Je vous écrirai à nouveau bientôt<sup id="a2">[2](#f2)</sup>. Amen.
 <small>
 
 1. <large id=”f1”> Abraham Lincoln a répondu lui-même à la queestion dans un message qu'il a commniqué, à travers James Padgett, [le 13 Mars 1919](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-3-13-1-jep-abraham-lincoln/).[↩](#a1)
+
+2. <large id="f2"> L'ensemble des messages communiqués par Abraham Lincoln est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

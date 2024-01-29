@@ -48,3 +48,5 @@ Ton frère en Christ, Judas.
 <small>
 
 1. <large id="f1"> Le message était très [probablement celui-ci communiqué quelques jours plus tôt](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/). Cependant [un message beaucoup plus récent contient effectivement les mots](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-27-1-ar-st-john-mary/) « langage universel de l'amour ».[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

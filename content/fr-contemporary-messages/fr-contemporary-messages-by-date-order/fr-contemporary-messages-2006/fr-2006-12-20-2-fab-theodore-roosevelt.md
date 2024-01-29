@@ -32,3 +32,4 @@ Et pour vous personnellement, sachez qu’il y a une grande protection pour vous
 
 2. <large id="f2"> L'ensemble des messages communiqués par Théodore Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)
 
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

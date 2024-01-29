@@ -22,3 +22,5 @@ Vous avez, bien sûr, raison. Mon enseignement, expliqué dans cette première c
 Ce que Gandhi et Martin Luther King, Jr. ont défendu est la véritable signification de mon enseignement. Et, comme l'histoire le montre, cette méthode fonctionne.
 
 En tant que plus grandes créations de Dieu, nous devons absolument nous battre pour nos propres droits.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

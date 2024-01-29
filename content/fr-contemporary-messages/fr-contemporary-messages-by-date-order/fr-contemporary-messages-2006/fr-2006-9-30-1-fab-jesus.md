@@ -20,3 +20,5 @@ Eh bien, oui, le Talmud de Babylone a pris sa forme finale après ma mort. Mais 
 Rappelez-vous que j'ai dit que ces choses étaient dans l'air à mon époque. Je désire présenter la saveur du Talmud côte à côte avec mes enseignements pour montrer leur grande similitude. Et même si la pensée actuelle s'est cristallisée plus tard, cela ne change rien au fait que ces valeurs existaient à mon époque, et que j'ai été influencé par elles. La pensée n'aurait pas pu exister sans la valeur qui la précède, laquelle existait bel et bien à mon époque.
 
 Le monde doit voir ma pensée et celle des rabbins talmudiques côte à côte, afin qu'il soit clairement établi que nous étions contemporains au sens propre du terme.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

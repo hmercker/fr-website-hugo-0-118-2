@@ -66,3 +66,5 @@ Je vais te laisser maintenant et te donner ma bénédiction.
 Judas, un esprit né de nouveau dans l’Amour du Père Céleste.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

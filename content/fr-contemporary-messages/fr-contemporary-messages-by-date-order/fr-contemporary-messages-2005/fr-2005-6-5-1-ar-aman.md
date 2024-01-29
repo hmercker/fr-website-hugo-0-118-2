@@ -32,3 +32,5 @@ Au moment où une âme humaine a de nouveau entendu frapper à la porte, Jésus 
 C'est ainsi que s'est achevée la première expérience et qu'a commencé la plus grande - celle de la transformation de l'âme humaine par son Union et Réconciliation avec l'âme de Dieu.
 
 Merci d'avoir pris ce temps avec nous, Aman.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

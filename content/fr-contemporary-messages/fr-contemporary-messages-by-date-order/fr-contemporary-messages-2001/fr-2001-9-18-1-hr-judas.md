@@ -54,3 +54,5 @@ Tu es sur le point de t’endormir. Il est préférable d’arrêter maintenant.
 Repose toi bien et que Dieu te bénisse, ton frère en Christ, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

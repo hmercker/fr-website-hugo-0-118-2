@@ -20,3 +20,5 @@ Je souhaite faire un commentaire sur mon enseignement, *« tendre l'autre joue �
 D'un autre côté, je m'affirmais aussi quand je le jugeais nécessaire. Je ne préconisais pas d'être un paillasson et de se laisser marcher sur les pieds. C'est une fausse interprétation de mon message. Je voulais simplement dire qu'il ne faut pas répondre par la gentillesse, mais par l'amour et la bonté.
 
 L'affirmation de soi est une nécessité sur le chemin spirituel. La question est de savoir quelle est la meilleure façon d'y parvenir. Beaucoup ont rejeté cet enseignement parce qu'ils ont estimé qu'il représentait une faiblesse lâche, alors qu'en fait, il faut beaucoup plus de force que celui qui opère simplement au niveau animal.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

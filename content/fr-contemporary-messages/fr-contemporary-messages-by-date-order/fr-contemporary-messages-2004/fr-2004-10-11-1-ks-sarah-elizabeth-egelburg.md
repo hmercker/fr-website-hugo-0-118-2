@@ -32,3 +32,5 @@ Toutes les personnes impliquées n’ont qu’à activer leur foi dans le pouvoi
 Je vous aime et j’ai été initiée à votre étude, votre famille et vos intentions depuis un certain temps maintenant et j’ai bénéficié de vos progrès et de vos échanges avec vos compagnons. Notre rapport est meilleur maintenant que lorsque nous avons commencé et je m’amuse avec ce processus. J’apprécie votre volonté de me permettre de livrer mes pensées de cette façon.
 
 Je suis votre nouvelle amie, Sarah Elizabeth Egelburg, et je suis passée de l’autre côté en 1958. Je reviendrai vous écrire. Au revoir.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

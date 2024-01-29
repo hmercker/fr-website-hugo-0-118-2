@@ -54,3 +54,5 @@ Avec ces mots, je te dis au revoir. Je prie pour que le Père continue à te bé
 Ton frère en Christ et ton guide le long de la voie Céleste, Judas de Kerioth.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

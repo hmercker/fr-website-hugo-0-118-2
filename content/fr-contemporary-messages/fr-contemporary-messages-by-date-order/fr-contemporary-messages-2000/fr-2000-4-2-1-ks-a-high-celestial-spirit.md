@@ -30,4 +30,8 @@ Comme vous le savez, les âmes qui résident dans les cieux spirituels ont exerc
 Ainsi, comme vous le voyez, vous devez continuer à souligner l’importance de la prière à Dieu pour son amour. Vous devez souligner l’importance d’être prêt à admettre que certains de vos concepts et croyances antérieurs pourraient être erronés. Soyez prêt à faire une introspection, à grandir et à changer. Lorsque vous recherchez la vérité avec une sincérité sincère, en travaillant à développer votre relation avec Dieu comme votre priorité, ou votre objectif principal, vous évoluerez, vous recevrez Son Amour, vous surmonterez, même si c’est lentement, vos faux concepts et deviendrez sage et heureux, content et paisible. Tu ne te préoccuperas pas des autres qui préfèrent choisir la voie naturelle ou intellectuelle, mais tu respecteras leurs choix de libre arbitre, car Dieu leur a donné un libre arbitre pour choisir leur propre destin.
 
 J’ai essayé de vous donner une issue à votre inquiétude concernant ceux qui commencent à s’engager sur la voie divine de la croissance et du développement spirituels, puis reculent parce que les concepts de leur esprit ne correspondent pas au cadre des vérités supérieures. Je vous laisse maintenant avec mes bénédictions et je me présente comme un esprit céleste élevé qui prie pour l’amour de Dieu depuis 2000 ans et cet amour m’a transmis la sagesse que je suis prêt à partager avec mes semblables.
+
 Que Dieu vous bénisse, tous et chacun.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

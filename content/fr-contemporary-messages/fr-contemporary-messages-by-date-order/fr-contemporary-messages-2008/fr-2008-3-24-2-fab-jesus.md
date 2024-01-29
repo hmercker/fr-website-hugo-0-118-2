@@ -22,3 +22,5 @@ Tout ce qui reste à faire est que votre pays prenne un chemin différent qui se
 Mais dans leur détresse, beaucoup se tournent vers ces qualités de courage et de foi qui attirent inévitablement les Anges, qui guideront l'humanité vers le port sûr de l'amour et de la paix.
 
 Il y a donc une similitude avec ma propre époque, lorsqu'il y avait un empire dominant, et un chaos et une insécurité générale dans ma société. C'est dans cette réalité psychologique que j'ai pu prêcher les bonnes nouvelles de l'Amour Divin à mes compatriotes juifs. Cela rendait les gens réceptifs à un message qui n'était pas spécifiquement mondain.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

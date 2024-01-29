@@ -47,3 +47,5 @@ Nous t’aimons – nous tous, tes gardiens – et nous apprécions chacune de t
 Je t’aime, ton père, et tes amis pour qui il parle en ce moment.
 
 Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Voici le [prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-3-1-pjr-jesus/), et voici le [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-28-1-pjr-psr/).
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

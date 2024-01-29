@@ -88,7 +88,7 @@ Augustin | [Il est temps de répondre à l'invitation à rechercher l'harmonie p
 Yogananda | [Un aperçu de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-27-1-jw-yogananda/) | 27 Mars 2020
 Jésus | [Permettez à Dieu de vous élever](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-27-2-af-jesus/) | 27 Mars 2020
 Flavius Josèphe | [Comment faire face aux conditions changeantes de cette Terre en ce moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-1-af-josephus/) | 29 Mars 2020
-White Eagle | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
+Aigle Blanc | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
 Seretta Kem | [Chaque individu vit son voyage spirituel d’une manière unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-30-1-af-seretta-kem/) | 30 Mars 2020
 Charlie Chaplin | [Permettez à ce qui se trouve dans votre âme d'être révélé dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-2-1-jw-charlie-chaplin/) | 2 Avril 2020
 Seretta Kem | [La médiumnité exige de se consacrer au développement d'une relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-3-1-af-seretta-kem/) | 3 Avril 2020
@@ -109,7 +109,7 @@ Jésus | [Cherchez et ce sera à vous](/fr-contemporary-messages/fr-contemporary
 Yogananda | [La joie de recevoir l'Amour de Dieu est éternelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-17-2-jw-yogananda/) | 17 Avril 2020
 Seretta Kem | [La conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-18-1-af-seretta-kem/) | 18 Avril 2020
 Augustin | [L'isolement social est une bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-1-af-augustine/) | 19 Avril 2020
-White Eagle | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
+Aigle Blanc | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
 André | [Le renouvellement et l'éveil de vous et du monde sont comme le renouveau du printemps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-20-1-af-andrew/) | 20 Avril 2020
 St Jean | [Prenez un engagement profond pour aspirer à l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-21-1-af-st-john/) | 21 Avril 2020
 Augustin | [La vérité doit être expérimentée par l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-24-1-hm-augustine/) | 24 Avril 2020

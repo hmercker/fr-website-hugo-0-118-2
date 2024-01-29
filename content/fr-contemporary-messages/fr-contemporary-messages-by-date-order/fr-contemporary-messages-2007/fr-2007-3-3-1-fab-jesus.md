@@ -18,3 +18,5 @@ Je souhaite aborder maintenant la question de l'apathie parmi vos compatriotes a
 Eh bien, en plus de leur apathie à l'égard de nombreux problèmes publics, beaucoup de ces mêmes Américains ont une nature très généreuse. C'est également une caractéristique importante du peuple Américain. La nature humaine est facilement influençable et facile à diriger, donc avec le bon type de dirigeants, cette apathie peut être modifiée. Bien sûr, certains continueront à végéter, mais d'autres changeront. Ils le feront vraiment.
 
 Ce qu'il faut garder à l'esprit, c'est qu'il y aura une masse critique, comme vous dites, d'Américains pour modifier la tendance à la destruction et à l'apathie. Et dans la nouvelle Amérique, il y aura effectivement une approche beaucoup plus positive des problèmes du jour. Ceux qui continuent à ne pas se sentir concernés seront laissés pour compte et seront incapables de faire face au nouvel ordre de votre pays qui est en train d'émerger.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

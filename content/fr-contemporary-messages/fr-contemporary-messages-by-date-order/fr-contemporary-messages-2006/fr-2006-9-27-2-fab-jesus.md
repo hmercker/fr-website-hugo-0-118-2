@@ -24,3 +24,6 @@ Ils étaient également très soucieux, comme moi, que la loi religieuse ne supp
 Vous voyez donc que je n'étais pas aussi radical pour mon époque qu'on le croit généralement. L'antisémitisme qui s'est développé dans le Christianisme païen a rendu les gens aveugles au fait que je n'étais pas le seul Juif à exprimer ces préoccupations et ces valeurs. Toute personne qui a étudié le Talmud le sait.
 
 Il est temps que ma vie et mes enseignements soient enfin considérés dans leur contexte. Je suis conscient qu'il y a eu un mouvement général de la part des Chrétiens païens pour comprendre leurs racines Juives, et pour cela, je me réjouis. Mais le processus doit aller jusqu'au bout, car il est impossible de comprendre correctement mon message sans comprendre également les différents courants de pensée de mon époque.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+

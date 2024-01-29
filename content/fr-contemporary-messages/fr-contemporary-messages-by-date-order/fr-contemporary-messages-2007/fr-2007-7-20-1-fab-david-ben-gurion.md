@@ -42,3 +42,5 @@ Laissez-moi maintenant vous parler de votre propre rôle dans toute cette situat
 Eh bien, ne sous-estimez pas et ne doutez pas de l'effet positif que vous pouvez avoir dans vos efforts. Et aussi, ne sous-estimez pas la force croissante des jeunes en Israël qui ne sont pas enfermés dans la mentalité qui perpétue le conflit tragique qui embrase mon pays. Une solution peut être trouvée, et le Créateur est à l'œuvre pour aider tous ceux qui désirent l'amour, la justice et la paix.
 
 Je suis reconnaissant de l'occasion qui m'est donnée de partager mes pensées avec le monde, d'une manière qui était impossible lorsque j'étais un mortel.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

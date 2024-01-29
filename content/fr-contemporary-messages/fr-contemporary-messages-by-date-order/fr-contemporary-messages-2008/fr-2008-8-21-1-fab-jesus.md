@@ -18,3 +18,5 @@ Lorsque j'enseignais à mes compatriotes Juifs, je leur disais que l'Empire Roma
 Et exactement de la même manière, je dis à vos contemporains de considérer les choses de Dieu comme plus importantes que l'empire actuellement en place.
 
 Certains de mes compatriotes ont choisi d'affronter les Romains par la guerre. Cela était voué à l'échec. Dans votre pays *[les États-Unis]* maintenant, cette réaction n'existe pas vraiment, car généralement, les gens ont cru en leur gouvernement et en leur mode de vie. Les difficultés et la paralysie qui affligent tant d'Américains n'invoquent donc pas l'énergie négative qui a mené mon pays à la ruine. Cela constitue pour nous, les anges, un excellent environnement de travail, et nos efforts seront donc couronnés de succès.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

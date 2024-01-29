@@ -63,3 +63,6 @@ Votre frère pour l’éternité, Jésus.
 <small>
 
 1. <large id="f1"> Il semblerait, d'après les enregistrements de l'Index des décès de la Sécurité sociale détenus par Ancestry.com, que le Dr Samuels soit décédé en mars 1982, et comme il est né le 18 mai 1908, cela lui ferait 73 ans au moment de son décès.[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+

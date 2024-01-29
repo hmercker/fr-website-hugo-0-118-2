@@ -26,3 +26,5 @@ Tu es une précieuse enfant de Dieu, Il t’aime tellement, Il se soucie telleme
 Garde les choses simples, profite de la vie, de tes progrès . Prie, médite et communique souvent avec notre Père. Tout sera bon et joyeux. Tu es aimée, nous te soutenons toujours, nous t’entourons et nous te protégeons. Demande à apprendre davantage ce que tu souhaites savoir, élargis ton âme et ton cœur, étends-toi et aime.
 
 Tu es ma sœur, je t’envoie de l’amour depuis les Cieux. Ton frère véritable et aimant, un disciple de Jésus, c’est Judas. Loue le jour et profite de lui, sors.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

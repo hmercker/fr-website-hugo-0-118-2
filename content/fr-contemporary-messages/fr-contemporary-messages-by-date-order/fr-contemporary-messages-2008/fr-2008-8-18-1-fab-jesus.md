@@ -36,3 +36,5 @@ J'ai vraiment été élevé par mes parents, comme une merveilleuse provision de
 Dieu a veillé sur ma vie depuis le début, et il m'a donné des parents aimants et attentifs qui m'ont élevé comme un nourrisson et un enfant.
 
 Je veux dire par là que ma jeune vie, comme toute nouvelle vie, avait besoin d'être nourrie par des figures parentales.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

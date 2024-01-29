@@ -27,10 +27,9 @@ Je t’aime, ma sœur dans le Christ, et je suis ton frère et ton ami, Moïse d
 
 Moïse s'est également exprimé lors des messages suivants :
 
-1. <u>De 2002 à 2010</u> :
-
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+| <p align="center">** De 2002 à 2010**</p> |
 Moïse | [Le peuple élu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-7-1-ar-moses/) | 7 Avril 2002
 Moïse | [Moïse partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-30-1-fab-moses/) | 30 Décembre 2002
 Moïse | [Moïse dans le désert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-8-1-fab-moses/) | 8 Janvier 2003
@@ -54,11 +53,7 @@ Moïse | [Préparation de Moïse à l’approche Hébraïque de Dieu – 2](/fr-
 Moïse | [La mort de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-8-1-fab-moses/) | 8 Mai 2010
 Moïse | [La relation de Moïse avec les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-20-1-fab-moses/) | 20 Octobre 2010
 Moïse | [Les conseils de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-21-1-fab-moses/) | 21 Novembre 2010
-
-2. <u>Après 2010</u> :
-
-**Auteur** | **Titre du message** | **Date du message**  
----|---|---
+| <p align="center">** Après 2010 **</p> |
 Moïse | [Leçon sur la fausseté de l’expiation indirecte et la nature incertaine de la vérité personnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-2-af-moses/) | 12 Avril 2016
 Moïse | [Les adeptes de l’Amour Divin doivent s’unir au nom de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-2-af-moses/) | 28 Novembre 2016
 Moïse | [Cherchez la source de tout amour, vérité et lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-24-3-af-moses/) | 24 Février 2018
@@ -72,6 +67,8 @@ Moïse | [Le temps est venu pour Dieu de transformer ce monde](/fr-contemporary-
 Jésus & Moïse & Elie | [Bénédictions de lumière pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-13-1-af-jesus-moses-elijah/) | 13 Juin 2021
 Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-2-af-moses/) | 31 Mai 2022
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
 
 
 

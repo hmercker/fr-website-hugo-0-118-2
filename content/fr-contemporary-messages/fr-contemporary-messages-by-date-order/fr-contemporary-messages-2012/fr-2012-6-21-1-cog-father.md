@@ -9,9 +9,9 @@ weight:
 ---
 ### Essuie les larmes
 
-Le Père - reçu pa Enfant de Dieu le 21 Juin 2012.
+Le Père Céleste - reçu pa Enfant de Dieu le 21 Juin 2012.
 
-Je suis là, mon enfant c’est ton Père.
+C'est moi, mon enfant c’est ton Père.
 
 Essuie les larmes, car je vois ton cœur qui est rempli d’amour pour moi.
 
@@ -23,3 +23,5 @@ Je t’aime mon enfant. Tu es accablé par la question du « pardon ». Que dois
 Je suis là, ton Père.
 
 Je t’aime et je t’aimerai toujours.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

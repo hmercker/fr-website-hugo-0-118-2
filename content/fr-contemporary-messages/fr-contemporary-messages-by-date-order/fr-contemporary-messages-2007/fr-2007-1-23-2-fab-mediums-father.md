@@ -20,3 +20,5 @@ Eh bien, de nombreuses forces bénéfiques seront à l'œuvre. Le monde spiritue
 Il y aura un effet boule de neige de bonne volonté et, oui, une pression pour que ces pays s'améliorent dans tous les domaines. Cela ressemblera à la chute du communisme en Europe de l'Est, que personne, dix ans auparavant, n'avait prédite.
 
 Non, l'histoire est imprévisible et, comme vous le savez, elle est soumise aux choix humains. Avec des dirigeants intelligents et bienveillants, il n'y a pas de limite à tout le bien que l'on peut faire dans le monde. Le problème dans ces domaines est que le leadership a été trop axé sur le pouvoir égoïste et la cupidité. Cela va progressivement changer.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

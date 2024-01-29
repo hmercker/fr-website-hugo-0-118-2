@@ -30,3 +30,5 @@ Les chercheurs humbles et dévoués, désireux de saisir les intentions de Dieu 
 Bon, maintenant vous connaissez les règles et comment jouer le jeu, alors c'est à vous, chaque âme individuelle, de suivre la voie de l'amour. Dieu vous bénit, acceptez Ses bénédictions en reconnaissant votre bonté et votre capacité à grandir spirituellement en mettant vos blocages au repos et en vous épanouissant dans l'Amour.
 
 Je vous laisse maintenant avec mes bénédictions et je vous remercie d'avoir pris mon message. Je suis votre ami et frère en Christ, Pierre l'Apôtre de Jésus et un Esprit Ange Céleste.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

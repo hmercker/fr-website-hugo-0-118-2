@@ -36,3 +36,5 @@ Nous aimons tous les enfants de Dieu, nos frères et sœurs, et faisons tout ce 
 Nous sommes là pour vous. Dieu est toujours à l'affût des appels de l'âme qui cherche, et Il ne manque jamais d'y répondre avec Amour, donnant force et connaissance intérieure à ceux qui ont des désirs sincères. Merci d'avoir accepté de vous asseoir pour notre message ce matin. Nous viendrons chaque fois que vous le souhaiterez pour recevoir nos pensées à partager avec le monde.
 
 Je dirai simplement qu'il y a beaucoup d'Esprits Célestes rassemblés autour de nous, et que nous avons tous contribué à partager notre Amour. Dieu continuera à vous bénir et à bénir tous Ses enfants ; il est important de laisser ces bénédictions entrer dans vos cœurs et de savoir que vous êtes les enfants bien-aimés de Dieu et qu'Il ne vous abandonnera jamais, pas plus que nous.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

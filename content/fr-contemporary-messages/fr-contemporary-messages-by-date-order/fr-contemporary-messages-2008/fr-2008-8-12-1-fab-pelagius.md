@@ -24,3 +24,5 @@ Je suis très heureux que de plus en plus de gens en viennent à respecter et à
 Et je veux dire, avec toute l'emphase, la vigueur et la passion dont j'ai fait preuve en tant que mortel, que mon progrès vers les Cieux Célestes fut fonction de l'ardeur avec laquelle j'ai prié pour l'Amour Divin.
 
 Quel merveilleux plan de salut ! En effet, bien que ce soit strictement la Grâce de Dieu qui accorde l'Amour, il est toujours complètement laissé au libre arbitre des esprits, qui déterminent leur progrès par le degré de leur prière pour ce merveilleux Amour. Je suis bien conscient que cela contredit le Christianisme orthodoxe. Qu'il en soit ainsi.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

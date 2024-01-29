@@ -74,3 +74,5 @@ Avec mon amour pour vous tous, qui êtes sur le chemin vers le Royaume Céleste 
 Ton frère en Christ,
 
 Judas.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

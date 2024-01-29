@@ -28,3 +28,6 @@ Oui, il est difficile d’expliquer aux autres comment cet Amour s’active et c
 Je t’aime et je resterai fidèle à toi, W____. Je suis ton gardien en esprit et il te suffit de me demander de venir à toi et je serai là. Nous recherchons l’Amour de Dieu pour illuminer notre être et apporter la Lumière dans le monde, à la fois mortel et spirituel, et ce sont nos âmes qui nous guideront dans l’effort pour devenir un avec Dieu. Tu es sur ce chemin pour le reste de ta vie et dans le monde des esprits, et l’Amour deviendra ta première nature.
 
 Je suis Jean, ton frère et ami, et je ne suis jamais loin lorsque tu pries pour que Dieu soit avec toi.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

@@ -22,3 +22,5 @@ Dans les messages de James Padgett eux-mêmes, il est clairement indiqué qu'il 
 Cependant, je dois affirmer avec force, et avec l'autorité que Dieu m'a donnée, que la Vérité fondamentale de la Nouvelle Naissance de l'âme, obtenue en priant avec foi pour l'Amour de Dieu, ne sera jamais surpassée ou éradiquée, car cette Vérité est la plus grande, et la seule qui puisse être le fondement de l'unité avec Dieu.
 
 Je poursuivrai mon dialogue avec les mortels, et je continuerai également à influencer le plan terrestre d'une manière qui s'harmonise avec la Volonté de Dieu.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

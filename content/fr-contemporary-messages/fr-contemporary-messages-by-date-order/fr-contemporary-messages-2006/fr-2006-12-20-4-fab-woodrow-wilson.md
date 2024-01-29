@@ -25,3 +25,5 @@ Sur une note personnelle, laissez-moi vous dire que, bien que la situation actue
 1. <large id="f1"> **Thomas Woodrow Wilson** (28 Décembre 1856 - 3 Février 1924) fut le 28ème Président des Etats-Unis. Le consensus des experts en matière de présidence le classe dans la première ou la deuxième catégorie des meilleurs présidents, dans un sondage de 1982 il l'a classé sixième sur trente-six présidents, et dans un sondage de 2000 il l'a classé à nouveau sixième sur quarante et un présidents. (Source : Wikipedia)[↩](#a1)
 
 2. <large id="f2"> L'ensemble des messages communiqués par Thomas Woodrow Wilson est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

@@ -22,3 +22,5 @@ Les deux déclarations sont correctes. De toute évidence, un bébé n'est pas c
 Je n'ai pas eu un tel nuage, car Dieu a éliminé toute influence négative. Il s'agissait d'une dispense spéciale, car il était vital de me permettre de grandir afin que je puisse manifester ces états d'âme et ces perceptions qui faisaient de moi le véritable Messie de Dieu.
 
 En outre, j'ai bénéficié du soutien psychologique total de mes parents bien-aimés, qui ont nourri ma psyché d'enfant d'une manière qui m'a permis d'explorer et de devenir ainsi le Messie.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

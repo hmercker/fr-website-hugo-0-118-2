@@ -37,4 +37,6 @@ Nous sommes Marie et Jean.
 Ce message se poursuit dans ce message commuinqué [le 8 Juin 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-8-1-ar-st-john/).
 <small>
 
-1. <large id="f1"> Je soupçonne que c’est en fait ce qu’il appelait ailleurs sur ce site – l’esprit de l’âme. G.J.C.[↩](#a1)
+1. <large id="f1"> Je soupçonne que c’est en fait ce qu’il appelait ailleurs sur ce site – l’esprit de l’âme. (Geoff Cutler)[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

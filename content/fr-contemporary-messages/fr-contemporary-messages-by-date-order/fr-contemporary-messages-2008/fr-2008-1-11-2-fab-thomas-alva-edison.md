@@ -38,3 +38,5 @@ Mais il existe un témoignage silencieux de ceux qui ont choisi le bon chemin. C
 Je parle d'expérience directe pour avoir observé et parlé à des esprits de tous types de milieux et de tant de périodes terrestres, et, si j'ai vu beaucoup de ténèbres, j'ai aussi vu beaucoup de lumière.
 
 La bonté a souvent eu du mal à se maintenir dans la vie des mortels, mais le temps vient où cela va changer pour le mieux. J'ai une bonne opinion de l'humanité, et j'ai partagé ces pensées pour que peut-être certains puissent être aidés à changer leur attitude vers quelque chose de plus optimiste envers l'humanité et Dieu.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

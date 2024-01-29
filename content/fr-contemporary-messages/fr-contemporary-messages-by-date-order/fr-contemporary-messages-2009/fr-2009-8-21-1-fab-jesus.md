@@ -50,3 +50,5 @@ Ce que j'essaie de dire, c'est que chaque personne est unique, et qu'elle fait t
 Je dis qu'il y a évidemment eu des personnes privilégiées qui ne se sont pas comportées de manière égoïste, et puis il y a celles qui l'ont fait. Et il y a toutes sortes de variations et de complexités entre les deux.
 
 Mais c'est une généralisation exacte que de dire, comme je l'ai fait plus tôt dans cette canalisation, que le système économique en place est déséquilibré. Il ne fait pas ce qu'il devrait faire, c'est-à-dire fournir à la population générale ce dont elle a besoin. Beaucoup ont sincèrement pensé qu'il le ferait, mais ce n'est pas du tout la réalité actuelle.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

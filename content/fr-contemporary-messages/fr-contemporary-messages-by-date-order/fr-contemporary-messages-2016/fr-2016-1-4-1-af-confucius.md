@@ -26,3 +26,5 @@ Mais votre esprit, mes bien-aimés, doit être fort et discipliné. Vos cœurs d
 Bénédictions à vous, mes bien-aimés, mes beaux enfants nouveau-nés, dont les yeux doivent encore s’ouvrir. Cela vient et nous nous en réjouissons, mes bien-aimés, réjouissez-vous. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse. Votre ami Confucius est toujours avec vous dans votre voyage.
 
 Que Dieu vous bénisse.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016)

@@ -28,3 +28,5 @@ Il y a un espoir qui existe dans l'âme humaine, qui existait dans l'âme de tou
 Je suis heureux de ce message tel que tu l'as reçu, et je te remercie, chère sœur, de m'avoir donné l'occasion d'écrire.
 
 Je t'aime et je sens ton amour pour moi. Je suis ton frère aîné et ton ami, Jésus de la Bible, et Maître du Ciel Céleste.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

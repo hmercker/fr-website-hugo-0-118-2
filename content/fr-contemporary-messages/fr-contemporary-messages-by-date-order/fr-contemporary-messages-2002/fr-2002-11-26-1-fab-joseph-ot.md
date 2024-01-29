@@ -22,3 +22,5 @@ Nous nous appuierons sur les bases déjà établies, en révélant de nombreuses
 Vous pouvez donc vous attendre à de nombreuses années de canalisation. Prenez les choses au jour le jour, en étant attentive à chaque moment précieux, car en répondant aux exigences de chaque jour, vous parviendrez à une compréhension de plus en plus grande de votre véritable relation à Dieu et au monde, et de votre place dans le plan de Dieu.
 
 M. Padgett et le Dr Samuels sont ici. Ils disent qu’ils reconnaissent mes commentaires précédents et qu’ils sont impatients d’aider au déroulement de ce plan merveilleux. Ils écriront également par votre intermédiaire.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

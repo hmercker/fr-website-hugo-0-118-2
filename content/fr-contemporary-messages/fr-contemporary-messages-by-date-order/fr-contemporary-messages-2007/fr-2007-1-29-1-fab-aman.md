@@ -26,3 +26,5 @@ Ne soyez donc pas perturbés par ce mot. Il signifie simplement que, bien que la
 1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
 
 2. <large id="f2"> Il n'a pas été possible de localiser ce texte dans les Messages de Padgett. Il se peut que le médium ait utilisé comme référence une publication basée sur les messages qui a été quelque peu remaniée.[↩](#a2)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

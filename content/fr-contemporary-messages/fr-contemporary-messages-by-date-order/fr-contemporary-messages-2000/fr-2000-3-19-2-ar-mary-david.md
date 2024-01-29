@@ -48,3 +48,6 @@ Tu n’es pas différent. Tu sais dans ton cœur ce que tu dois faire et comment
 Lorsque je vivais sur terre, je n’étais pas sûr de pouvoir vaincre le mal qui m’entourait, mais je priais Dieu pour avoir la force de tenir tête à mes ennemis, et pour comprendre comment devenir Son fils et ne plus rester seulement le fils de l’homme. J’espère t’avoir fait comprendre à quel point il est important pour toi d’accepter cette partie de toi-même qui connaît la vérité, de l’embrasser et d’accepter les changements qu’elle peut apporter dans ta vie.
 
 Je suis David de l’Ancien Testament, ton guide et ton ami sur le chemin de la vérité.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

@@ -50,3 +50,5 @@ Je te donne mes bénédictions et te dis au revoir. Je te souhaite de passer une
 Ton frère en Christ, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

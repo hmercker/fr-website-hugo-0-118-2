@@ -70,3 +70,5 @@ Le temps est venu de se dire au revoir. Un gros câlin, mon cher frère et que D
 Ton frère dans l’esprit, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

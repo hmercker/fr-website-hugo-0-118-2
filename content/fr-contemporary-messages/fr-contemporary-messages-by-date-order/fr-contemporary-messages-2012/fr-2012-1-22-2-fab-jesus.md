@@ -13,6 +13,8 @@ Jésus - reçu par FAB le 22 Janvier 2012, Berkeley, Californie, USA.
 
 C’est moi, Jésus.
 
-Dites à Geoff que je lui donne mon plein accord quant à la publication des [messages de Judas](/fr-judas-of-kerioth-messages/).
+Dites à Geoff que je lui donne mon plein accord quant à la publication des [messages de Judas](/3-fr-judas-of-kerioth-messages/).
 
 Avec tout mon amour pour ses fidèles efforts, Jésus, Maître des Cieux Célestes.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

@@ -32,3 +32,5 @@ Ma bonté demeure dans le cœur de ceux j’ai connus et touchés. Et je tiens �
 Je voudrais conclure en disant aux gens, si vous voulez vraiment quelque chose vous pouvez l’avoir. Et si vous voulez vraiment vous connaître, demandez, et vous recevrez.
 
 Je suis heureuse et reconnaissante que vous avez reçu correctement mon message et je vous souhaite une agréable soirée. Sachez que vos rêves se réaliseront également parce qu’ils correspondent à la volonté du Créateur.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

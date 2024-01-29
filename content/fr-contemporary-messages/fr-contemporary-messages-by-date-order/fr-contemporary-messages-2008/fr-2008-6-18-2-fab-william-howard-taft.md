@@ -31,3 +31,5 @@ Je parlais donc du point de vue de ce côté de la vie, où tout est révélé. 
 <small>
 
 1. <large id="f1"> L'ensemble des messages communiqués par William Howard Taft est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

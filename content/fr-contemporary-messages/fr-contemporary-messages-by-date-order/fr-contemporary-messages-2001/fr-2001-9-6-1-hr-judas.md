@@ -77,3 +77,5 @@ Ton frère en Christ, Judas.
 <small>
 
 1. <large id="f1"> Une autre confirmation de cela a été [reçue en 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-29-1-jw-andrew/).[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

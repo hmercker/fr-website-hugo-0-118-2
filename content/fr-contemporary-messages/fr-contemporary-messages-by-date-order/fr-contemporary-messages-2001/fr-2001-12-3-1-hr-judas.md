@@ -54,3 +54,5 @@ Eh bien, mon frère, il est temps d’arrêter maintenant. J’espère que nous 
 Ton ami et frère, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

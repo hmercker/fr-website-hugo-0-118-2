@@ -36,3 +36,5 @@ Dieu vous bénisse, chers chercheurs de vérité. Maintenez vos désirs sincère
 Je vous aime tous et chacun. Vous avez une armée d’esprits Célestes derrière vous, au-dessus de vous, et à côté de vous. Nous ne vous laisserons jamais seuls, mais nous guiderons et soutiendrons tous vos efforts pour transmettre les vérités de la grâce salvatrice de Dieu.
 
 Merci de m’avoir accordé le privilège de délivrer un message. Je suis votre ami et votre gardien, André l’Apôtre.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

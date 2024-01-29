@@ -26,3 +26,5 @@ Je vois que vous ne savez pas très bien comment tout cela s'inscrit dans l'empi
 Eh bien, chacun d'entre nous a une mission. Les esprits des sphères inférieures se fient à leur bon jugement. Nous, les Anges, répondons à la guidance supérieure que seule la Nouvelle Naissance peut apporter, et nous sommes donc dirigés vers certains individus en fonction de notre guidance.
 
 Mais même si ces bons esprits n'ont pas la Nouvelle Naissance, ils sont toujours capables de faire le bien.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

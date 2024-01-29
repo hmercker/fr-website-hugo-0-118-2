@@ -18,3 +18,5 @@ Oui, la loi morale à laquelle Jack London a fait [référence hier](/fr-contemp
 Il a voulu utiliser le mot « moral » pour souligner qu'il y a effectivement un équilibre moral à la vie mortelle, bien que justice ne soit pas toujours rendue.
 
 Dans les circonstances dans lesquelles l'humanité se trouve actuellement, il est nécessaire, comme lui et moi le croyons, que les gens aient foi en cette loi correctrice. Beaucoup le font déjà.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

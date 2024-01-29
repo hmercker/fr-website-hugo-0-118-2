@@ -41,3 +41,5 @@ Je n’écrirai pas un plus long message ce matin, mais je terminerai par mes b�
 Que Dieu vous bénisse et vous garde dans Son amour.
 
 Je suis votre ami et frère dans le Christ Amour, André, l’Apôtre de Jésus, un ange Céleste et un adepte de ses enseignements.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

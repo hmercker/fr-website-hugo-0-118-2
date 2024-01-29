@@ -22,3 +22,5 @@ Vous vous demandez quel est l'équivalent du cinéma ici. Eh bien, nous, les esp
 Sur terre, vous pouvez apprécier un grand film des années 1940 et le considérer comme appartenant au passé. Mais ce n'est pas la réalité que nous, les esprits, avons. Et par conséquent, nos activités et nos intérêts reflètent cette qualité intemporelle. Pour un mortel, cela ne peut être saisi, mais une fois transposé de ce côté, les esprits s'y retrouvent rapidement, et cela devient naturel et normal.
 
 Dans une perspective plus large, les promesses de Dieu seront tenues, et lorsque cela se produira, il sera constaté que nombreux sont ceux qui ont montré la voie et porté le flambeau de la justice et de la vérité.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

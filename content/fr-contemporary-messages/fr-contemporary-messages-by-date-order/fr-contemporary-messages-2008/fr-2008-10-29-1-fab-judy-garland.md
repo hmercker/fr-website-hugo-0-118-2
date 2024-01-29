@@ -11,7 +11,7 @@ weight:
 
 Judy Garland - reçu par FAB le 29 Octobre 2008, Santa Cruz, Californie, USA
 
-C'est moi, Judy Garland.
+C'est moi, Judy Garland.<sup id="a1">[1](#f1)</sup>
 
 Laisse-moi clarifier ce qui ne semble pas être clair. Dans [mon channeling du 19 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-2-fab-judy-garland/), j'ai dit que j'étais sortie d'une partie de mon obscurité, et dans le [message du 12 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-2-fab-judy-garland/), j'ai décrit une progression assez rapide vers un plus grand bonheur.
 
@@ -24,3 +24,15 @@ Les gens l'ont ressenti dans mes rôles au cinéma et y ont répondu, comme vous
 Ainsi, lorsque je suis arrivée dans ce monde spirituel, il a été extrêmement difficile d'inverser ces schémas négatifs. Mais à un certain moment, j'ai finalement été capable de puiser dans ce désir de bonheur, et finalement, de le rendre réel, pour la toute première fois.
 
 Donc les deux canalisations étaient exactes.
+
+1. <large id="f1"> Judy Garland s'est également exprimé dans les messages ci-dessous indiqués :[↩](#a1)
+
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Judy Garland | [Une grande interprète partage son cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-19-1-fab-judy-garland/) | 19 Septembre 2008
+Judy Garland | [Une grande interprète partage son cœur - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-27-1-fab-judy-garland/) | 27 Septembre 2008
+Judy Garland | [Judy Garland et le spectacle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-2-1-fab-judy-garland/) | 2 Mars 2009
+Judy Garland | [Judy Garland ajoute à son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-19-2-fab-judy-garland/) | 19 Janvier 2013
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

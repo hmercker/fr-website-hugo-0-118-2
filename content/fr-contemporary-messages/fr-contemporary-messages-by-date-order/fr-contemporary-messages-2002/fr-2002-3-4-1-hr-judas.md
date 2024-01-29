@@ -73,3 +73,5 @@ Le temps est venu de se dire au revoir. Tu as déjà reçu beaucoup. Demain, nou
 Jusque-là, Dieu te bénisse toujours, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

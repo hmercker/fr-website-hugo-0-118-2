@@ -18,3 +18,5 @@ Le vent du changement souffle et nous avons besoin de nos porteurs de lumière p
 Oui, détends-toi et ressens notre joie de voir tes efforts pour apporter l’amour dans le monde et être un agent de changement. Continue, sœur….. comme on dit. Nous t’aimons profondément, nous t’entourons de notre amour et te soutenons en ces jours d’épreuve, aie confiance et grandis dans la foi en l’Amour de notre Père. Car le véritable salut de l’humanité réside dans son désir et ses efforts pour recevoir l’amour de notre Père. Plus nombreux seront ceux qui le sauront, plus grands seront les changements et plus grande sera la glorieuse révélation de Sa véritable existence en ce monde. Connais la vérité de Lui, tiens-toi dans la vérité, révèle la vérité à tous et, avec la force de la connaissance et de la vérité et de l’amour, rien ne peut t’empêcher d’être un véritable enfant de Lui.
 
 Je suis Judas et je suis heureux de t’écrire, notre lien doit être renforcé, travaille à cela. Nous t’aimons.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

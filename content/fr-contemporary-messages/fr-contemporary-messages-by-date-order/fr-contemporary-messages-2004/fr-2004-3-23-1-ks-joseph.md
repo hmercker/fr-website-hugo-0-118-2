@@ -32,3 +32,6 @@ C’est vous qui fixez le rythme. Vous établissez les règles de votre progress
 Je vous aime et j’apprécie l’opportunité d’écrire. Vous avez bien reçu mes pensées. Je reviendrai chaque fois que votre amour vous poussera à recevoir un message Céleste.
 
 Je suis votre ami et frère en Esprit, Joseph, le père de Jésus, et je vous laisse avec mes bénédictions d’Amour.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+

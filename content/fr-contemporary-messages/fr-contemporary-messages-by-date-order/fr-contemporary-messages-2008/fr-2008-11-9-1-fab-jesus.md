@@ -24,3 +24,5 @@ Mon programme économique était centré sur l'amour. J'ai enseigné que les cho
 Vous reconnaissez pleinement que le communisme n'a pas fonctionné parce que le parti communiste est devenu l'élite dirigeante, ce qui contredit les enseignements de Karl Marx. Et vous pensez également que le socialisme est naïf. Mais vous êtes également très mécontent du système en place. Vous pensez qu'il est devenu pathologique.
 
 Eh bien, une issue sera trouvée. Vous avez vous-même réussi à vous extraire du débat chargé et finalement autodestructeur entre capitalisme et communisme. Vous avez senti qu'un tout nouveau système est nécessaire, un système dans lequel il y aura de l'amour, de l'équité et de la justice. Et c'est exactement ce que nous préparons. Il utilisera des éléments du système actuel mais évitera les excès d'avidité et d'égoïsme qui le gangrènent actuellement.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

@@ -25,3 +25,5 @@ Votre ami, Roger Williams.
 <small>
 
 1. <large id="f1"> **Roger Williams** (21 Décembre 1603 – 1er Avril 1684) était un théologien anglo-américain, un partisan notable de la séparation de l’Église et de l’État, un défenseur des relations équitables avec les Amérindiens, fondateur de la ville de Providence, Rhode Island et cofondateur de Rhode Island. Roger Williams a échangé 7 perles contre Rhode Island. (Extrait de Wikipedia.)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

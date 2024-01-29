@@ -49,3 +49,5 @@ Ainsi, pour les personnes du système qui désirent sincèrement faire ce qui es
 Une fois cette attitude en place, le Créateur travaillera par l'intermédiaire de Ses Anges pour apporter à cette personne sincère l'aide dont elle a besoin pour être éthique, tout en continuant à subvenir à ses besoins.
 
 Le désir d'honorer la vérité attirera les puissances supérieures, qui apporteront alors la connaissance et les conseils à ces âmes sincères.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

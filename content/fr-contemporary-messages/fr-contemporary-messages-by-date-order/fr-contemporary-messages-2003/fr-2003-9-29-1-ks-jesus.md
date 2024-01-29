@@ -42,3 +42,5 @@ Si une personne a vécu un cycle de vie difficile pendant, disons, 30 ou 40 ans,
 La vie spirituelle est libre et légère. Pas de blocages ou d’obscurité – tout est clair pour que nous puissions voir. Alors, s’il vous plaît, ayez foi en votre propre bonté et en la puissance de l’Amour de Dieu dans vos âmes pour vous guider dans une bonne direction, et sachez que lorsque vous priez pour que l’Amour de Dieu vous motive, et lorsque vous étendez cet Amour au mieux de vos capacités dans vos interactions avec vos semblables, vous serez guidés et vous suivrez la Volonté de Dieu et vous grandirez spirituellement en même temps.
 
 Je vais te quitter maintenant, mais je resterai avec toi en esprit même si je suis soi-disant « localisé » dans les Cieux Célestes. Je te laisse mes bénédictions d’amour – je suis ton ami et frère en Esprit, Jésus le Christ.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

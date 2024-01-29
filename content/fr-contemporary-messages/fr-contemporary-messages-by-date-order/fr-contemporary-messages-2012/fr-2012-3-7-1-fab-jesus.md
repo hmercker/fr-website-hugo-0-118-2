@@ -26,3 +26,5 @@ Maintenant que les nazis sont au pouvoir, le monde entier est touché. Y compris
 Et ce n’était pas seulement le Dr Stone. C’était toute la race humaine qui était menacée, alors nous avons travaillé notre magie pour mettre fin à un système maléfique. Le mal a persisté jusqu’à aujourd’hui, et donc notre travail continue. Pour nous, nous ne nous alignons pas politiquement, comme l’enseignent les messages de Padget. Nous travaillons simplement pour le bonheur de l’homme, et là où il y a un obstacle majeur au bien-être de l’homme, nous travaillons pour le supprimer, non pas parce que nous sommes démocrates ou républicains, mais parce que nous cherchons à aider les enfants égarés de Dieu, dont certains ont estimé que la seule façon de réussir est d’infliger de la souffrance aux autres. Ces types de personnes au pouvoir sont à l’origine des problèmes, et leur influence doit donc être modifiée pour que le plus grand bien prévale.
 
 Vous verrez bientôt les résultats de nos efforts à votre époque.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

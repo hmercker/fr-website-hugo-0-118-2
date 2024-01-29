@@ -112,3 +112,5 @@ Mon cher frère, ce fut un très long message. Cependant, j’ai voulu profiter 
 Maintenant, va te reposer, j’écrirai prochainement un autre message où notre incompréhension honteuse viendra une fois de plus à la lumière du jour. Jusque-là, je te souhaite la bénédiction du père, Judas de Kerioth.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

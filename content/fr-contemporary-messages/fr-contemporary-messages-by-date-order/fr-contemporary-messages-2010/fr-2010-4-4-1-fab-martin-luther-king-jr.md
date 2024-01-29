@@ -14,3 +14,5 @@ Martin Luther King jr - reçu par FAB le 4 Avril 2010, Santa Cruz, Californie, U
 Je suis Martin Luther King, Jr.
 
 Je viens avec un message de Pâques, à savoir que JE NE SUIS PAS MORT EN VAIN. Pas plus que n'importe qui d'autre dans l'histoire qui a été martyrisé au nom de la justice et de la vérité. Dieu a Ses desseins et Ses voies.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

@@ -27,3 +27,5 @@ Ce Dieu vivant m'a pris de mon Afrique natale et m'a montré le chemin, en m'emm
 <small>
 
 1. <large id="f1"> **James Albert Ukawsaw Gronniosow** (c.1712-1775) fut un Africain emmené, jeune, en esclavage en Amérique. Il était le petit-fils d'un roi, et donc un prince. Il a publié un récit de ses expériences intitulé *« A Narrative of the Most Remarkable Particulars in the Life of James Albert Gronniosaw, an African Prince, as Related by Himself (Un récit des détails les plus remarquables de la vie de James Albert Gronniosaw, un prince africain, tel qu'il l'a raconté lui-même.) »*. Il a été publié en 1772.[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

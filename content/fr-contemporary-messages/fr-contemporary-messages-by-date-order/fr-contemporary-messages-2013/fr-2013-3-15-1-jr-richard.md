@@ -103,6 +103,8 @@ Richard.
 
 **Note :** Ce message est protégé par un copyright.
 
-Ce message est inclus dans le livre « The Richard Messages » en tant qu’article numéro 44. Le livre peut être acheté sur [Lulu](https://www.lulu.com/shop/james-reid/the-richard-messages/paperback/product-21354445.html?page=1&pageSize=4) ou Amazon. Il est intéressant de noter que les conseils donnés ici sur la meilleure façon d’aborder la question des émotions troublantes sont tout à fait contraires à ceux d’un autre enseignant qui prétend que le flux d’Amour divin est inhibé par les émotions.
+Ce message est inclus dans le livre « The Richard Messages » en tant qu’article numéro 44. Le livre peut être acheté sur [Lulu](https://www.lulu.com/shop/james-reid/the-richard-messages/paperback/product-21354445.html?page=1&pageSize=4) ou sur [Amazon](https://www.amazon.fr/Richard-Messages-English-James-Reid-ebook/dp/B00OZ8JZUY). Il est intéressant de noter que les conseils donnés ici sur la meilleure façon d’aborder la question des émotions troublantes sont tout à fait contraires à ceux d’un autre enseignant qui prétend que le flux d’Amour divin est inhibé par les émotions.
 
 Un autre message sur les émotions a été reçu [la veille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-14-1-af-judas/), via un autre médium.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

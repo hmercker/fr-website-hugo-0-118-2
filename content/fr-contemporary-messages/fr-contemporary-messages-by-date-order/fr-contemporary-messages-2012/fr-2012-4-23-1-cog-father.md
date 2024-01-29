@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce moment
 
-Père - reçu par Enfant de Dieu le 23 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 23 Avril 2012.
 
 Cher enfant, aujourd’hui, nous allons parler de ce moment.
 
@@ -20,3 +20,5 @@ Ce moment est un cadeau. Ce moment est tout ce que tu as et c’est suffisant.
 Je t’aime comme toujours.
 
 Ton Père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

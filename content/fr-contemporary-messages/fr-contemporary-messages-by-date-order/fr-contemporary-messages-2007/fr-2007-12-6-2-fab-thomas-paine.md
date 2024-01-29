@@ -18,3 +18,5 @@ Dans ma canalisation, [« Une discussion sur le médium et la guerre »](/fr-con
 Ce que je voulais dire, c'est que la guerre a simplement été une réalité toujours présente dans les affaires humaines, et que les gens y ont répondu de différentes manières, en fonction de leurs différents motifs. Ainsi, par exemple, une personne qui tue pour sauver la vie d'un enfant s'en sort mieux dans le monde des esprits que celle qui tue juste pour le plaisir.
 
 Je sais que c'est difficile à comprendre, mais chaque esprit est traité avec justice, en fonction de l'état de son âme.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

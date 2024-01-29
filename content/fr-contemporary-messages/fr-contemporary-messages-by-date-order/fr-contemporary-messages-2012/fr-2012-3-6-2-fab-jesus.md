@@ -20,3 +20,5 @@ Il suffit de regarder les preuves. Les deux guerres mondiales ont pris fin. Lais
 Vous confondez deux choses : notre incapacité et notre répugnance à violer le libre arbitre, et nos véritables perceptions des horreurs de la guerre. Nous ne sommes pas naïfs, nous ne regardons pas les dirigeants maléfiques, alors qu’ils se déchaînent et détruisent, et nous sourions simplement en disant que Dieu les aime ! Non, en fait, nous voyons le mal encore plus clairement avec nos perceptions plus larges et notre perspicacité.
 
 Alors pourquoi n’essayez-vous pas de les arrêter, demandez-vous ? Et si nous essayons de les arrêter, n’est-ce pas là la définition même de l’intervention ?
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

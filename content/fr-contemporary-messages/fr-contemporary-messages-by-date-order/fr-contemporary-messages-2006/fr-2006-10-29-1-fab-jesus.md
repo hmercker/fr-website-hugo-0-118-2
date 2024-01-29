@@ -22,3 +22,5 @@ Comme vous l'avez correctement supposé, la crise environnementale n'a pas encor
 Ce qui doit se produire, et ce qui se produira, c'est que les mortels seront éduqués quant à ce que chaque personne peut faire pour aider, et il y aura un puissant déferlement d'efforts pour renverser la marée des abus. Un événement très dramatique dans votre pays, les États-Unis, sera le catalyseur qui activera ce processus.
 
 Je sais que vous n'êtes pas un scientifique de l'environnement. Vous avez tendance à croire à la véracité de ces prédictions sinistres. Mais la nature a une grande capacité à se renouveler.Je ne peux pas vous transmettre une réfutation point par point de ces choses, car votre esprit n'est pas familiarisé avec ce genre de choses, mais je peux dire que, aussi impossible que cela puisse paraître, ces problèmes finiront par être résolus, et la Terre sera le Paradis qu'elle a toujours été censée être.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

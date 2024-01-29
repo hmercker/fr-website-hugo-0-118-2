@@ -30,3 +30,5 @@ Avec le grand Amour de Dieu actif dans vos âmes, vous pouvez atteindre l'harmon
 Je vous remercie de me permettre d'écrire et d'exprimer mes sentiments. Je suis votre ami et votre frère, un Esprit Céleste qui travaille sur terre depuis des siècles pour aider à faire prendre conscience aux enfants de Dieu que la paix est possible.
 
 Inspiré par Pierre l'Apôtre.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

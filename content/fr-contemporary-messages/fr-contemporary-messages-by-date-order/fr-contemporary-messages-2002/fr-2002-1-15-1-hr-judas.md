@@ -54,3 +54,5 @@ Réfléchis-y quelque temps, mais, pour l’instant, je termine mon message. Je 
 Avec beaucoup d’amour, ton frère en esprit, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

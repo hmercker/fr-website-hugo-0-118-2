@@ -44,3 +44,6 @@ Je prie pour que mon message n’ait pas compliqué davantage la question, mais 
 Vous pouvez assurer à vos adeptes qu’ils ont des gardiens Célestes qui les guident et répondent à leurs questions lorsqu’ils se mettent dans un endroit calme et paisible et prient pour connaître la Vérité et mettre de côté leurs intrusions mentales pour cette période de temps.
 
 Je vous aime, chaque âme qui cherche à faire la Volonté de Dieu et désire servir d’exemples de Son Amour rendu manifeste dans un monde malheureux. Que Dieu vous bénisse. Je suis un ange Céleste élevé, qui se sent béni pour cette opportunité de servir mes semblables dans ce monde. Amen.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

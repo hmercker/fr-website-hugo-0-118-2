@@ -32,3 +32,5 @@ Regardez ces petits moments et louez Dieu et votre propre bonté d’être béni
 La vie est belle parce que vous y êtes, enfants bénis, phares pour toute l’humanité. Les anges sont avec vous, ils vous guident pour vous faire entrer dans le plan d’harmonie et de lumière qui existe dans vos cœurs, vos esprits et vos âmes. Nous sommes un dans l’esprit du Christ, et l’amour pur commandera vos pas pour qu’ils ne faiblissent pas.
 
 Je vous aime, mes frères et sœurs. Je suis votre frère et mon amour ne se lassera jamais de vous embrasser comme ma propre famille – Jean.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -18,3 +18,6 @@ Permets-moi de commenter les références aux Juifs et au Judaïsme dans les mes
 Les esprits ont toutes sortes d'opinions. Dire, par exemple, que le rejet de moi par les Juifs peut expliquer leur sort malheureux, c'est une opinion. Nous savons que votre opinion est complètement différente.
 
 Étant vous-même Juif, vous manifestez naturellement une sympathie plus directe pour votre foi natale et vos ancêtres. Dieu vous a donc utilisé pour poursuivre notre mission en vous demandant de canaliser certains de ces anciens leaders Juifs, ce que vous avez fait. Nous sommes très heureux de la façon dont ces messages ont été reçus.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+

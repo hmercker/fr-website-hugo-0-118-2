@@ -13,7 +13,7 @@ Johann Sébastian Bach - reçu par FAB le 27 Février 2003, Santa Cruz, Californ
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-basilique-st-augustin.jpg)
 
-Je suis Jean Sebastien Bach.
+Je suis Jean Sebastien Bach.<sup id="a1">[1](#f1)</sup>
 
 Je suis si heureux que vous lisiez le récit de ma vie *[La vraie vie de J.S. Bach de Klaus Eidam]*. Ma vie a été difficile, mais Dieu m’a donné les qualités de persévérance et de ténacité. Je devais être fort pour ma famille et pour moi-même. Je sentais aussi que ma musique était une vocation et un don. J’étais reconnu à bien des égards par mes contemporains, mais pas de la manière dont on le fait à son époque. Oui, le public était ravi lorsque je jouais, et j’ai même été honoré par le roi Frédéric. Mais ce n’était pas principalement en tant que compositeur. Et oui, j’ai écrit de nombreuses cantates qui étaient régulièrement jouées. Pourtant, nombreux étaient ceux, en particulier dans les hautes sphères, qui n’aimaient pas ma musique, avec toutes ses nouveautés et ses harmonies bizarres (de leur point de vue). Je savais que je faisais œuvre de pionnier, mais je ne pouvais évidemment pas me projeter 250 ans en avant. Je ne savais pas que j’aurais la réputation que j’ai maintenant sur terre. Bien sûr, je comprends, en toute humilité, mes dons de compositeur maintenant, avec le recul de 250 ans de reconnaissance mortelle et de croissance spirituelle dans le monde des esprits.
 
@@ -30,3 +30,8 @@ Par exemple, lorsque mon frère aîné m’a adopté alors que j’étais enfant
 Je sais que vous ne vous attendiez pas à un tel message ce soir, mais la vie est pleine de surprises, n’est-ce pas ?
 
 Amour, Bach.
+<small>
+
+1. <large id="f1"> Jean Sebastien Bach s'est également exprimé à travers les messages communiqués [le 31/12/2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) et [le 26/01/2008](). [↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

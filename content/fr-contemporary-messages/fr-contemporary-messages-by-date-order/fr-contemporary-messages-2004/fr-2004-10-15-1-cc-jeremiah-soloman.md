@@ -36,3 +36,5 @@ Le don de votre amour peut prendre de nombreuses formes et nous vous laissons ic
 Nous vous aimons et sommes toujours avec vous, chers enfants. Nous prions pour que l’Amour du Père vous remplisse et vous inspire à donner votre amour à tous vos frères et sœurs.
 
 Nous sommes vos gardiens, Jéremie et Salomon.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

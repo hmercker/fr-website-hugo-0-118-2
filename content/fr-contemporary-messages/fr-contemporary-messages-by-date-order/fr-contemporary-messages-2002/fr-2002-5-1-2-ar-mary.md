@@ -36,3 +36,5 @@ Vous êtes notre famille pour toujours, et vous pouvez trouver du réconfort en 
 Tout ce qui est faux tombera, mais jusqu’à ce que cela arrive, sois assurée que tu es toujours sous l’étroite surveillance de ceux qui te connaissent. Nous te tendons la main chaque jour, ma bien-aimée. N’oublie pas cet Amour qui ne t’abandonnera jamais.
 
 Je suis ta sœur dans le Christ, ta gardienne et ton amie, Marie, la mère de Jésus, et une vraie disciple de mon fils.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

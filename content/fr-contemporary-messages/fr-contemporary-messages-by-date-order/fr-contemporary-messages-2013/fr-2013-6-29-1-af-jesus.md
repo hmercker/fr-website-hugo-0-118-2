@@ -22,3 +22,5 @@ Au fur et à mesure que cela se déroule dans vos vies, dans vos êtres, dans vo
 Nous prions pour que vous mettiez cela de côté, que vous choisissiez la lumière à chaque respiration, que vous soyez un canal d’amour à chaque instant. Bénissez-vous, mes enfants, car vous faites cet effort, et vous le désirez, et il le sera. L’Amour de Dieu tout puissant coule dans vos âmes en ce moment. Soyez ouverts à cette grande et puissante bénédiction. Il changera le monde, mes enfants, il changera le monde. Que Dieu vous bénisse.
 
 Je suis Jésus et je vous aime. Chacun d’entre vous m’est précieux. Chacun de vous est beau et aimé, aimé de Dieu, d’une manière si grande et si puissante, que, si vous pouviez comprendre et expérimenter cet amour, vous seriez essoufflés, humbles et émerveillés de découvrir toute la force et puissance avec lesquelles Dieu vous aime. Que cet éveil se produise pour chaque âme ici. Il est fait pour vous. Que Dieu vous bénisse.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

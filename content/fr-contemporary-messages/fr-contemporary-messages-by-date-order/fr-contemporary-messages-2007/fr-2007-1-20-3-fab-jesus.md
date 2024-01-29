@@ -22,3 +22,5 @@ Ensuite, il y a l'idée, dans la canalisation du Dr Samuels, que connaissant com
 C'est en effet une bonne possibilité, qui semble s'harmoniser avec l'idée d'un Créateur aimant. Malheureusement, moi-même, bien que je sois l'être hautement évolué que je suis, même à cette date tardive, je n'ai pas une totale clarté sur ce sujet.
 
 Mais je tiens à affirmer que M. Padgett a bien canalisé cette idée de la fermeture du Royaume, non seulement de ma part, mais de celle de nombreux esprits Célestes, qui tirent leurs perceptions de Dieu.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

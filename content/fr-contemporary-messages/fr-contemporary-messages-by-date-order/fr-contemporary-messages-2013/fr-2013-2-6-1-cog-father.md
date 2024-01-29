@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne laissez pas votre mental limiter votre pensée
 
-Père - reçu par Enfant de Dieu le 6 Février 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 6 Février 2013.
 
 Ne laisse pas ton mental limiter ta pensée.
 
@@ -24,3 +24,5 @@ Maintenant tu sentiras toujours la connaissance de ton âme. Tout deviendra poss
 Ne laisse pas ton mental limiter tes croyances. Tu peux faire confiance à ton cœur. Tu peux suivre les désirs de ton âme. Tu es en sécurité dans Mon Amour.
 
 Ton Père pour toujours.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

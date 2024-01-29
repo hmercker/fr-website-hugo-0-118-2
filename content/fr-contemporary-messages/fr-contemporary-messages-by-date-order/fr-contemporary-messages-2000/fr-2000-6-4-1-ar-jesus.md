@@ -32,3 +32,6 @@ Sache que tu bénéficies de ma bénédiction pour traduire la vérité en Néer
 Vous êtes mes disciples sur terre et je vous remercie de votre amour et de vos humbles prières pour être à l'unisson avec nous dans les Cieux célestes dans ce travail incroyable et joyeux de construction d'un Royaume d'Amour.
 
 Je suis votre frère, Jésus, et Maître des Cieux Célestes, qui vous aime et vous guide chaque fois que vous le demandez.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

@@ -28,3 +28,5 @@ Bien que vous soyez parfaitement conscients des limites de ma capacité à trans
 Permettez-moi de conclure ici. Passez une soirée paisible et épanouissante.
 
 Amitiés, Beethoven.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

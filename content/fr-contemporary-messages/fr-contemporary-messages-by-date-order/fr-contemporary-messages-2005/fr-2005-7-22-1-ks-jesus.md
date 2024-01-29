@@ -30,3 +30,5 @@ Dieu bénit tous ses enfants en permanence. Si de dures leçons surviennent, il 
 Je vous aime et serai avec vous toute la nuit, canalisant les énergies de guérison et l'amour dans vos blessures. Dieu continuera à vous bénir sans limite ni fin, et je serai aux côtés de beaucoup de mes disciples dévoués, et de beaucoup de ceux qui ne croient même pas à l'Esprit du Christ, simplement à cause de leur dévotion à Dieu, seul.
 
 Votre ami et frère en Christ, Jésus.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

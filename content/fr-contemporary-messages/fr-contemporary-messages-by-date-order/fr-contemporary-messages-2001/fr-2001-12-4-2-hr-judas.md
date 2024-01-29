@@ -38,3 +38,5 @@ J’espère que ce court message te sera utile. Quand tu es dérangé par n’im
 Ton frère en Christ, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

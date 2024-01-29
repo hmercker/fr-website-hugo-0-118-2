@@ -80,3 +80,5 @@ Le développement spirituel prend aussi du temps et consomme de l’énergie. L�
 Avec beaucoup d’amour, ton frère de toujours, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

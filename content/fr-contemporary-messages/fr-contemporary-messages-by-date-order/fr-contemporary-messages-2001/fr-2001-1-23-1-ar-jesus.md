@@ -36,3 +36,5 @@ Oui, nous sommes vos frères Célestes qui aident et soutiennent votre force spi
 Ces dons d’amour, vous ne vous les envierez pas les uns les autres, mais vous vous réjouirez en eux comme un puissant chœur d’Amour.
 
 Je vous aime, mes disciples du Christ, et je suis votre frère et ami, Jésus, qui vous aime et vous sert dans l’Amour Divin.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

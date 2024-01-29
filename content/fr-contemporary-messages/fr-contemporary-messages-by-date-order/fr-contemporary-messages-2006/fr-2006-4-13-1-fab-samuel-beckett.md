@@ -21,3 +21,5 @@ Avec un grand malheur, Samuel Beckett.
 <small>
 
 1. <large id="f1"> **Samuel Barclay Beckett** (13 Avril 1906 – 22 Décembre 1989) était un dramaturge, romancier et poète irlandais. L’œuvre de Beckett est austère, fondamentalement minimaliste et, selon certaines interprétations, profondément pessimiste sur la condition humaine. Ce pessimisme perçu est atténué à la fois par un grand sens de l’humour, souvent malicieux, et par le sentiment, pour certains lecteurs, que la représentation que fait Beckett des obstacles de la vie sert à démontrer que le voyage, bien que difficile, en vaut finalement la peine. Il a reçu le prix Nobel de littérature en 1969. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

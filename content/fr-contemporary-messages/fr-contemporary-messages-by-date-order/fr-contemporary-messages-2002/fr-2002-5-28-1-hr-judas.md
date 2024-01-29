@@ -28,3 +28,5 @@ Mais, pour l’instant, prends soin de toi et guéris ton rhume. Demain nous aur
 À très bientôt, ton frère.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

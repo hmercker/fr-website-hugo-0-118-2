@@ -20,3 +20,5 @@ Jésus a été éduqué dans la Torah lors de son enfance en Égypte. Il a appri
 Ne croyez donc pas tout ce que vous lisez, et ayez confiance en votre canalisation.
 
 Nous avons fait de notre mieux pour prendre nos distances avec le monde païen grec/romain, car nous avions le sentiment qu'à bien des égards, il violait nos croyances et nos traditions.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

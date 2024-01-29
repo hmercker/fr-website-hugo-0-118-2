@@ -24,3 +24,6 @@ Les lois du monde spirituel, comme les lois du monde terrestre, sont telles qu�
 Je vous aime et j’espère que vous trouverez un certain réconfort dans ce message et bien que je n’aie pas répondu à une question spécifique, il peut satisfaire certaines questions qui ont été posées.
 
 Je suis votre sœur dans le Christ, Marie la mère de Jésus et votre amie et guide dans l’Amour Divin.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

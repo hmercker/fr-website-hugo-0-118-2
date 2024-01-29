@@ -20,3 +20,5 @@ Comme j'ai une vision positive de la nature humaine, je ne ferais jamais de gén
 Je répète donc, en gardant tout cela à l'esprit, que le système doit s'harmoniser, et ce processus sera grandement facilité par le fait que certains éléments du pays ont maintenu leurs normes éthiques tout au long de cette période difficile.
 
 Peut-être le problème pour vous, une fois de plus, est-il les limites qu'apporte le langage humain.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

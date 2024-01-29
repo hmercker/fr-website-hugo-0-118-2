@@ -96,3 +96,5 @@ Très bien, maintenant nous sommes vraiment arrivés à la fin de notre message 
 Je suis ton ami Céleste et ton frère, Judas de Kerioth.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

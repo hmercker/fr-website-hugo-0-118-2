@@ -21,3 +21,5 @@ Mais au fur et à mesure que le nourrisson grandit, il trouve rapidement la mora
 Les enfants peuvent faire le mal. C'est un fait, que beaucoup peuvent attester. Et cela parce que les enfants, tout comme les adultes, ont une âme, dont ils sont responsables.
 
 L'obéissance à une demande parentale est une chose, mais le choix moral en est une autre, et les enfants en font l'expérience autant que les adultes.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

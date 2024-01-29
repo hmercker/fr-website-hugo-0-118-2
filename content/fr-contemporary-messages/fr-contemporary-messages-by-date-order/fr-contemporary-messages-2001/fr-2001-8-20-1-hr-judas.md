@@ -40,3 +40,5 @@ C’est alors que j’entendis la voix me dire : «Je veux te montrer que l’â
 Malheureusement, je ne sais pas qui est le titulaire du droit d’auteur original de cette photographie, l’image a cependant été modifiée par le médium, en utilisant un logiciel de manipulation d’image numérique, pour obtenir le résultat qu’il recherchait. Sur cette base, je pense qu’elle peut être publiée. Si l’image résultante laisse apparaître une ressemblance avec une personne vivante, cette ressemblance est fortuite. Geoff Cutler.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

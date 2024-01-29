@@ -14,3 +14,5 @@ Jésus - reçu par FAB le 23 Mai 2010, Santa Cruz, Californie, USA.
 C'est moi, Jésus.
 
 Mais encore une fois, vous pensez avec votre tête et non avec votre âme. Sans les perceptions de l'âme, tout est terne et noir et blanc, avec des couleurs et des formes différentes.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

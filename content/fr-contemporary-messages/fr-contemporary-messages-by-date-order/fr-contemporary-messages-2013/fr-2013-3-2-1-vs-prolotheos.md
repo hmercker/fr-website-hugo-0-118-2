@@ -11,7 +11,7 @@ weight:
 
 **Prolotheos** - reçu par Valdir Soares <sup id="a1">[1](#f1)</sup> le 2 Mars 2013
 
-**Prolotheos :**  *« L’évolution est un moyen par lequel les Dieux  « impriment leur dessin  » sur la création spatio-temporelle. En effet, ce n’est pas le seul moyen par lequel la création apparaît dans les Univers. Il y a la création par fiat, par génération et par évolution. L’évolution de la vie sur Urantia a commencé avec la formulation de la vie par les Porteurs de Vie, et elle se poursuivra dans les ères de Lumière et de Vie par la « synthèse » progressive de la Déité Suprême Planétaire résidente. L’évolution est un processus complexe qui ne peut être entièrement compris, même par les êtres humains qu’il produit. Malheureusement, la religion évolutionniste ne se laisse pas comprendre, tandis que l’ignorance la déforme grossièrement.
+**Prolotheos :**  « L’évolution<sup id="a2">[2](#f2)</sup> est un moyen par lequel les Dieux  « impriment leur dessin  » sur la création spatio-temporelle. En effet, ce n’est pas le seul moyen par lequel la création apparaît dans les Univers. Il y a la création par fiat, par génération et par évolution. L’évolution de la vie sur Urantia a commencé avec la formulation de la vie par les Porteurs de Vie, et elle se poursuivra dans les ères de Lumière et de Vie par la « synthèse » progressive de la Déité Suprême Planétaire résidente. L’évolution est un processus complexe qui ne peut être entièrement compris, même par les êtres humains qu’il produit. Malheureusement, la religion évolutionniste ne se laisse pas comprendre, tandis que l’ignorance la déforme grossièrement.
 
 « Le premier concept erroné concernant l’évolution sur Urantia est l’affirmation que l’évolution de la vie est purement le résultat du hasard. Rien dans les Univers n’est purement aléatoire. Dieu existe et ne laisse rien au hasard. Même lorsqu’il donne le libre choix aux êtres personnels, la finitude et les limites mêmes de ces êtres, ainsi que l’ordre divin établi, font que leurs choix s’inscrivent finalement dans les plans ultimes des Dieux. L’évolution n’a pas de commencement, ni de conduite aléatoire. Elle provient des énergies de l’espace, est manipulée par des Êtres Célestes hautement dotés, et se développe sous l’étroite surveillance d’Administrateurs Célestes jusqu’à ce que la personnalité se manifeste dans une espèce particulière.
 
@@ -25,3 +25,8 @@ weight:
 <small>
 
 1. <large id="f1"> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
+
+2. <large id="f2">  Ce sujet concernant l'évolution a également été traité dans [cette section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+

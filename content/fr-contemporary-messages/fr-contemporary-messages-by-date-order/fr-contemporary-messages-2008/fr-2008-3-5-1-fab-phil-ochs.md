@@ -20,3 +20,5 @@ Oh, je suis tellement heureux maintenant ! Je n'ai plus de fardeau, et je suis l
 Vous pensez que vous vivrez pour voir l'accomplissement des années 1960, et je souhaite confirmer votre perception. Il est déjà là, en Amérique, seulement submergé par toute l'obscurité.
 
 Et l'obscurité se lèvera, pour révéler un pays qui trouve sa liberté et qui trouve sa naissance.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

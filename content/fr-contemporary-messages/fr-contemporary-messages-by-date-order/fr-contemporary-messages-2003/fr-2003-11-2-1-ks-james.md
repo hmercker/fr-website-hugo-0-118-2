@@ -36,3 +36,5 @@ Faites de bons choix ; donnez votre amour, pas vos conseils et votre vie changer
 Nous t’aimons et nous aimons les grands progrès spirituels que tu fais, et nous continuerons à être des collègues de travail avec toi pour toujours.
 
 Votre ami et frère en Esprit, Jacques, l’Apôtre de Jésus. Merci d’avoir pris mon message.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

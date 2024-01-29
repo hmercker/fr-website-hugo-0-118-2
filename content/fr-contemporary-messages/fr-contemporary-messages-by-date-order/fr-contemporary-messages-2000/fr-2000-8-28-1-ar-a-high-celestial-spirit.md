@@ -42,3 +42,6 @@ Il continuera à y avoir des divergences dans les religions et dans le cœur de 
 Que Dieu vous bénisse pour avoir cherché à faire la volonté de Dieu dans vos vies, pour avoir désiré connaître la vérité et pour avoir voulu développer le plus haut potentiel de vos âmes. Nous sommes une armée Céleste capable d’exercer une grande influence sur de nombreux segments de l’humanité, mais il vous faut au moins une étincelle de désir de vouloir changer pour le mieux avant de répondre à notre aide et à notre amour.
 
 Merci d’avoir accepté de recevoir un message de ma part. Il a été assez facile de t’écrire aujourd’hui. Je vais vous dire au revoir et me signer, un haut esprit Céleste.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

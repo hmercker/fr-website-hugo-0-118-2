@@ -38,3 +38,5 @@ Il semble que certains d’entre nous « abandonnent » ou restent satisfaits du
 Je vous laisse maintenant et je tiens à vous remercier d’avoir été un canal pour mon message, même si c’est un peu à contrecœur. Je suis satisfait que vous ayez reçu l’essentiel de ce que je souhaitais écrire ce matin et je vous entoure de mon amour et de mes bénédictions. Vous êtes protégés et guidés à tout moment. Continuez vos bons désirs et vos efforts et vous continuerez à être bénis et guidés.
 
 Je t’aime, et je suis l’un de tes anges gardiens, Joseph, le père terrestre de Jésus et un adepte de ses enseignements. Amen.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

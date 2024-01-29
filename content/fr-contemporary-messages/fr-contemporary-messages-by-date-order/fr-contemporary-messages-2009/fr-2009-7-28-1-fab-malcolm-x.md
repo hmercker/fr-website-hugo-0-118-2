@@ -20,3 +20,5 @@ Vous n’étiez pas d’accord avec ce que j’ai dit. Vous avez lu que j’avai
 Et c’est, bien sûr, vrai. Mais cela ne se serait jamais passé ainsi si je n’avais pas auparavant consacré ma vie à prêcher la haine des Blancs. Dans l’économie d’Allah, c’était cause et effet, et il était malheureusement trop tard pour moi. Souvent, la loi des semailles et des récoltes utilise des incidents apparemment sans rapport pour produire des effets qui ne changent jamais. En d’autres termes, l’effet sera certainement le résultat de la cause.
 
 Oui, vous avez bien reçu mes pensées.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

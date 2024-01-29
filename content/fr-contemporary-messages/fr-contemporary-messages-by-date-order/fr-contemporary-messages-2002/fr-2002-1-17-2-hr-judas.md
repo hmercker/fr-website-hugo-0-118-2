@@ -59,3 +59,5 @@ Judas.
 <small>
 
 1. <large id="f1"> Cette observation a été faite en toute sincérité, lorsqu'il n’y avait vraiment que deux sites web sur l’Amour Divin, l’un créé par Doug O et l’autre créé par Victor Summers. Lorsque le site web de l’éditeur original des messages de Judas, Geoff Cutler, ne contenait que seulement dix ou vingt pages cela n’a gêné personne, mais dès que ce site (https://www.new-birth.net) a référencé de plus en plus de messages de James Padgett, lesquels étaient indexés par ordre chronologique, des accusations diverses ont surgi et il fut reproché à Geoff Cutler de faire la concurrence des sites web  existants. Aujourd’hui, il y a un grand nombre de sites, et ce non-sens a été oublié depuis longtemps.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

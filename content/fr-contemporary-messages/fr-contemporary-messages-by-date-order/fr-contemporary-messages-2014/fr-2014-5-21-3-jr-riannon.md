@@ -22,3 +22,5 @@ Peu importe où vous vous trouvez dans cet univers, vous pouvez être connectés
 C’est une partie vitale de votre existence et je me suis senti poussé à vous le rappeler. Comme pour beaucoup de choses dans notre développement spirituel, vous recevrez rappel après rappel après rappel, et encore un autre rappel. Cela signifie-t-il que vous êtes négligents ? Non, cela signifie que vous êtes humains. Et d’autres choses s’immiscent dans vos pensées, votre amour et votre existence, alors un autre petit rappel avec amour est toujours en place. Je m’en vais maintenant en vous laissant avec mon amour et les bénédictions de chacun d’entre nous, et notre gratitude pour votre réunion dans cette grande aventure, car elle est bien plus grande qu’aucun d’entre vous ne l’imagine encore. Je vous bénis tous.
 
 *© Ce message est protégé par des droits d'auteur.*
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

@@ -18,3 +18,5 @@ Oui, vous avez bien deviné. Je voulais garder le meilleur pour maintenant, à s
 Jésus m’a parlé d’une manière très basse, tranquille mais intense. Les choses qu’il a dites m’ont montré qu’il connaissait ma vie intimement. Il a dit qu’il y aura toujours quelque chose de plus à apprendre. Nous avons communié ensemble pendant un long moment, puis lorsqu’il a vu que j’avais retrouvé mon calme, il m’a laissée pour rejoindre mes parents et amis, que j’avais beaucoup envie de revoir.
 
 Je me suis senti si privilégié d’avoir une telle réception. Oh, vous ne pouvez pas imaginer combien le Sauveur est merveilleux !
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)

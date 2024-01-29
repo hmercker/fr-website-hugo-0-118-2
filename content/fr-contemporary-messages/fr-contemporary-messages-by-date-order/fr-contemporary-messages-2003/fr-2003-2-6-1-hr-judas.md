@@ -53,3 +53,5 @@ Ton frère en Christ, Judas de Kerioth.
 <small>
 
 1. <large id="f1"> [Néron](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-16-1-jep-nero/) et [Caligula](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-11-1-jep-caligula/) a furent tous deux sauvés des enfers par leurs âmes sœurs, qui, ironiquement, étaient chrétiennes.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

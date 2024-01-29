@@ -33,3 +33,5 @@ Eh bien, maintenant vous savez que les deux lois fonctionnent simultanément –
 <small>
 
 1. <large id="f1"> **Cotton Mather**, (12 Février 1663 - 13 Février 1728 ; A.B. 1678, Harvard College ; A.M. 1681, doctorat honorifique 1710, Université de Glasgow) était un ministre puritain de Nouvelle-Angleterre socialement et politiquement influent, un auteur prolifique et un pamphlétaire. Connu pour son soutien vigoureux aux procès des sorcières de Salem, il a également laissé un héritage scientifique grâce à ses expériences d'hybridation et sa promotion de l'inoculation pour la prévention des maladies. Il s'est ensuite vu refuser la présidence du Harvard College que son père, Increase, avait occupée. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

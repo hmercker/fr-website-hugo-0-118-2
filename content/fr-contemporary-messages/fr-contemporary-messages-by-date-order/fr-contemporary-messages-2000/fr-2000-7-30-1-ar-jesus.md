@@ -30,3 +30,6 @@ Je veux parler du mal et de la violence qui règnent dans ce monde. Je vous dema
 Nous sommes toujours avec vous, ma famille, et je veux demander à chacun de vous de vous respecter comme le Don d’Amour que vous êtes devenu. N’oubliez jamais votre relation avec Dieu et vous n’oublierez jamais la vérité de ce que vous êtes.
 
 Je vous aime, mes propres disciples, et je suis votre frère en Christ et Maître des Cieux Célestes, Jésus de la Bible.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

@@ -20,3 +20,5 @@ Ne doutez pas. Être dans l'obscurité ne disqualifie pas la pensée lucide et l
 Oui, il arrive qu'il y ait de la bonté dans un esprit des ténèbres. L'âme humaine est complexe, et il y a toutes sortes de degrés de souillure.
 
 Ils sont venus à vous parce qu'ils ont eu un attachement positif ou un bon sentiment à votre égard. Nous ne permettrions tout simplement pas à un esprit qui vous est hostile de tenter de canaliser à travers vous.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

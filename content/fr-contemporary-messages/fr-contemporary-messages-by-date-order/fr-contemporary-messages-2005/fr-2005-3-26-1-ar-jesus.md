@@ -22,3 +22,5 @@ J'ai parlé un jour de se vêtir du vêtement de l'amour - votre « costume de p
 Mes chers frères et sœurs en Christ, je vous demande de porter ce vêtement brillant d'amour et de compassion pour éveiller le potentiel, en chacun, de voir la vérité. Je suis avec vous, tout comme une foule d'anges, et nous sommes une force puissante à l'œuvre dans le monde. Nous choisissons d'être à vos côtés pour vous aider chaque fois que vous le demandez, et même lorsque vous ne le demandez pas.
 
 Je vous aime et je suis reconnaissant pour chacun de vos choix d'aimer. Je suis votre frère, toujours présent, Jésus.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

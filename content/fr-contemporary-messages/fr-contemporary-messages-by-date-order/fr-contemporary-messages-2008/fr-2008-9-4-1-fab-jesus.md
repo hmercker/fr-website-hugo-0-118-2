@@ -26,3 +26,5 @@ Ensuite, vous rétorquez que ceux qui bénéficient des politiques positives des
 Il y a beaucoup de gens qui font de leur mieux afin de faire avancer les choses pour le bien. Ce à quoi je fais référence, c'est à l'installation de base, à la manière dont elle est structurée.
 
 Je peux lire vos pensées. Vous pensez que vous ne faites que perpétuer les erreurs de canalisation dans ce message, mais je vous assure que ce sont mes pensées, pas les vôtres. Vous ne justifiez pas vos propres erreurs, vous recevez mes pensées.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

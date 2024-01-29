@@ -44,3 +44,5 @@ Vous avez fait l'erreur de les juger et vous n'avez donc pas pu voir que, dans l
 Et l'un de nos objectifs est de libérer la religion, afin que la Vérité intérieure, que j'ai pleinement représentée, et que je continue de représenter, remonte à la surface, et que l'effet délétère des maux de la religion sectaire soit écarté. Et je ne parle pas seulement du Christianisme, mais aussi d'autres religions, comme le Judaïsme et l'Islam.
 
 Les gens doivent apprendre, et apprendront, que la religion ne consiste pas à imposer sa volonté de manière agressive, mais qu'il s'agit d'amour, pur et simple. Et le plus grand amour est l'Amour Divin, qui conduit à la nouvelle naissance de l'âme.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

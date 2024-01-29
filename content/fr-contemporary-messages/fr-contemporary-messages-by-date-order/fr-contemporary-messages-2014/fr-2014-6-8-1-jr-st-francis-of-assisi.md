@@ -46,3 +46,5 @@ Tout ce que vous entreprenez fait partie d’un processus évolutif merveilleux 
 Mes frères et sœurs, j’aime chacun d’entre vous et je le ferai toujours. Je bénis chacun d’entre vous et tous vos efforts et je vous assure de notre soutien continu, de nos encouragements et de nos conseils. Il n’y a aucune raison de trébucher comme nous l’avons fait sur terre lorsque nous pouvons vous guider à travers les embûches et les écueils.
 
 Je suis François et je vous laisse avec mes bénédictions et mon amour.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

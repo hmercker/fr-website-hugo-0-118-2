@@ -18,6 +18,7 @@ Je viens en cette belle matinée pour délivrer un message sur un sujet avec leq
 Vous savez que j’ai enseigné que nous devions aimer nos ennemis. Mais que faire si quelqu’un nous attaque ou attaque nos proches ? Et si un pays fait la guerre à notre pays ? Ne devons-nous pas nous défendre ? C’est la principale critique envers mon enseignement.
 
 La première chose que je dois dire est que chacun a le privilège de se défendre. La question est de savoir comment ?
+
 Un facteur que les gens doivent comprendre est que, comme votre propre expérience le confirme, lorsqu’une personne répond au négatif par le positif, cela déresponsabilise la négativité. J’ai bien compris cela.
 
 Mais pour le mettre en pratique, il faut la force intérieure qui accompagne le développement de l’âme, car la tendance naturelle de l’homme est de répondre au négatif par le négatif.
@@ -29,3 +30,5 @@ Maintenant, la question d’Adolf Hitler vous vient à l’esprit. Vous avez pen
 Cela soulève tout le sujet de la guerre. Existe-t-il une guerre juste, une bonne guerre ? Eh bien, comme nous l’avons dit par l’intermédiaire de M. Padgett, c’est une question individuelle, et chaque personne impliquée lorsque la guerre éclate, doit rendre compte de ce qu’elle a dit et fait, et Dieu laisse l’issue aux mortels.
 
 Mais Dieu travaille toujours pour que sa vérité de droiture et d’amour prévale.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)

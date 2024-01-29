@@ -35,3 +35,5 @@ Dans vos mots, Adieu, Tristiana
 <small>
 
 1. <large id="f1"> Cela ressemble à un fils Magistral. Selon le livre d’Urantia, chaque planète habitée bénéficie éventuellement d’un « Ange » qui vit sur cette planète pour une très longue période – même 1 000 ans – et guide la planète vers un stade spirituel avancé, appelé « Lumière et vie », qui est bien décrit ici par Tristiana. Certains de mes amis et moi-même sont d’avis que le fils Magistral de la terre est, pour ainsi dire, déjà dans les coulisses.[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

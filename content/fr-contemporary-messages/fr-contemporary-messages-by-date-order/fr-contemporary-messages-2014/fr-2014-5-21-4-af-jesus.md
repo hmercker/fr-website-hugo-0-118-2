@@ -22,3 +22,5 @@ Je vous exhorte à prier avec ferveur, à prier de tout votre cœur et de toute 
 Êtes-vous prêts ? Voulez-vous vous avancer, marcher avec moi et suivre la Volonté de Dieu pour guérir ce monde de toutes les terribles privations, du manque d’amour et de la cruauté qui sont si répandus ? Il est temps, il est temps, de marcher dans ce monde dans l’Amour et de partager la vérité de l’Amour, car c’est l’Amour qui guérira ce monde et l’amènera à l’harmonie et à l’équilibre. Chaque âme est requise dans cet effort puissant et chaque âme a un rôle à jouer, des cadeaux à donner. Laissez aller votre résistance, laissez aller votre résistance, laissez aller votre doute et permettez à Dieu de vous toucher profondément et de vous faire avancer dans le flux de Son Amour et je serai avec vous. Je serai toujours avec vous.
 
 Que Dieu vous bénisse avec un puissant afflux de Son Essence Divine et qu’il vous porte vers ce lieu de communion profonde où nous nous rencontrerons et partagerons ce cadeau Céleste. Que Dieu vous bénisse.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

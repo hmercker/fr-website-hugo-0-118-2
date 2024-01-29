@@ -24,3 +24,5 @@ puisqu’il n’y a pas de référence positive.
 Il y a effectivement des descriptions du monde des esprits qui n’avaient jamais été réalisées auparavant. Mais il faut du discernement pour distinguer le faux du vrai.
 
 Vous avez bien canalisé James, qui a son propre point de vue sur la question. Il est compréhensible qu’il se soit exprimé de cette façon, puisque Swedenborg a joué un rôle important dans ses expériences terrestres. Et même s’il a désappris certaines choses, il a conservé son amour pour Swedenborg ici-bas.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

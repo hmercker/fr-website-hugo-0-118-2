@@ -53,3 +53,5 @@ Judas.
 <small>
 
 1. <large id="f1"> Je crois qu’il y a un autre très important facteur, en fait un élément critique qui est aussi impliqué ici, mais comme ce sujet n’a jamais été abordé dans les messages reçus par James Padgett, Judas n’en a pas parlé. C’est un sujet qui est abordé dans le livre d’Urantia sous le titre *« Ajusteur de pensée »*, ou, comme je le comprends, *« L’Esprit Saint »*.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -20,3 +20,5 @@ Ce que vous devez comprendre de cette paix, c’est qu’elle vient de Dieu. Il 
 La paix qui dépasse l’entendement a une sérénité beaucoup plus profonde et vous englobe. Elle est offerte comme une bénédiction venant de Dieu. Vous pouvez sentir la différence. Cette bénédiction est comme une couverture de velours étendue sur vous et d’un confort inimaginable. Elle enveloppe votre être tout entier et calme complètement l’esprit, au-delà de ce que la paix de l’âme peut accomplir.
 
 Vous devez prier pour cette paix. Priez souvent pour cela. Priez avec votre âme. La paix qui dépasse la compréhension est un don sans comparaison et c’est la façon dont Dieu vous aide à surmonter la tyrannie de l’esprit. Convoitez cette aide.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

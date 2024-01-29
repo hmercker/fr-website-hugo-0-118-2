@@ -20,3 +20,5 @@ Permettez-moi de canaliser un complément à ce que j’ai dit dans [mon message
 Ce que j’ai voulu dire, c’est qu’il s’agissait d’une distorsion, d’une caricature, tirée de certains traits véritables. J’étais très fier et assuré de mon talent musical et j’aimais m’amuser. J’étais en effet timide et réservé dans de nombreuses situations, mais, à d’autres moments, je pourrais être l’animateur de la partie.
 
 Puisque j’étais à ma manière dévot, je sentais qu’une certaine qualité réservée de savoir-vivre était appropriée dans de nombreuses situations sociales. Je pouvais donc être timide et extraverti, selon la situation. Par « timide », j’ai voulu dire, me retenant.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

@@ -34,3 +34,5 @@ Nous, les anges, travaillons avec eux. Notre objectif premier sera toujours les 
 Nous faisons donc ce que nous pouvons pour aider, et les bons esprits non croyants font ce qu'ils peuvent, et ensemble, nous travaillons en harmonie.
 
 Vous vous souviendrez que j'ai dit que Dieu ne donnera pas un serpent à une personne qui demande un poisson.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

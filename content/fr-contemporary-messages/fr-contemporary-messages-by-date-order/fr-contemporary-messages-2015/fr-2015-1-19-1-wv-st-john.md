@@ -62,3 +62,5 @@ Exactement. Mais il n’y aura pas seulement un impact positif parce qu’aucun 
 Bien que j’aimerais continuer et alors que j’ai encore beaucoup de choses à dire, je vois que tu commences à être fatigué, aussi je vais m’arrêter ici.
 
 Je te remercie de nous avoir donné ces possibilités et que Dieu te bénisse. Ton frère et ami de toujours, Jean.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)

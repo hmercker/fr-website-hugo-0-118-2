@@ -68,3 +68,5 @@ Mon frère, je te laisse maintenant. Demain, nous traiterons d’un sujet plus a
 Avec mon amour et mes bénédictions, je suis ton frère en Christ, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

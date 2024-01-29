@@ -70,3 +70,5 @@ Demain, si Dieu le permet et si tu me le permets, nous continuerons.
 Jusque-là, Dieu te bénisse toujours, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

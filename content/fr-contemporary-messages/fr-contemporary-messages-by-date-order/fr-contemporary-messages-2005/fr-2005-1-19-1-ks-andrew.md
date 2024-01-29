@@ -32,3 +32,5 @@ J'ai voulu écrire ce petit « rappel » pour encourager les enfants bien-aimés
 Merci de m'avoir permis d'écrire cet après-midi. Je reviendrai bientôt.
 
 Je suis votre ami et ange gardien, André l'Apôtre, qui est avec vous depuis de nombreuses années. Je vous aime et je suis fier des progrès que vous faites. Continuez à prier et à tendre la main.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

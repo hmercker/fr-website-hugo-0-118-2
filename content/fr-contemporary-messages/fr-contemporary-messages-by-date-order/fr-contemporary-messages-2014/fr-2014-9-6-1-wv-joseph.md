@@ -26,3 +26,5 @@ Ne considérez pas ces limites comme négatives, mais comprenez qu’elles sont 
 Nous sommes ici ensemble et nous ne faisons qu’un, que vous vouliez le croire ou non. Nous avons tous commencé notre voyage à partir de la même source et nous finirons tous ce voyage en retournant à cette même source. Acceptez donc vos limites et vos frontières et acceptez celles des autres. Soyez doux. Soyez compréhensif. Soyez patient avec ceux qui vous entourent et avec vous-même. C’est lorsque vous apprendrez à vivre avec ou par vos propres limites ou frontières que vous comprendrez la véritable nature de votre être, de votre âme.
 
 Je vous remercie de m’avoir donné l’occasion de parler de ces sujets. Ils sont très pertinents pour vous tous. Au revoir pour le moment. Jusqu’à ce que nous nous rencontrions à nouveau.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

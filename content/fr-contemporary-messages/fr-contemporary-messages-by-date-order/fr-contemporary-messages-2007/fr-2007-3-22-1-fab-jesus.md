@@ -24,3 +24,5 @@ Donc, je dirai que le mot "inconscient" peut être utilisé correctement tant qu
 Vous avez la pensée, mais les événements de l'enfance ne continuent-ils pas à affecter le comportement de l'adulte même à un âge plus avancé ? Eh bien oui, bien sûr. Mais cela ne signifie pas qu'il existe un inconscient spécifique. Cela signifie simplement que les pensées et les souvenirs de longue date s'accrochent aux parties profondes de l'esprit comme une ombre, et influencent le comportement.
 
 J'affirme donc qu'il existe des pensées qui sont profondes et cachées, mais qu'il est toujours possible d'y accéder avec l'attention nécessaire. Et elles ne constituent pas une partie distincte de l'esprit.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

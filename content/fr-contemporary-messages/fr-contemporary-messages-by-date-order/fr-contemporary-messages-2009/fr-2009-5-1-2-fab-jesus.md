@@ -34,3 +34,5 @@ C'est ce que nous pointons du doigt. Nous ne nions certainement pas que des pers
 Vous avez senti que vous reflétiez simplement votre propre façon de penser dans cette canalisation, mais ce sont mes pensées. Vous doutez de la réalité d'un "système", puisque vous pensez que tout ce qu'il est, ce sont des gens qui font des choix.
 
 Mais ici, vous avez tort. Ce n'est pas aussi simple que cela.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

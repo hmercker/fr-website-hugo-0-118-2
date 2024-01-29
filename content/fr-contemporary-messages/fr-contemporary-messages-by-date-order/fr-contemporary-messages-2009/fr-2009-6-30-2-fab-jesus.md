@@ -14,3 +14,5 @@ Jésus - reçu par FAB le 30 Juin 2009, Santa Cruz, Californie, USA.
 C'est moi, Jésus.
 
 Laisse-moi clarifier ce que j'ai canalisé auprès de vous [dans le passé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-21-1-fab-jesus/). Je disais que lorsque la richesse matérielle est accumulée d'une manière qui va à l'encontre de la vie humaine et qui blesse les gens, alors la loi morale a été violée.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

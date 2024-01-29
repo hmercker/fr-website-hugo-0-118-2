@@ -16,3 +16,5 @@ Vous reconnaissez l'importance du mythe pour la psyché humaine. Vous aimeriez s
 Eh bien, moi aussi, j'y crois beaucoup, et j'ai cru à ce genre de manifestation en tant que mortel. Dans ma région du monde, le mythe et le symbole étaient très importants. Mais il est très dommageable de réduire les récits bibliques à un simple mythe, pour la simple raison qu'ils sont souvent basés sur des réalités historiques. Et ma vie était réelle, tout comme le fut ma transformation d'âme vers la Nouvelle Naissance. Cela s'est réellement produit sur Terre, et c'est pourquoi je suis le Messie de Dieu.
 
 C'est une bonne chose de tirer un beau message édifiant d'une histoire biblique, ou de toute autre histoire. Mais la Bible m'attribue des choses que je n'ai jamais dites, et elle omet mon enseignement central, la Nouvelle Naissance de l'âme dans l'Amour Divin, sauf dans la très brève mention de la Nouvelle Naissance.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

@@ -30,3 +30,5 @@ Si un mortel a une vraie bonté dans son cœur, cette bonté sera reconnue et ho
 Le monde a été informé de la carrière du nazi Oscar Schindler, qui a sauvé de nombreuses vies juives pendant l’Holocauste.
 
 Ce que je veux dire, c’est que ce n’est pas la croyance spécifique qui détermine principalement le destin d’une personne – c’est la manière dont cette croyance est mise en pratique. Ainsi, comme le révèlent les paragraphes ci-dessus, un croyant en Dieu peut commettre des atrocités qui apportent obscurité et souffrance, tandis qu’un nazi professé peut sauver de nombreuses vies innocentes. Cela ne pervertit pas la croyance en Dieu, ni ne justifie le nazisme, car quel que soit le système de croyance d’une personne, celle-ci est responsable de ses paroles et de ses actes et de la manière dont ils affectent les autres ; comme le dit la Bible, c’est à vos fruits que vous les reconnaîtrez.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

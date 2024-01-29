@@ -42,3 +42,5 @@ J’espère et je prie que j’ai expliqué cela d’une manière que vous pourr
 Je vous laisse pour le moment, mais je resterai avec vous en esprit, et je viendrai chaque fois que vous demanderez de l’aide, de la protection ou de l’amour. Je suis ton ami, qui t’aime avec l’Amour de Dieu dans mon âme. J’accepte rarement cette opportunité de délivrer des messages à travers vous.
 
 Je suis Jean, l’apôtre bien-aimé de Jésus et un adepte de ses enseignements.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les Dix Commandements <sup id="a1">[1](#f1)</sup>
 
-Père - reçu par Enfant de Dieu le 21 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 21 Avril 2012.
 
 Aujourd’hui, nous allons parler des dix commandements. C’est un sujet que tu ne connais pas beaucoup et qui te rend un peu tendu. Détends-toi pour que je puisse parler ouvertement, sans résistance de ta part.
 
@@ -41,3 +41,5 @@ Ton père.
 <small>
 
 1. <large id="f1"> Ce message a été retenu initialement, en raison de la suggestion ci-dessus que Moïse n’a pas reçu le « texte » des Dix Commandements de Père. Nous avons tendance à penser que c’est possible, [et c’est ce qu’il a dit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-30-1-fab-moses/), mais que ce message fait plutôt référence au fait que les humains ont interprété ces commandements à leur convenance.[↩](#a1)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

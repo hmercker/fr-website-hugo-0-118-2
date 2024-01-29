@@ -38,6 +38,9 @@ Jean vous remercie d’avoir reçu son message. Je veux seulement ajouter mon am
 Ma chère famille, n’oubliez pas que vos anges gardiens sont toujours avec vous et qu’ils sont toujours soucieux de vous aider à garder vos aspirations et vos pensées orientées vers votre vie spirituelle.
 
 Je vous aime et vous remercie tous pour vos prières sincères pour que l’amour de Dieu devienne des exemples du Christ. Le monde est prêt pour votre amour.
+
 Je suis votre sœur et amie, Marie. Je suis votre frère, Jean.
 
 Ceci est la suite de [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-16-1-ar-mary-john/).
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

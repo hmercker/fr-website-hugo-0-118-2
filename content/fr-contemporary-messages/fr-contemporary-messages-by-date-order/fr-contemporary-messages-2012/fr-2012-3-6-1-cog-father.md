@@ -9,7 +9,7 @@ weight:
 ---
 ### La Loi de l’Amour
 
-Le Père - reçu par Enfant de Dieu le 6 Mars 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 6 Mars 2012.
 
 Il serait sage de s’asseoir pendant une heure chaque jour pour donner du temps à Dieu. Du temps pour nourrir la flamme qui brûle dans ta poitrine, pour l’étendre et remplir ton âme. Tu es trop occupé par des choses qui n’ont pas d’importance et qui t’éloignent de moi.
 
@@ -25,8 +25,10 @@ Tu as toujours désiré et ce désir t’a amené ici. C’est ta destination, m
 
 Tu n’as jamais compris pourquoi tu te languissais et bien souvent, cela t’a donné l’impression d’être ingrat. Que tu n’étais pas content et satisfait de ce que tu avais. Je te dis que tu devrais suivre ce désir en suivant le désir de ton cœur. Tu as commencé à faire confiance à tes sentiments et à ouvrir ton cœur. J’ai senti cela et j’ai mis un peu de Mon amour dans ton âme et cela t’a fait désirer un peu plus. Cela t’a fait t’aimer un peu plus et c’est en fait la même chose. Lorsque tu t’aimes un peu plus, tu fais de la place pour que je puisse te montrer un peu plus Mon amour pour toi et nous nous rapprocherons. Et c’est ce que je désire ardemment – que nous nous rapprochions pour être un avec l’autre.
 
-Ta question : « Pourquoi t’es-tu séparé de moi ? » Il n’est pas possible de répondre à cette question pour l’instant. Tu n’es pas encore capable de comprendre. Peut-être un jour. Mais reste assis avec cette question, c’est une bonne question et essayer de trouver la réponse te rapprochera de moi. Mais essaie de ne pas aller dans ton mental. Pense avec ton cœur et ressens mon amour.
+Ta question :  *« Pourquoi t’es-tu séparé de moi ? »* Il n’est pas possible de répondre à cette question pour l’instant. Tu n’es pas encore capable de comprendre. Peut-être un jour. Mais reste assis avec cette question, c’est une bonne question et essayer de trouver la réponse te rapprochera de moi. Mais essaie de ne pas aller dans ton mental. Pense avec ton cœur et ressens mon amour.
 
 Tu es fatigué, tu ne dors pas bien ces jours-ci. Tu devrais sortir dans la nature et te remplir de nature, ouvrir tous tes sens aux sens de la nature – fais cela.
 
 Amour de ton Père dans les Cieux.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

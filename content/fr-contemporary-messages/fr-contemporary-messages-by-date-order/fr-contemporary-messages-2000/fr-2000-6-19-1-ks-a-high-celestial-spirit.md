@@ -38,3 +38,6 @@ Vous êtes les gardiens de votre passerelle vers le ciel. Vous pouvez garder la 
 Les Lois de Dieu fonctionnent parfaitement. Quand Ses enfants décident qu’ils sont satisfaits et contents avec des pensées et possessions uniquement matérielles, leur prise de conscience n’est pas développée au point où ils se rendent compte qu’il y a tellement plus au-delà de ce qu’ils ont, ainsi ils sont relativement satisfaits de ce mode de vie limité. Il peut être comparé à « vous ne manquez pas de quelque chose que vous n’avez jamais connu. » Quand un enfant écoute la voix intérieure du cœur et de son âme et cherche quelque chose de plus, quelque chose encore inconnu, cela provoque un éveil, une aspiration plus profonde, à devenir activé. Vous êtes béni d’être en recherche de la vérité et désireux de faire la Volonté de Dieu, car ces désirs spirituels sont en vous, vous amenant plus proche de Dieu et à un respect plus profond qui ne peut pas être vécu par ceux qui restent satisfaits des possessions et des pensées matérielles.
 
 Je vous aime, chacun d’entre vous, et je vous laisse maintenant avec ma bénédiction pour une harmonieuse semaine à venir. Je signe moi-même *« un esprit Céleste élevé. »*
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

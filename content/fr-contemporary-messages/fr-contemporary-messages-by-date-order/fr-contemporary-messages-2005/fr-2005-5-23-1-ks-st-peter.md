@@ -36,3 +36,5 @@ Tout ce que vous pouvez faire est de faire de votre mieux et de savoir que cela 
 Si je n'ai pas répondu de manière appropriée à vos questions ce matin, je suis prêt à revenir pour vous aider à vous guider lorsque vous souhaiterez plus d'informations. Merci d'être réceptif à mes pensées. Je suis l'un de vos gardiens spéciaux qui vous aime tendrement, et je suis souvent avec vous pour vous protéger et vous guider, votre frère en Christ et ami, Pierre l'Apôtre.
 
 Oui, Dieu vous bénit abondamment ; tout ce que vous avez à faire pour être réceptive à ces bénédictions et les ressentir, c'est de vous détendre dans votre âme et d'avoir confiance que Dieu vous aime et que vous êtes digne de toutes ces merveilleuses bénédictions.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

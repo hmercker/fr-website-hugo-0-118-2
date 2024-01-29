@@ -40,3 +40,6 @@ La récompense sera vôtre. Sa paix résidera dans votre âme. Vous avez la clé
 J’espère avoir contribué à répondre à la question que vous avez posée ; c’est un dilemme permanent, car chaque âme doit trouver la réponse par elle-même. Nous pouvons vous dire la réponse, mais c’est à vous de la mettre en pratique. Mettez-vous dans les bras de l’Amour de Dieu, soyez humbles et contrits, et sachez que la force intérieure ne vient pas de la volonté de contrôler le monde matériel. Le monde matériel est illusoire et passera, mais votre âme restera pure, forte et aimante, ou ratatinée, sèche et insatisfaite si elle est dominée par le mental matériel, inflexible, intransigeant ou peu disposé à plier.
 
 Je vous laisse avec ces pensées et avec la prière qu’elles s’avèrent utiles au chercheur de vérité. Je suis un esprit Céleste élevé qui a reçu la permission d’écrire sur ce sujet aujourd’hui. Je suis proche de notre Maître, Jésus, et nous aimons Dieu de tout notre cœur et de toute notre âme. Amen.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

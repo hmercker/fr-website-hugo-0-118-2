@@ -24,3 +24,5 @@ Il y a une ÉNORME armée d'esprits qui se bat contre le Mal et les ténèbres, 
 Je vous remercie de votre bienveillance à l'égard de ce message.
 
 Sincèrement, Louis XIV, mais maintenant un esprit nu et humble.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

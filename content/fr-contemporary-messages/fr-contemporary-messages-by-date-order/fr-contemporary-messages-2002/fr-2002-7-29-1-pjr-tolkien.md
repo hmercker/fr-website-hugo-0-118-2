@@ -51,3 +51,5 @@ Avec mon amour pour vous, et l’amour du Père, je suis J. R. R. Tolkien.
 2. <large id="f2"> A G R (Albert Georges Riddle) fut un ancien collègue avocat de James Padgett qui a très souvent communiqué à travers lui au cours des années 1914 à 1920.[↩](#a2)
 
 3. <large id="f3"> De toutes les malchances : mon stylo à bille était complètement sec vers la fin du message, et je n’avais pas d’autre instrument d’écriture.[↩](#a3)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

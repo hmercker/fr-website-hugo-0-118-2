@@ -70,3 +70,5 @@ Je suis heureux mon cher frère, que tu aies assez bien reçu ce message. Demain
 Ton frère dans l’esprit, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

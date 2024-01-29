@@ -20,3 +20,5 @@ C’est ce que nous faisions à mon époque sur Terre et nous semblions assez ri
 Je souhaite ajouter pour vous tous que mes frères et moi avions des croyances assez simples, ou comme vous dites, orthodoxes. Nous croyions aux principes de l’Église Catholique, à la trinité, à la crucifixion de Jésus et à sa divinité, et à toutes ces choses qui, comme vous le savez, sont erronées. Mais la seule chose à laquelle nous croyions par-dessus tout, c’est que nos prières pouvaient nous relier à l’Amour de Dieu et que cela transcendait toutes ces choses. Ainsi, lorsque vous marchez dans le monde, le monde de la croyance, du dogme, de l’erreur et du matérialisme, emportez avec vous ce cadeau de l’amour de Dieu. Offrez-vous de prier avec tous, afin que tous puissent recevoir ce cadeau dont vous êtes bénis.
 
 Je vous embrasse tous. Je vous soutiens tous, comme nous le faisons tous. Je vous laisse avec mon amour et mon souhait que les bénédictions de Dieu soient vôtres. Je t’aime. Je suis ton frère et ami, François.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021)

@@ -38,3 +38,5 @@ La leçon est importante, et le résultat de son apprentissage sera capital ! Vo
 De votre point de vue, cela prend beaucoup de temps. Mais nous pouvons voir que des progrès sont réalisés et que vous contribuez à ce processus. Vous savez que votre travail principal est de donner votre amour, de prier pour plus d’amour de la part de Dieu, et de devenir de merveilleux exemples de cet amour manifesté dans le monde. Continuez votre travail et vos prières. Ayez foi en la puissance de cet Amour pour vous libérer du doute et vous progresserez à pas de géant.
 
 Je t’aime et apprécie l’opportunité d’exprimer mes pensées de cette façon. Je suis ton ami et ton frère dans l’Esprit de l’Amour de Dieu, Jean de l’Amour, Apôtre de Jésus, et un adepte de ses enseignements.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

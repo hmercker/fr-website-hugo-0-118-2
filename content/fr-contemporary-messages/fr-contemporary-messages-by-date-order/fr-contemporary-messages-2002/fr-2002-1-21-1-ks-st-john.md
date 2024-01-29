@@ -48,3 +48,5 @@ Pas à pas, apprenez bien vos leçons. Développez votre amour ; aimez-vous. Ré
 Ne soyez pas angoissée. Tout ira bien. Nous travaillerons à vos côtés pour toujours. Je vous laisse avec mon amour et mes bénédictions, et je suis votre frère, Jean l’Apôtre. Comme Doug vous l’a dit, j’attendais que vous invitiez un Céleste à écrire. Et vous vous êtes bien débrouillé, même sur les passages difficiles. Vous pouvez acquérir une plus grande foi en votre capacité à recevoir clairement nos pensées en ne doutant pas de vous-même, ni des dons de Dieu.
 
 Passez une bonne semaine, et donnez votre amour, particulièrement à vous-même.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

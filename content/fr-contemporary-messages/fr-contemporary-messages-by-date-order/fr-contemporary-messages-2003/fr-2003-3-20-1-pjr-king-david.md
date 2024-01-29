@@ -41,3 +41,5 @@ Je sais que tu as été très occupé par ton travail et tous tes « projets »,
 <small>
 
 1. <large id="f1"> C’est-à-dire l’utilisation d’armes chimiques ou biologiques.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

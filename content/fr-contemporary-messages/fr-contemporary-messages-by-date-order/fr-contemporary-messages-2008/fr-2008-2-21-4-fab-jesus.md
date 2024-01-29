@@ -52,3 +52,5 @@ Vous pouvez évidemment et logiquement l’appliquer aux conditions de votre pro
 Vous, comme tant d’autres, ne pouvez souvent pas comprendre les voies du Créateur dans ces domaines. Mais la perspicacité viendra à vous. L’un des objectifs que j’avais en canalisant ce message ce soir est de fournir cette compréhension, afin que vous puissiez avoir plus de clarté sur ce sujet difficile.
 
 Pour votre consolation, je peux vous assurer que vous et vos compatriotes américains n’aurez pas à endurer ce qui s’est passé en Europe dans cette terrible période des années 1940. Cette fois, le soulagement viendra, et avec lui, l’assurance réconfortante qu’il existe un Créateur qui aime l’humanité et la terre.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

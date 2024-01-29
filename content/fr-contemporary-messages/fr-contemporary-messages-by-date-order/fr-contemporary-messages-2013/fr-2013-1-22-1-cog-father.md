@@ -9,7 +9,7 @@ weight:
 ---
 ### Je veux que vous rejoigniez les cœurs et que vous sentiez notre connexion
 
-Père - reçu par Enfant de Dieu le 22 Janvier 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 22 Janvier 2013.
 
 Tu ne peux pas marcher avec la foule.
 
@@ -21,4 +21,6 @@ Vous n’êtes jamais seuls. Mais tant que vous ne serez pas prêts à accepter 
 
 Je suis votre Père aimant. Je vous guiderai vers l’amour et le bonheur. Vous pouvez me faire confiance, mais vous devez le vouloir.
 
-Votre Père.
+Ton Père.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

@@ -33,3 +33,5 @@ Avec amour, Richard Rodgers.
 <small>
 
 1. <large id="f1"> Paragraphe canalisé sur « You’ll Never Walk Alone » (Tu ne marcheras jamais seul) - 7 Mai 2003: Beaucoup considèrent cette chanson comme une jolie ballade de Broadway, mais je la vois comme une manifestation de Dieu, et l’une des choses les plus extraordinaires que nous ayons jamais eues. Plusieurs fois dans ma vie, j’ai été ballotté, et je ne savais pas vers qui me tourner pour trouver de l’aide. Mais je me suis tournée vers cette chanson, et elle m’a toujours apporté réconfort et espoir. C’est l’une des choses que je considère comme les plus sacrées. Je voudrais remercier Rodgers et Hammerstein d’avoir fait la sainte volonté de Dieu.[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

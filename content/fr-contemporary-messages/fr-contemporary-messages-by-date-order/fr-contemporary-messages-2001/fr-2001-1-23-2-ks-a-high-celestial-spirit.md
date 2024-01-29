@@ -42,3 +42,5 @@ Si vous souhaitez que votre vie soit plus gratifiante et plus épanouissante, vo
 Je prie sincèrement pour que ces mots s’avèrent utiles aux chercheurs qui ont demandé de l’aide et étendu leurs questions pour être guidés. Il est là pour vous, croyez-y, faites-nous confiance pour vous guider et vous protéger lorsque vous priez sincèrement de votre cœur et de votre âme à Dieu pour Son Amour et Sa Miséricorde. Mettez-vous à sa disposition, efforcez-vous d’aligner votre volonté sur la sienne.
 
 Je vous laisse avec mes bénédictions. Je reviendrai vous écrire lorsque vous m’en donnerez l’occasion. Que Dieu vous bénisse, tous et chacun. AMEN.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

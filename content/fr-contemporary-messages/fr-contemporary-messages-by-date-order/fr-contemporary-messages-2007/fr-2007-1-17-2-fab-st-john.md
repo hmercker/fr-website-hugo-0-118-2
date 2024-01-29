@@ -21,3 +21,5 @@ Je n’ai pas commencé mon Évangile par *« Au commencement était le Verbe »
 Comme vous l’avez appris, mon Évangile original s’est perdu, et beaucoup de choses ont été ajoutées et enlevées.
 
 Comment pouvait-on interpréter mon Évangile par rapport à la culture grecque, alors que cette culture m’était étrangère ? Non, mon Évangile a été écrit dans le contexte de la culture Juive, la seule culture que je connaissais.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

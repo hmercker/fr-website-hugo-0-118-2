@@ -28,3 +28,5 @@ Dieu a besoin que vous soyez Ses enfants, fidèles à votre nature et à votre o
 Je suis votre ami et votre frère, et je vous remercie tous pour votre dévouement à servir dans l’amour et la vérité.
 
 Jésus.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

@@ -43,3 +43,5 @@ Il est évident qu'elles sont très similaires.
 A mon époque, les grandes Vérités spirituelles devaient être enseignées par le biais de la parabole. Bien que mes enseignements aient été fréquemment déformés et mal compris au cours des deux derniers millénaires, l'humanité est néanmoins prête maintenant à les entendre à nouveau fraîchement, et sans recourir à la méthode indirecte de la parabole.
 
 Ces paraboles sont la Vérité, mais la plus grande Vérité réside dans les âmes qui suivent mes enseignements en faisant entrer l'Amour Divin dans leur âme par la prière et la foi sincères.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

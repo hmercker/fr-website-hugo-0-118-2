@@ -20,3 +20,5 @@ Je me suis opposé à l'empire, au militarisme et à la domination des autres, e
 Vous avez été consternés de voir à quel point ce comportement est maintenant en place. Mais ce n'est que temporaire, il finira par rejoindre tous les autres qui ont emprunté ce chemin sombre, cette impasse. Oui, cela arrivera, car Dieu comprend la vérité de l'âme humaine.
 
 Je sais qu'il vous est arrivé de ne pas croire les nombreuses déclarations que vous avez canalisées au sujet de la délivrance, mais la délivrance viendra, et l'humanité verra la Main du Seigneur tendue pour Ses enfants.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

@@ -24,3 +24,5 @@ Ah, oui, je suis poétique, mais c’est ce que fait de nous l’amour, n’est-
 C’est ainsi que nous pouvons élever les autres à leur propre dignité en tant que bien-aimés de Dieu, dont le libre arbitre reste intact malgré la façon dont la vie semble entraver l’esprit. L’âme humaine ne sera pas brisée – c’est un concept très important à transmettre à ceux qui souffrent. Mes frères et sœurs, ouvrez les yeux de votre âme à ce don que Dieu a donné à tous Ses enfants. Honorez sa présence comme la chose magnifique qu’elle est – nourrissez son pouvoir avec la connaissance de votre propre pouvoir pour transformer votre aspiration et votre désir en l’amour le plus élevé qui vous attend.
 
 Je suis heureuse avec le message, ma sœur, et je vous remercie pour votre amour et votre prière d’être un récipient pour l’esprit de vérité. Je suis Marie, la mère de Jésus.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)

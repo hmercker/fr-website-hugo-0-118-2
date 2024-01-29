@@ -26,3 +26,5 @@ Je vous demande, à vous les guérisseurs, d’appliquer, s’il vous plaît, to
 Ne désespérez pas de votre zèle, et vous réussirez, et vous serez rempli d’un bonheur que vous ne pouvez comparer à rien. Que Dieu bénisse tous vos efforts.
 
 De votre frère, Swift Bear.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Tu as marché seul, maintenant réveille-toi à Mon Amour
 
-Père - reçu par Enfant de Dieu le 20 Mai 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 20 Mai 2013.
 
 Tu es un créateur d’amour. Laisse Mon Amour couler à travers toi, touchant chaque cellule de ton corps. Laisse Mon Amour laver tes péchés. Sens Mon Amour vivre en toi. Mon Amour est réel. Parle-Moi et Je te parlerai.
 
@@ -18,3 +18,5 @@ Nous sommes à jamais reliés par un cordon ombilical invisible d’Amour. Nous 
 Venez à la maison, mes enfants bien-aimés. Vous avez marché seuls, maintenant réveillez-vous à mon amour. Vous n’êtes pas seuls, je suis avec vous, toujours.
 
 Votre Père Céleste.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

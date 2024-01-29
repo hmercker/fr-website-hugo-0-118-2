@@ -38,3 +38,5 @@ Vos compatriotes devront donc continuer à s'interroger sur cette question litig
 Une suggestion que je recommande vivement est la présence très visible de centres de conseil et de sensibilisation, gratuits et confidentiels, pour les femmes enceintes qui envisagent d’avorter ou d’abandonner leur enfant. Votre société doit fournir un environnement favorable aux femmes enceintes dans des circonstances intenables et tragiques. Il faut lui demander instamment de mener l’enfant à terme et de le confier à un centre d’accueil, qui le fera ensuite adopter ou le donnera à un orphelinat.
 
 Au fur et à mesure que votre pays deviendra plus humain et plus attentionné, nombreux seront ceux qui verront la nécessité d’atteindre ces femmes désespérées et leurs bébés abandonnés, afin que les deux groupes puissent bénéficier des soins et du respect appropriés. De cette façon, les tragédies peuvent être évitées et transformées en possibilités de vie, afin que la volonté de Dieu ne soit pas transgressée.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

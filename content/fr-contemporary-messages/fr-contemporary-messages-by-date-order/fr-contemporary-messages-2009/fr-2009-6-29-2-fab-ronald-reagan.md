@@ -23,3 +23,5 @@ Que vos jours soient bénis, et que notre pays prospère.
 1. <large id=”f1”> **Ronald Reagan** s'était exprimé antérieurement par un message communiqué [le 22 Décembre 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-22-1-fab-ronald-reagan/).[↩](#a1)
 
 2. <large id=”f2”> L'ensemble des messages communiqués par Ronald Reagan est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

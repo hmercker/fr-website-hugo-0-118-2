@@ -26,3 +26,5 @@ Nous voulons que vous voyiez l'Amour de Dieu dans vos âmes comme le grand insti
 Alors portez-vous bien, chers enfants, soyez en paix. Exercez votre confiance dans le Père et laissez vos doutes se dissiper. Croyez en Ses conseils, croyez en Son aide et croyez en Sa protection, ils sont aussi réels que la respiration que vous prenez. Nous vous aimons tendrement et sommes heureux de vous dire ces quelques mots, mais sachez que nous nous recueillons constamment dans vos cœurs et que vous nous écoutez. Nous sommes heureux de vous inspirer et de vous donner une validation dans vos vies. Nous vous laissons avec notre amour et notre dévotion. Appel à l'amour de Dieu jeunes frères.
 
 Jéremie, Salomon et tous vos Gardiens.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

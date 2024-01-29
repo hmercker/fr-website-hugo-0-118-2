@@ -25,3 +25,5 @@ Il m'a fallu un certain temps avant de trouver l'Amour Divin. J'ai dû grandir d
 <small>
 
 1. <large id="f1"> **Mary Shelley** (née Mary Wollstonecraft Godwin ; 30 Août 1797 - 1 Février 1851) était une femme de lettres Britannique, romancière, dramaturge, essayiste, biographe et autrice de récits de voyages. Elle est surtout connue pour son roman Frankenstein ou, Le Prométhée moderne (1818). Elle a également édité et promu les œuvres de son mari, le poète et philosophe romantique Percy Bysshe Shelley. Son père était le philosophe politique William Godwin, et sa mère était la philosophe et féministe Mary Wollstonecraft. (Source : Wikipédia.)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

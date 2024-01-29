@@ -36,3 +36,5 @@ Il y a un énorme remue-ménage ici dans le monde des esprits à propos de tout 
 Il est nécessaire à ce stade que vous vous en teniez à votre foi et que vous ne vous égariez pas dans votre esprit, qui vous amènera à douter et à ne pas croire. Votre âme sait que tout ce que j'ai dit est simplement vrai, aussi improbable que cela puisse paraître. Faites donc confiance à votre âme et non à votre raison. Elle est plus concentrée sur la Vérité, alors que votre intellect ne l'est pas, car il ne peut tout simplement pas voir les choses avec la plus grande profondeur de votre âme.
 
 La paix et la justice viendront sûrement, et les forces des ténèbres seront vaincues. Après tout, ces forces sont contrôlées par des êtres humains très faibles qui ont construit leurs fondations sur du sable, qui ne peut pas tenir.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

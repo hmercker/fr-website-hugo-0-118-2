@@ -32,3 +32,4 @@ Lorsque Jésus a enseigné la Nouvelle Naissance, j'ai décidé, comme tant d'au
 
 1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
 
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

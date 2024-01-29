@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes connectés à travers votre âme
 
-Père - reçu par Enfant de Dieu le 10 Mai 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 10 Mai 2012.
 
 Mon enfant bien aimé, aujourd’hui, tu te demandes à nouveau si ces messages viennent bien de Moi, ton Père. Tu cherches à comprendre comment ils se présentent, et tu as parfois peur de confondre Mes paroles avec les tiennes.
 
@@ -22,3 +22,5 @@ Votre mental a une partie ego, qui a peur d’abandonner le pouvoir. Votre ego p
 Lorsque votre ego dirige votre monde, votre âme souffre. Vous vous sentez en colère et frustré. Ces sentiments sont des signaux de votre âme indiquant que vous vivez en dehors de la vérité. Que pouvez-vous faire à ce sujet ? Encore une fois, reconnaissez les sentiments, sachez qu’ils sont tout aussi valables que n’importe quels autres sentiments, et prenez vos responsabilités. Soyez reconnaissant d’avoir eu l’occasion de voir les choses plus clairement et agissez en conséquence. Changez-vous. Ne continuez pas à vivre comme vous le faisiez lorsque vous savez que vous vivez en dehors de la Vérité. Soyez responsables de votre nouvelle connaissance et changez-vous. Changez votre façon de vivre. Vos sentiments sont le médiateur des vrais désirs de votre âme. Votre âme connaît la Vérité.
 
 Votre Père aimant.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

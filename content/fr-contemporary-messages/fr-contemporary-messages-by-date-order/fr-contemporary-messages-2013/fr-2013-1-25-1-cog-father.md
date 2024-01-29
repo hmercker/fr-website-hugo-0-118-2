@@ -9,7 +9,7 @@ weight:
 ---
 ### En vous, je ne vois que de la beauté
 
-Père - reçu par Enfant de Dieu le 25 Janvier 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 25 Janvier 2013.
 
 Je suis ton bien-aimé. En toi, je ne vois que la beauté. Je sens que ton fervent désir de Me servir et ton désir d’apporter toutes les bonnes choses nous rapprocheront.
 
@@ -26,3 +26,5 @@ Je ne vois que la beauté.
 Je tiens ton cœur.
 
 Ton père.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

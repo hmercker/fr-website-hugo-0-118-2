@@ -30,3 +30,5 @@ Oui, c’est comme si vous tiriez les ficelles, pas seulement les vôtres, mais 
 Vous avez maintenant l’opportunité d’enlever les œillères des limitations de votre mental – ces croyances auxquelles vous vous êtes attachés et dans lesquelles vous trouvez du confort. Activez le potentiel de votre âme dans votre monde, et manifestez l’amour dans vos cœurs. Vous avez vu la preuve de votre potentiel dans la façon dont les événements se déroulent parfaitement lorsque vous faites votre travail avec amour, et c’est parce que vous êtes dans le moment avec votre volonté, votre désir et votre capacité à atteindre votre objectif, soutenu par la volonté de Dieu et la direction des anges. Nous formons une bonne équipe, oui ?
 
 Je vous aime, mes chers frères et sœurs en Christ, et je suis Jean l’Apôtre de Jésus, qui est notre Maître et ami.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -36,3 +36,6 @@ Il y aura une période de grâce pour certaines âmes avant que les portes du Ci
 Ainsi, la petite quantité de la Grâce de l’Amour de Dieu qui se « faufile » dans une âme, à l’insu de cette personne, n’est pas suffisante pour accomplir l’immortalité à ce moment-là. Mais ici, j’ajouterai aussi, que ce sera la grande majorité des âmes qui ont reçu une portion de l’Amour Divin qui continueront sur le chemin divin car Il a la propension d’agir comme le levain dans l’âme, rarement mis en échec par le contrôle du mental. Le pouvoir et les désirs d’une âme, même avec une quantité infinitésimale de la substance d’Amour de Dieu, seront éveillés, même si c’est à un niveau subliminal et elle persistera à faire connaître ses désirs.
 
 J’écrirai à nouveau sur ce sujet si cela n’a pas satisfait les questions. Je vous aime, tous et chacun, et je vous suis reconnaissant pour ce privilège que vous me donnez d’écrire. Je suis un haut ange céleste et je suis un de vos gardiens célestes, Joseph, le père de Jésus et un adepte de ses enseignements.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

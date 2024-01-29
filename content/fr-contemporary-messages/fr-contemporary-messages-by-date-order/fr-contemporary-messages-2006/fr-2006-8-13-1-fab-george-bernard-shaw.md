@@ -29,3 +29,5 @@ Avec amour, George Bernard Shaw.
 1. <large id="f1"> Le médium a reçu ce message pendant l'entracte, alors qu'il regardait une production de Pygmalion.[↩](#a1)
 
 2. <large id="f2"> **(George) Bernard Shaw** (26 Juillet 1856 - 2 Novembre 1950) était un dramaturge irlando-britannique, lauréat du prix Nobel de littérature en 1925 et de l'Academy Award en 1938 pour Pygmalion. Après celles de William Shakespeare, les pièces de George Bernard Shaw sont parmi les plus produites dans le théâtre de langue anglaise. (Source : Wikipedia)[↩](#a2)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

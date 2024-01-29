@@ -33,3 +33,6 @@ Que Dieu te bénisse et t’entoure, Marie, ton amie et sœur en Christ.
 <small>
 
 1. <large id="f1"> Au sujet de [Patricia Talbot](https://www-piercedhearts-org.translate.goog/hearts_jesus_mary/apparitions/guardian_faith.html?_x_tr_sl=en&_x_tr_tl=fr&_x_tr_hl=fr&_x_tr_pto=sc)[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

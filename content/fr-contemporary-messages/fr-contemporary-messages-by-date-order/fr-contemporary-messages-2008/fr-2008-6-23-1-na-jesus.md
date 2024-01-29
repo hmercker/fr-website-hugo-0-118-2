@@ -22,3 +22,5 @@ A côté de moi se trouve maintenant la Plume Blanche et de nombreux autres espr
 Je voudrais vous remercier pour votre service d’amour en ce moment, car l’énergie contenue dans ce travail brillera comme une lumière pour que les âmes apprennent et deviennent conscientes du grand cadeau de l’Amour Divin et des cadeaux que cet Amour apporte à l’âme pour de nombreuses années à venir à partir de ce jour.
 
 Amour et bénédictions, amour et paix votre frère Céleste aimant, Jésus.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

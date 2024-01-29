@@ -13,7 +13,7 @@ Judas - reçu par Helge Mercker le 5 Janvier 2013, Elim, Namibie.
 
 Bonjour, bonjour ma chère sœur, oh oui, je suis heureux !
 
-Tu lis [les messages](/fr-judas-of-kerioth-messages/) que j’ai donnés à travers H ____ . Tu trouves un peu de clarté sur certains sujets et cela nous aide. Imagine notre communication comme lorsque nous sommes assis à une table et que nous discutons – de manière détendue, comme le font deux amis. Personne n’intervient et nous sommes tous deux plongés dans notre conversation.
+Tu lis [les messages](/3-fr-judas-of-kerioth-messages/) que j’ai donnés à travers H ____ . Tu trouves un peu de clarté sur certains sujets et cela nous aide. Imagine notre communication comme lorsque nous sommes assis à une table et que nous discutons – de manière détendue, comme le font deux amis. Personne n’intervient et nous sommes tous deux plongés dans notre conversation.
 
 Oui, j’essaie de garder les choses simples afin de réduire la possibilité d’un quelconque blocage ou obstacle. Il devrait s’agir d’une conversation/communication facilement fluide. Tout viendra à toi avec le temps, aie confiance et reste dans tes prières – elles doivent être intensifiées, plus profondes, donne tout ce que tu as, sois passionnée quand tu pries, cela conduira à une prière pleine d’âme. Sois engagée émotionnellement, avec les sentiments les plus profonds de l’âme. Ma présence te rend heureuse et tu apprécies l’humour. Nous avons beaucoup d’humour (ici) et nous rions souvent. Fais de même. Ris, sois heureuse, exprime-toi.
 
@@ -22,3 +22,5 @@ Il est très inquiétant d’observer ce qui se passe dans le monde. Les crimes 
 Tu sembles être distraite et il est préférable d’arrêter. Je reviendrai bientôt.
 
 Ton ami et ami angélique, Judas.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

@@ -34,3 +34,5 @@ Permettez-moi de vous prendre comme exemple. La mort de votre mère a laissé un
 Un autre point que je souhaite aborder est que nous ne considérons pas la richesse matérielle comme importante, sauf dans la mesure où elle peut étouffer la croissance de l'âme. Comme le dit la Bible, cette richesse encourage souvent des choix qui nuisent à l'âme.
 
 Mais nous ne considérons pas la richesse matérielle comme nécessairement mauvaise, malgré ce que l'on peut lire dans la Bible. Ce que nous soulignons, c'est la tendance de la richesse matérielle à handicaper l'âme.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

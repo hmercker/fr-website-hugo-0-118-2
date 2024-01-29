@@ -28,3 +28,6 @@ En cela, il n'y a aucun mépris pour la vérité selon laquelle chacun de nous a
 Imaginez-vous au bord de la mer en train de regarder le soleil se coucher sur l'océan, puis imaginez cette beauté en vous-même. Dieu ne nous a-t-il pas créés pour « briller » de toute notre énergie aimante - avec espoir, crainte, excitation, émerveillement, curiosité et bonheur ? Si nous regardons au fond de nos cœurs, et dans le cœur de nos frères et sœurs, ne trouverions-nous pas ces beautés ?
 
 Voyez l'espoir comme un grand arbre qui s'élève vers la lumière, l'amour comme la chaleur du soleil sur votre visage, la joie comme l'oiseau chanteur en vol. Alors vous commencerez à cultiver votre mental comme un outil que votre âme peut utiliser pour apprendre sur la vie et au-delà. La réalité se transformera en une tapisserie d'une complexité exquise que vous et Dieu tissez ensemble dans l'amour.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+

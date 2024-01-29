@@ -32,3 +32,5 @@ Votre pays est à la veille d'un changement politique majeur. La carte politique
 Donc, oui, vous pouvez tout à fait dire que mon programme politique, auquel je croyais sur terre, est en train de se réaliser, parce que la nature des temps l'exige.
 
 Lorsque j'ai dit plus haut que la carte politique sera redessinée, je voulais dire que certains idéaux qui ne sont actuellement que potentiels, deviendront réels.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

@@ -36,3 +36,5 @@ Vous pouvez donc voir que ma vie, comme celle de tous les mortels, s’est déro
 En fait, comme vous pouvez le constater, je n’étais pas vraiment un disciple à part entière de Jésus dans l’Amour Divin. Mais nous ne pouvions pas nous empêcher d’être impressionnés par l’autorité et la nature royale de sa personne, et par les merveilleux pouvoirs qu’il possédait. Et nous avons entendu les mots « Amour Divin » à maintes reprises.
 
 Ainsi, la déclaration que j’ai canalisée à travers M. Padgett, que vous avez citée ci-dessus, était vraie, même si ma compréhension à l’époque était limitée.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

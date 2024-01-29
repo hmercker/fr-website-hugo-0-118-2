@@ -28,3 +28,5 @@ Et cette vision, mon cher fils, ce sont les perceptions de ton âme. Les percept
 J’ai aimé la façon dont tu as parlé une fois des perceptions de l’âme comme des organes de l’âme. C’est une analogie digne d’intérêt. Ceux-ci nécessitent des soins et une alimentation saine. La consommation d’une nourriture saine aidera tes organes à fonctionner à plein régime. Tout comme tes organes matériels ont besoin d’une alimentation appropriée, tes organes spirituels en ont besoin aussi. Et la nourriture pour tes organes spirituels est l’Amour, la Substance de Dieu. Et tout comme tu dois mâcher ta nourriture et avaler les nutriments, la prière, bien sûr, est ce qui provoque l’absorption et l’afflux de l’essence de Dieu.
 
 Je sens que tu as somnolant. Je vais donc te laisser te reposer. Nous te remercions de nous avoir donné l’occasion d’exprimer nos pensées et nous prions pour tous nos frères et sœurs qui recherchent la bonne nutrition pour leurs âmes.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

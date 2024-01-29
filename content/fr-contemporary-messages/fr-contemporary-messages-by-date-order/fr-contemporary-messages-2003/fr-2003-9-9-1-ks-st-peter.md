@@ -48,3 +48,5 @@ Je sais qu’il y a beaucoup de messages qui abondent et auxquels on croit jusqu
 Je prie sincèrement pour que ce que j’ai pu transmettre à travers toi soit d’une certaine utilité dans ton action de proximité.
 
 Je t’aime de mon âme transformée par l’Amour de Dieu en un ange divin. Merci de m’avoir permis d’écrire. Pierre.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

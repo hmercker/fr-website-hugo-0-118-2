@@ -20,3 +20,5 @@ Eh bien, tout d'abord, laissez-moi vous dire que ma mission, aussi courte qu'ell
 Deuxièmement, dans le monde de Dieu, les tragédies terrestres ne sont pas aussi importantes que la vérité spirituelle. Comme vous le savez bien, je suis mort à cause des choix ignorants et tragiques d'hommes non éclairés, mais cela ne pouvait pas annuler ma mission, puisqu'elle avait ses propres lois et façons d'exister.
 
 J'ai compris très tôt que si je continuais à prêcher, j'encourrais la colère des autorités, ce qui me conduirait à la crucifixion. J'ai quand même continué, car je devais être fidèle à moi-même. Ainsi, de même que mon exécution n'avait rien à voir avec le plan de Dieu, de même elle était sans rapport avec mon message de la Nouvelle Naissance de l'âme dans l'Amour Divin.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

@@ -36,3 +36,6 @@ J'espère avoir clarifié ce point pour vous. En résumé, les souffrances des p
 La tendance à considérer la souffrance d'un individu comme rédemptrice est très répandue dans les religions du monde, et le Judaïsme a eu sa part de ce concept. Ainsi, lorsque la connaissance du véritable plan de Dieu, la nouvelle naissance de l'âme dans l'Amour Divin, s'est perdue dans le monde, il a été très facile pour le concept de la souffrance rédemptrice de s'imposer, puisqu'il plaisait aux païens, qui avaient déjà largement adopté ce concept.
 
 Mais tout cela fait partie de l'histoire, et l'humanité est maintenant prête à embrasser la vérité - que Je suis venu, non pas pour mourir sur la croix, mais pour enseigner au monde la vérité de la Nouvelle Naissance.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+

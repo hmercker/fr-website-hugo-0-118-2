@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes uniques
 
-Père - reçu par Enfant de Dieu le 10 Février 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 10 Février 2013.
 
 Il n’y a qu’un seul toi. Il n’y en a jamais eu et il n’y en aura jamais un autre comme toi. Tu es magnifique. Tu es Mon temple comme je suis le tien. On t’a donné toi. Personne ne pourra jamais prendre ta place. Lorsque nous ne ferons plus qu’Un, et cela arrivera, tu rendras l’univers plus complet. La forme de ton âme ne ressemble à personne d’autre. Il y a une place juste pour vous. Cherche cet endroit de tout ton cœur. Sois ma volonté.
 
@@ -18,3 +18,5 @@ Tu as peur de te perdre. Ce n’est pas le cas. Ton âme a son propre son, sa pr
 Vas-y sans crainte. Je te tiens dans mes bras. Je t’aime jusqu’au fond de ton cœur.
 
 Ton Père.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

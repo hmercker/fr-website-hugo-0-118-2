@@ -26,3 +26,5 @@ C’est simple, c’est beau et c’est votre but mes enfants dans ce monde, de 
 Mettez de côté vos différences, vos peurs, vos préjugés, vos jugements et soyez dans l’Amour, et tout ira bien et beaucoup de travail vous attend pour chaque âme qui veut et accepte la volonté de Dieu, l’Amour de Dieu et accepte que Dieu les aime comme il aime chacun – chaque âme.
 
 Que Dieu vous bénisse. Je suis Jean le Bien-Aimé et je vous aime. Que Dieu vous bénisse et que Son grand amour vous porte vers de grandes hauteurs, vers la voie la plus élevée, le plus grand service et le plus joyeux déploiement de votre amour. Que Dieu vous bénisse et que je vous aime.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

@@ -28,3 +28,5 @@ Vous n’avez pas besoin d’être dans un dilemme. Vous serez guidés clairemen
 Je vous aime, tous et chacun. Sachez simplement que nous sommes ici avec vous et que nous vous aiderons toujours, dans la mesure où vous nous le permettez. Je terminerai ce court message par mon amour et mes remerciements pour m’avoir permis d’écrire. Cela a été un grand plaisir pour moi.
 
 Je suis votre ami et frère dans l’Esprit de l’Amour de Dieu manifesté dans mon âme, et l’un de vos gardiens Célestes qui veille sur vous depuis longtemps – André, l’Apôtre de Jésus, qui est Maître des Cieux Célestes, et je suis un adepte de ses enseignements.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

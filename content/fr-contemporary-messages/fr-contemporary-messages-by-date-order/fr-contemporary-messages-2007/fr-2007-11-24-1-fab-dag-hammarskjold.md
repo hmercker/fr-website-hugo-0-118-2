@@ -21,3 +21,5 @@ Nous nous mobilisons, et bientôt vous verrez le succès de nos efforts. Tout de
 <small>
 
 1. <large id="f1"> **Dag Hjalmar Agne Carl Hammarskjold** (29 Juillet 1905 - 18 Septembre 1961) fut un diplomate suédois et le deuxième Secrétaire général des Nations Unies. Il a servi d'avril 1953 jusqu'à sa mort dans un accident d'avion en Septembre 1961 dans des circonstances mystérieuses. La cause exacte de sa mort n'a jamais été déterminée de manière concluante. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

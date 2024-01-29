@@ -32,3 +32,5 @@ Les lois supérieures à l'œuvre dans votre vie quotidienne opèrent sur de nom
 Ainsi, mes amis, rappelez-vous la vérité de l'amour éternel et constant de Dieu qui imprègne votre âme et celle de vos camarades terrestres et spirituels, et réalisez cet amour dans votre vie personnelle. Laissez sa paix régner dans votre esprit et votre corps, et faites en sorte que la vérité de cet amour soit plus grande que toute autre image que vous voyez. Vous commencerez à ressentir cette harmonie qui bourdonne en vous comme une belle musique jouant la chanson thème de votre vie, et le son de celle-ci vous remplira à jamais.
 
 Je vous aime, et je prie pour votre bonheur et votre bien-être, car vous êtes mes disciples bien-aimés, et je suis toujours avec vous - votre frère en Christ, Jésus.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

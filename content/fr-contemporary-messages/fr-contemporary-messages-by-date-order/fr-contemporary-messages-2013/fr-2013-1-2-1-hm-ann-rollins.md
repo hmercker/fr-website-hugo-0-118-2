@@ -20,3 +20,5 @@ Cela te permettra de communiquer avec Dieu et tu feras davantage l’expérience
 Je suis tellement heureuse de cette lettre et nous pratiquerons plus souvent, car notre engagement les uns envers les autres grandira. Sache que nous t’aidons et te guidons tous, et que nous avons des tâches différentes lorsque nous te guidons, et que nous aidons tous à te rapprocher de Dieu dans le tableau plus large de ton évolution. Je suis heureuse que tu nous fasses confiance et que tu aies surmonté tes doutes et tes craintes. En effet, Dieu t’aide aussi à avoir la paix et je te dis au revoir pour l’instant et je me réjouis de notre prochaine session.
 
 C’est Anne Rollins, ta sœur en Christ, au revoir.
+
+[Liste desMessages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

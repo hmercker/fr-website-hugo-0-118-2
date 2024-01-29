@@ -9,7 +9,7 @@ weight:
 ---
 ### Être soi-même
 
-Père - reçu par Enfant de Dieu le 20 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 20 Avril 2012.
 
 Mon enfant, je t’aime. Hier, tu étais très stressé à cause d’un seul mot que tu n’as pas bien compris. Cela t’a fait douter de nos conversations. Tu as aussi ressenti beaucoup de peur. Hier déjà, je t’ai assuré que tu ne devais avoir aucune crainte. Tu m’es trop cher pour que quelque chose puisse t’arriver. Je te protégerai.
 
@@ -22,3 +22,5 @@ Tu es parfait. Tu es déjà entier. N’essaie pas d’être quelqu’un d’aut
 Ce n’était qu’un court message. Plus à venir.
 
 Je t’aime toujours, Père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

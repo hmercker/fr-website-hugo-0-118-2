@@ -42,3 +42,5 @@ Je vous laisse maintenant avec mes bénédictions et celles de « Darling ». El
 Continue, sois courageux, et sache que tu es bon et que tu peux démontrer la puissance de l’Amour de Dieu dans ta vie et que cette démonstration d’Amour est la plus haute et la plus grande ligne de conduite pour vivre.
 
 Que Dieu vous bénisse et vous garde dans les bras de l’Amour tout au long de vos journées. Je suis votre ami et frère dans l’Esprit du Christ, Joseph, qui a été l’époux de Marie et le père de Jésus, et qui est un adepte de ses véritables enseignements. Amen.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

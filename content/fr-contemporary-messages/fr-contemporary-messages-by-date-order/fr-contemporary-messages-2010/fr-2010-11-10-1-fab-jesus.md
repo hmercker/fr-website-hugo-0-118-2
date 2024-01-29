@@ -16,3 +16,5 @@ C'est moi, Jésus.
 Nous voyons exactement ce qu'ils font, et exactement ce qu'ils planifient. Alors nous nous réorganisons sur le plan terrestre pour faire avancer le plan de Dieu.
 
 Nous réussirons. Nous ne pouvons pas échouer. Et ils vont échouer. C'est décrété.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

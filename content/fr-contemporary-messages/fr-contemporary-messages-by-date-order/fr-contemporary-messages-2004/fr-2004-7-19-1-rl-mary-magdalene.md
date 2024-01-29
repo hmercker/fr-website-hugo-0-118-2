@@ -16,3 +16,5 @@ Marie-Madeleine - reçu par RL le 19 Juillet 2004, Atlanta, Georgia, USA.
 Maintenant, au sujet de la lumière, dans la mesure où les êtres ont réalisé l’essence du Père en eux, dans l’au-delà, la lueur augmente, de sorte que certains sont assez brillants, extrêmement brillants même, et d’autres brillent juste un peu. Il est donc prudent de dire à un esprit rebelle de se diriger vers la Lumière, car il ira simplement vers un plan plus élevé et sera traité par des mains expertes et qualifiées – dans la mesure où les êtres spirituels ont des mains, ce qui est une toute autre discussion en soi.
 
 Il est temps pour vous d’aller travailler, et vous avez mis en place l’essence de la discussion ici, et nous pouvons reprendre ce sujet à une date ultérieure. Vous avez raison, je suis Marie la Magdaléenne, votre servante. Traversez votre journée avec mon amour et avec l’amour des autres, en étant rempli d’amour envers les autres. Je reviendrai.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

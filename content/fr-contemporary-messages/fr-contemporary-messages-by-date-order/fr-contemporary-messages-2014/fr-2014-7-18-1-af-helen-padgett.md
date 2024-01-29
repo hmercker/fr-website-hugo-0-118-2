@@ -37,3 +37,5 @@ Pour ceux d’entre vous qui ont fait le choix de la vérité, il est de votre r
 Vous êtes plus que jamais nécessaires à cause des conditions en spirale qui imprègnent votre monde aujourd’hui. Nous vous implorons de redoubler vos efforts, de prier pour l’Amour de Dieu et de vivre cette vérité de toutes les manières possibles. Vous êtes les anges de Dieu sur la terre et vous êtes donc profondément nécessaires afin d’accomplir le dessein de Dieu. S’il vous plaît priez afin d’être guidé et afin d’être en mesure d’accomplir votre but dans ce plan. Vous êtes grandement nécessaires.
 
 Soyez avec nous dans nos efforts et nous serons vraiment avec vous, afin que les luttes dont nous avons parlé dans notre vie ne soient pas présentes dans les vôtres. Alors que vous suivez les lois de l’Amour, votre vie reflétera cela dans tous les sens. Que Dieu bénisse tous ceux qui s’aventurent sur Son chemin de l’Amour et que vous puissiez tous être bien enserrés dans ses bras aimants. Je suis votre amie dans l’Amour et dans la vie – Hélène.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

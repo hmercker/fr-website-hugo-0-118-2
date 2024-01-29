@@ -9,7 +9,7 @@ weight:
 ---
 ### Accordez vos cordes à la fréquence de l'amour
 
-Père - reçu par Enfant de Dieu le 24 Février 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 24 Février 2013.
 
 Votre Père Céleste est là. Réveillez-vous, chacun de mes enfants. Réveillez-vous à Mon amour. Déployez vos ailes et volez dans mes bras. Laissez-moi vous embrasser et vous remplir de Mon Amour. Laissez Mon amour effacer les ombres de votre âme. Laisse Mon Amour faire fondre les barrières que tu as construites autour de ton cœur.
 
@@ -20,3 +20,5 @@ C’est la vérité. Nous sommes Un. Nous ne sommes qu’une seule âme cosmique
 C’est votre cadeau. C’est votre amour vécu. Sans vous, notre chanson sera incomplète. Écoute. Touche mon cœur. Cherchez et vous trouverez. Mais ne cherche pas à l’extérieur mais dans ton propre cœur. Car ton cœur est le mien.
 
 Ton père.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

@@ -20,3 +20,5 @@ Eh bien, en fait, les deux affirmations sont vraies. C'est-à-dire que nous trou
 Mais c'est un fait que les esprits conservent toujours leur individualité, même dans les Cieux Célestes. Nous, les Anges Célestes, sommes complètement unis à Dieu, et tout ce que nous faisons est centré sur la Volonté Divine. Et pourtant, nous nous saluons les uns les autres et nous nous reconnaissons comme uniques.
 
 Il n'y a donc pas lieu de s'embrouiller. Les Soufis et d'autres mettent l'accent sur la nécessité d'abandonner l'ego égoïste, qui sépare les gens de la vie. Ils enseignent la nécessité de se considérer comme une partie intime du cosmos et de Dieu.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

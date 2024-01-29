@@ -9,7 +9,7 @@ weight:
 ---
 ### Les Sentiments sont prioritaires
 
-Père - reçu par Enfant de Dieu le 22 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 22 Avril 2012.
 
 C’est maintenant devenu une nécessité pour toi de t’asseoir tranquillement le matin, de contempler et d’écrire. C’est bien. Tu es dans un bien meilleur état aujourd’hui qu’hier. Tu t’es inquiété et tu as commencé à te mettre la pression pour recevoir correctement mes messages, surtout lorsqu’il s’agit de sujets que tu ne connais pas. Tu n’es pas prêt pour ces messages. Aujourd’hui, nous pouvons à nouveau avoir nos conversations sur des sujets avec lesquels tu te sens à l’aise. Aujourd’hui ton état est calme et sensible et c’est l’état approprié.
 
@@ -24,3 +24,5 @@ Beaucoup d’entre vous tombent malades parce que vous ne faites pas confiance �
 Je vous aime dans Mon Cœur.
 
 Père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

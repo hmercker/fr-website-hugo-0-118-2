@@ -30,3 +30,5 @@ Je suis votre ami et frère Jésus, si je peux ajouter quelques mots à propos d
 Chacun d’entre vous est le « but ». Chaque âme est une expression unique et individuelle de l’amour. Il n’y a pas d’autre but à définir ou à décrire. Vous essayez de vous identifier à quelque chose d’extérieur à vous. Il n’y a aucun besoin de cela. Vous êtes le but. Rapprochez-vous de Dieu et de Son Amour et alors vous vous verrez et verrez le « but ».
 
 Nous vous aimons, jeunes frères, nous sommes toujours avec vous et nous nous signons, Jésus, Marie-Madeleine, Jean, Marie, Joseph, Paul, Luc, Pierre, André, Jean Marc, Daniel, Moïse, Sarah (arrière, arrière grand-mère) et beaucoup d’autres.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

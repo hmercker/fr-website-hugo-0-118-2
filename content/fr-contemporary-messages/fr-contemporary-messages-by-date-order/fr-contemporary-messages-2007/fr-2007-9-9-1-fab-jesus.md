@@ -22,3 +22,5 @@ Au fur et à mesure que la pression augmente, cette tendance va s'accélérer. P
 Ce à quoi je faisais référence dans la canalisation précédente, c'est à ceux, tant les consommateurs que les entreprises, qui résistent.
 
 Votre pays, les États-Unis, va progressivement s'éloigner d'une mentalité de profit à court terme, pour évoluer vers une attitude plus durable basée sur les besoins humains.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

@@ -22,3 +22,5 @@ Bien sûr, notre principale préoccupation était de créer un gouvernement qui 
 Notre état d'esprit était très différent de celui qui prévaut actuellement. Nous ne prônions pas un matérialisme aveugle. Nous voulions créer un gouvernement qui reflète nos valeurs supérieures.
 
 Oui, il est vrai que seuls les hommes blancs détenteurs de biens pouvaient voter. Mais les temps ont changé, et l'humanité a progressé, de sorte que nous sommes aujourd'hui favorables à la poursuite de ce que nous avons commencé.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

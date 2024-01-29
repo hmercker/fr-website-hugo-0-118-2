@@ -33,3 +33,4 @@ Le pays survivra à des calamités telles que le Patriot Act <sup id="a4">[4](#f
 
 4. <large id="f4"> Le « USA PATRIOT Act » est une loi antiterroriste qui fut votée par le Congrès des États-Unis et signée par George W. Bush le 26 Octobre 2001.[↩](#a4)
 
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

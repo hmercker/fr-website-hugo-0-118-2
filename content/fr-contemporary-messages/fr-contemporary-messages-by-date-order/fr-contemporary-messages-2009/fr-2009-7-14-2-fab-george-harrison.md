@@ -22,3 +22,5 @@ Mon expérience ici peut se résumer en un mot : **soulagement**. Non pas que ce
 Ce système fou ne peut pas aller plus loin. Je le sais, car je vois tant d'esprits se mobiliser.
 
 Alors gardez l'espoir, et le salut viendra.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

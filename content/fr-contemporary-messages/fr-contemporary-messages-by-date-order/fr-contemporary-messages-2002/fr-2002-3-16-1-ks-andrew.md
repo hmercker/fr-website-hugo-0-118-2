@@ -34,3 +34,5 @@ Merci d'avoir perçu ma présence, et mon désir d'écrire. Nous avons canalisé
 Je vais te laisser maintenant avec mon amour et mes bénédictions. Laisse-toi aller aux changements ; accueillez-les. Considère les autres sous un jour nouveau. Tout le monde bénéficie du fait de donner de l'amour, d'avoir de l'amour, d'être de l'amour. Donne-le gratuitement, en commençant par toi-même.
 
 Je suis ton ami et ton frère dans le Christ - l'Esprit de l'Amour de Dieu manifesté dans mon âme - André, l'apôtre de Jésus, et un véritable adepte de ses enseignements.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

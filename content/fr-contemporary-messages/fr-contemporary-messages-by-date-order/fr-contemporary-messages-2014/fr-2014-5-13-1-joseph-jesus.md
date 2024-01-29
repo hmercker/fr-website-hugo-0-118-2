@@ -9,9 +9,11 @@ weight:
 --- 
 ### Conseils <sup id="a1">[1](#f1)</sup>
 
-Jésus - reçu par Joseph le 13 Mai 2014, Prescott, Arizona, USA.
+Jésus - reçu par Joseph Babinsky le 13 Mai 2014, Prescott, Arizona, USA.
 
 C’est moi Jésus.
+
+------------------
 
 Comme je l’ai déjà mentionné, prie avec diligence, fidélité et constance pour l’afflux continu de cet Amour ….. L’Amour Divin ne s’arrêtera pas…. et toi seul peut l’empêcher de te transformer en une nouvelle création.
 
@@ -19,3 +21,5 @@ Dans les premiers jours, après avoir reçu l’influx initial de l’Amour Divi
 <small>
 
 1. <large id="f1"> Ce message a été reçu 22 jours après que Joseph ait pris conscience de l’existence de l’Amour Divin. C’était le 17 Mai 2006. Ceci n’est qu’un extrait, le reste du message étant personnel. Mais les conseils donnés ici sont universels[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

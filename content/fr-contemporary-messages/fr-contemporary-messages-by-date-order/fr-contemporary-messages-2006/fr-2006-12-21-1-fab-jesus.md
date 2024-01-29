@@ -30,3 +30,5 @@ En outre, ils étaient hostiles à mes opinions, qui tendaient à élargir leur 
 À cette époque, la peine de mort était en effet infligée à ceux dont on estimait qu'ils avaient agi ou parlé contre les choses sacrées du Judaïsme. Il a alors été "prouvé" que mon comportement dans le Temple corroborait ces fausses accusations.
 
 Puisque je n'ai jamais prétendu être Dieu, le point de vue orthodoxe selon lequel j'ai prétendu être Dieu, et donc encouru des accusations de blasphème, n'est pas vrai.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

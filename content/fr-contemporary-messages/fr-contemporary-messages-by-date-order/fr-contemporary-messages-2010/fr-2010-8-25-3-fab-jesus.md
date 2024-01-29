@@ -22,3 +22,5 @@ Je lis vos pensées : L'Europe était à genoux après la Seconde Guerre mondial
 Ce qui m'amène à dire que tout comme les ténèbres ont eu un plan organisé, le Royaume Céleste a eu un plan organisé, et vous vivrez pour voir comment le premier sera englouti dans le second. Vous avez eu cette intuition il y a quelques années dans votre courriel au Révérend David Grishaw-Jones de la First Congregational Church.
 
 Et maintenant, votre esprit proteste et dit, ils ont accumulé tant de pouvoir et d'argent. Je vous répète donc ce que vous dites aux autres depuis des mois : qui est plus puissant, eux ou Dieu ? Nous voyons, à partir de n'importe quel malheur et de n'importe quelle malchance qui sont arrivés en Europe, une suite heureuse. Vous m'avez donc canalisé avec précision, ce soir et par le passé.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

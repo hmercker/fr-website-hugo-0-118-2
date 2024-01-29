@@ -30,3 +30,5 @@ Mais je ne pouvais pas en bonne conscience cautionner l'avortement, puisque la r
 Il y a cette vieille expression, quand il y a une volonté, il y a un chemin. Et donc, avec la volonté engagée, d'autres solutions peuvent être trouvées.
 
 Il est souvent arrivé qu'une personne se sente fortement concernée par une certaine question, et lorsque cette personne est confrontée à cette question dans le monde spirituel, la réalité est entièrement différente, et souvent désagréable et, oui, dure.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

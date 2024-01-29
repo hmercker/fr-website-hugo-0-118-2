@@ -50,3 +50,5 @@ Jésus.
 Source : message reçu par Al Fike [le 13 Octobre 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-2-af-jesus/)
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -15,9 +15,9 @@ Bonsoir. Comme vous l’avez remarqué, toutes ces entités avaient quelque chos
 
 Vous ne connaissiez pas la première personne, Jean-Marie, mais c’était en fait une personne éminente. Le second, Alvin, était, comme on dit, un garçon de rue ordinaire. Cela aussi ne fait aucune différence lorsqu’on entre dans le monde des esprits. La position d’un homme sur terre n’affecte pas la position de l’âme dans le monde des esprits. Dans le monde spirituel, tout le monde est égal. Tout ce qui compte ici, c’est le développement de l’âme : combien d’amour vous avez cultivé, reçu ou demandé. Que vous soyez célèbre dans le monde entier ou que vous soyez un enfant des rues, une fois que vous serez dans ce monde, rien n’aura d’importance à part l’amour que vous aurez essayé de cultiver.
 
-Comment développer cet amour ? Eh bien, c’est très simple : en suivant notre cœur et notre âme. Il ne suffit pas de demander de l’amour, il est également très important d’en donner ! Il existe un vieux dicton qui contient en effet beaucoup de vérité : « c’est en donnant que l’on reçoit ». Essayez donc de voir le côté positif des gens et faites-leur des compliments à ce sujet ou dites-leur « merci » lorsqu’ils ont essayé de vous aider ou de vous servir. Cela peut vous sembler petit ou insignifiant, mais croyez-moi, ça ne l’est jamais. Ce sont de telles choses qui détermineront votre place dans l’au-delà.
+Comment développer cet amour ? Eh bien, c’est très simple : en suivant notre cœur et notre âme. Il ne suffit pas de demander de l’amour, il est également très important d’en donner ! Il existe un vieux dicton qui contient en effet beaucoup de vérité : *« c’est en donnant que l’on reçoit »*. Essayez donc de voir le côté positif des gens et faites-leur des compliments à ce sujet ou dites-leur « merci » lorsqu’ils ont essayé de vous aider ou de vous servir. Cela peut vous sembler petit ou insignifiant, mais croyez-moi, ça ne l’est jamais. Ce sont de telles choses qui détermineront votre place dans l’au-delà.
 
-Bien sûr, il y a « l’énergie primordiale » – l’amour universel ou Divin que l’on doit recevoir dans son âme – qui est la plus importante. Mais il est tout aussi important de partager l’amour que l’on reçoit avec les autres.
+Bien sûr, il y a *« l’énergie primordiale »* – l’amour universel ou Divin que l’on doit recevoir dans son âme – qui est la plus importante. Mais il est tout aussi important de partager l’amour que l’on reçoit avec les autres.
 
 Pour cela, il est important de suivre son cœur et son âme. De cette façon, vous ressentirez ce qui est en rapport avec les Lois de l’Amour. C’est en vivant selon ces Lois de l’Amour, que vous maintenez votre âme dans une condition d’amour.
 
@@ -42,3 +42,5 @@ Nous sommes tous des êtres humains, des esprits et des âmes. Nous sommes tous 
 Mettez-les en pratique. La théorie sans la pratique est comme un diamant brut qui n’est jamais taillé : personne ne verra sa véritable beauté.
 
 Bonne nuit.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)

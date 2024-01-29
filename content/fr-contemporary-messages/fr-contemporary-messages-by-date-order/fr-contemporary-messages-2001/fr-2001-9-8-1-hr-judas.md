@@ -58,3 +58,5 @@ Passe une bonne journée et profite de ta visite. J’espère que demain nous no
 Que Dieu te bénisse, ton frère en Christ, qui veille toujours sur toi, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

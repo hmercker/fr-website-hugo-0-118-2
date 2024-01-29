@@ -42,3 +42,5 @@ Nous sommes toujours en route vers ce but ; nous continuons à être bénis par 
 Il n’est pas nécessaire de faire des comparaisons ou d’essayer de s’infiltrer, de se chevaucher ou de se mélanger s’il y a un malaise ou un désaccord de la part de quelqu’un. Fais ce que tu veux. Suis ton propre chemin. Sache que Dieu t’aime, où que tu sois et qui que tu sois.
 
 Nous t’aimons et nous serons à tes côtés tout au long de ta vie terrestre et au-delà. Tu as pris mon message essentiellement comme je voulais qu’il soit reçu. Je suis ton ami et ton frère en Christ, qui a fait partie de ce groupe d’Amour Divin même avant les années 1970 et qui a participé à sa formation et à son développement, Pierre l’Apôtre avec Joseph, le père de Jésus, et André, ton tuteur, et d’autres. Ne te sens jamais seule ou abandonnée, sache que tu es aimée et protégée et que tu continueras ton développement dans la Grâce de Dieu.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

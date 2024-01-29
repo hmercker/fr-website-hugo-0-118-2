@@ -19,3 +19,5 @@ Eh bien, certaines forces seront mises à contribution pour modifier la percepti
 <small>
 
 1. <large id="f1"> **La Commission trilatérale (parfois abrégée en Trilatérale)** est une organisation privée créée en 1973 à l'initiative des principaux dirigeants du groupe Bilderberg et du Council on Foreign Relations, parmi lesquels David Rockefeller, Henry Kissinger et Zbigniew Brzezinski. Regroupant 300 à 400 personnalités parmi les plus remarquées et influentes — hommes d’affaires, hommes politiques, décideurs, « intellectuels » — de l’Europe occidentale, de l’Amérique du Nord et de l'Asie du Pacifique (États dont la plupart sont également membres de l'OCDE), son but est de promouvoir et construire une coopération politique et économique entre ces trois zones clés du monde, pôles de la Triade. À l'instar du groupe Bilderberg, il s'agit d'un groupe partisan du mondialisme, auquel certains attribuent, au moins en partie, l'orchestration de la mondialisation économique. (Source : Wikipédia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

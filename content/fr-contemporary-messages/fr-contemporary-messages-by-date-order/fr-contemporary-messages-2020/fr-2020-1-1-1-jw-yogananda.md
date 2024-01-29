@@ -26,3 +26,5 @@ Il y en a beaucoup ici avec vous qui embrassent chacun d'entre vous dans ce beau
 Puissiez-vous y aller dans la Grâce de Dieu.
 
 Je suis votre frère et ami, Yogananda.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020)

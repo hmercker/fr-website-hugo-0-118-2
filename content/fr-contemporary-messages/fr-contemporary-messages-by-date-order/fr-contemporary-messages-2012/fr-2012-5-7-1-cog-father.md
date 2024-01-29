@@ -9,7 +9,7 @@ weight:
 ---
 ### Offrez-vous vous-même votre amour
 
-Père - reçu par Enfant de Dieu le 7 Mai 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 7 Mai 2012.
 
 Mon enfant, tu étais [un peu confus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-5-1-cog-father/) quant au lien entre les sentiments et ton âme et mon âme. Nous parlerons de ce sujet à une autre occasion. Aujourd’hui, nous allons parler de ta capacité à recevoir Mon amour. Nous en avons parlé plus tôt, et nous le ferons à nouveau aujourd’hui.
 
@@ -24,3 +24,5 @@ Il est vrai que c’est en donnant que l’on reçoit. Beaucoup d’entre vous p
 Donne-toi ton amour et reçois le mien.
 
 Ton père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

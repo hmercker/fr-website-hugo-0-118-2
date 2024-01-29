@@ -29,3 +29,5 @@ Que Dieu vous bénisse, et que Dieu bénisse tous les peuples de la Terre.
 <small>
 
 1. <large id="f1"> **Ho Chi Minh** (19 Mai 1890 – 2 Septembre 1969) était un révolutionnaire Vietnamien et un homme d’État, qui est devenu le premier ministre (1946-1955) et président (1955-1969) de la République démocratique du Vietnam. Ho est surtout connu pour avoir dirigé le mouvement d’indépendance du Viet Minh à partir de 1941, en établissant la République Démocratique du Vietnam dirigée par le communisme en 1945 et en vainquant l’Empire français en 1954 à Dien Bien Phu. Ho parlait couramment le Vietnamien, plusieurs dialectes de chinois, l’anglais et le français. Il était également connu pour parler thaï, espagnol, allemand et russe. Ho Chi Minh City (anciennement Saigon) est nommée en sa mémoire. (Source : Wikipédia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

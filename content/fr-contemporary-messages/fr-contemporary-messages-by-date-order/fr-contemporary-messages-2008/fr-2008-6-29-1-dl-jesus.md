@@ -22,3 +22,5 @@ Je voudrais ajouter un point où vous, mon orateur d'aujourd'hui, avez reçu une
 Et ce qui reste, nous le savons tous, c'est de continuer à appeler nos frères et sœurs et de leur faire partager, comme vous l'avez fait et comme vous continuerez à le faire au cours de cette belle semaine, l'amour de Dieu et toutes les bénédictions qui découleront de cet amour. Je vous remercie pour votre indulgence, mais, surtout, je vous remercie pour vous, votre amour et pour votre grand travail pour Dieu et le Royaume.
 
 C'est votre ami et votre frère, Jésus.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

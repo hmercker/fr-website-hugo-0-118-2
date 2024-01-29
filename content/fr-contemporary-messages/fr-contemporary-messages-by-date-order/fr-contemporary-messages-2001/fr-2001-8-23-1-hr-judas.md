@@ -58,3 +58,5 @@ Je te laisse. Tu es usé psychologiquement. Oui, le processus de recevoir de l�
 Que Dieu te bénisse, ton frère, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

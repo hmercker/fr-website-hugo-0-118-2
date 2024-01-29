@@ -1,13 +1,13 @@
 ---
-title: "Sur le Foi"
+title: "Sur la Foi"
 menu_title: ""
-description: "Sur le Foi"
+description: "Sur la Foi"
 date: 2022-06-01 06:00:01+00:304
 draft: False
 hidden: True
 weight:
 ---
-### Sur le Foi
+### Sur la Foi
 
 Anne Rollins - reçu par Helge Mercker le 10 Décembre 2012, Elim, Namibie.
 
@@ -20,3 +20,5 @@ Tu seras un témoin du changement et une ancre pour beaucoup et tu sèmeras les 
 Aie confiance en toi, aie confiance en Dieu, aie confiance en nous, aie confiance dans le processus d’épanouissement. Par tes désirs d’âme, tu as décidé d’entreprendre le travail nécessaire à l’éveil de nombreuses âmes à l’amour de notre Père. Tu es nécessaire pour ce travail, ne te retiens pas, mais demande à Dieu de t’aider, de te guider, de te consoler et de te fortifier.
 
 Nous t’entourons de notre amour et sommes toujours proches de toi. Fais appel à nous. Je suis heureuse de t’écrire à nouveau, c’est Anne Rollins, ta sœur en Christ. Au revoir, mon amour.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

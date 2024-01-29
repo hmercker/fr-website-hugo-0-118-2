@@ -24,3 +24,5 @@ Un autre exemple est celui d'un parent qui n'aide pas un enfant plus âgé à r�
 Inversement, une bonne chose peut être faite avec une mauvaise intention. L'exemple qui vous a été donné est celui d'une personne qui fait des dons généreux à des œuvres de charité, non pas dans le but d'aider les autres, mais dans celui de se glorifier.
 
 Il est ainsi arrivé que certains esprits découvrent avec stupéfaction que leur acte de charité n'apporte pas le confort et le bonheur, mais l'inverse. Ils ne pouvaient pas le comprendre au départ, mais ensuite, au fur et à mesure que les lois agissent, et que leur âme s'ouvre à elle-même, ils découvrent la vérité, à leur grande peine.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

@@ -44,3 +44,5 @@ J’espère que tu es satisfaite de mes réponses à tes questions et des consei
 Je te laisse maintenant avec mes bénédictions et l’assurance que nous continuerons à veiller sur tous nos collaborateurs Célestes avec un amour constant, comme celui que vous ne connaîtrez que lorsque vous deviendrez des anges Célestes et que vous vous joindrez à nous pour guider d’autres collaborateurs dans la chair.
 
 Que Dieu vous bénisse tous et chacun. Je suis votre frère dans le Christ, André l’Apôtre de Jésus, véritable adepte de ses enseignements. Joseph est tout près et vous envoie son amour et ses bénédictions et nous sommes de hauts esprits Célestes qui veillent sur vous tous.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)

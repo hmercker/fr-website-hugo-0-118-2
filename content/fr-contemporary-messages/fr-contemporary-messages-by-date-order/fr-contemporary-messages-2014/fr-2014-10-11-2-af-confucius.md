@@ -26,3 +26,5 @@ Je vous en conjure donc, mes bien-aimés, cherchez l’Amour de Dieu. Faites le 
 Vous êtes tous venus ici parce que vous désirez ce cadeau et vous serez tous dotés de ce cadeau parce que vous y êtes ouverts. Et je souhaite simplement clarifier la différence, la différence entre ce qui est accordé en vous par Dieu et ce que vous possédez de manière innée à votre naissance, votre création, l’Amour Divin et l’amour naturel.
 
 Bien-aimés, continuez dans vos prières, votre communion, vos efforts pour être ensemble et je continuerai à venir et à prier avec vous et à parler avec vous comme le feront tant d’autres Anges qui ont votre soin et votre tutelle comme leur bénédiction et leur désir de vous soutenir et de vous aimer tous. Âmes précieuses, Dieu vous bénit. Confucius vous aime, mes chéris, mes précieux chéris.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

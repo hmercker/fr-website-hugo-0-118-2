@@ -44,3 +44,5 @@ Je suis votre frère Jean, disciple de mon Maître et participant de l’Amour D
 **Note du médium :** La référence de Jean à *« l’objectif de l’attraction de l’homme et de la femme l’un envers l’autre »* doit être comprise comme signifiant que s’aimer l’un l’autre est notre objectif le plus élevé. Nous sommes élevés au-delà de l’animal, où le but premier de l’union d’un homme et d’une femme est de propager l’espèce.
 
 Bien que les enfants puissent être les dons de l’union de l’homme et de la femme, l’amour doit être la cause première et l’effet de leur attirance l’un pour l’autre pour qu’ils restent la plus exaltée des créatures de Dieu.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

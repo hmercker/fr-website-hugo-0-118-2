@@ -30,3 +30,5 @@ Les temps dans lesquels vous vivez actuellement sont très inhabituels, et des m
 Tous ces processus vont progressivement desserrer l’emprise des esprits sombres sur les mortels, et ainsi, dans la plénitude du temps, ces influences de force sombre perdront leur effet, et leur pouvoir sera brisé.
 
 Faites-nous confiance, et tout se déroulera selon le plan parfait de Dieu.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

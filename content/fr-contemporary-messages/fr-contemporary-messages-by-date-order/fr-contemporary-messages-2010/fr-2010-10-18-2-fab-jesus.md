@@ -20,3 +20,5 @@ Mon message aux peuples du monde est qu'ils doivent s'aimer les uns les autres. 
 À mes compatriotes Juifs, je dis : aimez-vous les uns les autres, et explorez et appliquez la merveilleuse religion que Dieu vous a donnée. Elle contient suffisamment d'éléments pour satisfaire des opinions diverses, et elle vous apprendra à devenir de meilleures personnes.
 
 Je tiens à remercier R____ d'avoir rendu ces commentaires possibles.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

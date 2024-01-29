@@ -20,3 +20,5 @@ Ce n'est pas une contradiction, car Jefferson Smith possédait une pureté passi
 Ce que je veux dire, c'est que mes sentiments patriotiques, qui étaient forts, ont été entachés. J'ai constaté à maintes reprises que la vie spirituelle de ceux qui ont été des soldats mortels est des plus malheureuses, car les activités de guerre entravent généralement le bonheur et la croissance des esprits. Agiter des drapeaux pour battre les tambours de la guerre a donné lieu, ici, à des vies plutôt malheureuses, et plus les mortels le sauront, mieux ils se porteront.
 
 Ce ne sont pas vos propres sentiments, anti-guerre, qui ressortent. Ce sont mes pensées, et je ne les ai pas trouvées facilement. Elles sont venues à la suite, franchement, d'un choc, qui m'a donné des remords.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

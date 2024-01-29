@@ -24,3 +24,5 @@ J'ai vécu ma vie en fonction de l'amour. Si j'ai semblé ne pas savoir ou ne pa
 Maintenant, tu as une perception différente de ce sujet. Tout ce que nous semons, nous le récoltons, donc si nous avons semé la bonté, c'est exactement ce que nous récolterons.
 
 Je suis heureuse que tu sois satisfait de ce que j'ai dit. Cela a clarifié une confusion pour toi.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

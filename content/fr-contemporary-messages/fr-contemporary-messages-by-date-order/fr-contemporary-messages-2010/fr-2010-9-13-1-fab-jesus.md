@@ -18,3 +18,5 @@ Je vois votre préoccupation, alors laissez-moi y répondre. J'ai dit : *« Mon 
 Eh bien, ce sont en effet des réalités distinctes, mais elles étaient destinées à se mélanger, afin que la vie d'un mortel soit en harmonie avec la volonté de Dieu. Quelque chose d'aussi profane que l'utilisation de l'argent peut avoir une signification spirituelle profonde s'il est utilisé pour aider quelqu'un.
 
 Dans le même temps, il existe un royaume spirituel invisible qui s'exprime parfois de manière matérielle, comme c'est le cas ci-dessus, mais qui ne peut néanmoins jamais être assimilé au séculier ou au matériel. Il y a donc la vérité spirituelle, puis les actions qui expriment cette vérité sur le plan matériel, apportant ainsi le spirituel aux questions terrestres.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

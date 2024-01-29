@@ -32,3 +32,5 @@ Je vous demande donc, en tant que femme, de voir la bonté de votre nature spiri
 Lève-toi comme celui qui, avec tes frères en Christ, mettra en lumière la vérité que l’Amour est la seule puissance qui amènera ce monde à la paix et à l’harmonie. Alors vous verrez la violence et l’inégalité cesser, et la terre redevenir le paradis voulu par Dieu, adapté à des créatures aussi élevées que vous.
 
 Je suis Marie-Madeleine, et une vraie disciple de mon Jésus bien-aimé. Je suis très reconnaissante de l’occasion que vous m’avez donnée. Je vous aime, chers frères et sœurs, et je prie pour votre évolution vers les anges divins que je vous sais être.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

@@ -25,3 +25,5 @@ Mais au cours des plus de cinq cents canalisations que vous avez reçues, il y a
 Vous pouvez donc comprendre que pour certains esprits, tels que Shakespeare, il était nécessaire d'innover, car il est si important pour l'humanité, et il y a toujours eu un vif intérêt pour sa vie, en particulier en ce qui concerne de nombreux mystères de sa vie terrestre, auxquels vos canalisations ont répondu. Vous serez appelés à canaliser d'autres esprits qui, comme Shakespeare, sont importants pour l'histoire. Par exemple, vous savez qu'au moment opportun, vous ferez une série de canalisations du roi Arthur, qui était en effet une personne réelle.
 
 Lorsque votre heure sera venue, vous aurez accompli tout ce que Dieu a ordonné en termes de prise en charge des messages des esprits, et ceux-ci vous exprimeront leur gratitude lorsque vous les rencontrerez dans le monde des esprits.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

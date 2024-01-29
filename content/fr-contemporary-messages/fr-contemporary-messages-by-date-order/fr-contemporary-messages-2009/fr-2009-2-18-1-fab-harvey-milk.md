@@ -17,3 +17,5 @@ Je n'étais pas un saint, mais j'avais un sens aigu de la justice. Je sais que c
 <small>
 
 1. <large id="f1"> **Harvey Bernard Milk** (22 mai 1930 - 27 novembre 1978) était un homme politique américain et le premier homme ouvertement gay à être élu à une fonction publique en Californie, en tant que membre du conseil des superviseurs de San Francisco. La politique et le militantisme gay n'ont pas été les premiers centres d'intérêt de Milk ; il n'a pas ressenti le besoin d'être ouvert sur son homosexualité ou de participer aux affaires civiques avant l'âge de 40 ans environ, après ses expériences dans la contre-culture des années 1960. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

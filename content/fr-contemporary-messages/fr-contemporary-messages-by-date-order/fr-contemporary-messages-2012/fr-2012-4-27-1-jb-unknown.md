@@ -70,4 +70,6 @@ Le monde attend les enfants de Dieu pour montrer ce que l’Amour Divin fera et 
 
 La voix de nombreux esprits qui écoutent la voix du Père.
 
-**Note du Webmaster du site « New-Birth.Net » :** Il s’agit sans aucun doute d’un résultat direct des conversations sur quelques forums remettant en question la série actuelle de messages de l’Enfant de Dieu. Tout simplement parce que la convention au sein du mouvement de l’Amour Divin a soutenu que le Père ne peut pas parler directement à Ses enfants.
+**Note du Webmaster du site « New-Birth.Net » :** Il s’agit sans aucun doute d’un résultat direct des conversations sur quelques forums remettant en question la série actuelle de messages de l’Enfant de Dieu. Tout simplement parce que la convention au sein du mouvement de l’Amour Divin a soutenu que le Père ne peut pas parler directement à Ses enfants.(Geoff Cutler)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

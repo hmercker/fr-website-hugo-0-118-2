@@ -62,3 +62,5 @@ Je ne suis pas Jésus, mais tu me connais. J’ai passé beaucoup de temps avec 
 Que Dieu te bénisse.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

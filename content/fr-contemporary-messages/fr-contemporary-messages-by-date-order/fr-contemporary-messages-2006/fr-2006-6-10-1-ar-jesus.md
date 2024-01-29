@@ -22,3 +22,5 @@ Par exemple, supposons que vous ayez toujours voulu voir un musicien célèbre e
 Dans ces "moments" éternels, votre foi dans la réalité de l'Amour Divin se développe et tout devient possible, car la plus haute loi de l'amour prime sur toutes les autres lois. Laisse ton âme aspirer à l'Amour Divin et laisse-toi suspendre dans l'étreinte de l'Esprit Saint. Cherche cet amour encore et encore, afin que les aspirations et les désirs de ton âme deviennent les expériences les plus réelles de ta vie, et qu'il soutienne ainsi ta foi et augmente ton amour pour Dieu et pour ton prochain.
 
 Je suis heureux, chère sœur, et je vous remercie d'avoir pris mon message aujourd'hui. Je suis votre frère en Christ, Jésus, et Maître des Cieux Célestes.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

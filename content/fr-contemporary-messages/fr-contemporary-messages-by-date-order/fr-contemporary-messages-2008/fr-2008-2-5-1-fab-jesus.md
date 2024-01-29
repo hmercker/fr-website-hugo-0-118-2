@@ -35,3 +35,5 @@ Jésus | [La relation de l’homme à la création du monde et l’origine de vi
 St Luc | [Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-7-22-1-jep-st-luke/) | 22 Juillet 1917
 
 Ce sujet concernant l'évolution est complexe et fait l'objet [d'une section séparée](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

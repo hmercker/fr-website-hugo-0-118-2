@@ -28,3 +28,6 @@ Les anges qui demandent toujours à faire mon travail sont conscients qu’ils d
 Je vous aime, mes disciples. Prenez courage et soyez joyeux car le jour vient et vous apporterez la vérité aux âmes de toute l’humanité.
 
 Je suis Jésus, votre frère et ami et participant à l’Amour Divin de notre Père Céleste.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

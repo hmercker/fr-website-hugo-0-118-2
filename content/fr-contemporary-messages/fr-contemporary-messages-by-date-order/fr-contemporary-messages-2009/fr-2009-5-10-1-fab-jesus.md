@@ -18,3 +18,5 @@ Lorsque vous lisez sur votre société, vous êtes souvent agréablement surpris
 Nous préconisons une réforme du système, une ouverture du cœur qui sera en accord avec la bonté fondamentale du peuple. Il y a encore beaucoup de choses qui ne sont pas alignées.
 
 Et quand nous disons le système, nous voulons dire la structure globale. Nous ne voulons jamais nier cette générosité, qui est si évidente.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

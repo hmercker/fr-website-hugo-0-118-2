@@ -30,3 +30,6 @@ Même si vous ne croyez pas que c’est assez bon, mettez-le quand même en avan
 J’espère que cela vous sera utile. Nous vous aimons d’un amour constant, qui vient de Dieu. Un amour qui ne vous décevra jamais et ne vous laissera jamais triste ou seul si vous le laissez couler dans votre âme et si vous vous efforcez, dans toute la mesure de vos moyens, de donner de votre cœur à vos projets, à votre travail et à vos semblables. Car ce n’est que dans le don que nous sommes capables de recevoir en grande mesure.
 
 Je vous aime, tous et chacun, et je vous laisse maintenant avec mes bénédictions pour une semaine productive et harmonieuse. Activez votre foi, aimez-vous, et nous sentons que vous retrouverez la santé de votre esprit et de votre corps. Je me signe, un haut esprit Céleste.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

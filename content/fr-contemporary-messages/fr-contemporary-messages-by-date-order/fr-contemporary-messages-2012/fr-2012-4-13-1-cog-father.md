@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre relation
 
-Le Père - reçu par Enfant de Dieu le 13 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 13 Avril 2012.
 
 Cher enfant, je suis heureux que tu sois à nouveau présent à mes côtés aujourd’hui. Je suis heureux que tu aies décidé de diffuser ma parole à travers le site de Geoff. C’est une bonne décision et cela te fera du bien à toi aussi.
 
@@ -26,3 +26,7 @@ L’amour humain peut être si merveilleux et peut t’aider à grandir dans ton
 Je suis cette voix. Je suis cette paix éternelle qui est en toi. Je suis ton âme.
 
 Nous n’avons pas tout à fait fini mais tu as besoin d’un peu de repos. Reviens plus tard, mon enfant.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+

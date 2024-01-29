@@ -20,3 +20,4 @@ Il ne m'a pas fallu longtemps pour progresser. Un bel ange est venu me voir trè
 
 1. <large id="f1"> Jacques Kerouac s'est également exprimé [le 16 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/), [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/),[le 25 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-25-1-fab-jack-kerouac/) et [le 28 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/).[↩](#a1)
 
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

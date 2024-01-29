@@ -9,7 +9,7 @@ weight:
 ---
 ### Laisse Mon amour t’envahir
 
-Père - reçu par Enfant de Dieu le 13 Novembre 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 13 Novembre 2012.
 
 Mon cher enfant, plusieurs sujets t’ont préoccupé et tu souhaites que nous en parlions. Continuons avec le sujet d’hier sur le fait de recevoir.
 
@@ -20,3 +20,5 @@ Laisse l’amour couler. Laisse l’amour être une vague de don et de réceptio
 Mon amour ne s’arrête jamais. Mon amour est un flot sans fin. Laisse mon amour t’envahir. Ressens-le et renforce ton cœur et ton âme pour aimer encore plus. Reçois mon amour et laisse mon amour être ton carburant pour devenir l’amour et la paix sur terre. Bois-en. Il y a toujours plus. Tu dois juste demander et ouvrir ton cœur et ton âme au don de recevoir.
 
 Je t’aime comme toujours, ton Père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

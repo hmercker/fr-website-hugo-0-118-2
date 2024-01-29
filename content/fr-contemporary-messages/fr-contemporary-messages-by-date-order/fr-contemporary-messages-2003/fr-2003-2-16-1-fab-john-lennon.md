@@ -30,3 +30,5 @@ Une chose que je voudrais dire, c’est qu’il est tellement plus facile de fai
 Je vous remercie d’être un canal pour notre travail. J’aimerais que vous me considériez comme votre nouvel ami.
 
 Avec amour, John Lennon.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

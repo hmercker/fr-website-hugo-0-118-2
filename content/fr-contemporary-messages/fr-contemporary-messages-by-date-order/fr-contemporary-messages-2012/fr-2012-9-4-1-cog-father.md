@@ -9,7 +9,7 @@ weight:
 ---
 ### Sentir Mon Amour
 
-Père - reçu par Enfant de Dieu le 4 Septembre 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 4 Septembre 2012.
 
 Mon cher enfant, continue à écrire. Il y en a beaucoup d’autres à venir et cela arrivera. Sois patient avec toi-même. Tu te prépares et en ce moment même tu nettoies et déblaies pour devenir un canal plus raffiné pour Mon Amour. Ensemble, nous allons faire des miracles, il suffit d’attendre et de voir. Tout vient en son temps et ton temps est venu. Tu vas ressentir Mon Amour de plus en plus et comme cela se produit, tu rayonneras davantage Mon Amour pour le bénéfice des autres. Tu es une étoile brillante. Continue simplement ce que tu fais maintenant. Ressentir tes sentiments et libérer toutes les choses qui ne te servent plus. Chercher des conseils et laisser les autres t’aider. Jusqu’à présent, tu as écouté attentivement et pris conseil auprès de personnes sincères qui t’ont été d’une grande aide et d’un grand soutien. Continue.
 
@@ -22,8 +22,11 @@ Je sais que tu ne peux pas encore voir comment les pièces vont se mettre en pla
 Tu demandes des conseils personnels pour te mettre en meilleure condition pour recevoir la plénitude de Mon Amour et de Ma Vérité. Tu dois prier davantage. Je sais que tu ressens souvent une extrême tristesse lorsque tu pries et que tu ne ressens pas la béatitude dont les autres parlent. C’est quelque chose que tu dois traverser, mais tu ne le fais pas en évitant de prier. Tu ne fais que retarder ce que tu as envie de vivre. Tu as eu beaucoup de chagrin dans ta vie. Tu t’es senti très seul. La vie a été difficile et accablante, alors tu as fermé ton cœur pour survivre. Tu dois maintenant ouvrir ton cœur pour expérimenter la plénitude de Mon Amour. En faisant cela, tu ressens ces sentiments de chagrin. Sache que Mon Amour t’aidera à les surmonter.
 
 Sache que Je t’adore. Sache que Je t’admire pour ton endurance et pour continuer ton chemin même si cela fait mal.
+
 Maintenant que tu sais ce que tu vis, sache aussi que cela passera dès que tu ouvriras pleinement ton cœur. Tu seras bientôt en mesure de ressentir Mon Amour à son plein potentiel. Je sais que cela en vaut la peine.
 
 Je te garde dans Mon Étreinte amoureuse.
 
 Ton Père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

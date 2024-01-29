@@ -22,3 +22,5 @@ Ce que je veux dire, c'est qu'il s'agissait d'un bon début, et que maintenant, 
 J'ai également fait référence dans ce message à un intérêt accru pour les Amérindiens. Eh bien, cela se produira. Beaucoup de vos compatriotes examinent profondément leur pays, et ils perçoivent à la fois les graves préjudices subis par les Amérindiens, et la valeur de leurs modes de pensée.
 
 La conséquence la plus importante de l'Empire Américain du Président Bush est d'unir les peuples du monde contre le type de tyrannie et de pouvoir injuste qu'il représente. Et vous n'êtes pas seuls. Le Créateur et le Royaume Céleste sont très actifs partout, et vous verrez bientôt les fruits de nos efforts.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

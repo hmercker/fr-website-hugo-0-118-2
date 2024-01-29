@@ -22,3 +22,5 @@ Car ces prises de conscience viennent avec l’afflux de Son Amour et les Vérit
 La simple prière apporte tellement, un désir sincère apporte le monde de Dieu à l’intérieur. Recevoir l’Amour Divin, c’est recevoir l’étincelle de vie qui vous mettra sur la voie de l’expiation avec Dieu. Et vous désirez tous cela, mes enfants, chaque âme dans ce monde désire connaître Dieu, mais très peu reconnaissent ce désir et n’agissent pas en fonction de ce désir. Pourtant, vous vous êtes réunis pour partager cela ensemble, dans une harmonie aimante et de cette façon, la Lumière de la présence de Dieu est avec vous, mes enfants, et vous guidera vers ce que vous recherchez. Elle réapprovisionnera vos âmes et vous apportera une paix et une joie profondes et satisfaisantes.
 
 Je suis Confucius et je vous aime, embellissez vos âmes, perles hors de prix mes enfants, chacune et chacun, perles hors de prix. Que Dieu vous bénisse. Vous êtes aimés, vous êtes aimés.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

@@ -18,3 +18,5 @@ Permettez-moi de transmettre un message concernant la demande de J____ . Il y a 
 Mais ce n'est pas une hypothèse correcte. À quoi cela sert-il d'obéir aux coutumes et aux rituels si l'âme n'est pas alignée ? J'ai été très franc à ce sujet, tout comme mes ancêtres, les prophètes Hébreux. En fait, c'était l'une des pierres angulaires de mon ministère, que la vérité spirituelle est plus que ces choses. C'est l'une des raisons pour lesquelles j'ai eu des problèmes avec les autorités Juives.
 
 Certaines personnes ne sont jamais capables de sortir de leur boîte, et je le savais. Et il en est de même à votre époque.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

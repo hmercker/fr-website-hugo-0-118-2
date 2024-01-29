@@ -41,3 +41,5 @@ Je vous remercie de vos efforts. Bien qu’ils puissent parfois sembler solitair
 <small>
 
 1. <large id="f1"> Ce n’est pas ce qu’enseignent les Messages de James Padgett. Mais c’est une croyance largement répandue. J’ai l’impression que la réponse ici est également corrompue par cette croyance, et que Joseph a eu quelques difficultés à négocier avec cette croyance afin de faire valoir son point de vue. Jésus a fait la même remarque en utilisant la phrase *« Le ruisseau ne peut pas monter plus haut que sa source »*. (Geoff Cutler)[↩](#a1)
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

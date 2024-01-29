@@ -18,3 +18,5 @@ Oui, évidemment, de bonnes choses se sont également produites. Il y a ces gens
 Et oui, certains membres du Congrès ont fait de bonnes choses. Comme à toutes les autres époques, chacun fait maintenant des choix, et ces choix impliquent des motifs, et ont des conséquences. Alors que ce processus approche de son apogée, toutes les lois qui ont fonctionné dans le passé continueront de fonctionner, car l'humanité est soumise à la loi, et personne ne peut agir en dehors de ces lois.
 
 L'accent mis sur le profit financier ne peut pas continuer de la manière actuelle. Le changement a déjà eu lieu et va s'accélérer. Il y aura une transformation, qui sera basée sur la loi. Et ce changement se produira grâce à un changement de cœur de la part de beaucoup.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

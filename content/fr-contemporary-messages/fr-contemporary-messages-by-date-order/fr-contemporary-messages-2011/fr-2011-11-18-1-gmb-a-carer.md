@@ -17,7 +17,7 @@ Nous fonctionnons un peu comme les Compagnons de Morontia. Cependant, ils sont l
 
 Nous sommes particulièrement formés, certifiés et désignés par Melchizedek pour approcher les solitaires des mondes spécifiques. J’ai, comme un certain nombre de mes semblables, le devoir d’accueillir ceux qui viennent d’Urantia et nous avons la tâche d’amener les « aberrants » à un comportement plus normal afin qu’ils puissent progresser, fonctionner en groupe et avancer. Il n’y a pas de limite à notre durée de vie, donc vous pouvez imaginer que dans mon temps, j’ai pu travailler avec des milliers de personnes de votre monde, en me liant d’amitié avec eux, en les comprenant, en les amenant à un niveau de réalité, et cela va de ceux qui souffrent d’aberrations mineures à ceux qui sont sérieusement désavantagés psychologiquement.
 
-J’ajoute à cela que cette inadéquation peut être due à un accident, à des circonstances d’éducation, et n’est absolument pas d’ordre génétique. La raison pour laquelle je vous contacte est que des questions pertinentes vous ont été posées. Et l’on considère également qu’il est temps pour vous de vous débarrasser des enseignements de vos religions fondamentalistes, qui inspirent la peur et exercent un contrôle, et qui prétendent que si peu d’entre vous atteignent l’éternité.
+J’ajoute à cela que cette inadéquation peut être due à un accident, à des circonstances d’éducation, et n’est absolument pas d’ordre génétique. La raison pour laquelle je vous contacte est que des questions pertinentes vous ont été posées. **Et l’on considère également qu’il est temps pour vous de vous débarrasser des enseignements de vos religions fondamentalistes, qui inspirent la peur et exercent un contrôle, et qui prétendent que si peu d’entre vous atteignent l’éternité.**
 
 L’échec global pour atteindre la vie éternelle comme il vous a été enseigné n’est pas le cas. Dans une certaine mesure, grâce à notre travail – le travail des soignants – les lacunes sont corrigées et un Univers très efficace est géré. Je vous remercie de votre attention maintenant, et dans les occasions futures. Comptons sur cela. Croyez bien que nous nous reverrons un jour pour de plus amples éclaircissements. Vous n’aurez pas besoin de nom ou de numéro, car vous connaîtrez ma voix (distinctive). Je vous envoie mon amour. Je suis un soignant.
 
@@ -27,3 +27,5 @@ L’échec global pour atteindre la vie éternelle comme il vous a été enseign
 <small>
 
 1. <large id="f1"> Autrement connu sous le nom de Première Sphère de l’Esprit. Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est très différent, du fait qu’il parle presque exclusivement à des êtres angéliques, par opposition à des ex-mortels. Néanmoins, ce message est tout à fait compréhensible.[↩](#a1)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)

@@ -22,3 +22,6 @@ Peut-être doutes-tu que tu es un bénéficiaire de cet Amour parce que tu mesur
 Je t’aime, mon cher frère, et je prie pour ton bonheur et ton épanouissement.
 
 Je suis Marie, la mère de Jésus.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

@@ -9,7 +9,7 @@ weight:
 ---
 ### Lire la Bible
 
-Père & Jésus - reçu par Enfant de Dieu le 19 Avril 2012.
+Le Père Céleste & Jésus - reçu par Enfant de Dieu le 19 Avril 2012.
 
 C’est moi, Jésus. Je viens reconnaître l’effort que tu as fait pour entrer en contact avec notre Père. Ce que tu entends est la Vérité et la Voix de notre Créateur. Aie confiance en cela et continue.
 
@@ -30,3 +30,5 @@ J’ai veillé sur toi toute ta vie. Cette vie a été marquée par de nombreux 
 Reviens plus tard. Nous avons tant de choses à nous dire.
 
 Ton père qui t’aime.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

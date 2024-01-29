@@ -19,3 +19,5 @@ Ce fut toute une aventure, et je suis revenu à la maison.
 <small>
 
 1. <large id="f1"> **George Harrison MBE** (25 Février 1943 – 29 Novembre 2001) était un guitariste rockeur anglais, auteur-compositeur-interprète et producteur de film. Il a atteint une renommée internationale comme guitariste des Beatles et est répertorié avec le numéro 21 dans la liste du magazine Rolling Stone *« Les 100 meilleurs guitaristes de tous les temps »*. Souvent appelé *« le Beatle tranquille »*, Harrison a embrassé le mysticisme Indien et a contribué à élargir les horizons des autres Beatles, ainsi que celui de leur public occidental. Après la séparation du groupe, il a connu une brillante carrière comme artiste solo et plus tard dans le cadre des Traveling Wilburys, ainsi que comme producteur de film. (Source : Wikipédia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

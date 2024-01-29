@@ -32,3 +32,6 @@ En étudiant et en absorbant ce magnifique héritage éclairé, j'ai saisi le co
 Je sais que je n'ai pas été trop précis dans ce message en faisant référence au Talmud, mais ce que j'ai essayé de dire, c'est que ses valeurs étaient omniprésentes dans la culture et m'ont permis de me sentir soutenu, malgré l'impression créée par la Bible. Non, de nombreuses forces étaient de mon côté, et ma vie aurait pu prendre un cours différent si la raison avait prévalu au lieu de l'hystérie.
 
 Au fur et à mesure que le monde évolue vers une perception plus proche et plus précise de ma vie, les gens seront de plus en plus capables de soulever le Talmud comme l'une des influences majeures de ma vie qui a renforcé et encouragé mon message d'Amour Divin.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+

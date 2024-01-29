@@ -24,3 +24,5 @@ Eh bien, nous sommes en train de mettre en place certaines situations qui auront
 Vous savez maintenant qu'il existe effectivement de bons dirigeants d'entreprise qui souhaitent vraiment répondre aux besoins des gens et de l'environnement, mais ils sont sabotés par des spéculateurs imprudents. Ce n'est donc pas toujours la faute de ces dirigeants.
 
 Donc, pour résumer, les cœurs vont changer pour que le système financier qui contrôle le monde s'aligne sur la vérité. Une fois encore, d'un point de vue purement mental, cela semble impossible, mais vu avec les yeux de l'âme, cela devient discernable.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

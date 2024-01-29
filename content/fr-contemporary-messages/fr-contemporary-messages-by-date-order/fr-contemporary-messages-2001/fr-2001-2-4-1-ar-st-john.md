@@ -30,3 +30,5 @@ C'est la vérité qui m'a ouvert les yeux pour voir enfin son beau visage, la v�
 Sa compassion pour les autres était une source d'inspiration car la paix et l'harmonie qui l'entouraient étaient comme une forteresse impénétrable dans laquelle rien de mauvais ou de moins aimant ne pouvait pénétrer. Mais même avec ce pouvoir évident qu'il possédait sur les autres, Jésus était très humble en se tournant vers Dieu dans la prière et il nous a demandé de faire de même.
 
 Laissez tomber, mes enfants, votre besoin "d'être quelqu'un" et soyez simplement l'amour, un exemple vivant de l'Amour de Dieu pour vous et pour le monde. Je vous aime, mes chers frères et sœurs, et je suis avec vous dans l'Esprit d'Amour du Christ, manifesté dans mon âme et dans la vôtre, Jean l'Apôtre.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

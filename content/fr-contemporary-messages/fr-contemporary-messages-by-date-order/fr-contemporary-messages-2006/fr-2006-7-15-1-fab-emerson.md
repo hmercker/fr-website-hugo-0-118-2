@@ -24,3 +24,6 @@ Au fur et à mesure que l’humanité progresse, la sagesse accumulée du passé
 Alors, mon jeune ami, gardez vous espoirs, et ayez foi en vos rêves, car ils se réaliseront.
 
 Votre ami, Emerson.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+

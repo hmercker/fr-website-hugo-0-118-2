@@ -22,3 +22,5 @@ Mais il y a aussi la question de la justice. Il arrive que des gens fassent des 
 La clé est de voir ces personnes qui font ces choses injustes comme étant également aimées de Dieu. Le Dr King a compris cela parce qu'il a compris mon enseignement. Mais cela ne l'a pas empêché de s'opposer activement à ce qu'il percevait comme une injustice.
 
 Un souci passionné de justice est très différent d'une pensée moralisatrice, car le premier affirme l'équité fondamentale voulue par le Créateur, tandis que le second rejette simplement les gens. En d'autres termes, l'objectif et l'intention sont complètement différents.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

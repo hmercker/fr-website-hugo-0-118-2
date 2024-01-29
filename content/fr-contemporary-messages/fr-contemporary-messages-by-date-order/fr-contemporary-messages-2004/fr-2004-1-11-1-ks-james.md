@@ -36,3 +36,5 @@ Je vous laisse maintenant avec mes bénédictions et je vous remercie de m’avo
 Je suis votre ami et frère en Christ et le frère de Jésus, Jacques, l’un de vos gardiens, qui a reçu le privilège de servir mon Père aimant en montrant à Ses enfants le chemin vers l’union avec Lui.
 
 Il nous bénit tous de Son Amour, c’est à chacun de nous d’accepter ce Don à bras et cœur ouverts et de recevoir les bénédictions qu’Il veut partager avec Ses enfants. Amen.
+
+[Liste Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

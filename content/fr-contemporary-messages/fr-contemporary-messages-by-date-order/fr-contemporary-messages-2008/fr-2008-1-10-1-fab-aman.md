@@ -32,3 +32,5 @@ Jamais dans nos vies terrestres, que ce soit avant ou après la chute, nous ne n
 Laissez-moi répondre à la question que vous venez de poser. Vous vous demandez, même si le privilège de recevoir l'Amour Divin nous a quittés, si nous aurions pu choisir une meilleure voie, puisque nous avions encore le libre arbitre ?
 
 La réponse est, bien sûr, oui. Mais Dieu a vu que notre orgueil s'était endurci au point que nous ne voulions pas, et donc ne pouvions pas, revenir à Lui. Tel était l'entêtement de notre orgueil.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

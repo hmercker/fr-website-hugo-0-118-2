@@ -34,3 +34,5 @@ Tout ce qui est fait dans l’amour est parfait (sufisament). Ce n’est pas une
 Ayez confiance en votre bonté. Ne doutez pas de l’efficacité de votre amour, sous toutes ses formes. Vous êtes guidé, vous pouvez en être sûr. Je vous aime et exprime l’amour des nombreux amis Célestes qui vous protègent et veillent toujours sur vous. Nous vous aimons, et nous sommes avec vous pour faire entrer le nouveau millénaire.
 
 Jean l’Apôtre et participant de l’Amour Divin de Dieu.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

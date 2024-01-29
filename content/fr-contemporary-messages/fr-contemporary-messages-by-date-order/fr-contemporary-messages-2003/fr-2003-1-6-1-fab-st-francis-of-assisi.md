@@ -30,3 +30,5 @@ C’est ainsi, mon ami, que tu dois grandir dans la compréhension de tes sembla
 Je te remercie très sincèrement d’avoir reçu ce message. J’ose espérer qu’il fera beaucoup de bien.
 
 Sincèrement, François d’Assise.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

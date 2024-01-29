@@ -66,3 +66,5 @@ Très bien, mes frères, vous êtes certainement capables d’ingérer de la nou
 Avec tout mon amour pour toi et notre frère curieux, je suis Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

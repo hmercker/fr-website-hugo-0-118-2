@@ -45,3 +45,5 @@ En conclusion, les faits de guerre, avec toutes les atrocités et les tragédies
 <small>
 
 1. <large id="f1"> **Walter Tyler**, plus connu sous le nom de Wat Tyler (4 Janvier 1341 – 15 Juin 1381) a été le leader de la révolte des paysans anglais de 1381. Les connaissances sur les débuts de la vie de Tyler sont très limitées et proviennent essentiellement des archives de ses ennemis.Les historiens pensent qu’il est né dans l’Essex, mais ne savent pas exactement pourquoi il a traversé l’estuaire de la Tamise pour se rendre dans le Kent, d’où il a mené la révolte. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

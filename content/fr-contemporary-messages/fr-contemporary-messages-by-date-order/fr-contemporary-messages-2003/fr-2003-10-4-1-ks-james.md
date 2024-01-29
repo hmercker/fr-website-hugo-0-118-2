@@ -36,3 +36,5 @@ Croyez en l’affirmation de l’amour. Ne ratez pas une occasion d’apprendre,
 Dieu vous bénira en fonction de votre ouverture et de votre foi. Vos anges gardiens viendront vous aider à canaliser les énergies de guérison lorsque vous prierez et demanderez leur aide et leur amour.
 
 Je vous aime, ainsi que tous les enfants de Dieu, et je travaille avec les âmes en quête sur terre depuis des siècles. Je suis votre ami et frère en Christ, Jacques, l’Apôtre de Jésus, appelé Jacques le Mineur (le frère de Jésus, pas le frère de Pierre).
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

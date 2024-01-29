@@ -19,6 +19,8 @@ Vous reconnaîtrez un véritable enseignant à ses actions aimantes et bienveill
 
 Vous vous demandez pourquoi tant de gens croient en de faux enseignants ? C’est une question de responsabilité personnelle. C’est une question de courage. Beaucoup d’entre vous sont comme des moutons dans un troupeau. Vous avez peur d’être seuls. Vous avez peur de votre propre grandeur et de votre potentiel. Vous avez peur que votre vie se termine si vous vous démarquez. Sortez du lot. Mais faites-le avec humilité et grâce.
 
-La vérité est simple. La vérité est libre. La vérité est pour chaque homme et chaque femme. Connaissez Dieu, notre Père, et vous ne vous sentirez jamais seuls.
+[La vérité est simple. La vérité est libre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-9-1-cog-jesus/). La vérité est pour chaque homme et chaque femme. Connaissez Dieu, notre Père, et vous ne vous sentirez jamais seuls.
 
 Ton frère Jésus.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

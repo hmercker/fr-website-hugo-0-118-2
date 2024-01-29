@@ -20,3 +20,5 @@ Mais Dieu a vu les souffrances de l'humanité. Et de même qu'il a attendu le mo
 Vous avez eu des éclairs de lucidité qui indiquent que des ruines du présent naîtra un avenir glorieux, et de telles lucidités sont exactes car elles viennent du Créateur.
 
 Gardez à l'esprit que, quelles que soient les situations horribles et accablantes, rien, rien ne peut supprimer l'esprit humain. En fait, en période de dislocation et de violence, la volonté d'endurer et de vaincre devient plus forte, de sorte que lorsque le système sera finalement arrêté, il y aura une explosion de joie sur toute la planète, et le travail de reconstruction commencera alors pour de bon. Tout cela se produira dans le timing parfait du Créateur. Et lorsque cela se produira, le monde entier le saura et s'en réjouira.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

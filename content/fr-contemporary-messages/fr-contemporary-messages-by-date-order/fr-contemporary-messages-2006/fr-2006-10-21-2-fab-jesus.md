@@ -24,3 +24,5 @@ Mais le fait est qu'Il a un lieu, qui n'est pas une chambre ou une habitation co
 En d'autres termes, je tentais de nier une conception anthropomorphique de Dieu. Une autre vérité est que Ses Attributs sont partout dispersés dans l'univers. Mais le cœur de Son Être est concentré dans une Demeure qui Lui est exclusivement réservée.
 
 Lorsque les mortels qui croient aux messages de Padgett pénétreront dans les Cieux Célestes, ils comprendront pleinement ce que je dis. Il n'y a vraiment aucune contradiction, seulement un problème linguistique qui reflète les limitations de la vie mortelle.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

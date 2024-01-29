@@ -38,3 +38,5 @@ Mes chers enfants bien-aimés de notre Créateur Céleste, soyez patients avec v
 Je vous aime, chacun et chacune des enfants de mon Père aimant dans les Cieux. Vous créez votre propre destin par les choix que vous faites. C’est une bonne idée de faire des choix aimants à tout moment.
 
 Je vais clore mon message pour aujourd’hui, et je vous remercie de m’avoir permis de canaliser mes pensées à travers vous. Je suis votre ami et votre frère dans l’Esprit de l’Amour de Dieu manifesté dans mon âme, Jésus le Christ.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

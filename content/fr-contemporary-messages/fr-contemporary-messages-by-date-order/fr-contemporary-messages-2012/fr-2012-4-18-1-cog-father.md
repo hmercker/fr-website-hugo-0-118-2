@@ -9,7 +9,7 @@ weight:
 ---
 ### Sanction et conséquence
 
-Le Père - reçu par Enfant de Dieu le 18 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 18 Avril 2012.
 
 Cher enfant, il y a deux sujets qui te préoccupent. L’un concerne la différence entre la sanction et la conséquence et l’autre est de savoir si  » ressentir ses sentiments  » est important pour atteindre Dieu. Ces deux sujets sont importants.
 
@@ -35,3 +35,5 @@ Je t’aime dans mon cœur, Père.
 <small>
 
 1. <large id="f1"> Le médium a confirmé que l’utilisation du mot « âme-sœur » ici n’était pas destinée à être interprétée littéralement comme le font les Messages de James Padgett. Il s’agit plutôt ici d’un « partenaire que vous aimez profondément ».[↩](#a1)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

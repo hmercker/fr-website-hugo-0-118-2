@@ -24,3 +24,5 @@ La nature humaine étant ce qu’elle est, il a été difficile sur terre de sou
 Avant de faire l’expérience de la Nouvelle Naissance, j’avais déjà une grande intégration avec l’humanité. Mais après la transformation, j’ai perdu une identité Juive spécifique, et l’idée de Dieu est devenue une manière d’être vivante, toujours présente. Je ne peux pas exprimer cette expérience, sauf pour dire que c’était comme une présence brûlante, par opposition à une idée ou une conviction. Et tout ce que j’observais dans les Sphères Célestes renforçait ce sentiment.
 
 J’ai décrit imparfaitement certaines de mes impressions de progression spirituelle. Dans de futurs messages, je développerai d’autres aspects de la vie spirituelle.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

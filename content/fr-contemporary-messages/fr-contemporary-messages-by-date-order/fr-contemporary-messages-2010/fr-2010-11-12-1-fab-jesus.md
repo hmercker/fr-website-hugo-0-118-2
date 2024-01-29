@@ -32,3 +32,5 @@ Ainsi, bien que le militarisme soit une erreur, il peut y avoir des choix produc
 Ce que je veux dire, c'est que du point de vue de Dieu, chaque situation et chaque personne est unique, car Dieu a créé les gens avec le libre arbitre afin qu'ils puissent choisir leur vie.
 
 Des atrocités ont été commises des deux côtés, mais cela ne discrédite en rien la Déclaration des droits.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)

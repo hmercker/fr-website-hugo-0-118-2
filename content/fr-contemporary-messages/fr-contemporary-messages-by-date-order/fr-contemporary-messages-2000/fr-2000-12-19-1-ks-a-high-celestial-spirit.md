@@ -34,3 +34,6 @@ Vous pouvez laisser votre conscience vous guider. Vous pouvez entrer en contact 
 Ne croyez pas tout ce que votre mental raisonneur vous dit, car il est extrêmement limité par rapport aux perceptions de votre âme développée dans l’Amour Divin. Continuez votre recherche de la Vérité. Sachez que vous serez en mesure de la trouver. Ne renoncez jamais à essayer, car elle est peut-être juste au coin de la rue, vous êtes peut-être sur le point de découvrir la réponse à une question qui vous laissait jusque-là perplexe. Rappelez-vous que l’amour est toujours la réponse et le meilleur guide pour apprendre la Vérité. Quand tout le reste échoue, quand vous pensez que vous ne pouvez pas trouver votre chemin hors d’un dilemme, l’amour vous guidera infailliblement.
 
 Je vous aime tous et chacun et je prie pour que certains dilemmes soient résolus grâce à ces conseils. Je suis un ange Céleste élevé qui vous laisse maintenant avec mes bénédictions, et je vous remercie pour le privilège que vous m’avez donné d’écrire. Amen
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

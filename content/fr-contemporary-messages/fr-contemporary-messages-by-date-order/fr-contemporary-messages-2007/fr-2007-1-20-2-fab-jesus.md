@@ -38,3 +38,5 @@ Pour bien comprendre ce que je dis, vous devez prendre du recul et considérer l
 Sur la scène mondiale, quelques-uns ont choisi le premier, et un nombre bien plus important a choisi le second. Alors comment cela peut-il échouer ? C'est impossible. Je sais que vous le savez, mais curieusement, vous ne le savez pas complètement, sinon vous ne douteriez pas. En tant que mortel, vous voyez parfois avec une vision limitée. La solution consiste donc à permettre à votre âme de prendre le relais là où votre intellect est laissé pour compte.
 
 Ce même principe s'applique à votre recherche d'emploi. Votre âme sait qu'un nouvel emploi vous attend, et pourtant, vous avez parfois ce sentiment d'insécurité. Peu importe. Il n'y a pas d'insécurité en Dieu. Il pourvoira à vos besoins, tout comme il sauvera l'humanité de l'esclavage de l'égoïsme et apportera le paradis sur terre, comme il l'a promis.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

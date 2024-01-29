@@ -20,3 +20,5 @@ Tes enfants ont été pendant longtemps la chose la plus importante pour toi. Gr
 Tu te sens épuisée et tu as besoin de prendre soin de toi maintenant. J’ai encore beaucoup de choses à te dire et je le ferai lorsque tu seras en meilleure forme. Sache que je t’aime et que je suis là pour toi, si seulement tu me laisses faire.
 
 Mère Marie.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

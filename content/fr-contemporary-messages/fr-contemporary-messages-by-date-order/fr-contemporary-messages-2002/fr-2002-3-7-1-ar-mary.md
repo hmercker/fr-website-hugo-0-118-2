@@ -25,4 +25,6 @@ Tu vois tes frères et sœurs qui luttent pour sortir des profondeurs de leur d�
 
 Ton amour naturel, aussi imparfait soit-il, est dépassé par ce plus grand amour qui existe dans ta vie comme l’air que tu respires. A présent, tu es devenue l’amour, et sa réalité a transformé ta vision de ce monde comme un lieu d’amour. Oui, le Christ est actif dans ton âme même si tu es maintenant, mortelle et imparfaite. Tu vois que Dieu t’aime encore, et tu continues à demander Son Amour. Sois égoïste, mon enfant, et réalise que l’acte de recevoir de l’amour est la chose la plus désintéressée que tu fasses pour ce monde. Je t’aime et je prie à tes côtés car je sais l’importance de la présence de l’amour dans notre monde, mortel et spirituel.
 
-Je suis Marie, la mère de Jésus, et une vraie disciple de mon fils et Maître.
+Je suis Marie, la mère de Jésus, et une vraie disciple de mon fils et Maître.4
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

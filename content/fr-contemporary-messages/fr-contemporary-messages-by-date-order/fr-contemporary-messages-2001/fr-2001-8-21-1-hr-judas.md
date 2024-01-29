@@ -86,3 +86,5 @@ Je pense que nous avons déjà parlé beaucoup sur le sujet. Tu connaissais beau
 Le temps est venu de se dire au revoir. Nous nous rencontrerons bientôt à nouveau. Que Dieu te bénisse, ton frère en Christ, Judas
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

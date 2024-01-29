@@ -56,3 +56,5 @@ L’état de l’âme n’est pas quelque chose de fixe, mais quelque chose que 
 Je te souhaite une belle journée. Avec tout mon amour, Judas de Kerioth.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

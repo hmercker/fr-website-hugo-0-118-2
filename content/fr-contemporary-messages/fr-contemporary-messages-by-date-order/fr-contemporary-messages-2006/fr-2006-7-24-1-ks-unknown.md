@@ -30,3 +30,5 @@ J’espère que mes propos d’aujourd’hui vous apporteront des informations u
 Je vous laisse maintenant avec mes bénédictions. Je suis satisfait de la façon dont vous avez reçu mes pensées.
 
 Je suis un Ange Céleste, et je vous aime.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

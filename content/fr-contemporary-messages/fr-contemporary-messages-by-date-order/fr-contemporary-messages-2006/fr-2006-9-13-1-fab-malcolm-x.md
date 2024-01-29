@@ -21,3 +21,5 @@ Je suis très différent de ce que j’étais autrefois, même si je me bats ess
 <small>
 
 1. <large id="f1"> **Malcolm X**, (Omaha, Nebraska, 19 Mai 1925 – 21 Février 1965 à New York City) était un ministre musulman noir et le porte-parole national de la Nation de l’Islam (Organisation Nationaliste Noire). Malcolm X est l’une des quatre grandes icônes des mouvements afro-américains pour abolir les discriminations raciales aux États-Unis avec Rosa Parks, Daisy Bates et Martin Luther King pour la période qui va de 1954 à 1965. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

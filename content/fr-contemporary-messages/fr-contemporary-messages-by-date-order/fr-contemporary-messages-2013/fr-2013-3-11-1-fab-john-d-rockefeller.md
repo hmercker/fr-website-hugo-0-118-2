@@ -11,7 +11,7 @@ weight:
 
 John D Rockefeller - reçu par FAB le 11 Mars 2013, Berkeley, Californie, USA.
 
-C’est moi, John D. Rockefeller.
+C’est moi, John D. Rockefeller.<sup id="a1">[1](#f1)</sup>
 
 Oui, je désire dire un mot, à la lumière du fait que vous venez de terminer la lecture de ce chapitre me concernant *[« Le syndrome Rockefeller » par Ferdinand Lundberg, chapitre deux.]* Vous vous demandez comment j’ai pu faire autant de mal, ce que je vois maintenant, et pourtant sembler en être inconscient.
 
@@ -26,3 +26,17 @@ Alors, vous vous demandez si mes cadeaux étaient de la générosité ou de la c
 Je suis heureux de la façon dont vous avez reçu ce message, et vous l’êtes vous-même, puisque vous êtes l’un de ceux qui ont fortement contesté mon comportement. Mais vous êtes aussi un disciple de Jésus qui aime la vérité. J’ai dit la vérité dans cette canalisation, et vous l’avez reprise telle que je l’ai transmise.
 
 Je conclurai en disant que l’erreur humaine, et tout le mal qui en découle, ne peut résister aux Anges de Dieu.
+<small>
+
+1. <large id="f1"> John D. Rockefeller s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+John D Rockefeller | [La vie de John D. Rockefeller Senior](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-5-1-fab-john-d-rockefeller/) | 5 Février 2010
+John D Rockefeller | [Une perception différente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-4-1-fab-john-d-rockefeller/) | 4 Juin 2010
+John D Rockefeller | [John D. Rockefeller se décrit lui-même - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-13-1-fab-john-d-rockefeller/) | 13 Mars 2013
+Frederick T. Gates | [Un collègue de John D. Rockefeller SR. confirme son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-1-fab-frederick-t-gates/) | 16 Mars 2013
+John D Rockefeller | [Le regard de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-2-fab-john-d-rockefeller/) | 16 Mars 2013
+
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

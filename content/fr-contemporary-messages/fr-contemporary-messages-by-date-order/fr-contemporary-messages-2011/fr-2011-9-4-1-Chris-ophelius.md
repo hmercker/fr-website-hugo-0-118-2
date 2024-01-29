@@ -11,7 +11,7 @@ weight:
 
 Ophélius - reçu par Chris <sup id="a1">[1](#f1)</sup> le 4 Septembre 2011, Michigan, USA.
 
-Un abonné de la liste a écrit après le message  » There Will Come a Time (il viendra un temps) », demandant quel sera l’état de conscience sur la planète en ce qui concerne les hommes et les femmes homosexuels après le changement, lorsque la Terre entrera dans les premiers stades de la Lumière et de la Vie. Avant de répondre à cette question, faisons un petit zoom arrière et examinons l’état de conscience de la vie dans les mondes à venir – vie morontielle et vie spirituelle.
+Un abonné de la liste a écrit après le message  « There Will Come a Time (il viendra un temps) », demandant quel sera l’état de conscience sur la planète en ce qui concerne les hommes et les femmes homosexuels après le changement, lorsque la Terre entrera dans les premiers stades de la Lumière et de la Vie. Avant de répondre à cette question, faisons un petit zoom arrière et examinons l’état de conscience de la vie dans les mondes à venir – vie morontielle et vie spirituelle.
 
 La durée de vie sur votre monde (troisième dimension) est en moyenne de 70 à 80 ans. C’est un temps très, très bref comparé à l’éternité – vous ne faites que passer, pour ainsi dire, et dans cette brève période de temps, ce monde est le seul endroit où vous, en tant que personnalité, aurez une capacité de reproduction sexuelle qui vous définit comme mâle ou femelle. Une fois sur les mondes des maisons (l’équivalent des 7 sphères spirituelles habituellement connues) et au-delà, les organes reproducteurs ne feront plus partie de votre physiologie. <sup id="a1">[2](#f1)</sup> À partir de ce moment-là, vous serez tous entièrement reconnus par vos personnalités. Ce qui est vraiment « à l’intérieur » se manifestera à l’extérieur. Si vous êtes compatissant, gentil et plein d’amour pour les autres, votre forme physique reflétera cette beauté. Si vous êtes égocentrique, froid, insensible, dédaigneux, craintif, cela se manifestera dans la forme physique comme étant moins beau et comme il est dit, « tout sera révélé ».
 
@@ -27,3 +27,5 @@ Paix à vous, Le Cercle des Sept.
 1. <large id="f1"> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
 
 2. <large id="f"> Cela indique clairement que les rapports sexuels tels que nous les connaissons ne peuvent avoir lieu dans d’autres royaumes.[↩](#a2)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)

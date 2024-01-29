@@ -27,3 +27,5 @@ C’est tout ce que je souhaite dire maintenant. Je vous souhaite bonne chance d
 1. <large id="f1"> **Leroy Fletcher Prouty** (24 Janvier 1917 – 5 Juin 2001) a servi comme chef des opérations spéciales pour les chefs d’état-major interarmées sous le président John F. Kennedy. Ancien colonel de l’armée de l’air américaine, il s’est retiré du service militaire pour devenir banquier, puis est devenu un critique de la politique étrangère des États-Unis, en particulier des activités secrètes de la Central Intelligence Agency (CIA), dont il avait une connaissance intime considérable. le Colonel Prouty, ainsi que Richard Case Nagell, ont inspiré le personnage de « M. X » dans le film JFK d’Oliver Stone. (Source : Wikipedia)[↩](#a1)
 
 2. <large id="f2"> Il semble s’agir d’un idiome propre à l’Amérique du Nord. Il signifie dire la vérité à ceux qui sont au pouvoir.[↩](#a2)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

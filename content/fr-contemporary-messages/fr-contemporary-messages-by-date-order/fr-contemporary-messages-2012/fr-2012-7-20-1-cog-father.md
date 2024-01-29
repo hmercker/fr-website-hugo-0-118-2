@@ -9,7 +9,7 @@ weight:
 ---
 ### Ta résistance te fait souffrir
 
-Père - reçu par Enfant de Dieu le 20 Juillet 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 20 Juillet 2012.
 
 Cher enfant, tu me demandes un conseil et je vais te le donner en ce moment. Tu devrais aller parler à J. Cela te donnera l’occasion de le voir comme l’ami qu’il est pour toi maintenant. Il t’aime toujours. Pas de la manière dont il t’aimait auparavant, mais comme un ami. Il est là pour toi et c’est la vérité.
 
@@ -24,3 +24,5 @@ Je t’assure, tu ne dois pas avoir peur. Ton avenir est brillant et tu vas conn
 C’est le début d’une nouvelle période dans votre relation. Il vous faudra du courage à tous les deux pour franchir cette nouvelle étape. Mais vous devez le faire. Vous en éprouverez bientôt tous deux la valeur.
 
 Avec tout mon amour, ton Père.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

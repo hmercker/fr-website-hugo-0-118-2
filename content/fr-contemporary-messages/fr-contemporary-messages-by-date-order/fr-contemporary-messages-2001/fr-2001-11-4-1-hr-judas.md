@@ -40,3 +40,5 @@ Dans les messages, nous avons répété de nombreuses fois que le contenu spirit
 Que Dieu te bénisse ton frère en Christ, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)

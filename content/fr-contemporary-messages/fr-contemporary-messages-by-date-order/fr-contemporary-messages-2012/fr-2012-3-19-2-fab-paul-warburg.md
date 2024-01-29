@@ -21,3 +21,5 @@ Eh bien, comme vous le savez, j’ai démissionné de mon poste de gouverneur de
 <small>
 
 1. <large id="f1"> **Paul Moritz Warburg** (10 Août 1868 – 24 Janvier 1932) fut un banquier américain d’origine allemande et l’un des premiers défenseurs du système de la Réserve fédérale américaine. Warburg est décédé chez lui à New York le 24 janvier 1932 et a été enterré au cimetière de Sleepy Hollow, à Sleepy Hollow, dans l’État de New York. Au moment de sa mort, il était président de la Manhattan Company et administrateur de la Bank of Manhattan Trust Company, de la Farmers Loan and Trust Company of New York, de la First National Bank of Boston, de la Baltimore & Ohio Railroad, de l’Union Pacific Railroad, de la Los Angeles & Salt Lake Railroad, de la Western Union Telegraph Company, de l’American I.G. Chemical Company, de l’Agfa Ansco Corporation et de la Warburg & Company of Amsterdam. (Source Wikipédia)[↩](#a1)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

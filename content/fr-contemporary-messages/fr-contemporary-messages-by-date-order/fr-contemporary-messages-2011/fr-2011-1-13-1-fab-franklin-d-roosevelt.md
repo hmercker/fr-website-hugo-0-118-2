@@ -11,7 +11,7 @@ weight:
 
 Franklin D Roosevelt - reçu par FAB le 13 Janvier 2011, Berkeley, Californie, USA.
 
-C’est moi, Franklin Roosevelt.
+C’est moi, Franklin Roosevelt.<sup id="a1">[1](#f1)</sup>
 
 Vous venez de terminer la lecture du livre d’Antony C. Sutton de 1975, « Wall Street et FDR ». Vous aimeriez connaître ma réponse.
 
@@ -26,3 +26,8 @@ Où en suis-je aujourd’hui ? Eh bien, j’ai considérablement progressé depu
 Je vois que votre esprit va et vient de l’optimisme au pessimisme. Vous ne voyez pas objectivement d’issue. Mais il y a une issue, et vous la trouverez, parce que vous la voulez et la cherchez.
 
 Je vous souhaite, mon ami, une bonne journée. Il n’y a rien de plus puissant que Dieu.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Franklin Delano Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)

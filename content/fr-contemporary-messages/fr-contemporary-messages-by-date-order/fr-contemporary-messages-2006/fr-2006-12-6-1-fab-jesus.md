@@ -54,3 +54,5 @@ Je sais que vous attendiez de moi des idées originales, mais mon but en écriva
 Ce message a été assez long. Vous percevez que l'essentiel a été le problème du Mal, le thème central du livre de Job. Et vous avez raison. Au fur et à mesure que vous progresserez dans l'Amour Divin, le problème du Mal occupera de plus en plus sa véritable place dans la vie, et vous verrez alors que malgré Job, un Dieu d'amour continue à prendre soin de Ses créatures.
 
 Pour rendre cela personnel à vos préoccupations professionnelles, considérez ces difficultés professionnelles comme de simples nuages temporaires qui passeront inévitablement, et tout comme Dieu a tout restitué à Job à la fin parce qu'il était fidèle, il pourvoira à vos besoins matériels, puisque vous êtes fidèle aussi.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

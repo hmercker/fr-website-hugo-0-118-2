@@ -24,3 +24,5 @@ Essayez donc de toujours vous rappeler l’importance de donner votre amour, en 
 Je n’avais pas réalisé que j’allais souligner l’importance et la grandeur de l’Amour dans vos vies, mais c’est une bonne leçon et j’espère qu’elle sera prise à cœur. Puisque nous avons observé que les courtes leçons sont faciles à absorber et à appliquer, je vais terminer maintenant et vous remercier de m’avoir permis de transmettre mes pensées de cette façon.
 
 Vous commencerez à vous sentir plus à l’aise avec ce processus lorsque vous recommencerez à recevoir sur une base plus régulière. Je suis votre ami et frère en esprit, James Padgett. Nous sommes tous reconnaissants pour le merveilleux travail que vous faites et pour les progrès spirituels que vous réalisez en tant que communauté. Nous vous aimons, tous et chacun.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

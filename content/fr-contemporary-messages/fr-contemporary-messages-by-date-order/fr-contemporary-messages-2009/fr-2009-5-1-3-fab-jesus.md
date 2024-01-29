@@ -20,3 +20,5 @@ C'est en effet une chose merveilleuse que cela se produise, et cela devrait êtr
 Donc ces étudiants sont diplômés, et ensuite ils sont confrontés au système.
 
 Nous voulons travailler pour un monde où tout le monde a accès aux besoins fondamentaux de la vie. Dans la configuration actuelle, c'est impossible.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

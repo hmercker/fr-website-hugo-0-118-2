@@ -74,3 +74,5 @@ Et, permettez-moi de le répéter, cela se produira grâce à la volonté du peu
 Et tout au long de ce processus, avec toutes ses horreurs et ses incertitudes, Dieu est là, pour nourrir et panser les cœurs brisés. Il vaincra, et la paix viendra sur la Terre.
 
 Je vais [éventuellement transmettre un autre message sur la guerre et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-2-fab-jesus/), mais ceci vous donne matière à réflexion pour le moment.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

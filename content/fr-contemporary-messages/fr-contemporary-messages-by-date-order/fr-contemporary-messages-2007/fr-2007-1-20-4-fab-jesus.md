@@ -20,3 +20,5 @@ Eh bien, j’ai effectivement transmis cette idée. Je faisais référence aux p
 M. Padgett est ici maintenant près de moi et il dit, qu’à l’époque, il y avait une forte tendance anti-évolutionniste dans le Christianisme, et il partageait ce point de vue. Il dit qu’il regrette que, en l’occurrence, il n’ait pas réussi à surmonter ses propres préjugés et à les mettre de côté. Mais il dit qu’il n’a pas vraiment souffert pour cela puisque, dans l’ensemble, son travail pour Dieu fut un succès.
 
 Si les gens, comme vous le craignez, discréditent, dans leur ensemble, les messages de James Padgett à cause de cela, ce sera leur choix. S’il est entendu que la médiumnité est imparfaite, il sera généralement perçu par ceux qui sont désireux de percevoir et d’aimer la Vérité, que, cette erreur étant reconnue, ce qui a été accompli avec la collaboration de M. Padgett fut tout simplement remarquable.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)

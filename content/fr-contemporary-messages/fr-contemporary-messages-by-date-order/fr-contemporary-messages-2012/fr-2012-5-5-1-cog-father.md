@@ -9,7 +9,7 @@ weight:
 ---
 ### Ressentir les désirs de votre âme
 
-Père - reçu par Enfant de Dieu le 5 Mai 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 5 Mai 2012.
 
 Cher enfant, tes sentiments expriment le désir de ton âme. Quand tu fais attention à tes sentiments, tu écoutes ton âme. Tes sentiments sont les sens de ton âme. Sois sensible et sois en contact avec ton âme. Tu ne peux pas connaître ton âme si tu ne peux pas ressentir.
 
@@ -25,4 +25,6 @@ Ton Père Céleste qui te ressent.
 
 **Commentaire du webmaster du site New-Birth.net:** La différence entre les sentiments et les émotions n’est pas si facile à définir. On pense que les sentiments sont ressentis pendant de courtes périodes de temps. Si vous touchez une surface chaude, votre main peut être brûlée. Au bout de quelques minutes, vous ne sentirez plus cette chaleur, bien que vous puissiez maintenant ressentir une douleur, qui est encore une autre sensation physique. Si quelqu’un vous surprend, vous serez surpris, mais cela passera vite. De même, le sentiment d’excitation disparaîtra une fois l’événement terminé. Il est souvent dit que les émotions sont des états à long terme. Si vous êtes amoureux, cette émotion peut durer des années. Le chagrin, lui aussi, peut prendre beaucoup de temps à s’estomper. Les émotions étant internes, vous devez changer votre état d’esprit pour changer votre émotion et ce processus prendra du temps. Mais certains états, comme la colère, peuvent ne pas durer longtemps, tout en restant des états émotionnels. Cependant, certaines définitions suggèrent que les sentiments sont déclenchés de l’extérieur et les émotions de l’intérieur. Ce message n’indique pas une telle différence.
 
-Il est possible qu’une émotion ait plusieurs composantes. Par exemple, si vous éprouvez une forte aversion (pas tout à fait de la haine) pour quelqu’un, celle-ci peut avoir plusieurs composantes, comme la méfiance, qui peut être basée sur vos expériences passées avec cette personne ou simplement avec la vie en général. Elle peut aussi être basée sur une nature compétitive. Il est toujours utile d’examiner dans quelle mesure nos expériences passées peuvent jouer un rôle dans toute réponse émotionnelle que nous pouvons discerner. Peut-être pourrions-nous dire qu’une émotion peut être composée d’un certain nombre de sentiments ? Je ne suis pas sûr d’avoir vu une telle définition, mais l’idée n’est pas dénuée de sens.
+Il est possible qu’une émotion ait plusieurs composantes. Par exemple, si vous éprouvez une forte aversion (pas tout à fait de la haine) pour quelqu’un, celle-ci peut avoir plusieurs composantes, comme la méfiance, qui peut être basée sur vos expériences passées avec cette personne ou simplement avec la vie en général. Elle peut aussi être basée sur une nature compétitive. Il est toujours utile d’examiner dans quelle mesure nos expériences passées peuvent jouer un rôle dans toute réponse émotionnelle que nous pouvons discerner. Peut-être pourrions-nous dire qu’une émotion peut être composée d’un certain nombre de sentiments ? Je ne suis pas sûr d’avoir vu une telle définition, mais l’idée n’est pas dénuée de sens.(Geoff Cutler)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

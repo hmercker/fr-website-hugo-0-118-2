@@ -26,3 +26,5 @@ Vous avez estimé qu'il a généralisé de manière injuste. Eh bien, c'est ce q
 La vie d'un politicien illustre la grande vérité selon laquelle nous agissons selon nos motifs et nos désirs. Ainsi, ils créent leur vie comme nous le faisons tous.
 
 J'espère que mes propos vous aideront à avoir une perspective différente sur ce sujet important. N'oubliez pas que les pensées des esprits ne sont pas les vôtres. Vous êtes parfois en profond désaccord avec ce que vous canalisez.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

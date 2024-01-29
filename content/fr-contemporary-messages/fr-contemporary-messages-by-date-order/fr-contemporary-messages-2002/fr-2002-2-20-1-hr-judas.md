@@ -56,3 +56,5 @@ Eh bien, mon petit frère, il est le temps de terminer. Jusqu’à la prochaine 
 Yehuda ‘ish Kerioth, Judas, l’homme de Kerioth.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Qu’est-ce que le péché ?
 
-Père - reçu par Enfant de Dieu le 27 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 27 Avril 2012.
 
 Mon cher enfant.
 
@@ -26,3 +26,5 @@ Lorsque vous avez péché – et vous l’avez tous fait – vous pouvez demande
 Mais pour que je puisse te le donner, tu dois sentir au plus profond de ton cœur que tu as fait du tort à quelqu’un. Il ne s’agit pas de culpabilité, mais de conscience et de responsabilité. Dès que tu reconnais dans ton cœur que tu as péché, tu as la capacité de demander mon pardon. Et je te le donnerai.
 
 Ton Père aimant.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

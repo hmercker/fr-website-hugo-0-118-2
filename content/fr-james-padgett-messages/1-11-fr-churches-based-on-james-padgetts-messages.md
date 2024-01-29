@@ -72,4 +72,4 @@ En Septembre 2014 une retraite de célébration du 100e anniversaire de la réce
 Parallèlement au développement de la FCNB et de la FCDT, il est également utile de noter la longue histoire du mouvement de l'Amour Divin dans la région de Vancouver au Canada. Cette histoire est décrite en détail sur un autre site et fait état des efforts d'Alec Gaunt. C’est ainsi qu’un groupe important est né dans cette région et est toujours actif à ce jour. Il s’identifie sous le nom de Divine Love Sanctuary Foundation (Fondation du Sanctuaire de l’Amour Divin). Il est principalement animé par Albert and Jeanne Fike.
 <small>
 
-1. <large id="f1"> Victor Summers a communiqué directement après son propre décès, le 18 Novembre 2011. Il a confirmé avoir été accueilli, à son arrivée, par Jésus.[↩](#a1)
+1. <large id="f1"> Victor Summers a communiqué directement après son propre décès, [le 18 Novembre 2011](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-27-1-fab-victor-summers/). Il a confirmé avoir été accueilli, à son arrivée, par Jésus.[↩](#a1)

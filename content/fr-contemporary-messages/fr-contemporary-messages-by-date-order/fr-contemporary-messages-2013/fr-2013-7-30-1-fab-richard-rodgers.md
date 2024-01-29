@@ -18,3 +18,5 @@ Alors que vous écoutez ma meilleure œuvre *[Carousel]*, j’affirme que les pr
 Je ne l’ai certainement pas vu de cette façon à propos de mon propre pays (les États-Unis), mais il est impossible de ne pas le voir ici. Tant de dirigeants américains sont plongés dans les ténèbres les plus grossières, que j’ai dû reconsidérer mon pays, et mes yeux se sont ouverts.
 
 Je vois que vous l’avez vu depuis votre enfance. Eh bien, je ne l’ai certainement pas vu. Mais un jour prochain, ce sera de notoriété publique. Oui, c’est sûr.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

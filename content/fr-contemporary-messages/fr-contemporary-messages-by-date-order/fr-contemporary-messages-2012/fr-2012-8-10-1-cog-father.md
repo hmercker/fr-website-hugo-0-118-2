@@ -9,7 +9,7 @@ weight:
 ---
 ### L’illusion que nous sommes séparés
 
-Père - reçu par Enfant de Dieu le 10 Août 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 10 Août 2012.
 
 Bel enfant, oui, nous allons parler du rejet. Comme tu l’as maintenant compris, le rejet est une blessure majeure chez tous les humains et une blessure qu’aucun humain ne peut éviter ? C’est un très bon sujet et il y a beaucoup de choses à dire et à réaliser.
 
@@ -28,3 +28,5 @@ Le rejet est une blessure fondamentale et une blessure de l’humanité. Pourtan
 Il n’y a pas de secrets. Il n’y a que la Vérité. Et la Vérité est que nous sommes un.
 
 Tu es aimé, tu es mon enfant, ton Père Céleste.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

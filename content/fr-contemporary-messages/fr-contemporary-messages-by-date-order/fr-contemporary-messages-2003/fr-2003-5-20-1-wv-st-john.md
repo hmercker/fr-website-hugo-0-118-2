@@ -38,3 +38,5 @@ Notre rapport s’affaiblit, alors terminons ici pour aujourd’hui.
 Je t’aime, mon ami, et je serai avec toi, toujours.
 
 Ton frère et cher ami, Jean.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

@@ -40,3 +40,6 @@ Je vous conseillerai donc de continuer à faire confiance, avec seulement de pet
 Je vous laisse maintenant avec mes bénédictions, et j’espère que cela a répondu à votre question de manière adéquate.
 
 Je suis votre ami et votre frère en esprit, Jésus de la Bible et Maître des Cieux Célestes.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+

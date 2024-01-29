@@ -18,3 +18,5 @@ J'ai pris part à la guerre du Mexique, que vous êtes en train de lire. Mes cop
 Mais le Créateur avait un point de vue différent, que nous avons découvert à notre grande horreur. Chaque outrage, auquel nous n'avions pas pensé, nous est revenu, et les Mexicains que nous avions tués sont venus à nous avec leur haine.
 
 Que les mortels sachent que chaque acte de violence et de cruauté qu'ils commettent devra être justifié, et que rien n'échappe aux yeux du Créateur.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)

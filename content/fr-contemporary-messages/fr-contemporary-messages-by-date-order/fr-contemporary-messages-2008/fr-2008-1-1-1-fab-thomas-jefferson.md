@@ -28,3 +28,5 @@ Vous ne savez pas à quoi ressemblera ce pays lorsque la bataille sera terminée
 
 1. <large id="f1"> L'ensemble des messages communiqués par Thomas Jefferson est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
 
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+

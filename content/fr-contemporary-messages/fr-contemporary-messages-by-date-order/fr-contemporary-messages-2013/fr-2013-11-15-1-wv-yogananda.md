@@ -25,7 +25,7 @@ Si nous sommes effectivement les créateurs de nos propres pensées et émotions
 
 L’amour est en effet la réponse à tout. Cela ne signifie pas que vous devez accepter tout ce que les autres font ou disent. Ce n’est pas parce qu’on réprimande un autre, à cause de ses paroles ou de ses actes peu aimants, qu’on n’est pas aimant ou en équilibre. Il est parfois nécessaire de le faire. Il y a cependant une différence entre parler (ou réprimander) avec autorité ou avec colère : le premier est en équilibre, le second ne l’est pas. Ce qui nous échappe en tant qu’humains, c’est la perspicacité que notre cœur et notre âme nous donnent dans nos vies contemporaines.
 
-Essayez d’être plus conscient des processus qui déclenchent une certaine émotion. Cela signifie-t-il que vous devez connaître tous les petits détails des raisons pour lesquelles vous avez certaines émotions ? Non, il s’agit avant tout de vous observer, ce qui est moins difficile que vous ne le pensez. Plantez l’intention dans votre âme en y pensant. Dites-vous : « Je veux comprendre pourquoi je crée la colère ou la peur. » Cela créera une prise de conscience sur les moments où vous vous mettez en colère ou avez peur et vous aidera à devenir un observateur de vous-même. Cela vous aidera à découvrir quel est le déclencheur de l’émotion.
+Essayez d’être plus conscient des processus qui déclenchent une certaine émotion. Cela signifie-t-il que vous devez connaître tous les petits détails des raisons pour lesquelles vous avez certaines émotions ? Non, il s’agit avant tout de vous observer, ce qui est moins difficile que vous ne le pensez. Plantez l’intention dans votre âme en y pensant. Dites-vous : *« Je veux comprendre pourquoi je crée la colère ou la peur. »* Cela créera une prise de conscience sur les moments où vous vous mettez en colère ou avez peur et vous aidera à devenir un observateur de vous-même. Cela vous aidera à découvrir quel est le déclencheur de l’émotion.
 
 Ce qui est étrange dans tout cela, c’est que lorsque vous aurez cette prise de conscience, l’émotion disparaîtra. C’est parce que vous avez subordonné votre esprit à votre âme sur ce sujet spécifique. Donc, plus vous essayez de faire cela, plus vous donnerez le contrôle à votre âme et tous les soucis et émotions de l’esprit disparaîtront comme la neige au soleil.
 
@@ -38,3 +38,5 @@ C’est pourquoi il est si important de se mettre à l’écoute de la Grande Â
 Je vais m’arrêter maintenant. Merci pour votre dévouement. Merci d’avoir accepté de nous écouter.
 
 Votre ami et frère, Paramahansa Yogananda.
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)

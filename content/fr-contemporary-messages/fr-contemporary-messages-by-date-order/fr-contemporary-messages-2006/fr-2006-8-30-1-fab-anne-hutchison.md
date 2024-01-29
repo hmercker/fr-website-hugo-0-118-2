@@ -25,3 +25,5 @@ Je viendrai une autre fois vous livrer une description plus complète de ma vie 
 <small>
 
 1. <large id="f1"> **Anne Hutchinson** (Juillet, 1591 – 20 Août, 1643) était la prédicatrice puritaine non autorisée d’un groupe de discussion d’une église dissidente et une pionnière à Rhode Island et dans le Bronx. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)

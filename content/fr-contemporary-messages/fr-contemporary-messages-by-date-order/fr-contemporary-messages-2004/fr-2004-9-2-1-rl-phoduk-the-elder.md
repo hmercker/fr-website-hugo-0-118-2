@@ -30,3 +30,5 @@ Je suis Phoduk, et je dois partir maintenant.
 *Phoduk* : Il y avait un scribe très célèbre, et renommé, nommé Cyrus que je n'ai jamais rencontré moi-même. Il est très peu probable qu'il s'agisse d'une régression dans une vie antérieure. Plus probablement, Cyrus lui parlait alors que son mental était ouvert (alors qu’il était en transe ?). Je dois partir maintenant, mais je reviendrai.
 
 **Commentaire de Geoff Cutler :** Rebecca n'était pas une adepte de l'Amour Divin, et il semble qu'elle croit encore à la réincarnation.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)

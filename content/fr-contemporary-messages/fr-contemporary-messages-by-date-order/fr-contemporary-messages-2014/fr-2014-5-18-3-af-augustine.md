@@ -28,3 +28,5 @@ Je vous supplie de suivre le Chemin Divin. De prier pour l’Amour, pour connaî
 Dieu vous tend la main, mes enfants. Dieu vous tend la main et vous dit : « Venez, venez à moi, et recevez mon Amour. Entrez dans mon étreinte, sentez la paix qui dépasse toute compréhension », et tout cela vous sera donné par votre choix d’accepter et d’implorer le Père Céleste pour ce don, ce don qui enveloppe de nombreux cadeaux et bénédictions et une merveilleuse lumière et une glorieuse joie. Soyez avec Dieu maintenant mes enfants, recevez l’Amour, ouvrez vos âmes, ouvrez vos âmes au Créateur. Et venez à connaître Dieu d’une manière plus profonde.
 
 Dieu vous bénisse, votre enseignant Augustin vous aime profondément, belles âmes qui aspirent à la vérité, belles âmes qui trouveront la vérité, et qui trouveront la vérité à travers l’Amour. Que Dieu vous bénisse.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

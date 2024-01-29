@@ -24,3 +24,5 @@ Vous voyez donc que, quel que soit votre milieu, si vous suivez votre âme, Dieu
 Merci mes amis d’être de tels phares. Il ne fait aucun doute qu’il y aura des épreuves et des tribulations, mais elles font partie de votre vie ici sur terre. Rappelez-vous simplement, lorsque vous en aurez, que nous serons avec vous à chaque étape du chemin.
 
 Merci de m’avoir laissé vous parler aujourd’hui. Au revoir pour le moment.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)

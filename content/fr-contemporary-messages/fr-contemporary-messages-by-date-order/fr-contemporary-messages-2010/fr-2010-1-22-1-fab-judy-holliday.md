@@ -19,3 +19,6 @@ Lorsque je suis décédée d'un cancer, je me suis sentie très amère. Cette am
 <small>
 
 1. <large id="f1"> **Judy Holliday** (21 Juin 1921 - 7 Juin 1965) était une actrice américaine. Holliday a commencé sa carrière en tant que membre d'une troupe de night-club, avant de travailler dans des rôles à Broadway. Son succès dans la production de 1946 de Born Yesterday lui vaut d'être choisie pour la version cinématographique de 1950, pour laquelle elle remporte l'Oscar de la meilleure actrice et le Golden Globe Award de la meilleure actrice - film musical ou comédie. Elle apparaît régulièrement au cinéma dans les années 1950 et connaît le succès à Broadway dans la pièce « Bells Are Ringing », remportant le Tony Award de la meilleure interprétation par une actrice principale dans une comédie musicale et reprenant son rôle dans la version cinématographique de 1960. En 1952, Holliday a été appelée à témoigner devant la sous-commission de la sécurité intérieure du Sénat pour répondre aux allégations selon lesquelles elle était associée au communisme. Bien qu'elle n'ait pas été mise sur la liste noire des films, elle a été mise sur la liste noire de la radio et de la télévision pendant près de trois ans. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+

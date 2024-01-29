@@ -11,7 +11,7 @@ weight:
 
 Franklin D Roosevelt - reçu par FAB le 25 Mars 2012, Berkeley, Californie, USA.
 
-Je suis Franklin Roosevelt.
+Je suis Franklin Roosevelt.<sup id="a1">[1](#f1)</sup>
 
 Nous voyons que vous êtes en conflit au sujet de mon New Deal. Ce que vous lisez à nouveau dans « Wall Street et FDR » d’Antony Sutton remet en question votre vision précédente de ce sujet. Le livre me présente comme un magouilleur d’élite disant hypocritement une chose mais faisant le contraire.
 
@@ -28,3 +28,8 @@ Un président est soumis à d’innombrables pressions, et il ne voit pas toujou
 Cela s’applique au président Reagan, et cela s’applique également au président Obama. Vous pensez qu’il semble insensible, incohérent et tout aussi influencé par l’élite que l’était son prédécesseur. Je suis d’accord avec vous au sujet de l’élite, car ce monde spirituel le montre assez crûment. Mais je ne l’ai pas vu aussi clairement quand j’étais président. Non, je ne l’ai pas vu. Pourquoi pas ? Parce que l’élite est sournoise, et travaille en secret. Vous avez dit une fois que le Président Obama avait des sentiments sincères. Comment cela est-il possible ? C’est possible parce qu’il est un être humain, comme je l’étais.
 
 Donc, en conclusion, non seulement il est possible, mais c’est un fait, qu’un président peut simultanément jouer dans des complots infâmes de l’élite de l’argent, et en même temps être complètement sincère au service du pays. Vous êtes très heureux de cette canalisation parce qu’elle vous a donné plus de clarté et de compréhension. Ceci, mon ami, était mon intention.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Franklin Delano Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

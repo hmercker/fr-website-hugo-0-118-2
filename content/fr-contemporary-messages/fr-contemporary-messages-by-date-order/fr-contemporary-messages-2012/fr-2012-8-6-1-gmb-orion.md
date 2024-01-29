@@ -21,9 +21,13 @@ En fait, le Créateur tient tout ensemble d’une fraction de seconde à l’aut
 
 La création et l’évolution s’appliquent toutes deux à votre monde, qui est un monde décimal. Et avec les mondes décimaux, nous pouvons jouer un jeu créatif, plutôt un jeu co-créatif, où nous essayons toutes sortes de blocs de construction, parfois des millions de combinaisons, pour tenter de produire un meilleur humain, physiquement plus fort, plus intelligent, et probablement plus spirituel. Pourtant, il s’agit toujours de blocs de construction sans vie qui ont besoin d’une étincelle de vie venant d’en haut pour que la vie primitive évolue ici, lentement, jusqu’à ce que vous soyez ce que vous êtes aujourd’hui, et que vous vous amélioriez encore avec le temps.
 
-Devons-nous alors partir et laisser cela se produire dans votre monde ? Pas du tout ! Nous pouvons énergiser et améliorer les organismes les plus prometteurs, ce qui n’est guère évolutif, et nous pouvons retenir cette énergie de ceux qui ont peu de chances de progresser. Vous voyez, mon ami, ce n’est ni l’évolution ni la création, mais les deux, le choix du Créateur, et la façon dont d’innombrables serviteurs peuvent aider, vivre des vies passionnantes, et progresser dans l’espace-temps, pour être finalement semblables à Dieu. C’est Orion qui vous remercie pour votre hospitalité et votre attention à mes mots. Adieu.
+Devons-nous alors partir et laisser cela se produire dans votre monde ? Pas du tout ! Nous pouvons énergiser et améliorer les organismes les plus prometteurs, ce qui n’est guère évolutif, et nous pouvons retenir cette énergie de ceux qui ont peu de chances de progresser. Vous voyez, mon ami, ce n’est ni l’évolution ni la création, mais les deux, le choix du Créateur, et la façon dont d’innombrables serviteurs peuvent aider, vivre des vies passionnantes, et progresser dans l’espace-temps, pour être finalement semblables à Dieu. C’est Orion qui vous remercie pour votre hospitalité et votre attention à mes mots. Adieu.<sup id="a2">[2](#f2)</sup>
 
 *© The 11:11 Progress Group. Vous avez allumé une flamme, et elle deviendra un feu furieux-ABC-22.*
 <small>
 
 1. <large id="f1"> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est très différent, du fait qu’il parle presque exclusivement à des êtres angéliques, par opposition à des ex-mortels. Néanmoins, ce message est tout à fait compréhensible.[↩](#a1)
+
+2. <large id="f2"> Le sujet de l'évolution a été traité pmus complètement [dans cette section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/)[↩](#a2)
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)

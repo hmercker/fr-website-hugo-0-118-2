@@ -44,3 +44,5 @@ Je ne peux pas te le dire, comme je l’ai dit. Fais confiance au Père. Attends
 *[Serai-je heureux ?]*
 
 Oui, le bonheur viendra. Plus tôt que tu ne le penses. Bien plus que tu ne peux l’imaginer par toi-même. Accroche-toi. Nous allons suivre le déroulement des événements pour toi, car nous attendons aussi ton bonheur. Nous voulons te voir sourire à nouveau. Tu aimeras à nouveau beaucoup. Ta faiblesse te quittera. Attends et vois. Il ne reste plus beaucoup de temps pour s’accrocher. Le moment est venu. Nous t’aimons.
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)

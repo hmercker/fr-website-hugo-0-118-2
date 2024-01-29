@@ -19,3 +19,5 @@ J’avais cru qu’aucune église mortelle ne pouvait atteindre une véritable �
 <small>
 
 1. <large id="f1"> **Roger Williams** (21 Décembre 1603 – 1er Avril 1683) fut un théologien anglais, un partisan notable de la tolérance religieuse et de la séparation de l’église et de l’état (parce qu’il s’inquiétait de la contamination de l’église), et un défenseur des relations équitables avec les Amérindiens. En 1644, il reçoit une charte créant la colonie de Rhode Island, nommée d’après la principale île de la baie de Narragansett. On lui attribue la création de la première ou de la deuxième église baptiste établie en Amérique. (Source : Wikipedia)[↩](#a1)
+
+[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)

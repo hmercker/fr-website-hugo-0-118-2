@@ -76,3 +76,5 @@ Le temps est venu de se dire au revoir. Je te souhaite une journée remplie de b
 Ton frère en esprit, Judas.
 
 © Geoff Cutler 2013
+
+[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)

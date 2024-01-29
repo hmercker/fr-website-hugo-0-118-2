@@ -9,7 +9,7 @@ weight:
 ---
 ### Faire confiance au cœur
 
-Le Père - reçu par Enfant de Dieu le 21 Mars 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 21 Mars 2012.
 
 Je veux te parler et je veux que tu écrives ce que tu reçois.
 
@@ -24,3 +24,5 @@ J’ai répondu à ton désir et tu te demandes pourquoi tu ne ressens rien de s
 Je t’aime.
 
 Ton Père dans les Cieux.
+
+[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
