@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-###  Guerre et paix et le plan de Dieu - 2<sup id="a1">[1](#f1)</sup>
+### Guerre et paix et le plan de Dieu - 2 <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par FAB le 26 Décembre 2006, Santa Cruz, Californie, USA.
 

@@ -13,7 +13,7 @@ Parmi les très nombreux esprits qui se sont exprimés, il convient de remarquer
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
- | <p align="center">**George Washington 1er président**</p> | 
+ | <p align="center">**George Washington 1er président**</p> |
 George Washington | [La culpabilité de George Washington](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-23-1-fab-george-washington/) | 23 Juillet 2008
 George Washington | [La protection divine et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-1-fab-george-washington/) | 25 Novembre 2007
 George Washington | [Le fondateur de son pays apporte son soutien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-3-fab-george-washington/) | 20 Décembre 2006

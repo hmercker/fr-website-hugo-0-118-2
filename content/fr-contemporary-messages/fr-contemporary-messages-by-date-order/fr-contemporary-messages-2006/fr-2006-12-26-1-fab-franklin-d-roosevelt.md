@@ -11,7 +11,7 @@ weight:
 
 Franklin D Roosevelt - reçu par FAB le 26 Décembre 2006, Santa Cruz, Californie, USA.
 
-C'est moi, Franklin Delano Roosevelt.<sup id="a1">[1](#f1)</sup>
+C'est moi, Franklin Delano Roosevelt. <sup id="a1">[1](#f1)</sup>
 
 Vous ne devez pas craindre d'avoir mal interprété mes [deux précédents messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-25-1-fab-franklin-d-roosevelt/).
 

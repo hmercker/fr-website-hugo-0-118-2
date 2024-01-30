@@ -11,7 +11,7 @@ weight:
 
 Uharu - reçu par FAB le 3 Janvier 2008, Santa Cruz, Californie, USA.
 
-C’est moi, Uharu.<sup id=”a1”>[1](#f1)</sup>
+C’est moi, Uharu.<sup id="a1">[1](#f1)</sup>
 
 Permettez-moi de continuer à décrire ma culture.
 
@@ -22,7 +22,7 @@ Vous savez bien que les cultures diffèrent largement dans leur description de c
 En outre, il n'y avait pas de séparation entre le matériel et le sacré ou le spirituel. Ce que je veux dire, c'est que, comme dans de nombreuses autres croyances tribales autochtones, les manifestations naturelles, telles que les animaux, les plantes et les étoiles, étaient animées d'un esprit de vie. En effet, les êtres humains n'étaient pas considérés comme séparés ou plus élevés que l'environnement qui les entourait. Il s'agissait d'un tout homogène, dans lequel l'esprit animait tout.
 <small>
 
-1. <large id=”f1”>  Les diffétents messages d'Uharu sont accessibles par le tableau ci-dessous :
+1. <large id="f1">  Les diffétents messages d'Uharu sont accessibles par le tableau ci-dessous :
 [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  

@@ -13,7 +13,7 @@ Abraham Lincoln - reçu par FAB le 31 Décembre 2005, Santa Cruz, Californie, US
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-mount-rushmore.jpg)
 
-C'est moi, Abraham Lincoln.<sup id="a1">[1](#f1)</sup>
+C'est moi, Abraham Lincoln. <sup id="a1">[1](#f1)</sup>
 
 Je viens confirmer le message que [vous venez de recevoir de mon assassin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-2-fab-john-wilkes-booth/). Dans mon cœur, je n'ai pas éprouvé de haine. La guerre m'a horrifié, c'est certain. Mais mes convictions personnelles pour la préservation de l'Union ont été telles que même la mort ne pouvait pas les annuler. Et quand je suis entré dans ce monde des esprits, je n'ai pu m'empêcher de me réjouir que la grande épreuve de la vie, et plus précisément les pressions parfois insupportables qui m'ont assailli, aient pour toujours disparues. Naturellement, j'ai été peiné pour ma famille et pour la douleur que ma mort a causée à d'autres. Mais j'ai appris que la vie était basée sur des principes supérieurs, et ce sont pour ces principes supérieurs, que j'ai signé. Ils m'ont donné la force d'aimer mon ennemi.
 

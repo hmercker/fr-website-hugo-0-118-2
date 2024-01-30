@@ -11,7 +11,7 @@ weight:
 
 Théodore Roosevelt <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 
-C’est moi, Théodore Roosevelt.<sup id="a2">[2](#f2)</sup>
+C’est moi, Théodore Roosevelt. <sup id="a2">[2](#f2)</sup>
 
 Comme vous l’avez correctement deviné, nous vous écrivons ce soir pour vous apporter notre soutien. Nous voyons tous ce qui s’est passé, et Dieu, en qui je crois passionnément, souhaite vous aider et vous faire savoir que vous êtes soutenu, et que le bonheur est juste derrière l’horizon.
 

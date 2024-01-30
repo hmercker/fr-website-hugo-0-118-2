@@ -11,7 +11,7 @@ weight:
 
 Uharu - reçu par FAB le 11 Avril 2006, Santa Cruz, Californie, USA.
 
-Je me présente, je suis Uharu.<sup id="a1">[1](#f1)</sup>
+Je me présente, je suis Uharu. <sup id="a1">[1](#f1)</sup>
 
 Je suis un Amérindien Ohlone qui a vécu il y a plusieurs centaines d’années en Californie, bien avant l’arrivée des Espagnols. Nous, les Ohlones, désirons que vous ayez une appréciation approfondie des beautés et de la richesse de l’héritage de la côte centrale. Nous voyons que grâce à votre médiumnité, nous pouvons ramener notre culture et notre façon de penser dans le monde. Nous sommes si reconnaissants envers vous et envers Dieu pour cela.
 

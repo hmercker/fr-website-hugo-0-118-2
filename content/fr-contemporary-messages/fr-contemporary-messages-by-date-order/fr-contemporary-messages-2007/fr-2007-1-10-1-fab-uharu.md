@@ -11,7 +11,7 @@ weight:
 
 Uharu - reçu par FAB le 10 Janvier 2007, Santa Cruz, Californie, USA.
 
-Je suis là, Uharu.<sup id="a1">[1](#f1)</sup>
+Je suis là, Uharu. <sup id="a1">[1](#f1)</sup>
 
 En lisant le livre [1491], que vous avez été guidé à acheter aujourd'hui, vous vous rendez compte que les approches autochtones étaient extrêmement diverses.
 

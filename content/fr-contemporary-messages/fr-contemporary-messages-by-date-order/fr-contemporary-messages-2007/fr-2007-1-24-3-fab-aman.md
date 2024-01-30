@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les besoins nutritionnels des Premiers Parents et du Maître<sup id="a1">[1](#f1)</sup>
+### Les besoins nutritionnels des Premiers Parents et du Maître <sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 24 Janvier 2007, Santa Cruz, Californie, USA.
 

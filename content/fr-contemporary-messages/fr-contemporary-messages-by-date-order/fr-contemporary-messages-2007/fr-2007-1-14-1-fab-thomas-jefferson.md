@@ -11,7 +11,7 @@ weight:
 
 Thomas Jefferson <sup id="a1">[1](#f1)</sup> - reçu par FAB le 14 Janvier 2007, Santa Cruz, Californie, USA.
 
-C’est moi, Thomas Jefferson.<sup id="a2">[2](#f2)</sup>
+C’est moi, Thomas Jefferson. <sup id="a2">[2](#f2)</sup>
 
 Oui, c’est moi. Bien que j’ai progressé vers les Cieux Célestes, je n’ai pas perdu mon intérêt ou mon dévouement envers mon pays. Il a un rôle spécial à jouer dans le déroulement du plan de Dieu.
 

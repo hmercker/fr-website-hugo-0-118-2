@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Les premiers parents - une description physique<sup id="a1">[1](#f1)</sup>
+### Les premiers parents - une description physique <sup id="a1">[1](#f1)</sup>
 
 Aman - reçu par FAB le 24 Janvier 2007, Santa Cruz, Californie, USA.
 

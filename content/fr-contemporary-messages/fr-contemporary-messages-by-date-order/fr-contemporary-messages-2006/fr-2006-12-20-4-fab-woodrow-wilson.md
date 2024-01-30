@@ -11,7 +11,7 @@ weight:
 
 Woodrow Wilson <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 
-Je suis Woodrow Wilson.<sup id="a2">[2](#f2)</sup>
+Je suis Woodrow Wilson. <sup id="a2">[2](#f2)</sup>
 
 Je suis nouveau pour vous en tant qu'esprit canalisateur, mais je sais que vous admirez beaucoup mes réalisations en tant que président. Eh bien, ces années ont apporté beaucoup de joie et de promesses, ainsi que de l'amertume et de la défaite. Dès que la paralysie physique s'est installée, ma vie n'a plus jamais pu être la même.
 

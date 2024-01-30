@@ -96,4 +96,3 @@ Joan d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-co
 <br>
 <br>
 [Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
-

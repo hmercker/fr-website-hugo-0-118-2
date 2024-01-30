@@ -11,7 +11,7 @@ weight:
 
 Franklin D Roosevelt <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 
-Je suis, Franklin Delano Roosevelt.<sup id="a2">[2](#f2)</sup>
+Je suis, Franklin Delano Roosevelt. <sup id="a2">[2](#f2)</sup>
 
 Oui, j’ai appris tellement de choses ici, qui ont été complètement nouvelles. Je vois tout – mon pays, la politique, l’humanité et ma propre vie – d’un point de vue complètement différent.
 
