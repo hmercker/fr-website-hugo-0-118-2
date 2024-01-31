@@ -75,6 +75,5 @@ Joseph | [Permettre à la lumière de descendre](/fr-contemporary-messages/fr-co
 Jésus | [Dr Samuels et l’importance de la capacité du lecteur à utiliser ses propres perceptions de ces vérités par son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-25-1-ar-jesus/) | 25 Décembre 1999
 
 ### [**Lien vers les messages de l’année 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
-<br>
-<br>
-### [###Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
