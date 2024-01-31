@@ -18,3 +18,8 @@ Nous avons été très heureux des conditions qui sont ici ce soir et de votre a
 Oh mes enfants, c'est ce que nous devons faire et c'est ainsi que nous devons enseigner, en étant sincères et en montrant aux autres ce que l'Amour de Dieu dans notre âme peut faire pour nous. Que votre lumière rayonne si fort qu'elle pénètre dans les coins les plus sombres de la Terre et apporte lentement une lumière si forte que la Terre entière rayonnera de paix et de bonheur.
 
 Que Dieu vous bénisse, mes enfants.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

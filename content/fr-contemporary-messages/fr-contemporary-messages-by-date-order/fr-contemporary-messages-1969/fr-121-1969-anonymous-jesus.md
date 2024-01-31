@@ -28,3 +28,8 @@ Parce que, mes enfants, lorsque cet Amour Divin imprègne votre âme et votre ê
 Ne vous découragez pas, mes enfants. Beaucoup d'entre vous ici ce soir vivront pour voir la Terre réaliser une grande révélation et l'homme découvrira vraiment qu'il y a vraiment une Source de pouvoir et réalisera que ce pouvoir a le pouvoir d'apporter la paix et la vie éternelle à tous.
 
 Oh, Père, bénis ces enfants, apporte Ton Amour au milieu d'eux et apporte la paix dans leurs âmes. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

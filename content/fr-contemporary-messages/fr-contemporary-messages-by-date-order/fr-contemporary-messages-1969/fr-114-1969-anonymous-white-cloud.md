@@ -20,3 +20,8 @@ Nous devons parfois aller à la recherche de ces personnes. Nous devons sortir e
 Si vous avez suffisamment de l'Amour Divin du Grand Esprit Blanc dans vos âmes, vous avez un désir naturel de repousser la cause des conditions et d'essayer d'aider la personne qui est concernée par ces conditions. Arrêtez-vous et réfléchissez, ceux qui n'ont pas connaissance de ces vérités se sentent non désirés, non aimés, et se tournent vers toutes sortes d'évasions pour trouver un soulagement à la solitude et au chagrin d'amour. Ce sont les âmes qui ont vraiment besoin d'aide. Ceux qui sont forts et énergiques, les rebelles, ceux qui sont contre toute loi, ils ont aussi besoin d'aide, et je pourrais continuer encore et encore.
 
 Ainsi, je suis venu ce soir pour vous demander, lorsque vous quitterez cette réunion, d'aller de l'avant avec le désir de trouver une âme qui a besoin d'amour et de compréhension et de vous tester vous-mêmes et de voir à quel point l'Amour de Dieu a pénétré vos âmes. Comme votre plan terrestre sera merveilleux lorsque l'homme comprendra le besoin de l'homme que seul Dieu peut fournir Son vrai besoin et vous qui comprenez devez aider à donner cela et je vous bénis mes frères et sœurs.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -40,3 +40,8 @@ Lorsque les émotions négatives quittent l'âme, elles sont parfois ressenties 
 Je vous remercie d'avoir désiré recevoir mes pensées ce matin. J'espère qu'elles vous seront utiles dans votre désir de surmonter vos blocages et votre confusion. Je vous laisse maintenant avec mon amour et ma bénédiction pour une journée productive et harmonieuse et vous assure que si vous appliquez les leçons que je vous ai transmises dans ce message, vous serez en meilleure harmonie avec votre entourage et plus heureux dans votre cœur.
 
 Je suis votre ami et votre frère en Christ, Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

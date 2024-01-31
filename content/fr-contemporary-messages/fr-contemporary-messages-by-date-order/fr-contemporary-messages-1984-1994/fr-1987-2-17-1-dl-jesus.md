@@ -34,3 +34,8 @@ Je pense que ce message est suffisant pour le moment. Avec le temps, nous espér
 Eh bien, mon frère, vous êtes un peu fatigué, et j’ai à peu près terminé ce que je souhaitais exprimer pour l’instant. Je vous aime tous et j’apprécie profondément tout ce que vous faites pour apporter l’harmonie à l’Univers d’Être du Père. Jusqu’à la prochaine fois, donc, je vais vous dire un adieu affectueux et je voudrais dire que nous sommes tous très heureux de votre engagement renouvelé à pratiquer et à participer à vos efforts de prise de messages. vous vous êtes très bien débrouillé aujourd’hui, D___, et nous nous réjouissons tous de vos futurs grands progrès en matière de développement spirituel.
 
 Je suis votre frère et ami en esprit, Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

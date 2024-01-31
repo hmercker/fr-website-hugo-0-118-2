@@ -20,3 +20,8 @@ Nous n'avons pas besoin de fanfare pour faire ce travail, nous n'avons pas besoi
 Vous constaterez dans les années à venir que vous aurez besoin d'une guidance plus forte. Nous viendrons et vous aiderons de l'Esprit, mais vous devrez être sages dans vos désirs et faire attention à ceux qui dirigeront vos différents groupes, car lorsque ces vérités seront données, vous trouverez beaucoup de gens qui critiqueront et condamneront et lorsque votre pouvoir deviendra plus fort, comme ce sera le cas mes amis, alors beaucoup essaieront de détruire. Ainsi, mes enfants, je viens à vous ce soir pour vous dire que nous viendrons chaque fois que vous aurez besoin d'aide et que nous vous guiderons et vous aiderons dans toute situation dont vous vous souciez. Nous devons voir les lois de Dieu vécues sur le plan terrestre. Nous ne travaillons pas seulement pour la Terre, mais pour beaucoup d'autres sphères de vie, qui comme vous ont besoin de renaître à nouveau dans les vérités de Dieu. Ce n'est pas un rêve futile mes enfants, c'est un plan si fort que la force la plus puissante de la Terre ne pourra jamais le démolir.
 
 Soyez bénis mes enfants et que votre lumière brille toujours et que chacun d'entre vous ici présent, récolte toujours le bonheur et toutes les choses qui sont nécessaires à une bonne vie sur Terre.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

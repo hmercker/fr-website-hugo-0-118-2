@@ -23,3 +23,8 @@ Bonne nuit et que le Grand Esprit Blanc bénisse chacun d'entre vous ici, ceux q
 <small>
 
 1. <large id="f1"> Tecumseh /(ti-KUM-see) (Mars 1768 - 5 Octobre 1813), était un guerrier et chef Amérindien Shawnee, qui devint le principal dirigeant d'une grande confédération multi-tribale au début du XIXe siècle.[↩](#a1)
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

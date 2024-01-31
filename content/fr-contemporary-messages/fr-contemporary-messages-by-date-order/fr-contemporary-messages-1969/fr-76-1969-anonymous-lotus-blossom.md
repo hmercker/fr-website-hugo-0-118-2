@@ -20,3 +20,8 @@ C'est comme une plante qui n'a pas été nourrie, qui a été affamée et qui so
 Vous voyez mes amis, j'ai beaucoup étudié tous les pays de la Terre. Je sens en vous un grand désir d'enseigner à une grande distance. Moi aussi, je me prépare à vous servir et à servir ceux que vous atteignez. Ainsi, nous devons avoir une plus grande compréhension dans tous les pays de la Terre. Et je ne peux pas vous aider, si je ne me comprends pas moi-même. Ainsi, ce soir, mon souhait pour chacun d'entre vous ici, vous de la Terre et vous de l'esprit, est que vos âmes s'ouvrent comme la belle fleur dont je porte le nom. Que les pétales de votre âme s'élargissent à tel point que vous puissiez recevoir, comme les fleurs reçoivent du soleil, l'Amour de Dieu. Ainsi, lorsque vous aurez terminé votre floraison, vous vous fermerez et les graines qui resteront continueront à vivre et seront enrichies afin que les nouvelles vies aient une plus grande compréhension.
 
 Soyez bénis, mes amis.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

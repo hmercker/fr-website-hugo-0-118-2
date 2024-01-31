@@ -26,3 +26,8 @@ Mes amis, lorsque les guérisseurs de la Terre commenceront à appliquer leurs g
 Lentement, même les grands esprits, les grands scientifiques de la Terre, commencent à réaliser qu'ils doivent rechercher et utiliser les lois de Dieu. Les progrès réalisés par l'homme ces derniers mois pour aller dans l'espace ne sont que l'ouverture d'une compréhension bien plus grande des lois de Dieu et de l'Univers. Dans un temps à venir, l'homme aura la connaissance, il pourra puiser en lui tous les éléments qui sont nécessaires à une bonne santé. Mais avant tout, l'homme doit se rapprocher de Dieu car l'Amour de Dieu est le plus grand guérisseur de tous mes amis, la plus grande puissance qui soit et chacun, qu'il soit sur Terre ou dans d'autres sphères de vie, doit puiser sa force et sa bonne santé à la Source de son Être.
 
 Alors que je me tiens avec vous maintenant, une grande guérison est apportée parmi vous. Certains d'entre vous qui en ont besoin ressentiront, en quittant ce lieu, une force vitale en eux dont ils n'avaient pas connaissance auparavant, et ceux d'entre vous qui vont de l'avant en essayant d'atteindre les autres recevront cette grande bénédiction de la guérison. Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

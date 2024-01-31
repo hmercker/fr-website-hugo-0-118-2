@@ -31,4 +31,7 @@ Tout à l’heure, j’ai mentionné au moins deux façons d’en arriver à app
 
 AMEN.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+###[Lien vers les messages des années 2000](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+<br>
+<br>
+###[**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

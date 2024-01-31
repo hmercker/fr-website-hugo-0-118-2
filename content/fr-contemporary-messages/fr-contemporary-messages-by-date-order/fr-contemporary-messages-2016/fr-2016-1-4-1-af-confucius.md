@@ -27,4 +27,4 @@ Bénédictions à vous, mes bien-aimés, mes beaux enfants nouveau-nés, dont le
 
 Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016)
+[Liste des Messages année 2016](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016)

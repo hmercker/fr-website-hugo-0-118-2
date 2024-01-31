@@ -36,3 +36,7 @@ Nous voulons que le médium puisse parler et que, pendant qu'il parle, les ensei
 Alors, mes chers, lorsque vous entendez parler d'un acte répréhensible, priez pour eux, demandez au Père de leur envoyer Son Amour. Nous ne condamnons pas, nous prions seulement pour eux. C'est tellement important. Vous êtes des missionnaires, vous êtes des travailleurs pour Dieu, et vous devez aller de l'avant et essayer d'aider les autres et de leur enseigner ces vérités. Vous ne pouvez pas exploiter votre prochain, vous devez être de véritables canaux d'amour et vous devez être fidèles et sincères. C'est très important. C'est pourquoi nous avons été si prudents dans le choix des personnes que nous avons réunies ; parce que nous vous avons réunis, ce n'est pas quelque chose qui est arrivé par hasard, cela a été planifié. Alors, pensez à cela avant de vous asseoir. Décidez si vous voulez vous sacrifier. Décidez si vous voulez renoncer à certaines choses dans la vie afin d'être des instruments pour ce grand travail.
 
 Prenez la résolution d'être toujours honnêtes mais surtout, cherchez l'Amour et la guidance de Dieu, vous ne serez jamais désolés, mes enfants. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>

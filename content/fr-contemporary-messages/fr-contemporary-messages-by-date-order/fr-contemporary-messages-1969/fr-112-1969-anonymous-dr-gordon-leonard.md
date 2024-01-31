@@ -20,3 +20,7 @@ C'est la seule façon pour l'homme de trouver le bonheur et la santé. Beaucoup 
 Je ne viens pas à vous pour me tenir debout et vous parler sans rien faire. Je viens vous dire la vérité, toutes les choses que vous désirez sur la Terre, même le don des manifestations, ne vous apporteront pas le bonheur et ne seront d'aucune utilité pour ceux qui voudraient vous utiliser, si vous ne vous êtes pas préparés avec le fondement et la force de l'Amour de Dieu dans vos âmes.
 
 Je viens à vous comme un ami. Je viens à vous en tant que guérisseur et je vous demande de prendre le temps, chaque jour, de vous rapprocher de Dieu et vous découvrirez que toutes les choses qui vous perturbent et vous affligent maintenant disparaîtront et que la paix et le bonheur, la sagesse et la bonne santé viendront à vous, mes amis. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>

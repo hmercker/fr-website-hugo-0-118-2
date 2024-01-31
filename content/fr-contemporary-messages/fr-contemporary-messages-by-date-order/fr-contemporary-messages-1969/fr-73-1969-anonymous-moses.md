@@ -24,3 +24,8 @@ La vie terrestre est importante pour vous et pour nous tous. L'homme doit établ
 Nos enseignements sont simples. Tout d'abord, nous devons nous préparer et lorsque nous recevons de Dieu, nous comprenons là où il n'y avait pas de compréhension auparavant, nous devenons sages là où il n'y avait pas de sagesse auparavant, et lorsque nous recevons de Dieu, nous devenons aimants et aimables là où il n'y avait pas d'amour et de gentillesse auparavant. Ainsi, mes enfants, ce soir, nous recevons la plus grande bénédiction que l'homme puisse recevoir. Nous recevons de Dieu, sa grande bénédiction d'amour. La seule chose qui nous rend forts et sûrs. Les enseignements que j'ai donnés à la Terre auparavant m'ont été donnés alors que vous recevez vos leçons mes amis. De nombreux cadeaux ont été donnés aux habitants de la Terre et il en est ainsi aujourd'hui. L'homme doit apprendre ces vérités. Donc, moi aussi je vous bénis et dans les années à venir mes amis, je vous servirai dans la vérité et dans l'amour.
 
 Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -34,3 +34,8 @@ Nous ne sommes ici que pour aider et servir. Les gens doivent comprendre la Bien
 Vous êtes bénis et nous ne vous laisserons jamais sans. S’il vous plaît, ayez plus de foi en cet amour, apportez-le dans vos affaires quotidiennes et sachez que rien n’est si petit ou apparemment insignifiant que l’amour ne puisse en faire un cadeau pour votre vie et la vie de ceux que vous aimez et servez.
 
 Je suis ton frère, Aigle Blanc, Comme je suis ta sœur, Marie, la mère de Jésus, et nous vous souhaitons une journée harmonieuse et pleine d’amour, mes chers.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

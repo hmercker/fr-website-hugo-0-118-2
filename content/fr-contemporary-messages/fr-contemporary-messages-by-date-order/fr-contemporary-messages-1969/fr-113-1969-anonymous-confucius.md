@@ -16,3 +16,8 @@ Il y a longtemps que je ne suis pas venu vous parler, mes enfants. Les hommes ne
 Certains de nos enseignements simples pourraient être utilisés par l'homme sur Terre aujourd'hui. L'homme doit se plonger plus profondément dans le passé pour trouver des connaissances pour l'avenir et lorsqu'il retourne à l'époque où de nombreux sages et hommes sages étaient sur Terre, il constatera que les gens de la Terre vivaient alors en suivant directement les conseils de Dieu.
 
 Toutes ces vérités ont été tellement couvertes et obscurcies par la pensée et l'avidité de l'homme qu'aujourd'hui il n'y a que confusion, peur et aucune paix. Ainsi, nous venons à vous mes enfants pour essayer de vous apporter la tranquillité d'esprit, afin que vous puissiez être libres et prêts à écouter et à recevoir dans vos âmes l'Essence qui apportera à nouveau la lumière et la compréhension à votre monde. La paix est ici, bénissez-vous.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

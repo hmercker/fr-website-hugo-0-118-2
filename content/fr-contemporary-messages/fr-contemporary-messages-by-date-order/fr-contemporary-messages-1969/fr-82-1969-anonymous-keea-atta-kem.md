@@ -32,3 +32,8 @@ Ne vous découragez donc pas. Lentement, cela se répand. Lentement, vous touche
 Nous essayons de faire en sorte que vous vous sentiez tous unis. Pendant que j'utilise cet instrument, je veux vous dire que d'autres instruments viendront à vous et nous viendrons à travers eux et ce sera votre preuve quant à qui nous souhaitons voir travailler avec vous. Nous ne faisons qu'un. Un au service de Dieu, comme une aide et un ami pour vous mes amis. Qu'une grande paix vienne sur vous. Que toutes les difficultés que vous rencontrez de temps à autre disparaissent, comme elles le feront. Soyez aimables et attentionnés envers les autres. Montrez au monde ce que l'Amour Divin de Dieu peut faire pour vous, mes amis.
 
 Et maintenant, je vais vous quitter pour un court moment et vous offrir mes bénédictions ainsi qu'aux merveilleuses âmes qui me suivent.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

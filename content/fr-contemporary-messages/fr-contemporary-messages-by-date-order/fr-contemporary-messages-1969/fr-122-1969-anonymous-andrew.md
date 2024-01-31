@@ -18,3 +18,8 @@ J'apporte la Lumière dans votre cercle, mes amis, et je suis grandement béni d
 Ainsi, alors que je me tiens devant vous ce soir, j'apporte la lumière avec moi, je me prélasse dans la lumière de notre cher Maître et je demande que chacun d'entre vous ici cherche et lise, car beaucoup de choses vont être développées dans un court laps de temps à partir de maintenant. Bien que vous ne pensiez peut-être pas qu'il s'agit de l'enseignement que vous avez reçu, ces grandes vérités sont l'essence même qui mènera l'homme à travers l'univers.
 
 Je vous demande donc, surtout à ceux d'entre vous qui sont intéressés par la partie scientifique de la vie, d'étudier, de lire et de vous préparer. Demandez des conseils et la bénédiction de notre Père qui est aux Cieux. Que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

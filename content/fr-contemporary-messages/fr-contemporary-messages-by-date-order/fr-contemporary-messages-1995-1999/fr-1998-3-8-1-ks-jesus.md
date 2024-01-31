@@ -76,3 +76,8 @@ Je vous aime tous et chacun et je prie avec vous pour que vos rêves se réalise
 Je vous laisse maintenant avec mon amour et je vous remercie de me permettre de vous transmettre mes pensées. Vous avez été très claire aujourd’hui et je me suis amusé à partager mon message.
 
 Votre ami et frère par l’esprit, Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

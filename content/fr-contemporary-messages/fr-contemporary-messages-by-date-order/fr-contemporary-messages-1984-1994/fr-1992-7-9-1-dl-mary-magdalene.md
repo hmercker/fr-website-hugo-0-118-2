@@ -42,3 +42,8 @@ Votre sœur dans le Christ, Marie, autrefois enfant déchue mais jouissant maint
 Ce message est par ailleurs en totale contradiction avec le message communiqué par [Elie le 11 Février 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/) dans lequel il affirme que la véritable âme-soeur de Jésus est Dieu.
 
 Cette position a par ailleurs été confirmé par un message communiqué par Jésus et Marie Madeleine respectivement le [27](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-2-af-jesus/) et [29](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) Janvier 2019.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

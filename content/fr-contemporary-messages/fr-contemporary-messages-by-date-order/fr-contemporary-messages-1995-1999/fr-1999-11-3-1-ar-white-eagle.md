@@ -30,3 +30,8 @@ Je sais que vous aussi, vous souffrez d’une maladie de longue date et vous pou
 Demandez à Dieu sa grâce transformatrice pour vous aider à guérir vous et votre famille. Remettez-vous en à Ses mains et laissez-Le ouvrir vos yeux pour voir.
 
 Je suis votre frère et ami dans l’esprit du Christ, Aigle Blanc.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -33,3 +33,8 @@ Je suis votre ami et votre frère, Jésus de la Bible et Maître des Cieux Céle
 1. <large id="f1"> Ce message a ensuite été remis en question [par un autre médium ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-12-26-1-ks-jesus/), puis Dave Lampron a [de nouveau soulevé le sujet ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-2-4-1-dl-jesus/).[↩](#a1)
 
 2. <large id="f2"> La « douance » est la qualité d’une personne surdouée, possédant des capacités intellectuelles supérieures aux normes, qui a un haut potentiel.[↩](#a2)
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

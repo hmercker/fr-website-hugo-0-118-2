@@ -13,7 +13,7 @@ Jésus - reçu par Révérend Dave Lampron le 18 Août 1987.
 
 *Très cher Jésus, eh bien, Maître, maintenant que je suis de retour de vacances, je suppose qu'il est temps que nous revenions à tes merveilleux messages. J'ai lu certains de tes messages par l'intermédiaire de K____, et une phrase en particulier a attiré mon attention et capté mon intérêt : « Ainsi, alors que vous continuez à appliquer vos prières et votre foi à la situation, cela nous donne la capacité supplémentaire d'apporter le résultat exact que nous nous efforçons d'accomplir. »*
 
-*J*'ai une certaine compréhension de la façon dont la foi permet à la fois un canal pour que les énergies de guérison soient dirigées vers un suppliant sur terre et facilite vos capacités à transmettre plus facilement et plus clairement votre guidance quotidienne pour nous, ainsi que vos messages officiels. Mais nous entendons souvent dire, Maître, qu'il y a des personnes dans les assemblées qui reçoivent des guérisons de « médecins spirituels », même s'ils ont peu ou pas de foi dans la capacité des personnes spirituelles à guérir quiconque, et encore moins à les guérir de ce qui pourrait être leurs maladies particulières.*
+*J'ai une certaine compréhension de la façon dont la foi permet à la fois un canal pour que les énergies de guérison soient dirigées vers un suppliant sur terre et facilite vos capacités à transmettre plus facilement et plus clairement votre guidance quotidienne pour nous, ainsi que vos messages officiels. Mais nous entendons souvent dire, Maître, qu'il y a des personnes dans les assemblées qui reçoivent des guérisons de « médecins spirituels », même s'ils ont peu ou pas de foi dans la capacité des personnes spirituelles à guérir quiconque, et encore moins à les guérir de ce qui pourrait être leurs maladies particulières.*
 
 *Si ces sceptiques ne croient pas ou ne ressentent pas la foi dans la guérison de Dieu et dans les pouvoirs de guérison de ses anges, comment se fait-il que nous entendions parler de guérisons qui leur sont accordées dans certains cas malgré leur absence de foi ?*
 
@@ -46,3 +46,8 @@ Avant de conclure, je voudrais dire que je suis très heureux de votre reprise d
 Je vous aime tous, mes enfants bien-aimés, et je vous laisse maintenant avec mon grand amour et mes bénédictions.
 
 Votre frère et ami, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

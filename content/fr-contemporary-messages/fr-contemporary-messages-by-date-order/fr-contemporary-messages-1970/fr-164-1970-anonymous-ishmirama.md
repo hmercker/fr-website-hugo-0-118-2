@@ -30,3 +30,8 @@ Je suis heureux d'être ici ce soir, car en étant ici avec vous, je vois beauco
 C'est une condition merveilleuse, et pensez seulement combien votre Terre peut être merveilleuse lorsque l'homme a cette connaissance et le désir de ne faire qu'un avec son Créateur. Lorsque l'homme est renouvelé par l'Amour Divin de Dieu, il n'y a pas de place pour les actes indignes de l'homme. L'homme est élevé à de si grandes hauteurs qu'il ne désire que faire le bien. D'être aimable, attentionné et serviable, de ne jamais critiquer ou condamner.
 
 Alors, pensez mes amis, quelle chance nous avons tous de pouvoir nous unir dans un lien commun, le lien de la vie, votre vie et ma vie avec le désir de ne faire qu'un avec Dieu. Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

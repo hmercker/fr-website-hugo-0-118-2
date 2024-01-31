@@ -16,3 +16,8 @@ Dieu vous bénisse mes enfants, ce sont des heures merveilleuses pour nous et bi
 L'homme doit avoir ces lois de Dieu. Avec toutes les opportunités qu'il a eues, l'homme n'a pas la paix. C'est pourquoi, une fois de plus, nous devons partir en croisade, quelle que soit la sphère de vie dans laquelle nous nous trouvons, pour donner à l'homme la possibilité de trouver son salut. C'est à chacun d'entre vous ici de trouver du temps chaque jour pour votre propre développement afin que vous puissiez être les meilleurs exemples à voir et à connaître pour tous les hommes. Nous savons que vous ne pouvez pas aller vers tous et ouvrir leur vision à ces merveilleuses lois de la communication. Il y en a beaucoup qui ne croiront pas, mais vous pouvez leur apprendre combien il est important pour eux de recevoir l'Essence de Dieu dans leurs âmes. Lorsqu'ils ressentiront la force que cet Amour Divin de Dieu apporte à tous les hommes, ils croiront que toute vie dans les sphères supérieures peut à nouveau venir sur Terre. L'amour de Dieu peut le faire, mes enfants.
 
 Que l'afflux de Son Amour soit un flux si constant dans vos âmes que vous rayonnerez l'essence de la bonté à tous ceux que vous rencontrerez. Ceci, mes enfants, est le plus grand cadeau que vous puissiez recevoir – soyez bénis vous et bonne nuit.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

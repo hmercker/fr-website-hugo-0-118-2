@@ -22,3 +22,8 @@ Car la vie de l'homme sur Terre n'a aucune importance lorsqu'il atteint les roya
 Ainsi, lorsque vous désirez l'eau de la vie, s'il vous plaît, ne coupez pas votre propre approvisionnement mais laissez-la couler librement dans votre âme. Faites-en une habitude en vous et au moment même où vos pensées deviennent telles, mettez-les de côté et pensez à l'Amour de Dieu et aux anges amis qu'il a envoyés pour vous aider quelle que soit votre situation. N'ayez pas l'impression que nous ne sommes pas capables d'être avec vous pendant que vous travaillez. Car nous sommes tout à fait capables d'alléger votre charge de travail si vous nous le permettez et votre journée se déroulera beaucoup plus facilement si vous vous rappelez seulement de garder vos pensées sur les choses spirituelles et de laisser un canal ouvert pour la Bénédiction de Dieu et l'Amour de Dieu et vous découvrirez que nous pouvons et que nous vous aiderons dans n'importe quelle situation dans laquelle vous vous trouvez, mais vous êtes le gardien de la porte et vous seuls pouvez fermer à l'Amour de Dieu et à ce que les anges de Dieu désirent vous donner.
 
 Je ne vais pas rester plus longtemps ce soir ; que les bénédictions de Dieu soient avec vous.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](+/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

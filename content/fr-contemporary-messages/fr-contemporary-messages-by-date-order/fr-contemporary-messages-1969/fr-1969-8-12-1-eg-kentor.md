@@ -1,10 +1,59 @@
 ---
-title: ""
+title: "Kentor – Visiteur d’une autre galaxie"
 menu_title: ""
-description: ""
+description: "Kentor – Visiteur d’une autre galaxie"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-###
+### Kentor – Visiteur d’une autre galaxie
+
+Oui, je suis très heureux d’être ici, et je suis comblé. J’ai été intéressé et j’ai passé la majeure partie de la journée dans votre belle ville, à observer les gens et il est très difficile de comprendre le raisonnement des habitants de cette planète, car je vois que même lorsque la vérité est reçue, elle n’est pas toujours acceptée.
+
+Elle est mise de côté dans les livres et les bibliothèques. Je ne comprends pas cela et j’en suis arrivé à la conclusion que cela doit être causé par le manque de confiance, car vous n’avez pas cette capacité à connaître la véritable condition des personnes que vous contactez, parce qu’autrement il y a une connaissance considérable qui a déjà atteint cette planète et pourtant elle ne semble pas être mise en œuvre et elle ne semble pas être bien connue. Vous avez toujours ces problèmes de pollution. Peut-être est-ce le système monétaire que vous utilisez ici qui vous empêche de travailler ensemble.
+
+Vous avez tous ces produits chimiques qui créent de la pollution, dans votre eau et dans votre air, et pourtant je sais aussi que, scientifiquement, ces problèmes ont déjà été résolus sur votre planète, mais rien n’est fait. Et puis encore, je vois les différences entre l’abondance et la pauvreté. Il ne semble pas y avoir de sentiment d’amour pour son prochain. Je ne parviens pas à comprendre cela, je n’ai pas la capacité de comprendre, comment, malgré votre connaissance, que ces problèmes ne sont pas pris en charge. Je sais que l’argent vous semble important sur Terre et pourtant dans mon raisonnement je ne peux pas comprendre comment un morceau de papier peut avoir plus de valeur qu’une vie humaine ou qu’une âme, je ne comprends pas le raisonnement des habitants de cette planète. Je comprends cela lorsque nous visitons ces planètes et qu’elles manquent de connaissances pour progresser, lorsque ce sont des peuples primitifs et qu’ils n’ont pas de plus grandes connaissances et que nous pouvons leur apporter ces connaissances et que cela leur est utile. Mais je vois ici qu’une grande quantité de connaissances a déjà été donnée à cette planète que vous appelez Terre. Mais par ceux qui ont l’autorité, rien n’est fait et pourtant, je vois de grandes quantités d’argent dépensé pour la destruction. Je me demande si l’un d’entre vous pourrait m’éclairer à ce sujet ?
+
+Une explication exprimée ici
+
+Mais alors je vois les sentiments de culpabilité et de peur qui indiquent que la conscience et la lucidité de l’individu sont à l’œuvre et pour tout homme intelligent, le pouvoir de la raison l’amènerait à la conclusion que ces choses qui sont du plus grand bénéfice pour toute la civilisation lui seraient, à leur tour, plus bénéfiques que s’il essayait d’atteindre ces choses pour lui-même. En effet il ne lui serait pas possible sans l’aide de ses semblables de fabriquer et de produire toutes ces choses que nous avons sur notre planète et qui pourraient également être utilisées par vous.
+
+Ces choses ne peuvent pas être réservées à un seul individu, elles doivent nécessairement concerner la nation entière, la terre entière. Ce serait obligatoire, et donc, lorsque les individus travaillent en groupe, le groupe dans son ensemble doit bénéficier beaucoup plus qu’un individu, quelle que soit la quantité de pouvoir et de richesse qu’il obtient. Pourtant, je ne vois pas comment il pourrait profiter du pouvoir qu’il détient ou de la richesse qu’il possède, car, voyez-vous, il y a toujours des maladies et ceux qui ont ce grand pouvoir sont incapables d’aider ceux qu’ils aiment. Et le pouvoir de raisonnement de l’homme – je vois qu’il y a ici l’intelligence que l’homme a la capacité de raisonner, alors le pouvoir de raisonnement de l’homme devrait lui apporter la connaissance que ce qui est bon pour toute l’humanité doit en fin de compte être d’un plus grand bénéfice pour lui, ainsi bien qu’il soit égoïste dans ses désirs, son égoïsme devrait le rendre, par son pouvoir de raisonnement, désireux que toute l’humanité en bénéficie. Cela ne semble-t-il pas logique ?
+
+Commentaire donné ici
+
+Lorsqu’une vérité a été découverte et qu’elle s’est avérée correcte, elle est acceptée et ceux avec qui nous échangeons échangent cette information, de nouvelles vérités dès qu’elles deviennent disponibles et elles sont mises en œuvre pour le bien de tous. Il y a des régions que nous essayons d’éviter à cause de la bestialité de leurs habitants. J’étais d’avis qu’ils manquaient d’un pouvoir intelligent, mais sur ce plan terrestre, je vois qu’il y a un pouvoir intelligent et une intelligence assez élevée chez un grand nombre de personnes. Même ceux des tribus primitives ont un potentiel d’intelligence qui n’est pas disponible dans les autres régions où la vie existe. Mes observations ne sont donc que des spéculations et je n’ai pas la réponse à vos problèmes. Je suis curieux d’un point de vue scientifique, curieux parce que je vois la connaissance intellectuelle et pourtant je vois le manque d’application de cette connaissance. Pourtant, on pourrait penser qu’un raisonnement normal pourrait et devrait apporter un résultat beaucoup plus élevé (à ce stade, un plan d’action des sphères Célestes a été mentionné). C’est donc la raison pour laquelle je ne suis pas capable, en ce moment, d’apporter des connaissances scientifiques. Je vois que c’est la cause, je vois. Eh bien, c’est très intéressant et je vous souhaite certainement de réussir dans votre entreprise.
+
+Nous lui avons posé une question sur la croissance de l’âme sur sa planète par rapport aux conditions terrestres du passé.
+
+Cela a pu être le cas, mais dans l’histoire connue, cela n’a jamais été le cas, mais nous ne savons pas quand notre galaxie a été créée ou quand elle a été peuplée à l’origine et nous n’avons pas de documents qui remontent à l’époque de la création de notre galaxie ou au début de notre existence sur cette planète, je ne peux donc pas répondre à votre question.
+
+Nous posons une question : sont-ils comme nous intellectuels, paresseux et font-ils beaucoup d’efforts ?
+A. En tant qu’enfants, nous apprenons une vérité importante, à savoir qu’il nous est impossible de nous tromper les uns les autres. Par conséquent, nos réalisations ou notre manque de réalisations sont connus les uns des autres et nous, les habitants de notre planète, avons un plus grand amour les uns pour les autres et nous ne le désirons pas par nécessité, mais nous désirons vraiment nous aider les uns les autres. Nous sommes plus motivés par l’amour et il me semble qu’individuellement nous faisons plus d’efforts parce que nous sommes motivés par l’amour pour le faire.
+
+Cela nous procure un grand plaisir d’aider les autres – cela nous donne du bonheur et de la joie. Je peux voir ici où il y a tant de manque que ceux d’où je viens seraient très heureux d’enseigner et de donner les choses matérielles dont nous avons une grande abondance. Ils seraient heureux, nous serions tous heureux de partager ce que nous avons, car voyez-vous, nous n’avons pas la peur du manque ou de la pauvreté. Nous avons toujours connu l’abondance. Nous n’avons jamais connu le manque ou la pauvreté. Nous ne connaissons pas le manque d’amour ou de possession matérielle. Nous n’avons pas de système monétaire comme vous.
+
+Q. Faites-vous une transition comme nous le faisons ?
+A. Oui, nous avons un corps spirituel, nous perdons notre corps matériel.
+Q. Combien de temps une personne vit-elle en moyenne sur votre planète ?
+A. Plusieurs centaines d’années. Oui, mais voyez-vous, nous sommes très désireux de voyager et d’éclairer les autres qui n’ont pas les capacités que nous avons, donc notre désir de donner est très fort. Oui, vous avez besoin d’une croissance de l’âme sur votre planète et, comme il me l’a été dit, il n’y a pas de raison pour que je vienne apporter des informations qui seront mises de côté avec d’autres informations qui le sont déjà. Il serait inutile pour moi, à l’heure actuelle, de communiquer, bien que je comprenne qu’il y a de grands efforts mis en avant pour une voix directe que ceux des sphères supérieures semblent penser être un phénomène qui excitera suffisamment l’imagination des peuples de la terre pour qu’à leur tour, ils regardent vers l’intérieur et acceptent les vérités, en raison de la manière dont elles sont données à l’humanité. Je reviendrai également lorsque vous aurez la voix directe et je vous aiderai et apporterai des informations. Je suis surtout intéressé par cette planète et par les peuples qui s’y trouvent. Il est étrange que les habitants de la Terre ne comprennent pas les lois spirituelles fondamentales et les lois de la nature. Pourtant, je suis reconnaissant d’être venu ici, que vous m’ayez parlé et que j’aie eu l’occasion de voir votre ville.
+
+Je suis désolé que vous viviez dans ces états de malheur, particulièrement lorsque je vois que tant de choses peuvent être évitées. C’est déjà triste de voir des souffrances qui ne peuvent être soulagées, mais c’est encore plus triste lorsque les moyens sont disponibles et que ces moyens sont ignorés. Pourtant, je vois que vous avez de merveilleux enseignants – des enseignants de lumière et de grand développement de l’âme. Quelle chance pour vous qu’ils viennent sur ce plan de lumière pour vous donner ces informations.
+
+Eh bien, je vous remercie de m’avoir permis de faire ces observations et de m’avoir donné votre point de vue sur certaines des causes. J’aimerais faire plus de recherches sur cette planète et le temps viendra où je reviendrai vous parler. Au revoir et à bientôt.
+
+Note 1
+
+Elsie Grosart, affectueusement appelée « Elly », a accueilli Alec Gaunt et ses cercles de Direct Voice Development dans son appartement situé à l’angle des 13e et Granville Streets, de 1958 à 1970, à Vancouver, en Colombie-Britannique (Canada). Elly, qui préférait l’anonymat, travaillait comme caissière de banque pour la Banque de Montréal. Elle a été le principal médium utilisé pour canaliser les messages des Anges Célestes durant ces cercles de développement. Une collection de messages reçus durant cette période se trouve sur le site https://soultruth.ca/.
+
+L’appartement d’Elly, une modeste suite au rez-de-chaussée dans le quartier à la mode de South Granville à Vancouver, pouvait être complètement obscurci pendant les cercles et contenait un cabinet dans lequel Alec pouvait s’asseoir pour le développement en utilisant l’ectoplasme. Une trompette était utilisée pour canaliser certains messages. Alec et Elly ont découvert qu’ils étaient des âmes sœurs mais ils ne se sont jamais mariés. Malheureusement, Alec est décédé prématurément dans l’appartement d’Elly en février 1970. La perte de son leadership fort et discipliné a laissé un vide important et les nombreux cercles qu’Alec et Elly organisaient dans l’appartement d’Elly se sont rapidement dissous.
+
+Après le décès prématuré d’Alec, Elly a été guidée pour rencontrer et encadrer Jeanne Dunbar, âgée de 20 ans – elles se sont rencontrées à la Banque de Montréal où elles travaillaient toutes deux au service clientèle. Elly a présenté Jeanne à Al Fike en 1975 après avoir repris contact avec Barbara Davies qui était le mentor d’Al âgé alors de 22 ans. Barbara a commencé à organiser des cercles de prière d’Amour Divin dans sa maison de Vancouver Ouest, qui se poursuivent encore aujourd’hui, en Juin 2020. Jeanne et Al se sont mariés à Stanley Park, Vancouver, en 1976. Elly a épousé Larry Taunton et a déménagé à San Diego en 1982. Elle a beaucoup manqué au groupe de Vancouver. Elly était un médium d’Amour Divin extraordinaire et a laissé un grand héritage dans la région de Vancouver.
+
+Le 15 Mars 2018, nous avons reçu une nouvelle visite d’un extraterrestre; Shandor, qui a commenté notre désir d’atteindre la Voix Directe.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

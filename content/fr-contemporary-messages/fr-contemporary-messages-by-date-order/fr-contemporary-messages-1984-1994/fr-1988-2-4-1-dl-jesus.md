@@ -67,3 +67,8 @@ Votre ami et frère dans le Christ, Jésus.
 <small>
 
 1. <large id="f1"> Il semblerait que ce message ne soit pas connu de Geoff Cutler, auteur du site https://new-birth.net sur lequel la plupart des messages originaux sont stockés et qu’il ne soit pas disponible ailleurs sur le web.[↩](#a1)
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

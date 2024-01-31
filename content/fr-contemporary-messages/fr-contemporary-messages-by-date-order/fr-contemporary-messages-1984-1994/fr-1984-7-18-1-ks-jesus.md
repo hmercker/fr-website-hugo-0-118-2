@@ -34,3 +34,8 @@ Nous apprécions tous nos collaborateurs dévoués et faisons tout ce qui est en
 Je vous laisse maintenant avec ces pensées, et je reviendrai vous écrire dans un avenir proche. Continuez à faire du bon travail, et n’ayez pas peur de faire quelque chose de « mal ». Lorsque vous voyez une réaction négative à quelque chose que vous faites, je vous assure que ce sentiment était déjà présent chez la personne, et qu’elle utilise n’importe quelle excuse pour exprimer son mécontentement face à sa situation. Vous avez fait l’expérience de l’impossibilité d’essayer de plaire à tout le monde, alors ne vous attendez pas à recevoir une approbation unanime pour tout ce que vous entreprenez, ou vous serez cruellement déçu dans vos efforts. Au contraire, étendez votre amour au maximum dans votre travail et efforcez-vous de plaire au Père Céleste et vous ne serez pas déçu.
 
 Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,8 @@ L'homme a trop longtemps été entravé. Même dans les gouvernements actuels su
 Ainsi, lorsque vous irez prendre part aux affaires de votre pays, préparez-vous à être un véritable travailleur pour Dieu et un véritable travailleur pour votre prochain. Travaillez pour que l'homme puisse être à nouveau libre et que la paix et le bonheur écartent l'avidité et l'égoïsme.
 
 Soyez bénis mes amis et merci de m'avoir laissé venir, votre ami et votre aide, Lincoln.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

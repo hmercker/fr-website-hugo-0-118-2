@@ -20,3 +20,8 @@ L'homme, tout homme, doit tôt ou tard étudier les lois de la lumière, ne pas 
 Peu de gens sur Terre sentent qu'ils doivent garder leur lampe propre et pourtant ceux qui sont si occupés et actifs et qui se gavent ne penseraient pas à utiliser un instrument qui ne serait pas parfait. Alors pourquoi l'homme fait-il défaut à son propre corps physique ? Rien sur Terre ne peut faire que votre instrument, votre corps physique s'accorde, fonctionne à l'unisson parfait comme l'Amour de Dieu. Mes enfants, ce n'est pas quelque chose que vous pouvez conduire et ramasser. C'est quelque chose que vous devez prendre le temps d'acquérir. Pour certains d'entre vous ici ce soir, chaque partie de votre journée est donnée à Dieu. À certains d'entre vous qui sont dans l'embarras, je vous demande : avez-vous donné du temps à Dieu ?
 
 Nous viendrons encore et encore vous demander de faire briller votre Lumière car chaque corps physique a une Lumière et ce n'est que lorsque votre progression se rapproche des choses supérieures de la vie que vous rayonnez et comme tout homme rayonne la Lumière, elle encerclera votre Terre. Ainsi, je demande à chacun d'entre vous ici de nous aider en esprit à maintenir la Lumière de Dieu toujours brillante et en faisant cela, vous apporterez la paix et le bonheur à votre prochain. Bonne nuit et que Dieu vous bénisse tous.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

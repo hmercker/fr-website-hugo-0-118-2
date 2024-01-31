@@ -18,3 +18,8 @@ Notre Père, Dieu, n'a pas voulu que l'homme vienne sur Terre pour répondre aux
 Soyez les humbles enfants de votre Père, préparez-vous, vous ne pouvez pas vous asseoir et recevoir si vous ne vous préparez pas. Ceci est important. Bien que nous ayons quitté la Terre, nous revenons pour travailler sur la Terre. Il y a trop peu de sources pour que nous puissions travailler, mais nous pouvons voir et savoir que le jour n'est pas trop éloigné où l'homme aura une plus grande compréhension et alors l'homme viendra dans la gloire et réalisera pourquoi la vie lui a été donnée.
 
 Que la paix et le bonheur vous accompagnent, que vos désirs soient comblés, que vos âmes soient heureuses et bénies par l'Amour de notre Père. Gardez la foi, surveillez la parole, surveillez vos pensées et soyez toujours aimables et aimants, mes chers, c'est important. Que vos vies soient richement bénies, bonne nuit.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

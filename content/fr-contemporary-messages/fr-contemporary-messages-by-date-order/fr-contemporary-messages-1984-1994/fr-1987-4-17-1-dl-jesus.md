@@ -41,3 +41,8 @@ Sachez que nous vous aimons et que nous apprécions beaucoup tout ce que vous fa
 
 Alors, mes chers collaborateurs, ne désespérez pas. Le travail continue à bien se dérouler, et vous pouvez être sûrs que tout cela a un impact positif sur les autres. Je vous aime, tous et chacun, et j’espère vous avoir apporté aujourd’hui des mots d’encouragement et d’élévation de l’esprit. Avec mon amour pour chacun d’entre vous qui travaillez pour notre cause, je vous souhaite une bonne journée en espérant que vous passerez une semaine joyeuse et productive.
 Je suis votre frère en esprit, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

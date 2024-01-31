@@ -23,3 +23,8 @@ Lorsqu’un esprit quitte son enveloppe charnelle, comme il vous l’a été dit
 
 Ces mêmes esprits influencent alors les hommes quant à leurs propres croyances et expériences. L’enfant, qui grandit et se développe dans cette croyance, est un bon instrument utilisé par l’esprit pour transmettre ses expériences de sa vie terrestre précédente. Cet enfant n’est rien d’autre qu’un médium influencé par un autre esprit qui croit en la réincarnation, et qui fait en sorte que l’enfant croie, et l’esprit lui-même en vient même à croire qu’il s’est réincarné. Comme vous le voyez, tout a son influence, et une explication raisonnable, plus raisonnable pour nous qui la voyons de notre position, et malheureusement, le mental humain est trop primitif pour parvenir à une conclusion plus logique, car certains y croient, d’autres font preuve de scepticisme. Mais aucun ne parvient à rationaliser ce qui est évident.
 Avec l’amour de votre frère Aristote.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

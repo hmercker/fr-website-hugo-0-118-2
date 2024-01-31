@@ -40,3 +40,8 @@ Ainsi, que tous les hommes sachent que le Père est toujours prêt à écouter e
 C’est tout ce que je souhaite dire à ce sujet pour l’instant. Que Dieu vous bénisse tous, mes chers collègues. Je suis très heureux que nos progressions mutuellement dans nos relations et selon nos efforts combinés. En attendant la prochaine fois, je vous remercie donc pour cette occasion que vous m’avez donnée de partager davantage les Vérités du Père avec vous.
 
 Je suis votre frère et ton ami, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,8 @@ Pensez seulement à ce qu'était votre vie il y a quelques années sans cette me
 Soyez comme moi, mes enfants, heureux de savoir et d'avoir la connaissance qu'en répandant ces grandes vérités, les lois de Dieu partout où vous le pouvez, vous construisez pour vous-mêmes le plus grand bonheur et les plus grandes bénédictions que Dieu peut nous accorder et vous trouvez votre salut sur votre plan terrestre. Nous sommes heureux de venir à vous et de vous laisser avec tout le bonheur et le bon sentiment que nous pouvons vous apporter, en promettant de vous aider de toutes les manières possibles.
 
 Faites appel à nous, nous ne vous laisserons pas tomber. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

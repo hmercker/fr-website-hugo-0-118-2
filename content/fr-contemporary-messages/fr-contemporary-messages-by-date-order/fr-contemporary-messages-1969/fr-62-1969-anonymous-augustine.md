@@ -28,3 +28,8 @@ Vous voyez, vous avez pardonné, vous avez oublié ce qui a été dit et vous av
 Nourrissez les affamés, guérissez l'âme, jusqu'aux rayons du matin. Pendant qu'ils sont pleins, avant qu'ils ne partent, berger, lave-les. Étrangers sur un rivage aride, travaillant longtemps et solitairement, nous voudrions entrer par la porte et Tu connais les tiens.
 
 Mes bénédictions pour vous. Les anges sont heureux de vos progrès et si nous sommes heureux et que Dieu est heureux, alors vous êtes heureux. Que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

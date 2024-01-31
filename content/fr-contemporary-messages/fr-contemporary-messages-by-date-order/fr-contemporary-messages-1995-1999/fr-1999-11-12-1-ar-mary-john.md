@@ -32,3 +32,8 @@ Seul Dieu peut déterminer comment nous devons devenir des enfants transformés,
 Ainsi, je vous demande d’utiliser les facultés que vous avez, qui ont été données à chaque âme humaine, afin d’identifier ce qui est la vérité, et de savoir que ce que j’ai dit, et ce que Marie vous a dit, est la vérité. Cependant nous sommes assez humbles pour réaliser l’importance de votre rôle dans l’établissement de cette vérité dans votre propre vie. Personne d’autre ne peut le faire pour vous, tout comme personne d’autre ne peut dire si vous êtes ou non digne de Dieu. Quant à travailler avec d’autres mortels qui prétendent représenter la vérité de Dieu, c’est à vous de le déterminer, mon frère. C’est ainsi que cela doit être – Dieu veut que nous venions à Lui volontairement et par notre propre désir, et non par ce que nous ou d’autres « pensent » être la bonne chose à faire.
 
 J’espère que cela vous a donné une certaine orientation dans cette affaire et que vous continuez à chercher l’aide de Dieu et de ses anges pour comprendre comment vous pouvez mieux le servir et devenir son vrai fils. Je vous aime, comme moi aussi, mon cher frère – nous sommes Jean d’Amour et Marie, la mère de Jésus, qui sommes des Chrétiens de l’âme, de vrais disciples de notre Maître Jésus et des habitants des Cieux Célestes.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

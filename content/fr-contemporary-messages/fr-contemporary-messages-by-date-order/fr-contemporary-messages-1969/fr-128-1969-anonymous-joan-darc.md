@@ -22,3 +22,7 @@ Sur votre plan terrestre aujourd'hui, les hommes et les femmes sont malheureux e
 De nombreux dirigeants sont tellement occupés qu'ils ne prennent pas le temps de se fortifier. Il n'y a rien ni personne sur votre plan terrestre qui puisse apporter l'amour, l'harmonie, la paix et le bonheur à tous, si ce n'est l'Amour de Dieu. Dieu souhaite que vous soyez en sécurité et libérés de la peur et c'est à vous, qui consacrez votre vie, d'essayer d'aider les autres à être forts et fortifiés. Soyez un bon leader, rayonnez de force et de sagesse. Vous pouvez le faire lorsque vous prenez le temps de vous rapprocher de Dieu, préparés et dignes de recevoir Sa grande bénédiction d'Amour Divin. Votre monde en a tellement besoin aujourd'hui, mes amis.
 
 Ne pensez pas que nous venons à vous pour vous parler sans rien faire. J'ai déjà mené une croisade et j'espère et je prie pour que Dieu me laisse vous aider à mener la vôtre. Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>

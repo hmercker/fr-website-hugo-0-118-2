@@ -44,3 +44,8 @@ Considérez que vous avez développé votre esprit et votre inclination pour un 
 Je vous laisse maintenant avec ma bénédiction sincère pour une journée et une semaine à venir productives et harmonieuses. Continuez vos bonnes prières et ayez foi en la puissance de l'Amour de Dieu pour guérir votre corps, votre esprit et votre âme.
 
 Je suis votre ami et votre frère en Christ, Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

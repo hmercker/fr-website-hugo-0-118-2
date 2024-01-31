@@ -61,3 +61,8 @@ Q. Y a-t-il d’autres personnes vivant sur d’autres planètes de notre systè
 A. Dans votre système immédiat – aucun.
 Q. Combien de temps vous a-t-il fallu pour venir sur ce plan terrestre ?
 A. Un court instant. Je reviendrai très brièvement lorsque cette soirée sera terminée. Nous reviendrons dans un instant, mais si vous deviez voyagez de façon matérielle, votre vie ne sera pas assez longue pour nous rejoindre.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

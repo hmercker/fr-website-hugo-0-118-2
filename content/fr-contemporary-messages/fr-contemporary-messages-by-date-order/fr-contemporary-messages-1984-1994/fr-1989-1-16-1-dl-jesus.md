@@ -48,3 +48,8 @@ Vous pouvez être assurés que nous ferons tout ce qui est en notre pouvoir pour
 Et donc, mes chers, je vous laisse maintenant avec mes bénédictions et les bénédictions de nous tous dans les cieux qui supervisent votre magnifique travail. Sachez que nous vous aimons tendrement et que le Père vous aime par-dessus tout.
 
 Je suis votre frère et ami, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

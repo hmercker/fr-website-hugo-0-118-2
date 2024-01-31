@@ -20,3 +20,9 @@ Comme l'a dit notre Maître bien-aimé, nous devons être prudents et sages dans
 Ne vous inquiétez pas et ne vous demandez pas comment vous allez faire ce travail, mes enfants, parce qu'au fur et à mesure de votre propre progression, vous attirerez à vous ceux qui ont besoin d'aide et comme nous voyons vos besoins changer dans la plus grande expansion, vous trouverez que les choses matérielles viendront à vous et vous pourrez vous étendre. Vous allez errer, mes amis, sur de nombreuses terres étranges et bien que vos chemins se divisent, vous trouverez que nous, qui vous guidons et vous aidons, serons avec vous à tout moment.
 
 Que votre désir soit toujours d'être un vrai serviteur et un enseignant pour Dieu.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

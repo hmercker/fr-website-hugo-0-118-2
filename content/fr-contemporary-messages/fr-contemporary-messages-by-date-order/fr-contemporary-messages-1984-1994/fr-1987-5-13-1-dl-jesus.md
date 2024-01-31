@@ -34,3 +34,8 @@ Alors, mes chers collègues, sachez que nous apprécions tout ce que vous faites
 En attendant, donc, le travail et l’avenir glorieux qui nous attendent, et en vous offrant tout mon amour et mes bénédictions pour le travail très bien fait, je vous laisse maintenant avec l’assurance que tout sera accompli en temps voulu et en accord avec le vrai et ultime plan du Père pour le salut et le bonheur de ses enfants.
 
 Je suis votre ami et votre frère en esprit, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

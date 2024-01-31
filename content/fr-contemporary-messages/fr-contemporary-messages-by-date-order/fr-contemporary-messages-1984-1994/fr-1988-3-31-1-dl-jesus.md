@@ -26,3 +26,8 @@ Je conclurai cette partie de mon message en disant que la Volonté du Père sera
 Je n'ai pas de message officiel à ajouter pour le moment. Cependant, je voudrais mentionner que, alors qu'une autre célébration de Pâques est à nos portes, moi et tous mes frères Célestes attendons avec impatience le moment où non pas ma mort et mon sang versé seront célébrés, mais où ma vie et ses enseignements seront au premier plan de la compréhension de l'homme. Et vous, nos bien-aimés collaborateurs, en diffusant les vérités du Père à vos frères mortels, vous faites en effet avancer cette cause et vous contribuez à raccourcir le temps de l'ignorance qui prévaut chez les hommes quant au véritable plan de salut donné à Ses enfants. Continuez vos efforts, mes bien-aimés, et sachez que vous avez tout le grand amour et le soutien de nous, vos frères Célestes, pour vous aider et vous inspirer. Et, plus encore, vous avez l'amour et les bénédictions du Père qui est attentif à tout ce que vous faites pour faire avancer sa cause, celle d'amener ses enfants à lui dans l'amour, et non par le sacrifice ou la mort de l'un de ses enfants.
 
 Jusqu'à notre prochaine communication, donc, je souhaite vous remercier d'avoir reçu mes pensées d'aujourd'hui, et j'attends avec impatience de nombreuses autres occasions de partager davantage de telles pensées avec vous dans le service de vous amener tous au Royaume du Père. Je suis votre frère et ami éternel, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

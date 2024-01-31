@@ -40,3 +40,7 @@ Votre frère et ami, Jésus.
 
 1. <large id="f1"> Un autre ouvrage qui a faussement prétendu être de Jésus est le célèbre « Un Cours en Miracles ». Cette information a été révélée assez récemment, [et est annotée ici](/11-fr-mediumship/11-1-fr-the-limits-of-mediumship/).[↩](#a1)
 
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

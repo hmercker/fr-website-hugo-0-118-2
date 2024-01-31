@@ -34,3 +34,8 @@ Le progrès, alors, est vraiment le mélange de deux événements : d’une part
 Eh bien, je pense que cela devrait suffire pour tous vous familiariser avec une autre loi qui s’applique et prévaut dans notre monde spirituel. Cependant, la chose importante à garder à l’esprit n’est pas la connaissance de toutes les lois spirituelles impliquées dans le maintien de l’harmonie de l’Univers du Père, car cette connaissance vient à temps, en accompagnant le développement supérieur de l’âme, et lorsque le Père veut nous révéler les rouages de ces lois. Non, la chose importante, le but à garder toujours devant nous, ce sont nos propres efforts pour le développement de l’âme et la communion avec notre Père Céleste par la seule et unique voie que j’ai enseignée sur cette terre il y a deux mille ans, et que je continue à enseigner de nos jours : par une prière ardente et sincère pour son amour éternel. Et je suis heureux de conclure cette présentation d’aujourd’hui en disant que vous, nos administrateurs bien-aimés, n’aurez jamais à vous soucier d’atteindre la position « d’équilibre » nécessaire pour progresser, parce que votre bonté dépasse déjà de loin les autres incrustations que vous allez tous expier au fur et à mesure que vous obtenez de plus en plus de l’Amour purificateur des Pères. Je vous laisse maintenant avec mes bénédictions et mon amour jusqu’à la prochaine fois.
 
 Votre ami et frère en Christ, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

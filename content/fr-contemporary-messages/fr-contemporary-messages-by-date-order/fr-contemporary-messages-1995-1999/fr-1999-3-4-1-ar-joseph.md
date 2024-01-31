@@ -30,3 +30,8 @@ Tu as eu la merveilleuse chance de vivre dans la beauté de la terre tout au lon
 Je souhaite que tu acceptes ce cadeau, non pas avec réserve mais avec la joie que nous puissions travailler comme un seul être, esprit et mortel, pour apporter l’Amour de Dieu à tous nos frères et sœurs. Tu es en train de guérir et ceci est une promesse : que tu continueras à réussir à faire la Volonté de Dieu à travers ta vie, comme tu le souhaites, et que tu seras soutenu dans cette entreprise.
 
 Je te remercie pour cette opportunité et je suis ton frère et ami, Joseph, un vrai disciple de Jésus, Maître des Cieux Célestes et notre frère et fils de Dieu bien-aimé.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

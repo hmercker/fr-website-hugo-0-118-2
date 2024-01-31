@@ -22,3 +22,8 @@ Cela vient lentement à l'esprit des grands chercheurs et il y aura donc dans le
 Vous, mes amis, ne réalisez pas la puissance et la force qui vous entourent. Je ne le faisais pas lorsque j'étais sur la Terre. Si j'avais étudié selon les lignes que vous étudiez maintenant, mes théories auraient pu être très différentes. Mais au moins, j'ai prouvé à l'homme, grâce à l'aide d'un grand maître spirituel, que l'homme pouvait créer une force plus puissante que tout ce qu'il avait jamais connu ou expérimenté.
 
 Aujourd'hui, je souhaite venir sur Terre pour aider ceux qui veulent apporter des conditions naturelles sur Terre, pour utiliser toutes les forces naturelles qui vous entourent. Vous ne comprenez pas, et moi non plus, tous les pouvoirs et la force de la lumière et des couleurs qui vous entourent. C'est pourquoi nous devons nous adresser à des groupes tels que vous et vous demander d'avoir le désir de recevoir cette connaissance et nous, de ce côté-ci, nous efforcerons d'apprendre afin de pouvoir vous l'apporter. Rappelez-vous ce que j'ai dit au sujet de la force électrique, de l'énergie apportée directement par l'atmosphère. Ce sera la connaissance de toute l'humanité dans très peu d'années et lorsque cela sera apporté, souvenez-vous de mes paroles, mes amis. Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

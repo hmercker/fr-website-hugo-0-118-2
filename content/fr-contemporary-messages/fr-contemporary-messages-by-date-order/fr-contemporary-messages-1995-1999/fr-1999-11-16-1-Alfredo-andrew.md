@@ -22,3 +22,8 @@ Ne renonce pas et n’abandonne pas ces communications, tu dois continuer à pro
 Bientôt, très bientôt, tu recevras un message d’une autre personne, non pas de ta propre main, mais par un autre médium, ce qui te convaincra de la réalité et te donnera plus de foi et de confiance.
 
 Je m’arrête là pour aujourd’hui. Ton frère André avec amour.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

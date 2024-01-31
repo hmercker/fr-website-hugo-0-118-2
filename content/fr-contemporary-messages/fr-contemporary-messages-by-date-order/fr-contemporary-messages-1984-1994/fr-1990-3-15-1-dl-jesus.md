@@ -30,3 +30,8 @@ En examinant cette question de plusieurs points de vue, j'espère qu'il devient 
 À l'avenir, comme je l'ai suggéré, des situations similaires pourraient se présenter. Si c'est le cas, continuez à porter ces questions dans la prière, comme vous le faites, et vous recevrez la guidance pour le cours d'action le plus souhaitable dans vos cœurs. Cela ne veut pas dire que je ne suis pas disposé à confirmer votre choix, ou peut-être à suggérer un ou deux points qui pourraient s'avérer bénéfiques. Cela signifie plutôt que je veux que vous fassiez de plus en plus confiance aux conseils que vous recevez par la prière, et comme le résultat de vos propres désirs sincères de ne poursuivre que ce qui est bon et vrai. Et avec cette dernière pensée pour aujourd'hui, je vous laisse avec mon amour et mes bénédictions jusqu'à la prochaine fois.
 
 Je suis Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

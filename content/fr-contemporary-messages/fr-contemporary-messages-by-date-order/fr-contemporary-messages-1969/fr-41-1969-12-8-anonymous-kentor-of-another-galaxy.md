@@ -56,3 +56,8 @@ Je suis désolé que vous viviez dans ces états de malheur, particulièrement q
 Eh bien, je vous remercie de m'avoir permis de faire ces observations et de m'avoir donné votre point de vue sur certaines des causes. J'aimerais faire d'autres recherches sur cette planète et le temps viendra où je reviendrai vous parler. Au revoir.
 
 Mylora : J'espère que la curiosité de nos visiteurs n'a pas été trop forte pour vous. Ils apprécient certainement leur visite. Comme est grand notre besoin de la voix directe. Maintenant, mes chers amis, je vous quitte également.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

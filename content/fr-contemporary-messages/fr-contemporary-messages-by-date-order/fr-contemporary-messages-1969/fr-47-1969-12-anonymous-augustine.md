@@ -20,3 +20,8 @@ Néanmoins, je ne vois aucune raison pour que l'homme se contente de connaissanc
 *[Question : Qui parle ? ]*
 
 Réponse : Augustin, évêque d'Hippone qui vous parle ce soir et je vous le répète, vous n'avez pas besoin de croire les paroles que je vous dis, mais je vous dis testez et voyez... testez et voyez mon frère. Bonne nuit mes enfants.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

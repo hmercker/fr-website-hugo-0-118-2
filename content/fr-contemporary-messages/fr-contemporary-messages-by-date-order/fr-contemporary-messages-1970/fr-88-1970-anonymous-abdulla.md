@@ -18,3 +18,8 @@ Une grande force est présente ce soir, mes enfants, et je suis très heureux de
 Sur la Terre aujourd'hui, beaucoup sont dans cette position et pourraient être libres. Vous devez donc rechercher ces âmes et les libérer en leur enseignant et en leur montrant ce que Dieu peut faire. Peu importe la phase de vie dans laquelle se trouve l'humanité. Peu importe la condition dans laquelle se trouve une âme, lorsqu'elle a le désir de rechercher cette force et cette sagesse que Dieu peut lui donner, elle trouve le chemin du bonheur et vous, qui avez cette connaissance, devez continuer à aider les autres. Il n'y a pas de plus grande satisfaction pour l'homme sur Terre ou pour la vie dans les sphères supérieures que de faire le travail de Dieu. Cela ne vient pas avec les biens de ce monde mais avec l'Amour de Dieu dans leurs âmes.
 
 Alors, partez de cet endroit ce soir, résolus que dans les jours à venir vous essayerez d'aider une âme à trouver son salut chaque jour de votre semaine. Vous constaterez que les bénédictions de Dieu se déverseront sur vous. Je me glorifie avec vous, mes amis, des conditions merveilleuses que vous avez parmi vous ce soir, sachant que moi aussi, en quittant ce groupe, j'aurai fait un pas un peu plus haut sur le chemin de la vie heureuse. Que Dieu vous bénisse et bonne nuit.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

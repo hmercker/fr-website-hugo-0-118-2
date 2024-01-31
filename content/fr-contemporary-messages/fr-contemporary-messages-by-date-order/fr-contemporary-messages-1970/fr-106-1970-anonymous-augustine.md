@@ -20,3 +20,8 @@ Vous remarquerez, mes amis, qu'au cours des derniers mois, il y a eu un plus gra
 Il est important de ne pas leur donner trop de connaissances au début. Il faut montrer ou enseigner à l'homme, puis lui donner le temps de réfléchir et de digérer, car c'est très important dans ce travail. Nous ne pouvons pas aller de l'avant et essayer d'impressionner quelqu'un avec des connaissances qu'il n'est pas prêt à recevoir. On n'impose pas de la viande à un bébé, et nous ne pouvons pas imposer cette connaissance à ceux qui n'en ont aucune. Il est donc important, lorsque vous êtes appelés à vous rendre dans divers groupes, d'enseigner de manière simple et de les laisser digérer la parole. Ne vous découragez pas si beaucoup ne reviennent pas. Si un seul revient dans un groupe, vous découvrirez qu'il a été choisi pour vous aider et pour aider à apporter la vérité de Dieu. Lentement, il y a un changement qui balaie votre plan terrestre, lentement, ceux qui ont été supprimés commencent à parler et à demander de l'aide, alors nous venons à vous pour vous aider à diffuser ces vérités qui vont sauver toute l'humanité, sur la Terre dans les années à venir, rappelez-vous ceci.
 
 C'est un plan de très grande envergure qui commence sur votre plan terrestre et c'est à vous, mes amis, de décider jusqu'où vous irez. Sachez que nous sommes à vos côtés et que nous viendrons chaque fois que vous appellerez. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

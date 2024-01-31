@@ -20,3 +20,8 @@ C'est pourquoi les habitants de la Terre sont aujourd'hui si malheureux, si crai
 Mes enfants, nous devons venir et enseigner à l'homme les simples vérités telles qu'elles se sont réellement passées et telles qu'elles sont réellement. Nous n'avons aucun désir de détruire ce qui a été construit, mais nous avons le désir de montrer la bonne voie à ceux qui servent sous quelque forme que ce soit. Beaucoup de Terriens aujourd'hui n'accepteront pas la vérité que Jésus peut venir. Beaucoup discréditeraient le fait que je puisse venir. Nous devons donc arracher ce qui a empêché l'homme d'acquérir la vraie connaissance de la raison pour laquelle il a été créé - et de ce que doit être sa vie. Beaucoup d'enseignements simples sont enseignés et donnés à l'homme de telle manière que l'homme s'est détourné du mode de vie spirituel et s'est moqué des lois de Dieu. Il n'est pas étonnant que l'humanité soit en détresse et perdue.
 
 Alors, maintenant, mes amis, nous venons à nouveau parler directement à l'homme. La force qui se construit autour de chacun d'entre vous est si grande que vous constaterez que vous serez ensemble et que beaucoup de ceux qui viennent écouter verront, certains verront, d'autres non. C'est ce que nous souhaitons. Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

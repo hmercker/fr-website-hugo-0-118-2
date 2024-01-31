@@ -22,3 +22,8 @@ Lorsque l'on commence à être conscient et à recevoir une guidance directe, il
 Bientôt, beaucoup d'entre vous verront et entendront et lorsque ces âmes merveilleuses qui ont passé leur vie terrestre à enseigner pourront revenir et parler à l'homme, vous constaterez qu'il y aura une telle vague de désir dans le monde entier de vivre une vie meilleure sur Terre que toutes les richesses des différents pays ne seront pas dépensées pour la destruction mais seront utilisées pour le bien-être de toute l'humanité. Soyez déterminés mes amis, soyez fidèles mais surtout soyez forts et sages dans l'Amour de Dieu. C'est ce qui apportera le pouvoir et la richesse, la plus grande richesse de toutes, la richesse d'une âme qui a trouvé le salut.
 
 Bonne nuit et que Dieu vous bénisse tous.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,6 +30,11 @@ Si nous avions tous la chance d’avoir des parents ou des tuteurs aimants et co
 Chacun d’entre vous est un cadeau étonnant, doté de la volonté, des désirs et des appétits, mais aussi des perceptions grâce auxquelles vous pouvez étudier et apprécier ce que la vie vous offre. Votre mentalité et vos âmes limitées ne doivent pas vous empêcher de chercher à ouvrir vos cœurs à l’amour et à la connaissance qui viennent à l’humble chercheur de vérité. Prenez la main de Dieu et laissez-vous guider dans ces avenues éclairées qui ne demandent qu’à être parcourues. Sachez que vous êtes un être compliqué et complexe qui a des profondeurs et des perceptions inconnues, même de vous, et lorsque vous vous acceptez comme une telle créature, douée d’une vision d’un autre monde, vous pouvez voir le travail de la loi de l’amour dans votre vie et dans la vie de ceux qui vous entourent.
 
 Acceptez que le mystère de votre âme n’a plus besoin d’être un mystère et que Dieu vous donnera la capacité de percevoir la vérité de votre essence, de votre âme, une réalité qui doit encore être éveillée dans ce monde matériel. Il s’agit d’une connaissance sacrée et d’une expérience privée qui peut être partagée ou non, mais surtout, vous serez en compagnie d’anges qui ne vous quitteront pas, qui vous montreront les étapes. C’est la Promesse de Dieu comme l’accomplissement de la plus haute Loi de l’Amour, car par la transformation de votre âme en celle d’un être Divin, vous connaîtrez la Présence de l’Amour dans votre vie. Ayez la foi et priez pour que Sa guidance soit toujours avec vous. Il y a un pouvoir dans cette prière pour vous protéger de tout mal et pour aider à démêler la confusion qui peut appartenir à l’esprit.Je vous aime et j’espère que cela vous éclaire sur ce sujet. Si jamais vous avez besoin de mon aide, je suis toujours là. Croyez bien que c’est notre privilège de vous protéger et de vous guider dans votre progression en ce monde. Je suis Marie, la mère de Jésus.
-
 <small>
+
 1. <large id="f1"> Dans le texte originel : Wayshower, celui qui montre le Chemin.[↩](#a1)
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

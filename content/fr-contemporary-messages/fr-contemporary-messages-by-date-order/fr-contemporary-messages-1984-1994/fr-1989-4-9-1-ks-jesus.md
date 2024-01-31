@@ -43,3 +43,8 @@ Prenez la décision que vous voulez développer le plus haut potentiel de votre 
 Je suis votre ami et frère en Christ, qui vous laisse maintenant avec mon amour et mes remerciements pour m’avoir permis d’écrire.
 
 Jésus de la Bible, et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

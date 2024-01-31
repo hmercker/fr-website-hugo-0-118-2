@@ -34,3 +34,8 @@ Mais même si l'on ne reçoit pas de la part de sa famille et de ses amis la ple
 Avant de conclure, je voudrais dire que nous sommes tous très fiers du travail que tous nos bien-aimés collaborateurs accomplissent, et nous attendons avec impatience de nombreuses autres années fructueuses d'efforts mutuels avec nos frères et sœurs dans la chair qui consacrent leur vie au service du Père. Et, aujourd'hui, nous avons le privilège et la joie de reconnaître G. M. U. comme un véritable collaborateur et un frère bien-aimé dans le Christ qui va maintenant prendre sa place à nos côtés dans notre armée du salut qui ne cesse de croître.
 
 Je vous laisse maintenant avec mon amour et mes bénédictions, et les Bénédictions du Père. Je suis votre frère et ami, Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

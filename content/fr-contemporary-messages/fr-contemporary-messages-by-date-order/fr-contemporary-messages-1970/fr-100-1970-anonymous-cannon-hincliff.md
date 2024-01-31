@@ -24,3 +24,8 @@ Lorsque tous les hommes de la Terre auront cette connaissance, lorsque l'homme a
 Nous devons nous développer, nous ne pouvons pas rester immobiles et pour chaque enfant de Dieu dont vous êtes responsable et que vous pouvez aider à se rapprocher de Dieu, votre vie sera bénie. Les choses matérielles ne signifient pas tout sur votre plan terrestre et absolument rien dans notre sphère de vie. Même si vous sentez que vous devez consacrer plus de temps au matériel, ne soyez pas si occupés que vous ne puissiez pas donner du temps pour être saints et ne faire qu'un avec Dieu.
 
 Faisons grandir cette armée et allons chercher des recrues, non pas pour la destruction mais pour le salut de l'homme. Quelle glorieuse entreprise et sachez que nous marcherons côte à côte. Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,8 @@ Nombreux sont ceux qui cherchent ces vérités dans de merveilleux édifices - e
 Prier Dieu pour le don le plus précieux qui soit - Son Amour Divin. Il ne s'agit pas de l'amour des hommes entre eux. C'est la part de Dieu que votre âme doit avoir. Vous ne pouvez pas devenir une lumière brillante, vous ne pouvez pas devenir un leader parmi vos semblables tant que vous n'avez pas reçu cette grande bénédiction de Dieu. Elle seule apporte la sagesse, elle seule apporte la joie et elle seule, mes frères et sœurs, apporte votre salut. Dieu nous aime tous et il nous fournit tous. Mais d'abord, mes amis, vous devez chercher et vous préparer à recevoir.
 
 Ma bénédiction pour vous ce soir est pour la bénédiction de Dieu. En quittant cet endroit ce soir, vous laissez derrière vous tous les soucis avec lesquels vous êtes entrés, ceux qui sont épuisés dans leur corps sortiront d'ici en bonne santé, vous le pouvez mes amis. Ceux dont les âmes sont affamées quitteront cet endroit renouvelés, renforcés, prêts à relever le défi que tous ceux qui enseignent la vérité doivent affronter et maintenant je m'en vais, votre ami, Nuage Blanc.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

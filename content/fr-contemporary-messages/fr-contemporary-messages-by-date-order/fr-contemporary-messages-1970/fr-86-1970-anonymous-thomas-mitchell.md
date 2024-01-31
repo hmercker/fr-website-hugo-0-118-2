@@ -28,4 +28,7 @@ Donc, mes chers, je vous bénis ce soir et ma voix sera entendue souvent et je t
 
 1. <large id="f1"> **Thomas Mitchell**, né le 11 juillet 1892 à Elizabeth, au New Jersey (États-Unis), et mort le 17 décembre 1962 à Beverly Hills (Californie), est un acteur américain. [↩](#a1)
 
-
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

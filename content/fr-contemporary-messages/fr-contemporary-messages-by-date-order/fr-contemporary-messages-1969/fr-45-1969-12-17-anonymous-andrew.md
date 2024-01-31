@@ -21,3 +21,8 @@ Il a été conçu pour que vous vous rassembliez comme un seul homme, pour que v
 Pensez-vous que vous êtes ici par accident ce soir ? Chacun d'entre vous ici dans cette pièce a été guidé. Vous avez été rassemblés. Vous avez chacun quelque chose que l'autre peut utiliser et en partageant, vous devenez tous plus forts et vous n'êtes plus des individus séparés car dans chacun de vos corps, il y a la substance de l'autre, donc vous êtes un dans l'unité - vous êtes un dans la substance, car vous avez tous partagé la composition chimique de l'autre et là où il y a l'unité, il y a la force.
 
 Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse et soit avec vous cette année et que vous puissiez continuer à travailler ensemble comme une équipe. Que Dieu vous bénisse. Bonne nuit. 
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -26,3 +26,8 @@ Souvent, les hommes se voient eux-mêmes, l’amour naturel et la nature de leur
 Un jour, M. Swedenborg viendra et écrira en détail sur ses enseignements et ses expériences, et comment, alors qu’il était sur terre, il n’avait aucune perception véritable de la Vérité de l’Amour Divin de Dieu en contradiction avec l’amour naturel de l’âme d’un homme.
 
 Votre ami, et Maître des Cieux Célestes, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -28,3 +28,8 @@ Il y a beaucoup de médiums merveilleux en Angleterre et il y a de merveilleux m
 Sans oublier à aucun moment les commandements que j'ai donnés. Je sais que chacun d'entre vous a fait d'énormes progrès dans la croissance de son âme. Moi, votre Maître béni, je suis heureux en effet de vous le révéler ce soir comme un fait. Je vous bénis, je vous aime et je vous aiderai. S'il vous plaît, renforcez votre foi dans le pouvoir de notre Père et je ferai tout ce que je peux pour vous aider.
 
 Que Dieu vous bénisse jusqu'à ce que nous ayons le privilège de nous retrouver. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

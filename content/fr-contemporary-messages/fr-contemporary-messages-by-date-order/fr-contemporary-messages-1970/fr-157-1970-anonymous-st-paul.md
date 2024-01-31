@@ -16,3 +16,8 @@ Bonsoir mes amis, c'est moi Paul. Je viens ce soir pour bénir chacun d'entre vo
 Vous découvrirez, en suivant le chemin de la vie, que si vous êtes prêt à enseigner et à aider partout où vous le pouvez, tous vos besoins seront satisfaits. N'ayez pas peur de cela mes amis. C'est ainsi que fonctionnent les lois de Dieu. Parfois nous pouvons penser qu'il est tout à fait nécessaire d'avoir certaines choses, mais parfois ces choses ne sont pas vraiment vos besoins, mais tous les hommes ont besoin d'une plus grande compréhension et vous qui avez touché cette compréhension devez répandre ces vérités.
 
 Ne soyez pas craintifs, allez de l'avant et faites ce travail merveilleux, mes amis. Que Dieu vous bénisse tous.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

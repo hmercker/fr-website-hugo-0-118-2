@@ -32,3 +32,8 @@ Quant à la question de l’ascension. Jésus est effectivement monté dans les 
 Une telle réjouissance n’a jamais été connue et il y a toujours la joie et le chant lorsqu’une âme passe dans ces merveilleuses sphères de bonheur et de lumière éternelle.
 
 Je vous aime et je vous demanderai de vous rasseoir bientôt. Je suis votre sœur, Marie, la mère de Jésus.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

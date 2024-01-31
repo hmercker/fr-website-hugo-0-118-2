@@ -46,3 +46,8 @@ Comme dans les messages précédents, je souhaite sincèrement qu’en lisant ce
 Avec un Amour qui vient du Père de nous tous, j’aime tous les hommes. Et je prie pour qu’ils tiennent compte de mon message de ce jour afin qu’en passant finalement du côté de l’esprit de la vie, ils trouvent effectivement le Paradis des désirs de leurs cœurs à travers la préparation terrestre des exercices de leurs âmes.
 
 En vous remerciant encore une fois pour cette occasion de communiquer certaines de mes pensées à l’humanité, je suis votre frère dans l’Amour, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

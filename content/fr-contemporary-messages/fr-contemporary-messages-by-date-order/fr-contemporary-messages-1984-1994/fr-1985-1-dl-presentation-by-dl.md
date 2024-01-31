@@ -44,3 +44,8 @@ Oui, mes chers frères et sœurs, Jean avait confirmé que l'amour que Jésus av
 Ainsi, mes chers, si l'un d'entre vous n'a pas encore ressenti la félicité de l'Amour de Dieu brûlant ou ardent dans sa propre âme, nous sommes ici pour vous confirmer que ce grand amour transformant est également à votre disposition. Allez vers notre cher Père dans la prière et demandez-lui humblement de vous bénir de cet amour. Et ne vous découragez pas si vous ne réussissez pas immédiatement. Priez et priez encore jusqu'à ce que vous réussissiez ! Car après l'avoir reçue, vous aussi, comme beaucoup d'entre nous, vous crierez du haut des toits que la plus grande substance dans toute l'existence est l'Amour Divin de Dieu. Devenez le véritable enfant transformé du Père qu'Il veut que vous soyez, car Il vous aime de tout son cœur et désire tellement que vous deveniez Son enfant divin, un avec Son âme originelle !
 
 Je vous remercie de votre aimable attention et je souhaite que Dieu vous bénisse tous avec la *« perle de grand prix »* - Son Amour Divin qui transforme et glorifie !
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

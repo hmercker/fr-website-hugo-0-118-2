@@ -22,3 +22,8 @@ Malheureusement, souvent les doutes t’envahiront et tu ne sauras pas pourquoi 
 Tu dois réussir, car dans ton cœur se trouve une certaine pureté spirituelle, qui aspire à la manifestation des vérités spirituelles, et, bien sûr, ton cœur sera rempli de ce que tu cherches. Soyez seulement patient et tu recevras le don de l’Esprit Saint.
 
 Avec l’amour de ton frère Lorenzo, qui t'apprécie beaucoup.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

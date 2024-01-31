@@ -34,3 +34,8 @@ C’est un concept qu’il faudra élucider davantage ; et, comme vous êtes fat
 Je suis heureux de dire que vous progressez tous très bien dans le travail et les efforts de votre église. Continuez votre beau travail, mes chers collaborateurs, et sachez que nous apprécions profondément tout ce que vous faites pour apporter l’Activation de l’Amour de Dieu sur terre à tous ceux qui seront encouragés à Le chercher par l’activation de leur propre âme dans la prière. En attendant notre prochaine communication, je vous remercie pour vos efforts et le temps que vous avez passé à me permettre de communiquer à l’humanité une partie de mes pensées et des Vérités du Père.
 
 Je suis votre frère et ami, Jésus de la Bible, et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

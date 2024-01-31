@@ -36,3 +36,8 @@ C’est pourquoi je demande instamment à l’humanité tout entière de ne pas 
 Je vous remercie d’avoir reçu mon message de ce jour, et je suis heureux que vous l’ayez si bien reçu.
 
 Je suis votre frère et ami, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

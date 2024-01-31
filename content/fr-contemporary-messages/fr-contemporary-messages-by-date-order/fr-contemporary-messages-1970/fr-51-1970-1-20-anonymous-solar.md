@@ -16,3 +16,8 @@ Bonsoir, petits enfants, nous sommes enfin arrivés pour être avec ce groupe. J
 Je viens mes enfants, mais il y a encore beaucoup de progrès à faire dans ce groupe. Vous pouvez penser que vous avez parcouru un long chemin, mais vous devez aller beaucoup plus loin, mais vous recevrez les récompenses de vos efforts, car chaque acte a son effet, et chaque pensée et chaque action a ses conséquences, alors continuez à avancer mes enfants, désirez atteindre la perfection de l'âme et comme vous progressez dans votre développement de l'âme, nous verrons que vos dons spirituels se déploient et ils seront construits sur une bonne fondation, sûre et ils resteront comme vous restez fermes dans la vérité, mais l'effort de la recherche est avec chaque âme individuelle et les fruits de la récolte accueillent chaque âme individuelle. Ceux qui font l'effort récolteront aussi les riches récompenses.
 
 Je vous salue avec amour et notre groupe vous salue avec amour. Nous allons prier pour votre progression. Que Dieu vous bénisse mes enfants et que Sa protection reste avec vous. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

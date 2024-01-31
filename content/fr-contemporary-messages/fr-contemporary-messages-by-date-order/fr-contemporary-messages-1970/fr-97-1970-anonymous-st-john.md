@@ -16,3 +16,8 @@ La paix soit avec vous mes amis, C'est moi Jean. Je suis très heureux d'être a
 Il a symbolisé, alors qu'il était sur Terre, comment la bénédiction de l'Amour Divin peut pénétrer les plus grands coins de l'obscurité et apporter le salut à l'humanité. Vous, à votre manière mes enfants, devez avoir le désir d'être comme lui, prêts à servir toute l'humanité en toutes circonstances. Mais pour aider les autres, nous devons toujours être renouvelés nous-mêmes, donc nous devons toujours prendre le temps de prier. Dans vos vies chargées, vous devez le faire et je demande donc à chacun d'entre vous ici ce soir de se consacrer à nouveau au service de Dieu et de trouver dans vos désirs sincères pour ce Grand Amour. Tous vos problèmes s'éloigneront de vous et lorsque votre prochain verra votre force et votre sagesse, il ne vous sera pas difficile d'aller de l'avant et de rassembler les autres à vous.
 
 Soyez bénis, mes enfants. Que la plus grande paix vienne sur chacun d'entre vous. Que chacun d'entre vous ici ressente en quittant ce lieu ce soir la présence de notre Maître qui vous a apporté le renouveau de la vie, mes chers. Que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

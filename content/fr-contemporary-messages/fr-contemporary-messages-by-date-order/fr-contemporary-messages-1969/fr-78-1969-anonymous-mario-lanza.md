@@ -18,3 +18,8 @@ J'aimerais seulement pouvoir vous parler directement, mais j'ai bien peur que ce
 Lorsque j'étais sur Terre, beaucoup d'entre vous connaissaient l'histoire de ma vie, mais aucun d'entre vous ne savait vraiment ce qu'il y avait dans mon cœur. J'ai essayé de trouver le bonheur de tant de façons mais je ne l'ai pas trouvé et je n'ai pas trouvé le bonheur venant de ceux que j'aimais. Au lieu d'apporter la joie et le bonheur, j'ai trop souvent apporté le chagrin. Ainsi, pour tous les malheurs que j'ai causés, je dois payer. Mais maintenant, je sais qu'il n'y a qu'un seul chemin à prendre. Quand je pense à tous les mois, les années et le temps qu'il m'a fallu pour réaliser cela, je suis reconnaissant pour les prières et l'amour qui m'ont été envoyés de la Terre. Je me rends compte de tout ce que je dois venir faire sur Terre à nouveau. Ainsi, je travaille et me prépare à servir l'homme sur Terre. Non pas de service pour le matériel mais comme un service à Dieu et mon plus grand désir est que je puisse chanter sur Terre à nouveau en voix directe et dans ma voix, vous détecterez la progression dans mon âme.
 
 Et sachez mes amis que mes connaissances et mes désirs n'ont été réalisés que grâce à votre amour et vos prières. Que Dieu vous bénisse et que vous ayez toujours un chant dans votre cœur.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

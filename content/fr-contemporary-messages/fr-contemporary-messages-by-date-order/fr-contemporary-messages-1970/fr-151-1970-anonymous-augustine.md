@@ -24,3 +24,8 @@ Lorsque vous arrivez dans les sphères supérieures de la vie, vous savez que la
 Oh, mes enfants, ce soir je vous demande de prendre le temps, chaque jour de votre vie, d'être proches de votre Père. Rendez grâce pour les bénédictions et la compréhension que vous avez reçues. Priez pour que cet Amour coule davantage dans vos âmes. Allez aider les autres et vous ferez vraiment le travail de votre Père et lorsque vous le ferez, votre vie sera longue sur la terre et glorieuse dans les autres sphères de la vie.
 
 Que la paix, la compréhension et les bénédictions de l'amour soient avec vous. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

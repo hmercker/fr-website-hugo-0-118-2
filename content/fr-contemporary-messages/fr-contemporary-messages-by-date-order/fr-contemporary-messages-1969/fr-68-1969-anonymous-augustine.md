@@ -22,3 +22,8 @@ Toutes les choses qui causent à l'homme de la misère et des peines de cœur ne
 Il doit apprendre à ne pas tomber et alors il n'aura pas à supporter les conséquences de ses propres faiblesses. Il y a tant de choses que l'homme doit apprendre. Il y a tant de choses que nous devons apprendre. Nous n'avons jamais fini de chercher, de désirer et d'aspirer. Lorsque l'homme commence à penser qu'il sait tout, il est vraiment perdu car nous qui avons vécu sur Terre il y a des milliers d'années et qui avons vécu dans de hautes sphères spirituelles, nous savons encore que nous avons de grandes connaissances à glaner et que la seule façon de trouver notre paradis est l'amour de Dieu.
 
 Soyez bénis, mes enfants. Que la grande paix et la sagesse soient avec vous.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

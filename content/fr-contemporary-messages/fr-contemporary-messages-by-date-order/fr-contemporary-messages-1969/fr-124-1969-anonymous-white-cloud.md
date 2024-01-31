@@ -18,3 +18,8 @@ Nous avons entendu les Chinois, les enfants, et nous avons entendu ceux qui ont 
 Vous rendez-vous compte de la quantité d'amour, de la quantité de fidélité et de la quantité de patience dont vous avez besoin pour ramener ce merveilleux phénomène sur Terre ? Vous rendez-vous compte que Jésus vient du plan le plus élevé de la vie ? Ce n'est pas facile à faire pour une âme et il faut beaucoup d'amour pour les amener, alors je vous demande, lorsque vous vous asseyez, de réaliser que lorsque vous envoyez de l'amour à celui qui est assis pour la voix directe, vous nous permettez d'amener à l'humanité sur Terre les plus grandes âmes qui aient jamais vécu sur Terre et cet homme doit entendre à nouveau.
 
 Dieu vous bénisse et bonne nuit, mes amis, que l'Esprit de la Grande Lumière Blanche descende sur vous tous.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,8 @@ Et très bientôt, en écrivant ces messages que tu reçois par la pensée, ta m
 Je termine cette communication pour ce soir, non sans vous avoir dit auparavant que ton frère dans la foi, André, continuera à t’enseigner les vérités de Dieu, ainsi que les instructions reçues dans les messages que tu étudies.
 
 Avec l’amour d’André.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

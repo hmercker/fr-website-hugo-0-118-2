@@ -35,3 +35,8 @@ Je suis ici, Jean de l’Amour, et un vrai disciple de mon Maître, Jésus, qui 
 Je veux encourager mes frères, A____ et M____, pour qu’ils ne perdent jamais courage, et qu’ils continuent à croire que Dieu est avec eux et qu’il fera toujours briller la lumière sur leurs ténèbres. Car Il voit dans nos cœurs et nous aime toujours, et nous pouvons avoir l’espoir que la vérité fera de nous des hommes libres, en sachant que notre Dieu est un Dieu d’Amour et de Miséricorde, et qu’il n’y a aucune obscurité qui soit trop sombre, et aucune ignorance que Dieu ne puisse éclaircir, sachant que l’Amour est la plus grande Puissance et la vérité ultime et le salut de l’âme des hommes.
 
 Soyez inébranlables et gardez votre foi et Dieu guidera votre navire dans ce monde. Nous vous aimons, mes chers frères et sœurs, Jean l’Apôtre, et Marie et mère de Jésus, et vos amis sur le chemin divin.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

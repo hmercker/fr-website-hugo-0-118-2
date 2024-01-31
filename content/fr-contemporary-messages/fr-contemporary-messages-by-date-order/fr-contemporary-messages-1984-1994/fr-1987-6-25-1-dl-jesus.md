@@ -46,3 +46,8 @@ Quant au partage de vos messages, il est parfaitement normal que vous le fassiez
 Eh bien, mon frère, j’espère que vous et les autres serez heureux et satisfaits de cette clarification que j’ai tenté de donner concernant votre propre déclaration introductive et vos questions. En attendant notre prochaine communication, je vous remercie une fois de plus d’avoir reçu mon message de ce jour et je vous embrasse, ainsi que tous mes collègues sur terre qui restent si fidèles et si constants dans le travail qui nous attend. En attendant notre prochaine communication prévue lors de votre réunion annuelle, je vous souhaite une bonne journée.
 
 Votre ami et frère aimant dans le Christ, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

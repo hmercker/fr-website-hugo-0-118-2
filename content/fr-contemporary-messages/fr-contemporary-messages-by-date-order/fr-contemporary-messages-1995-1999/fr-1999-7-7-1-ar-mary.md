@@ -34,3 +34,8 @@ Vous cherchez une pentecôte et je vous dis, mes enfants, que c’est possible, 
 En attendant, en grandissant, soyez patient et bienveillant envers vous-même et envers les autres. Considérez l’amour comme la première et la plus importante réaction à toute confrontation ou défi qui se présente à vous. Je vous aime, mes propres frères et sœurs. Mon âme est remplie de l’Amour qui brille des Cieux de la Paix Parfaite de Dieu et je ne suis jamais loin de votre côté.
 
 Je suis Marie, la mère de Jésus, et votre ange de miséricorde.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -46,3 +46,8 @@ Mais tant que prévaut la croyance ignorante selon laquelle je n'étais qu'un ag
 Jusqu'à la prochaine fois, donc, mes bénédictions et les Bénédictions du Père sont toujours avec vous tous, et je vous remercie très sincèrement d'avoir pris mon message de ce jour.
 
 Votre frère et ami aimant, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

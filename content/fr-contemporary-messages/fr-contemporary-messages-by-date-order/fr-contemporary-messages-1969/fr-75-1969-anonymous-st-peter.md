@@ -18,3 +18,8 @@ C'est notre grand désir de voir cette compréhension entre tous les peuples de 
 Et il en est ainsi dans toutes les sphères de la vie. Nous ne pouvons pas recevoir trop de la bénédiction de Dieu. Et à mesure que notre âme devient plus Divine, nous atteignons de nombreux plans de vie élevés, et finalement notre âme ne fait plus qu'un avec Dieu. Personne ne peut vous donner cela, seulement Dieu. Vous devez chercher - vous devez enseigner - vous devez démontrer aux autres. Tous les hommes de la Terre ont besoin de ces enseignements véridiques. Parmi ceux qui prêchent en chaire aujourd'hui, beaucoup n'ont pas la compréhension des lois de la vie que vous avez mes enfants.
 
 Donc, vous devez semer la graine. Lorsque tous ceux qui enseignent comprendront qu'une âme ne dort pas, ne meurt pas, alors ceux qui comprennent feront de plus grands efforts pour enseigner la vérité. Il n'y a rien à craindre dans la vie. Dieu aime tous Ses enfants - il attend de vous aider. Alors, mes amis - commencez aujourd'hui à chercher dans la vérité. Voilà ce que vous devez dire mes enfants à ceux qui cherchent. Que Dieu vous bénisse - Bonne nuit.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

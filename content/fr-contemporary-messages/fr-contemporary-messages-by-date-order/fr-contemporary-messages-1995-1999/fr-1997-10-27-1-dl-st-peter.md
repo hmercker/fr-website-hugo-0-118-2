@@ -36,3 +36,8 @@ Une réalité que j’apprécie et admire beaucoup est votre désir profond de p
 Ainsi, mon frère bien-aimé, dans un sens, vous héritez d’une partie de mon manteau d’autorité dans notre travail commun. Je veux que vous sachiez que vous pouvez toujours compter sur moi, que je serai toujours là quand vous avez besoin de moi. Ensemble, nous veillerons à ce que l’harmonie et la paix règnent afin que ce travail très important de construction du Royaume puisse se poursuivre dans la plus grande hâte et sans aucune interruption ou interférence sérieuse. Je vous aime, mon frère, et je me réjouis d’une longue et heureuse association avec vous, et je suis heureux d’avoir pu venir chez vous aujourd’hui pour vous révéler à la fois ma présence et la capacité dans laquelle je travaillerai avec vous dans le cadre de votre groupe d’esprit immédiats. Le Maître est avec moi en ce moment et veut ajouter son amour au mien pour vous aider à poursuivre votre merveilleux travail et votre développement. Je suis
 
 Pierre, apôtre du Maître et l’un de vos anges guides spéciaux.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

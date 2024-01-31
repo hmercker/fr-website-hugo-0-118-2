@@ -24,3 +24,8 @@ Vous constaterez que dans les jours à venir, les conditions autour de vous vont
 Ainsi, au cours des semaines qui se sont écoulées, nous sommes venus à vous et beaucoup sont venus qui ne peuvent pas vous servir. Mais pour chacun d'entre vous ici, un travailleur vous sera donné et vous le saurez par l'état que vous ressentez en vous lorsque nous nous approcherons. Nous souhaitons ouvrir la porte à une plus grande compréhension pour vous tous. Et nous vous entourons d'un grand amour, car l'œuvre de Dieu ne peut prospérer que dans l'amour.
 
 Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

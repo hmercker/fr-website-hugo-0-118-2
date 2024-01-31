@@ -38,3 +38,8 @@ Je vous laisse donc avec mes bénédictions et j'espère que cela répondra de m
 Je suis votre frère en Christ, qui vous laisse maintenant avec mon Amour et reviendrai bientôt.
 
 Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

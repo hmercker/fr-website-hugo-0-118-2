@@ -28,3 +28,8 @@ Même s’il peut être harmonieux de développer des branches dans tout le pays
 Ces groupes seront automatiquement affiliés lorsqu’ils suivront les nouveaux enseignements révélés par moi-même et d’autres esprits Célestes. Ce sera le lien d’amour qui se développera et se transformera en un réseau de groupes représentant les véritables enseignements. Nous vous aimons, vous, chaque enfant qui cherche à s’améliorer et qui aide à diffuser les véritables enseignements de l’Amour de notre Père bien-aimé.
 
 Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

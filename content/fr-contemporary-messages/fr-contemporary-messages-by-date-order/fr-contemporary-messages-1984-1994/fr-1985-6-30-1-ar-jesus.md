@@ -18,3 +18,8 @@ Mon cher frère, je veux que tu considères un facteur très important dans l’
 Mais lorsque l’âme s’incarne, au bout d’un temps variable mais très probablement aux environs du cinquième mois, l’âme prend alors sa place parmi les nombreuses personnes de l’univers qui sont supervisées par l’esprit bienveillant et aimant de notre Père Céleste. En cela, Dieu ne privilégie pas la considération de la mère ou de l’enfant. Il les aime tous les deux ; il les aime également, et sa miséricorde est infinie. Et Il pardonnera à ceux qui, par leurs actes, refusent d’assumer la responsabilité de leurs actes et des résultats de leurs actions. Je vous demande de tenir compte de ces réalités. Je vous demande de faire appel à ceux qui viennent vous poser cette question. S’il vous plaît, considérez cet Amour, considérez cette Miséricorde, et avec cet amour dans vos âmes, répondez à ces questions… Oui, encouragez-les à accepter la réalité des lois ; encouragez-les avec votre amour à embrasser les opportunités que ces lois leur apportent. Mais ne leur tournez jamais le dos ; ne leur faites jamais penser que Dieu…
 
 *[Jésus ajoute que nous devrions les encourager à se mettre en harmonie avec ces lois pour leur permettre de s’allier aux pouvoirs de l’univers, mais en les encourageant par amour, et non par rejet ou en les menaçant que Dieu les rejettera s’ils choisissent l’avortement.]*
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,8 @@ Oui, David, je fais partie de votre groupe d’esprits et, vous pouvez être sû
 Je pourrais continuer pendant des pages et des pages à vous communiquer ma gratitude et mon amour, mais ce que j’ai dit aujourd’hui devra servir de point de départ, car je sais que vous êtes assis pour des messages depuis des heures maintenant. Mais pour conclure, sachez que mes prières sont avec vous et que nous serons et resterons toujours frères et amis dans ce grand travail que nous avons eu le privilège d’entreprendre. Encore une fois, merci beaucoup et que Dieu vous bénisse.
 
 James E. Padgett, collègue de travail et l’un de vos anges de compagnie.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

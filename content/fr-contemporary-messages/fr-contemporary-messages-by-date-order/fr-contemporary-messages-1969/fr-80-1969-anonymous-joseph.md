@@ -28,3 +28,8 @@ Vous êtes les seuls à pouvoir continuer à vivre en plénitude, vous êtes les
 Que Dieu vous bénisse et vous fasse prospérer. Que Jésus puisse toujours venir et vous guider et mon plus grand désir est de pouvoir parler à nos proches qui attendent une voix directe et c'est ce que nous ferons.
 
 Bonne nuit.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

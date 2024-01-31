@@ -36,3 +36,8 @@ Et, comme dernière pensée pour aujourd’hui, n’oublions pas qu’au-delà d
 Jusqu’à notre prochaine communication, alors, je vous laisse maintenant avec mon amour et mes bénédictions, et celles du Père.
 
 Votre ami et frère, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

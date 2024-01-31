@@ -20,3 +20,8 @@ Nous nous rendons compte maintenant que tous les mois et toutes les années où 
 Alors que je me tiens ici ce soir en train de vous parler, voyant le merveilleux travail qui est fait avec chacun d'entre vous, je prie avec vous pour que Dieu ouvre vos yeux, sachant que si tel est votre désir, vous verrez aussi. Être capable de voir et d'être conscient de ce qui est fait, c'est vraiment savoir et être capable de se protéger contre l'intrusion. Ainsi, ceci sera également ajouté pour vous, n'oubliez jamais que le plus grand cadeau de tous est l'Amour Divin de Dieu et je sais comme vous qu'il n'y a rien qui puisse construire une fondation pour quoi que ce soit ou vous protéger que la sagesse du grand Amour de Dieu, rappelez-vous toujours cela. Vous allez voyager sur votre globe terrestre, vous tous dans ce travail et vous serez, mes enfants, pris en charge. Vous allez prospérer, vous allez jouir de tout le bonheur que la Terre peut vous apporter, mais le plus grand dans tout cela, c'est que vous serez les vrais enfants de notre Père.
 
 Dieu vous bénisse et nous avons toute la patience et nous sommes toujours trop heureux d'avoir l'occasion de venir ici. C'est notre travail de sentir et de connaître vos désirs. Bonne nuit.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

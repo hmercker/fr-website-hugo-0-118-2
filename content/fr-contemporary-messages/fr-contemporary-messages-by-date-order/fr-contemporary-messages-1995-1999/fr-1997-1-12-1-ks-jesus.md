@@ -78,3 +78,8 @@ Je vous aime, tous et chacun, et j'écrirai à nouveau sur ce sujet s'il y a d'a
 Je suis votre ami qui vous laisse maintenant avec mes bénédictions.
 
 Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

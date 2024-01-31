@@ -36,3 +36,8 @@ Je suis heureux de pouvoir venir chez vous et d’écrire de telles réalités, 
 Considérez-vous comme faisant partie du grand cercle d’amour et soyez heureux de danser dans cette étreinte de fraternité. Vous êtes un avec nous et vous êtes un avec tous ceux qui participent à l’Amour Divin et qui connaissent la Vérité.
 
 Je suis votre ami et frère dans le Christ, Aigle Blanc.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

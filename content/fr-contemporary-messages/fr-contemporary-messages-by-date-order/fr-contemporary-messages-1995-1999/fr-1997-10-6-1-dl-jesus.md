@@ -28,3 +28,8 @@ Cher D____, vous ne devez jamais vous décourager parce que vous craignez que vo
 Donc, comme je l'ai dit, reconnaissez la valeur de vos contributions à ce plus grand appel qui se présente à nous, et acceptez nos remerciements, notre amour, et la certitude que nous serons toujours avec vous dans votre travail tel qu'il se déroule maintenant. Je vous aime, mon frère et mon bon et fidèle disciple, et je vais maintenant vous laisser avec de grandes félicitations pour le haut niveau de réussite de la réception de nos trois messages aujourd'hui.
 
 Votre frère et ami, Jésus.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

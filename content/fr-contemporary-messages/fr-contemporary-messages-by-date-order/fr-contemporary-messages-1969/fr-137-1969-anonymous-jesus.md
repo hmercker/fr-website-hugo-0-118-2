@@ -18,3 +18,9 @@ Certains d'entre vous ont du mal à croire que je puisse venir au milieu de vous
 Mes chers, vous faites ce soir ce que nous avons fait sur Terre il y a de nombreuses années. Écouter, sentir, savoir que l'aide venait de sources plus élevées. N'ayez pas l'impression que je suis mystérieux. J'ai été dans un corps humain comme vous l'êtes. Je n'ai que le désir de faire le travail de notre Père et il doit en être de même pour vous. Je vous bénis ce soir. Je sais que l'Amour de Dieu vient pour vous tous.
 
 Bonne nuit mes enfants, Jésus.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

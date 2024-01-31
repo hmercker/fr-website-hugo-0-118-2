@@ -22,3 +22,8 @@ Je sais que nous vous avons parlé de nombreuses fois, mais la grande importance
 Mes chers enfants, je vois l'importance de la tâche qui vous attend et je dis ce que je peux pour vous aider à obtenir les résultats que vous désirez si ardemment. Vous ne pouvez désirer pour les autres et avoir la capacité de donner aux autres que si vous avez vous-mêmes les qualités dans lesquelles puiser, car vous n'avez par vous-mêmes ni pouvoir ni force - la source d'approvisionnement doit donc être illimitée pour l'œuvre qui n'est autre que Dieu qui nous a tous créés et qui ne désire que notre bonheur et notre perfection. C'est pourquoi, mes amis, préparez-vous en vous tenant ouverts à l'Amour de Dieu. Préparez vos âmes à recevoir toujours plus de la réserve illimitée de l'Amour Divin de Dieu. Que vous soyez capables de donner ce que vous désirez donner et que, lorsqu'ils viennent à vous et puisent, le puits soit plein et qu'aucun d'entre eux n'ait besoin de partir vide et assoiffé de vous ; car vous devez être un puits qui ne tarit jamais, une source toute l'année, tout au long de votre vie, et la source en vous doit venir de Dieu, car sans Dieu, cela ne peut être accompli.
 
 Bonne nuit mes frères, Judas.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

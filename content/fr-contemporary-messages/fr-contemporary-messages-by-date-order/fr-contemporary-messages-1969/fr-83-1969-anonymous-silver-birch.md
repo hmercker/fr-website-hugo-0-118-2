@@ -26,3 +26,8 @@ Ainsi, il serait sage pour vous dans les mois à venir d'essayer d'organiser une
 Tous ces enseignements qui vous ont été donnés au cours des derniers mois et années doivent être soigneusement passés au crible et seuls ceux du grand maître doivent être utilisés. Il serait sage d'écrire un livre sur les enseignements de Paul, il serait sage d'écrire un livre sur les enseignements de Luc et ainsi de suite mes amis. Plus tard, des livres d'une veine plus légère pourraient être publiés grâce à certaines des merveilleuses leçons qui vous ont été données. Mais vous découvrirez que lorsque la Voix Directe de Jésus et de ces merveilleux travailleurs passera, il y aura beaucoup de demandes pour les enseignements qui ont été donnés et les leçons de ces merveilleuses âmes. Je viendrai à vous par d'autres instruments et j'essaierai d'utiliser cet instrument quand je le pourrai. Mais dès que notre bien-aimé sera prêt pour une Voix Directe, je viendrai.
 
 Que la grande paix, la grande sagesse et le grand bonheur viennent à vous mes enfants.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

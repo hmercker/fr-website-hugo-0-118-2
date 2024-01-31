@@ -22,3 +22,8 @@ La loi du rapport est quelque chose que nous devons tous comprendre. Lorsque nou
 Ainsi, je viens à vous ce soir, pour vous demander d'essayer de surveiller les pensées que vous envoyez à tous. Je sais que c'est le désir de chacun d'entre vous. Faites appel à nous et nous vous aiderons à résoudre tout problème que vous rencontrerez dans les jours à venir. Rappelez-vous que la plus grande force vient de Dieu.
 
 Bonne nuit et que Dieu vous bénisse.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

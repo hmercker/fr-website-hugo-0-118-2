@@ -25,3 +25,8 @@ Je mesure plus d'un mètre quatre-vingt et j'ai déjà été amené devant vous 
 <small>
 
 1. <large id="f1"> Philosophe et médecin égyptien 1350 avant JC.[↩](#a1)
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

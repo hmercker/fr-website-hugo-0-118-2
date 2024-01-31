@@ -34,3 +34,8 @@ De notre Maître, notre frère Jésus, je te dirai qu’il est plus proche de to
 Bon, il semble que tu perdes un peu le contact, et avant que tu ne t’embrouilles dans tes propres pensées, je te dis au revoir.
 
 Ton vrai frère Jean, avec Amour.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

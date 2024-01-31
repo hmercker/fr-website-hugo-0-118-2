@@ -24,3 +24,8 @@ Eh bien, je me rends compte que je me suis quelque peu écarté de l'intention p
 Ainsi, mes chers collègues, nous sommes heureux qu'une autre personne se joigne à nous, et nous attendons avec impatience les jours à venir, lorsque notre nombre augmentera à pas de géant. Avec votre aide et toutes nos propres forces Célestes, si Dieu le veut, ce temps ne sera pas long à venir.
 
 Que Dieu vous bénisse tous est le souhait et la prière d'adieu de votre frère et ami, Jésus.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -19,3 +19,8 @@ François.
 <small>
 
 1. <large id="f1">  **François de Salignac de La Mothe-Fénelon, dit couramment Fénelon**, est un homme d'Église, théologien, pédagogue et écrivain français, né le 6 Août 1651 au château de Fénelon à Sainte-Mondane (Quercy, aujourd'hui la Dordogne) et mort le 7 Janvier 1715 à Cambrai.  (Source : Wikipéda).[↩](#a1)
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

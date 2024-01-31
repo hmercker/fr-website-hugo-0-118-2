@@ -36,3 +36,8 @@ Vous n'aurez plus besoin d'être sur la défensive pour défendre votre point de
 Je vous laisse donc sur ces quelques réflexions, en espérant qu'elles vous donneront une direction claire sur les moyens d'exercer vos volontés pour vous aligner davantage sur la volonté du Père. Et comme résultat de cet effort, vous trouverez une plus grande paix, et la joie sera au rendez-vous dans vos échanges quotidiens avec les autres.
 
 Je suis votre ami et votre frère en Esprit, Jésus de la Bible, et Maître des Cieux Célestes
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,8 @@ Vous ne vous rendez pas compte de l'utilité pour les autres du fait même que l
 Le saviez-vous, mes amis ? Le saviez-vous ? Que vous aidez ceux avec qui vous entrez en contact même si vous ne leur dites pas un mot. Vous nous avez entendu dire que votre lumière brillera dans l'Univers. Cette lumière dont nous parlons est une force vivante et une force vitale, une force pénétrante. C'est la lumière de Dieu qui éclaire le monde à travers vous mes amis et vous trouverez des gens qui désirent être proches de vous. Ils ne comprennent pas pourquoi. Ils désirent être en votre compagnie ou simplement entrer en contact avec vous et ni vous ni eux n'en comprennent la raison. Mais la raison est qu'ils ressentent les émanations qui viennent de vous. L'Amour de Dieu dans vos âmes qui vient de vous, l'Amour de Dieu dans vos âmes émane de vous et apporte aux autres la lumière et la paix. Alors mes chers, continuez dans votre progression et pensez aussi à prier pour nous qui vous aimons et vous guidons afin que nous puissions avoir un rapport étroit et travailler étroitement et avec amour les uns avec les autres.
 
 Que Dieu vous bénisse mes amis, que Dieu soit avec vous et que vous soyez conscients de Son amour qui coule dans vos âmes chaque jour, tout au long de la journée, pensez à l'Amour de Dieu qui coule dans vos âmes. Bonne nuit mes amis.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

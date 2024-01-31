@@ -20,3 +20,8 @@ Devenez forts, mes petits, afin que je puisse vous envoyer dans le monde entier 
 Oh, mes petits, la Terre connaît une grande famine et la sécheresse est là depuis longtemps ; et qui enverrai-je pour aider mes frères et mes sœurs. Qui se préparera à la grande tâche à accomplir, qui recevra de l'Amour du Père qu'il puisse se retourner et apporter de l'eau à ceux qui ont soif ?
 
 Venez mes enfants, devenez forts dans votre amour les uns pour les autres, dans votre amour pour Dieu et dans votre amour pour votre prochain. Mes petits-enfants, comme mon amour est grand pour vous.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,8 @@ Sois calme et aie la foi, tu recevras ce que tu demandes. Car tu as choisi libre
 En terminant je te dirai que de nombreux esprits viendront à toi pour te donner l’aide dont tu as besoin, car le Maître juge bon de te la concéder.
 
 Ton frère dans la foi, Jean.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

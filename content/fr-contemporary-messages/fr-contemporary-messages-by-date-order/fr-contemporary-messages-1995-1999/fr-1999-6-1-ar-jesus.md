@@ -442,3 +442,8 @@ T<u>ous</u> : Oh, nous vous aimons aussi !
 *[<u>Dave</u> : Et nous aimons tous les esprits. Que Dieu vous bénisse tous d’être venus aujourd’hui. Je vous remercie. Amen, amen. Et que Dieu bénisse notre merveilleux Médium (applaudissements tout autour). Merci. Vous ne nous avez jamais laissé tomber.]*
 
 *[Fin de la séance de transe.]*
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

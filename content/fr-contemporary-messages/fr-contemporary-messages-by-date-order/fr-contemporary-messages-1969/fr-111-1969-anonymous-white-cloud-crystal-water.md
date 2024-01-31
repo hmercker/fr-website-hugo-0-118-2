@@ -32,3 +32,7 @@ L'homme d'aujourd'hui, avec toutes ses richesses, dont il pense qu'elles lui app
 Moi, mes amis, je vous parle en tant que frère utilisant votre langue et pourtant, il n'y a pas tant d'années, certains ici peuvent vous dire que je ne parlais qu'un anglais très pauvre, mais grâce à l'amour de certains assis ici ce soir et au désir que je progresse, je vous parle comme votre égal. Seul l'amour a fait cela.
 
 Si l'amour de vos cœurs peut faire cela pour moi, que peut faire l'amour de Dieu dans vos âmes pour vous, mes amis. Pensez à mes paroles. Je vous bénis, je vous apporte la guérison et je prie pour vous. Que Dieu vous bénisse toujours, mes amis.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>

@@ -20,3 +20,8 @@ Ma demande n'a pas été vaine et votre demande aussi, mes amis, n'est pas vaine
 Vous pouvez aussi recevoir comme j'ai reçu. Ainsi, vous pouvez vous avancer librement, accepter ce qui vous appartient et l'utiliser en sachant que le pouvoir qui est à votre disposition est sans limite. Il n'y a donc aucune raison pour que chacun d'entre vous ne puisse pas changer son monde et, en servant son prochain, il servira également notre Père. De cette façon, vous progresserez comme j'ai progressé vers des sphères de vie plus élevées et la joie et le bonheur qui sont les miens pourront être les vôtres.
 
 Ainsi, mes amis, puisez dans la Fontaine le pouvoir et l'amour. Car il n'y a pas de limite à ce que vous pouvez faire ici sur votre Terre. Combien grande est votre opportunité de servir. Sachez d'où vient votre pouvoir. Sachez, pensez, et immergez la pensée dans la connaissance profondément en vous et avancez librement et sachez que le succès est vôtre. Je reviendrai pour vous rendre visite et pour partager l'affection des uns avec les autres.
+
+[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,8 @@ Je suis donc très anxieuse et intéressée à venir une fois de plus sur Terre,
 Je suis heureuse de voir la progression de ce groupe, car mes espoirs sont renforcés et je suis heureuse de penser que le temps n'est peut-être pas si éloigné où je pourrai revenir vers vous comme je l'étais lorsque j'étais une jeune femme sur Terre. Intéressant pour moi et intéressant aussi pour l'humanité. Il y a beaucoup d'Égyptiens qui ont atteint les sphères Célestes et qui travaillent sans cesse pour aider leur pays, notre pays l'Égypte. Nous essayons très fort d'aider le dirigeant de la nation, mais il n'est pas facile de pénétrer dans le pays. Je me réjouis donc de ce cadeau et je vous remercie pour les efforts que vous avez déployés pour renforcer le développement de votre âme et pour les désirs que vous avez exprimés et qui sont remontés jusqu'à nous et jusqu'à Dieu.
 
 Je vous remercie et je vous suis reconnaissante d'avoir fait cela pour nous aider. Je vous remercie de m'avoir permis de venir ce soir et de m'avoir laissé parler. Je veux revenir bientôt, mais je désire venir avec la Voix Directe et la matérialisation. Alors, s'il vous plaît, continuez dans vos efforts et dans votre désir de l'Amour Divin et de la voix directe. Bonne nuit mes amis, que Dieu vous bénisse tous, bonne nuit.
+
+[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,8 @@ C’est le pur désir, de devenir en un seul instant parfait, un individu dans l
 Alors, en mon temps, qu’il soit possible que Tu ouvres à nouveau mes yeux pour Te voir et que, dans cet Amour, parfait et Divin, seul accomplissement de cet enfant exalté, Ton fils, Ta fille, le joyau de Ton cœur, se rencontrent dans les canyons des étoiles.
 
 J’aime comme cette grande musique qui chante dans mon cœur et dans ma peau. Avec Ton Amour, laisse-moi éclairer le reste de mes jours. Que Dieu m’aide à T’aimer comme Tu m’aimes pour que j’aime le monde.
+
+[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

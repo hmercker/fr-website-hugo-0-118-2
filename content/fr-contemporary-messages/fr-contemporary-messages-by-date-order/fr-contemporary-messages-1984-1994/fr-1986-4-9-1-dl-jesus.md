@@ -22,3 +22,8 @@ Je voudrais dire en terminant que nous sommes tous avec vous et avec les autres 
 Vous avez bien réussi cette première communication. Je vous laisse maintenant avec mes prières afin que vous continuiez à réussir dans le travail qui vous attend.
 
 Je suis le Jésus de la Bible et Maître des Cieux Célestes.
+
+[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+<br>
+<br>
+[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
