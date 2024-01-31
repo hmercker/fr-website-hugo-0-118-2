@@ -31,5 +31,7 @@ Je suis Joseph, le père de Jésus – le père du prophète, Joseph d’Arimath
 
 2. <large id="f2"> Ce message n’a pas été reçu aussi clairement qu’il aurait pu l’être. je pense qu’il est dit que Joseph le père de Jésus a utilisé la couverture de « Joseph d’Arimathie » afin de pouvoir récupérer et enterrer son fils. Nous avons un autre message de Joseph communiqué [le 06 Février 2000](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph/) qui confirme cette déclaration.[↩](#a2)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
-
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+<br>
+<br>
+###[**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

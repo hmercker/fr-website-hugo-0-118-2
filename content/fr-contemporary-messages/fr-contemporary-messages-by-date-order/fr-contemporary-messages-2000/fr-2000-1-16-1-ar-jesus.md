@@ -32,9 +32,9 @@ Je suis votre frère et votre ami, Jésus de la Bible et Maître des cieux céle
 
 1. <large id="f1"> Plusieurs autres messages sur le sujet du suicide ont été communiqués [le 05 Octobre 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/), [le 09 Décembre 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-9-1-hr-judas/) et [le 25 Février 2021](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-25-1-af-jesus/) sur le  thème du suicide. .[↩](#a1)
 
-###[**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
 <br>
 <br>
-###[**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 
 

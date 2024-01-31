@@ -45,5 +45,7 @@ Ce genre de carton de couleur grenat, était un symbole de billets de voyage, et
 
 Quant au stylo, il devait faire des papiers importants. Déguster un verre, en regardant les gens passer, symbolise qu’il aimait méditer, et qu’il aimait connaître les gens à fond. Il ne faisait pas un pas sans être sûr. Je peux te dire qu’il y a d’autres caractéristiques, qui étaient simplement l’objet de tes propres pensées mêlées à celles des deux esprits.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
-
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+<br>
+<br>
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

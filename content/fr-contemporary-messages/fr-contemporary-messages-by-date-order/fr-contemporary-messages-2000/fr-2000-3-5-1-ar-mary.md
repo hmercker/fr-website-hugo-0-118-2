@@ -25,5 +25,7 @@ Je vous aime et j’espère que vous trouverez un certain réconfort dans ce mes
 
 Je suis votre sœur dans le Christ, Marie la mère de Jésus et votre amie et guide dans l’Amour Divin.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
-
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+<br>
+<br>
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
