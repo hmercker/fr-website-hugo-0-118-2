@@ -19,7 +19,9 @@ Mon souhait pour vous est de désirer les choses les plus élevées, celles qui 
 
 Vous trouverez une amitié avec nous qui sommes esprits et il n'y aura pas de déception dans cette relation. Elle est au-dessus du plan terrestre. Elle est au-dessus de la connaissance et de la compréhension que vous possédez. Ainsi, la fondation sur laquelle vous construisez sera sûre et votre bonheur sera sûr, et toutes les bonnes choses viendront à vous. Vous répandrez à votre tour l'amour et la vérité à vos semblables. Vous n'aurez pas les barrières de la haine et du ressentiment. Elles seront remplacées par la compréhension et l'amour, car vous vous souviendrez que vous-mêmes avez autrefois marché dans les ténèbres. Maintenant, vous marchez sur le chemin de la lumière et je suis heureux. Je suis heureux de voir vos progrès et je veux que vous soyez conscients que nous, en esprit, vous aimons et vous guidons. Nous vous imprégnons de nos pensées d'amour et nous vous aidons. Mes chers enfants et mes chers amis, je prie pour vous mais priez les uns pour les autres. Construisez entre vous un lien d'amour, de fraternité et d'amitié. Aimez-vous les uns les autres et soyez loyaux les uns envers les autres. Renforcez ce lien entre vous. Bonne nuit mes amis.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

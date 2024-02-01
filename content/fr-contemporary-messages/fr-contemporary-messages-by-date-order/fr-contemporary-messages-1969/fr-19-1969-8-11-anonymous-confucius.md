@@ -17,7 +17,9 @@ Car Dieu ne vous envoie pas des enseignants pour que d'autres enfants soient aff
 
 Je vous parle franchement. Car avec chaque don vient la responsabilité de l'utilisation correcte et adéquate de ce don. Et il vaudrait mieux pour vous que vous n'ayez jamais entendu ces paroles de Vérité, si vous ne désirez pas suivre le plan que Dieu vous a révélé. Je vous invite à méditer sur la condition des nations aujourd'hui. Vous avez la possibilité de prendre connaissance des nouvelles qui circulent dans le monde. Vous n'ignorez pas les besoins des autres peuples des autres nations. Et les bougies que vous allumez allumeront d'autres bougies. Je ne dis pas que vous devez aller dans d'autres pays pour enseigner mais je dis que les vérités que vous donnez aux autres, elles se répandront à leur tour. Je veux que vous sachiez que j'ai un grand amour pour vous tous. Notre amour est plus grand que votre compréhension, notre amour est disponible pour vous et nous, de l'esprit, désirons que vous nous demandiez la protection et cet amour. Car c'est la volonté et le désir de Dieu que vous ayez cet amour pour vous entourer et vous aider dans votre vie jour après jour afin que vous soyez renforcés et que vous puissiez vous développer et être utilisés comme des instruments pour faire le travail de Dieu sur ce plan terrestre. Je n'en dirai pas plus ce soir. Que Dieu vous bénisse tous et bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

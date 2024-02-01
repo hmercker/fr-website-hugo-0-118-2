@@ -17,7 +17,9 @@ Si les âmes recherchaient l'Amour de Dieu, il ne leur serait pas difficile d'ai
 
 Si vous pouviez réaliser cela, vos vies feraient l'objet d'un si grand changement. Car en vérité, vous deviendrez comme une nouvelle créature. Au fur et à mesure que cet amour grandit dans chaque âme et que chaque âme se transforme en cette partie du Père qui est capable de transformer l'homme en ange. Je peux voir comment vos vies vont changer. Vous serez de moins en moins humains. Comment cet Amour pourrait circuler à travers vous pour aider vos frères, vos sœurs. Ceux qui voient la lumière sur leur chemin, ceux qui aspirent à mieux connaître Dieu. Ceux qui cherchent à mieux comprendre et pourquoi pas vous ? Vous êtes un homme. Vous êtes une femme et Dieu utilise les individus. Il n'y a pas de différence entre nous. Nous acceptons parce que cela nous est donné, et vous aussi vous avez ce privilège, cette merveilleuse opportunité de recevoir l'Amour de Dieu et l'Amour de Dieu s'écoule à travers vous dans le monde entier. Mes frères et sœurs, laissez vos pensées se tourner vers Dieu. Jean.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,7 +17,10 @@ Lorsque quelqu'un reçoit ces vérités et les vit, il émane de vous un rayonne
 
 Dieu aime tous ses enfants. Il aime tout ce qui a été créé et vous devez le faire aussi. Soyez renouvelés par cette essence mes enfants et que Dieu vous bénisse toujours. Réalisez que l'homme n'a pas le pouvoir, sans cette compréhension, d'apporter la paix sur la Terre. Lorsque cet amour coule dans vos âmes, il n'y a pas de place pour la cupidité, l'envie et le désir de pouvoir, et lorsque tous les hommes sur Terre désireront cette grande compréhension et cet amour, lorsque l'homme sera prêt à aider son prochain, alors la paix viendra vraiment sur votre Terre, et l'homme connaîtra le Paradis sur Terre. Que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

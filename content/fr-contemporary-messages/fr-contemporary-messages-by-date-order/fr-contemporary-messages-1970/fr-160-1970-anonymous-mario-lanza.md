@@ -21,7 +21,9 @@ Comme j'ai été désolé pour ma vie terrestre. Il est triste de ne pas apprend
 
 La meilleure façon d'enseigner quelque chose à quelqu'un est d'être un exemple de ce que l'enseignement a fait pour vous. On ne peut pas vraiment enseigner à autrui si l'on n'a pas soi-même la connaissance. Mais avoir cette connaissance et cette conscience et ne pas la vivre est vraiment triste, mes amis. Ce soir, je ne prendrai pas plus de votre temps, mais je vous remercie de m'avoir donné l'occasion de vous parler et de vous dire qu'il me sera permis de venir à vous de temps en temps et qu'une fois encore, vous entendrez ma voix directement. Que Dieu vous bénisse tous. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

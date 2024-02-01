@@ -19,7 +19,9 @@ Je souhaite que vous sachiez que ces dons seront ajoutés à chacun de vous, mai
 
 Vous voyez la grandeur de la tâche et vous comprenez pourquoi tant d'esprits merveilleux ont consacré leur temps et leur pouvoir pour parvenir à cette fin et vous voyez aussi le rôle important qu'il vous a été demandé de jouer - car en vérité votre travail est grand et les ouvriers sont si peu nombreux. Nous prions Dieu qu'il y ait beaucoup d'ouvriers qui soient disposés et désireux de consacrer leur temps à s'asseoir et à développer ce grand et merveilleux don que Dieu a déjà accordé et qui est Son désir pour l'humanité. Tout ce dont nous avons besoin, c'est que ce groupe désire progresser dans le développement de l'âme et donne de son pouvoir et de son temps pour que ce don puisse être mené à bien. Merci, mes chers amis et enfants. Nous nous reverrons souvent dans les temps à venir et je serai ici de nombreuses fois lorsque vous ne serez pas conscients de ma présence, car je travaillerai très étroitement avec ce groupe et en particulier avec cet instrument et, également, avec vous qui êtes assis à côté d'elle. Je veillerai à ce qu'ils reçoivent les conseils et les instructions appropriés et qu'ils soient maintenus sur la voie qui sera bénéfique à toute l'humanité. Que l'Amour de Dieu repose sur chacun de vous et que Ses bénédictions soient sur vous tous, sur vos enfants et sur les enfants de vos enfants. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

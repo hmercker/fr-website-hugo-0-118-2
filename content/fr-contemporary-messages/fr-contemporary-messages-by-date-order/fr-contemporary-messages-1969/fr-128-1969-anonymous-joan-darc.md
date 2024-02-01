@@ -23,6 +23,9 @@ De nombreux dirigeants sont tellement occupés qu'ils ne prennent pas le temps d
 
 Ne pensez pas que nous venons à vous pour vous parler sans rien faire. J'ai déjà mené une croisade et j'espère et je prie pour que Dieu me laisse vous aider à mener la vôtre. Bonne nuit et que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

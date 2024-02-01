@@ -21,7 +21,9 @@ Je veux simplement dire que Dieu aime tous les hommes, qu'ils soient saints ou s
 
 C'est la raison pour laquelle il vous appartient de maintenir vos âmes dans une condition telle que vous puissiez être réceptifs à ces stimulations qui sont en vous. C'est alors une chose simple que l'Amour de Dieu remplisse vos âmes et que vous puissiez prendre conscience de la présence constante de Dieu, le Père, en vous et d'une plus proche et plus grande union avec Dieu. Car tout pouvoir est tiré de la Source. Il n'y a pas d'autre pouvoir que celui de Dieu. Et vous utilisez la puissance de Dieu, que ce soit pour le bien ou pour le mal, c'est à vous de choisir et de décider. Mais vous serez appelé à rendre compte de cette utilisation de la puissance de Dieu. Ainsi, lorsque vous recevez de la Source, assurez-vous que votre utilisation de la puissance de Dieu est à des fins constructives. Ainsi, vous pourrez vivre heureux et en bonne santé pour toute l'éternité. Je prie Dieu pour qu'Il vous apporte ce Grand Amour et que vos âmes, même maintenant, en cet instant, n'aient qu'à demander, à recevoir. Vous devez seulement désirer que ce cadeau vous soit donné et Dieu le fera car Il a un grand amour pour vous, Ses enfants et Son Amour ne vous sera jamais enlevé. Je ne fatiguerai pas davantage cet instrument et je vous remercie mes frères et sœurs pour cette opportunité.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

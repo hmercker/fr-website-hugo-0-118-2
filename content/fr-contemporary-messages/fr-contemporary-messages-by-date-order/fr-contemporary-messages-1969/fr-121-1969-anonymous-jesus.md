@@ -29,7 +29,9 @@ Ne vous découragez pas, mes enfants. Beaucoup d'entre vous ici ce soir vivront 
 
 Oh, Père, bénis ces enfants, apporte Ton Amour au milieu d'eux et apporte la paix dans leurs âmes. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

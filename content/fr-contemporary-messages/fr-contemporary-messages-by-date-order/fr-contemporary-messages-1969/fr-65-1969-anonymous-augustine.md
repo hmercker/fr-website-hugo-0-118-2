@@ -21,7 +21,9 @@ Soyez fidèles et sincères. C'est tellement important et vous verrez qu'en vous
 
 Partout sur votre plan terrestre, il y a des groupes qui se forment, de toutes les races et de toutes les croyances et de nombreux chefs d'État, ainsi mes enfants, vous pouvez voir l'ampleur de ce travail. Il y a des groupes qui ont été impressionnés pour s'asseoir, certains sont des chefs d'église, souvenez-vous en. Malheureusement, beaucoup sont contrôlés et ne peuvent pas encore venir au grand jour. Mais dans le futur, bientôt, il y aura des révélations données à l'homme et alors tous ceux qui sont préparés seront prêts à travailler. Ainsi, je bénis chacun d'entre vous ici et je vous dis, passez de bonnes vacances cet été et revenez à l'automne renforcés pour le travail qui vous attend cet hiver. Que Dieu vous bénisse. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

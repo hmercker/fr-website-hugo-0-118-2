@@ -19,7 +19,9 @@ Celles qui aspirent aux eaux pures de la vérité et de la lumière. Ceux qui se
 
 Marie est venue ce soir, et elle est avec nous maintenant. Elle regarde chacun de vous comme une mère regarde ses enfants. L'amour de son âme est très grand et son amour pour vous est très grand. Elle vous bénit de son amour. Car l'Amour Divin qu'elle a reçu du Père et de son âme va vers chacun de vous. Car elle voit le chemin que vous parcourez, tout comme moi. Oui, mes amis, nous vous avons donné la clé. Nous vous avons donné toutes les opportunités que chacun de vous, en tant qu'individu, doit choisir. Venez, venez à la Lumière. Détournez vos yeux des ténèbres, tournez vos âmes vers la lumière et la vie éternelle, la santé et le bonheur, et toutes ces choses vous sont données gratuitement. C'est notre désir que tous ces cadeaux soient vôtres. Vous ne devez pas être pauvres de corps, d'esprit ou d'âme. Ainsi, mes amis, tout cadeau bon et parfait est donné gratuitement à ceux qui le cherchent. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

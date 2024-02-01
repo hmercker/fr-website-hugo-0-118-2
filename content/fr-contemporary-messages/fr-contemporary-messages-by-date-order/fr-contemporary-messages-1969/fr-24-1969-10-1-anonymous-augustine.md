@@ -15,7 +15,9 @@ Je suis déçu de devoir venir ce soir, puisque Samuel était ici pour donner un
 
 Il y a certaines choses qui sont nécessaires. Nous devons les avoir. C'est obligatoire pour la voix directe. D'abord, nous travaillons pour le développement de l'âme, ensuite pour la voix directe. Mais si vous ne vous préparez pas avant de venir dans ces groupes et que vos pensées ne sont pas spirituelles, vous ne faites rien d'autre que de freiner la progression de tout le groupe et de le retarder de plusieurs mois. Ce n'est pas juste pour vous et ce n'est pas juste pour les autres membres du groupe. Formez plutôt pour vous-mêmes un second groupe dont le but est de discuter afin que vous puissiez comprendre les règles de base et les leçons de base que chacun peut recevoir à son propre niveau de progression. Il n'y a aucun intérêt à ce que notre travail soit entravé de cette manière.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

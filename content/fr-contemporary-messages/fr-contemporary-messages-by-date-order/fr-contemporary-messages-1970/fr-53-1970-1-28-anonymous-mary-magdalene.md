@@ -21,7 +21,9 @@ Le saviez-vous, mes amis ? Le saviez-vous ? Que vous aidez ceux avec qui vous en
 
 Que Dieu vous bénisse mes amis, que Dieu soit avec vous et que vous soyez conscients de Son amour qui coule dans vos âmes chaque jour, tout au long de la journée, pensez à l'Amour de Dieu qui coule dans vos âmes. Bonne nuit mes amis.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

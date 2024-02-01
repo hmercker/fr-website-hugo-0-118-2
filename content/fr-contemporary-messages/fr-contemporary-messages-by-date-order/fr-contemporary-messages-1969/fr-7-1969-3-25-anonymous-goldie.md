@@ -15,7 +15,9 @@ Je suis très heureux de vous voir vous asseoir pour le développement de l'âme
 
 Je veux que vous sachiez que j'ai un profond intérêt pour chacun d'entre vous et pour le travail que vous pourrez accomplir dans les années à venir. Et donc, mes chers amis, je veux que vous sachiez combien vous êtes aimés par nous en esprit, que vous recconnaissiez le soin, la dévotion que nous vous accordons et l'amour dont nous vous entourons. Nous avons de grandes perspectives en réserve pour vous. Il y a une grande lumière et un grand bonheur en réserve pour chacun d'entre vous. Alors, continuez à chercher. Continuez sur le chemin sur lequel vous êtes maintenant, car c'est le chemin qui mène à la vérité. Beaucoup d'âmes cherchent la vérité et beaucoup d'âmes trébuchent dans l'erreur sur ce chemin long et étroit, alors je vous dis : restez sur ce chemin et nous vous conduirons et nous vous guiderons et nous vous aimerons. Aucun de vous ne doit se sentir seul, car aucun de vous n'est seul. Aucun d'entre vous ne doit se sentir mal car chacun d'entre vous a à tout moment quelqu'un avec lui. Et si vous voulez bien calmer vos cœurs, vous serez conscients de notre présence et de l'amour que nous apportons à chacun de vous. Nous avons un grand pouvoir, nous, les esprits, ne sous-estimez pas nos capacités. Nous avons aussi un grand amour. Il est important pour vous de savoir que nous vous aimons et que nous nous soucions de vous. Et donc, je suis venu ce soir pour vous parler.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

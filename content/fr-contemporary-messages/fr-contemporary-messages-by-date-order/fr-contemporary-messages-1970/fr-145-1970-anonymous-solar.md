@@ -19,7 +19,9 @@ Nous savons que vous comprenez, mes amis, ce que le Divin Amour de Dieu peut fai
 
 Toute notre vie a été consacrée au développement de l'âme et, bien que nous réalisions que vous, qui êtes sous forme humaine, ne pouvez pas vous retirer entièrement des conditions terrestres, nous venons vous dire à quel point la croissance de l'âme est importante pour vous, non seulement mes amis pour votre propre bonheur et votre progression, mais aussi à quel point elle sera et est nécessaire lorsque l'on consacre sa vie à travailler pour Dieu. L'Amour de Dieu est la seule chose, mes amis, qui peut apporter le vrai bonheur et la paix sur la Terre. C'est la seule chose qui amène une âme à la lumière et au bonheur dans les sphères supérieures de la vie et c'est pourquoi, avec beaucoup d'autres, je me rapproche de vous pour vous bénir et vous encourager et pour former une telle proximité et un tel lien d'affection et, avec le temps, construire une telle force entre nous qu'en allant de l'avant ensemble, nous réussirons mieux la mission qui est prévue pour chacun d'entre vous. Je vous laisse maintenant et je demande à Dieu de vous bénir dans tout ce que vous ferez, mes amis. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

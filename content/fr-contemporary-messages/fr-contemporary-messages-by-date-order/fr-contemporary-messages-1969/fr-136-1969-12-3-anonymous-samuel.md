@@ -25,8 +25,9 @@ Alors, mes enfants, vous m'êtes très chers. Vous voyez combien il est importan
 
 Mais peu de personnes dans votre belle ville et dans le monde ont cette connaissance, cette grande connaissance, cette grande vérité, la plus grande connaissance dans toute l'éternité et dans tout l'univers. Si le temps que vous passez à penser aux effets du péché était consacré à l'enseignement de l'Amour Divin de Dieu, quel plus grand bien serait accompli, mes enfants. Car en vous, oui, en chacun de vous ici, il y a l'Amour transformateur de Dieu. Alors enseignez à votre prochain ces simples vérités de Dieu afin que les bénédictions que vous recevez, votre prochain puisse aussi les recevoir. L'amour que nous vous apportons, nous pouvons aussi le leur apporter. Que Dieu vous bénisse, mes enfants.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

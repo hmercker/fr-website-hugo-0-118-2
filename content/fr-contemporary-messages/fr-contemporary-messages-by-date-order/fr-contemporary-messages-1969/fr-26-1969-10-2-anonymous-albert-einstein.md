@@ -15,7 +15,9 @@ C'est très intéressant de revenir sur Terre. Je ne suis pas très sûr de moi 
 
 Je veux que vous sachiez tous que je ne veux pas que l'un d'entre vous se sente désolé si l'un de ses proches venait à mourir, parce qu'il a tellement de chance de venir vivre dans ce monde merveilleux où la joie et le bonheur sont écrasants. Je n'ai jamais su sur Terre que ce bonheur était possible. J'apprécie tellement mon travail et les plaisirs que j'ai ici. J'ai encore beaucoup de travail à faire pour m'habituer à une personne comme celle-ci. C'est très différent. Mais j'aime venir et j'aime parler à de vieux amis à nouveau. Avec vous qui ne m'avez jamais connu, c'est aimable de votre part de me permettre d'entrer dans votre maison et de m'accueillir avec amour alors que je suis un étranger pour vous. Il y a tant de beaux esprits ici et ils sont si brillants. Ils doivent venir de très hauts lieux et ils se tiennent autour de vous et déversent leur amour sur vous. Je sais que vous ne pouvez pas les voir parce que je ne pouvais pas les voir lorsque j'étais sur Terre et pourtant je vois si clairement maintenant. Merci, je dois y aller.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

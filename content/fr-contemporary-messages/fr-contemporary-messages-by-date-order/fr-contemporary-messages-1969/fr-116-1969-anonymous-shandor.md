@@ -21,7 +21,9 @@ Vos êtres mêmes seront comme un aimant attirant vers vous toutes les choses qu
 
 C'est si merveilleux mes amis. Je sens chez chacun d'entre vous ici un désir de sagesse, une plus grande compréhension. Quand nous avons l'occasion d'aider les autres et de faire le travail de Dieu sur Terre, c'est merveilleux pour la progression de votre âme, c'est le secret de la vie, trouver le bonheur, trouver le chemin vers Dieu, être capable de toucher la Source de votre création, trouver le renouveau, devenir fort et sage, c'est le secret même de la raison pour laquelle la vie vous est donnée la vie sur Terre. Vous ne parcourez le chemin de la vie terrestre qu'une seule fois. Il n'y a pas de retour possible, alors mes amis, pendant que vous êtes ici, profitez au maximum de l'opportunité que Dieu vous a donnée. Que Dieu vous bénisse et que vous connaissiez une grande joie et un grand bonheur, et quand vous arriverez à la fin de la vie terrestre, nous vous attendrons.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

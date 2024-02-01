@@ -19,7 +19,9 @@ Ainsi, alors que je me tiens devant vous ce soir, j'apporte la lumière avec moi
 
 Je vous demande donc, surtout à ceux d'entre vous qui sont intéressés par la partie scientifique de la vie, d'étudier, de lire et de vous préparer. Demandez des conseils et la bénédiction de notre Père qui est aux Cieux. Que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

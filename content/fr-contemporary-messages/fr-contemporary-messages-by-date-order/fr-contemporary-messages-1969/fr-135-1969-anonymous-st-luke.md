@@ -17,7 +17,9 @@ Je me tiens ici depuis l'ouverture de la réunion, apportant la guérison à bea
 
 Ainsi, mes amis, nous venons à vous pour vous bénir et vous encourager et pour vous dire qu'il n'y a qu'un seul chemin vers la santé et c'est Dieu. Dieu est la source de tous les besoins de l'homme. Vous qui ressentez parfois le malheur, la maladie, rentrez en vous-mêmes, mes amis et cherchez et vous découvrirez que d'une certaine manière vous ne vous êtes pas assez rapprochés de Dieu. Soyez bénis, mes enfants.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

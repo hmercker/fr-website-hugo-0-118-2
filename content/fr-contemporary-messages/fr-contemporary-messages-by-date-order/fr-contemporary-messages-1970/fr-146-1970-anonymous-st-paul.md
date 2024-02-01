@@ -20,7 +20,9 @@ C'est l'occupation la plus satisfaisante qu'une âme puisse avoir et vous qui vi
 
 Je demande à Dieu de vous bénir et de vous garder et qu'une grande paix vienne à vous mes enfants et que vous soyez tellement renouvelés par l'Essence de Dieu que vous serez si revigorés et sages que tous les sens de votre être réclameront plus de champs à travailler. Mes enfants, c'est tellement important pour tous les peuples de la Terre aujourd'hui. Je reviendrai vers vous, mes amis. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

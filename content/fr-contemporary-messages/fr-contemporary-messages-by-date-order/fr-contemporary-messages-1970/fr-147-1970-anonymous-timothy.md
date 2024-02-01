@@ -17,7 +17,9 @@ Je ne suis ici ce soir que pour vous parler un court moment, ma mission en venan
 
 Dieu bénit tous ceux qui prient, alors je vous dis, prenez toujours le temps de prier et de sentir la réponse à vos prières. Que Dieu vous bénisse, mes enfants.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,7 +21,9 @@ Alors que je me tiens ici ce soir en train de vous parler, voyant le merveilleux
 
 Dieu vous bénisse et nous avons toute la patience et nous sommes toujours trop heureux d'avoir l'occasion de venir ici. C'est notre travail de sentir et de connaître vos désirs. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -19,7 +19,9 @@ L'habitude peut être une chose puissante et nous savons que cela demande un eff
 
 Personne ne peut progresser à votre place et personne ne peut vous enlever vos progrès. Je vous ai apporté une grande vérité ce soir. Lorsque j'exprime une vérité mais que je ne vis pas en accord avec elle, cela est inutile. C'est seulement lorsque ces vérités sont acceptées et deviennent une partie de notre être, de sorte qu'elles deviennent une seconde nature pour nous, que ces vérités deviennent des choses vivantes en nous et que ces vérités ajoutent à notre progrès les autres peuvent vous trouver étranges, rappelez-vous ceci, mes amis, personne ne peut progresser pour vous et personne ne peut vous enlever vos progrès. Keea.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

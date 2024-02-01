@@ -17,7 +17,9 @@ Alors que je me tiens avec vous, notre Maître bien-aimé se rapproche de vous e
 
 Dans les temps à venir pour vous tous, vous découvrirez que chacun d'entre vous sera appelé à de nombreuses lieux de ce plan terrestre. Ceci, pour vous ce soir, peut vous sembler impossible, mes enfants, mais vous découvrirez que les plans que nous avons pour vous vous emmèneront partout sur cette planète Terre et beaucoup de ceux qui ne sont pas ici ce soir seront liés à vous. Chacun d'entre vous sera fortement guidé par l'esprit. Si vous êtes prêts à suivre cette guidance, la connaissance et la sagesse que vous avez acquises seront données à tous les peuples à travers vous. Nous viendrons comme nous le faisons ce soir pour vous demander de vous préparer à ce travail et de réaliser que le plus grand bonheur de tous est de travailler pour les autres et de leur enseigner les lois de Dieu. Que Dieu bénisse toujours chacun de vous, que vous receviez en abondance tout ce que vous désirez et que votre plus grand désir soit l'Amour Divin de Dieu dans votre âme. Soyez bénis, mes enfants.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

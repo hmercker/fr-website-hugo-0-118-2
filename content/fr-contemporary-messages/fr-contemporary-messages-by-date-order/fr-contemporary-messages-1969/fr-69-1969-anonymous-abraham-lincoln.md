@@ -21,7 +21,9 @@ Vous pouvez aussi recevoir comme j'ai reçu. Ainsi, vous pouvez vous avancer lib
 
 Ainsi, mes amis, puisez dans la Fontaine le pouvoir et l'amour. Car il n'y a pas de limite à ce que vous pouvez faire ici sur votre Terre. Combien grande est votre opportunité de servir. Sachez d'où vient votre pouvoir. Sachez, pensez, et immergez la pensée dans la connaissance profondément en vous et avancez librement et sachez que le succès est vôtre. Je reviendrai pour vous rendre visite et pour partager l'affection des uns avec les autres.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

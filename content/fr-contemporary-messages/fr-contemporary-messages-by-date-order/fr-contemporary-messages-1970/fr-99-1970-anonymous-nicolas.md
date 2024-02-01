@@ -17,7 +17,9 @@ Il y a des factions en Russie qui se rebellent contre les dirigeants. Comme vous
 
 Aucun bonheur et aucune sécurité ne peuvent venir dans un pays où il n'y a pas de Dieu et malheureusement, dans trop d'âmes et d'esprits, Dieu est exclu. Je me joins à l'appel de mon ami bien-aimé Gandhi, dont je n'avais pas trop conscience jusqu'à il y a quelques semaines, lorsque je suis venu m'asseoir avec vous dans votre groupe. Je me joins à lui et vous demande de prier pour ce jeune leader qui essaie si fort de surmonter tous les obstacles dans son propre pays, l'Amérique, et de travailler pour le bien de toute l'humanité dans tous les pays. J'espère que vous écouterez ce que j'ai dit, car je sais que la plus grande force vient de l'Amour de Dieu. Rien, ni personne ne peut abattre la force de l'amour de Dieu. Bonne nuit mes amis.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

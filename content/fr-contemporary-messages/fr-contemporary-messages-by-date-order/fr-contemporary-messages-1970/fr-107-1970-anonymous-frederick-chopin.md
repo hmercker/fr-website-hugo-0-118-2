@@ -21,7 +21,9 @@ Nous qui avons consacré notre vie à la musique, nous avons toujours un grand d
 
 Dieu vous bénit tous mes amis et j'ai grand espoir qu'un jour je pourrai vous jouer du piano lorsque cette âme merveilleuse sera prête à recevoir la voix directe. La condition qui lui est donnée pour apporter la voix directe apportera aussi des phénomènes, alors envoyez-lui de grandes pensées d'amour parce que c'est nécessaire pour nous de ce côté et lui envoyer beaucoup d'amour est très utile pour chacun de vous aussi. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

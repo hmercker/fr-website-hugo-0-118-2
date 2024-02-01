@@ -21,7 +21,9 @@ Au fur et à mesure que vous progresserez, vous entrerez en contact avec d'autre
 
 Il est triste et affligeant pour vous de la Terre et pour nous de l'esprit d'être témoins des enseignements qui sont enseignés à des enfants innocents et des enseignements qui conduisent ces petits sur le chemin de l'erreur et de la souffrance et ils enseignent à leur tour à leurs enfants ce qui leur a été enseigné et donc le joug doit être brisé et c'est un bon endroit pour commencer. Car il y a beaucoup d'enfants qui sont ici et je souhaite vous faire comprendre l'importance de former vos enfants dans la vérité. Ne dites jamais de mensonges à vos enfants, enseignez toujours la vérité à vos enfants car l'erreur que vous enseignez involontairement à vos petits reviendra à la maison et les conseils que vous inculquez à ces petits esprits resteront avec eux pendant de nombreuses années et il y a des âmes maintenant qui ont souffert pendant des centaines et je peux dire des milliers d'années à cause des erreurs qui leur ont été enseignées lorsqu'ils étaient enfants et il est difficile pour eux de surmonter ces croyances qui ont été inculquées dans leurs esprits même si les parents aiment ces enfants et donnent ce qu'ils pensent être juste pour leurs petits.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,8 +17,9 @@ Certaines de ces phrases ne sont pas vraies, mes amis, d'autres le sont et c'est
 
 C'est tellement nécessaire pour vous sur Terre, mes amis, que je viens avec beaucoup d'autres personnes parler à travers cet instrument pour la première fois et vous demander à tous de prendre le temps chaque jour de prier, de prier sincèrement pour être béni par Dieu. C'est le seul moyen pour l'homme sur Terre d'avoir tous ses besoins comblés, c'est le seul moyen pour vous de commencer le voyage de votre vie. Nous venons vous aider mes amis en vous apportant un grand amour et en nous joignant à vous lors de ces merveilleuses réunions. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

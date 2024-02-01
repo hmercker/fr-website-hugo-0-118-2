@@ -19,7 +19,9 @@ Soyez les humbles enfants de votre Père, préparez-vous, vous ne pouvez pas vou
 
 Que la paix et le bonheur vous accompagnent, que vos désirs soient comblés, que vos âmes soient heureuses et bénies par l'Amour de notre Père. Gardez la foi, surveillez la parole, surveillez vos pensées et soyez toujours aimables et aimants, mes chers, c'est important. Que vos vies soient richement bénies, bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -25,7 +25,9 @@ Votre vie terrestre est importante pour chacun d'entre vous. Vous construisez su
 
 Lorsque l'homme a appris à s'approcher de Dieu, la Source même de sa création, lorsqu'il a appris à prier et à recevoir le don de Dieu, il a trouvé le secret de la bonne vie et a vraiment commencé une base solide pour ce qui vient plus tard. Alors, je vous dis mes amis, préparez-vous et moi aussi je veux vous apporter mon amour et mes bénédictions car c'est seulement grâce à votre désir que je suis capable de venir et de vous parler, en utilisant une fois de plus la forme humaine. Que Dieu vous bénisse et bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -19,7 +19,9 @@ L'Amour de Dieu est la plus grande force qui soit et lorsque l'homme sur Terre, 
 
 Il n'y a pas de force plus grande que l'esprit de l'homme et lorsque l'esprit de l'homme est gouverné par la loi de Dieu. Lorsque l'esprit de l'homme demande l'amour ou la force de Dieu, alors tous les problèmes de la Terre sont résolus. La loi de la domination par la force, la force brutale, est révolue et lentement l'homme cherche à gouverner par l'amour. Bonne nuit et que Dieu vous bénisse mes amis.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

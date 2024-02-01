@@ -17,9 +17,13 @@ C'est une occasion merveilleuse d'être ici, mes amis, et d'ouvrir cette réunio
 
 Ceux qui ont étudié les lois de la communication et un groupe de très chères âmes qui n'ont que le désir de travailler pour ceux de la Terre une fois de plus, vous tous, qui êtes assis ici ce soir, avez attiré de nombreux enseignants et guides, ceux qui viennent à vous. Comme vous le savez, chacun d'entre vous a un groupe de quatorze personnes qui travaillent à travers vous. Je veux vous expliquer pendant que je me tiens ici, que beaucoup d'entre nous viennent et travaillent à travers un instrument et bien que nous travaillions dur à travers cet instrument chaque fois que l'occasion nous en est donnée, nous travaillons aussi dans d'autres sphères. Nous travaillons par l'intermédiaire d'autres instruments et parfois, des collaborateurs vous sont donnés pour travailler pendant une durée déterminée, dans un but précis, puis ils vous sont retirés pour travailler ailleurs.
 
-Nous ne voulons donc pas que vous ayez l'impression que nous vous abandonnons lorsque nous ne venons pas. Ce n'est pas le cas. Nous venons faire notre travail et lorsque notre travail est terminé avec votre groupe, ou avec vous, nous allons travailler avec d'autres. Nous sommes toujours prêts à venir travailler avec vous lorsque vous priez et que vous nous demandez. Il n'y a rien de tel que la prière, mes amis, pour nous attirer vers vous. Il en va de même pour vos désirs de renforcement, de sagesse, de plus grande connaissance. Vous devez prier sincèrement et demander cela et le moyen le plus sûr de recevoir l'Amour Divin de Dieu dans son âme est de vous préparer. Rendez vos âmes dignes de recevoir, puis priez et demandez. C'est le canal clair vers Dieu et c'est la seule façon dont vous pouvez nous appeler à venir à vous et à travailler avec vous, mes amis. Que Dieu vous bénisse tous.
+Nous ne voulons donc pas que vous ayez l'impression que nous vous abandonnons lorsque nous ne venons pas. Ce n'est pas le cas. Nous venons faire notre travail et lorsque notre travail est terminé avec votre groupe, ou avec vous, nous allons travailler avec d'autres. Nous sommes toujours prêts à venir travailler avec vous lorsque vous priez et que vous nous demandez. Il n'y a rien de tel que la prière, mes amis, pour nous attirer vers vous. Il en va de même pour vos désirs de renforcement, de sagesse, de plus grande connaissance. Vous devez prier sincèrement et demander cela et le moyen le plus sûr de recevoir l'Amour Divin de Dieu dans son âme est de vous préparer. Rendez vos âmes dignes de recevoir, puis priez et demandez. C'est le canal clair vers Dieu et c'est la seule façon dont vous pouvez nous appeler à venir à vous et à travailler avec vous, mes amis. *
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+Que Dieu vous bénisse tous.
+
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

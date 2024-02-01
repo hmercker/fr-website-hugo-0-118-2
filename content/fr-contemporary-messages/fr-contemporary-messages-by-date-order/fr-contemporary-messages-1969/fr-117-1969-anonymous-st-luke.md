@@ -23,7 +23,9 @@ Pendant que je suis avec vous ce soir, je voudrais vous parler de la guérison, 
 
 Il est très important d'enseigner à l'homme de la Terre comment être entier et en bonne santé physique. L'homme d'aujourd'hui fait tout sauf se tourner vers Dieu pour être dirigé, mais maintenant l'homme est arrivé à cet état où il devra se rapprocher de la source de sa création, et vous qui comprenez devez enseigner. Lorsque vous vous trouvez dévitalisés ou mal dans votre corps, rapprochez-vous de Dieu et testez-vous. Aucune maladie ne peut arriver à celui qui est en vrai rapport avec Dieu, rappelez-vous ceci. Chaque fibre de votre être a été rendue parfaite et l'est toujours, et gardez-le ainsi, mes amis. Faites de vos prières à Dieu une partie de votre vie quotidienne. Prenez le temps, où que vous soyez, de vous rapprocher de Dieu. Nous ne saurions trop vous le répéter. Dans les années à venir, beaucoup d'entre vous opéreront des changements, certains d'entre vous seront appelés dans des pays lointains, mais où que vous alliez, quoi que vous fassiez, ces simples vérités de Dieu vous aideront, vous guideront et vous rendront forts, mais surtout, elles vous aideront à progresser sur le chemin de la vie. Soyez bénis, mes amis.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -27,7 +27,9 @@ Lentement, même les grands esprits, les grands scientifiques de la Terre, comme
 
 Alors que je me tiens avec vous maintenant, une grande guérison est apportée parmi vous. Certains d'entre vous qui en ont besoin ressentiront, en quittant ce lieu, une force vitale en eux dont ils n'avaient pas connaissance auparavant, et ceux d'entre vous qui vont de l'avant en essayant d'atteindre les autres recevront cette grande bénédiction de la guérison. Bonne nuit et que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

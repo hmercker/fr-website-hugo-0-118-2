@@ -17,7 +17,9 @@ La sagesse est quelque chose que l'homme doit désirer, la sagesse ne nous vient
 
 Mon enfant, je n'ai jamais acheté un diamant moi-même, mais j'ai été là quand il a été apporté et une pierre vous sera apportée, une pierre de l'Inde qui fera prendre conscience au monde entier, mais nous devons être sûrs, mes chers... vous comprenez. Que la bénédiction d'Allah soit avec vous tous.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

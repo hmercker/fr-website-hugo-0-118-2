@@ -17,7 +17,9 @@ L'homme doit avoir ces lois de Dieu. Avec toutes les opportunités qu'il a eues,
 
 Que l'afflux de Son Amour soit un flux si constant dans vos âmes que vous rayonnerez l'essence de la bonté à tous ceux que vous rencontrerez. Ceci, mes enfants, est le plus grand cadeau que vous puissiez recevoir – soyez bénis vous et bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

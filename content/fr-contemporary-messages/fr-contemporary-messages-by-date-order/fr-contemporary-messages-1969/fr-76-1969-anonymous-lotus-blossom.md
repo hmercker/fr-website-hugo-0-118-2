@@ -9,7 +9,7 @@ weight:
 ---
 ### J'ai un grand amour pour la Chine
 
-Lotus Blossom - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Fleur de Lotus - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Je viens aussi, je suis Fleur de Lotus.
 
@@ -21,7 +21,9 @@ Vous voyez mes amis, j'ai beaucoup étudié tous les pays de la Terre. Je sens e
 
 Soyez bénis, mes amis.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

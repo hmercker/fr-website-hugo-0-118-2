@@ -21,7 +21,9 @@ Lentement, le bourgeon fleurira et la paix viendra alors à l'humanité. Le dés
 
 Pour être un avec Dieu, l'homme doit trouver la paix et la tranquillité en lui-même. Personne ne peut vous donner cela tant que vous ne le voulez pas. Comme un arbre qui se fortifie en atteignant le soleil, vous, mes enfants, grandirez en sagesse. La force de l'Amour de Dieu est au milieu de vous ce soir, le joyau le plus précieux de tous. J'ai terminé.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,7 +21,9 @@ Oh, mes petits, la Terre connaît une grande famine et la sécheresse est là de
 
 Venez mes enfants, devenez forts dans votre amour les uns pour les autres, dans votre amour pour Dieu et dans votre amour pour votre prochain. Mes petits-enfants, comme mon amour est grand pour vous.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

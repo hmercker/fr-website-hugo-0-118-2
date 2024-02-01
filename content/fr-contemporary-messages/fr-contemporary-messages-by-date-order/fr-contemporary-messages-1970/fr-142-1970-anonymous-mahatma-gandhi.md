@@ -19,7 +19,9 @@ Lentement, notre Terre et la vôtre cherchent et tendent la main pour trouver la
 
 Donc, mes amis, comme notre bien-aimé l'a dit ce soir, cherchez toujours plus d'Amour Divin de Dieu dans vos âmes. C'est la fondation la plus solide que l'homme puisse avoir sur Terre, souvenez-vous-en et la plus grande protection est la croissance de votre âme. Toutes les choses que vous désirez et pour lesquelles vous priez et aspirez viendront à vous lorsque vous montrerez un fort désir pour l'Amour Divin de Dieu, souvenez-vous en. Bonne nuit et que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

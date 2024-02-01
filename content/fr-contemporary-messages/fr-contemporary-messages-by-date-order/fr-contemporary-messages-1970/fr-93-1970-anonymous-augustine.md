@@ -19,7 +19,9 @@ Certains nieraient que Jésus puisse venir parmi nous et pourtant, alors que je 
 
 Dieu vous bénisse et que la bénédiction de l'Amour de Dieu trouve un canal clair dans vos âmes mes amis et rappelez-vous que nous nous efforçons d'aider tous ceux qui cherchent et vous qui avez travaillé dur devez savoir que nous, en esprit, sommes très proches de vous. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

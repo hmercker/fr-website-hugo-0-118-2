@@ -26,7 +26,9 @@ Je suis tellement béni d'être autorisée à venir vous parler, mes amis. Mon p
 
 1. <large id="f1">  **Ernestine Schumann-Heink** (née Rössler à Prague, le 15 juin 1861 et morte le 17 novembre 1936 à Hollywood), est une cantatrice américaine d'origine autrichienne. (Source : Wikipéda).[↩](#a1)
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

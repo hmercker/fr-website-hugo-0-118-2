@@ -31,7 +31,9 @@ C'est une condition merveilleuse, et pensez seulement combien votre Terre peut �
 
 Alors, pensez mes amis, quelle chance nous avons tous de pouvoir nous unir dans un lien commun, le lien de la vie, votre vie et ma vie avec le désir de ne faire qu'un avec Dieu. Bonne nuit et que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

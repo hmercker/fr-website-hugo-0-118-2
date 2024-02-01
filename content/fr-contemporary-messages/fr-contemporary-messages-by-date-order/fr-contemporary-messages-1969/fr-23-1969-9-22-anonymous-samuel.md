@@ -17,7 +17,9 @@ Nous sommes très heureux de la coopération que nous avons reçue de vous, mort
 
 Certains d'entre vous sont très jeunes et je suis heureux que, si tôt dans votre vie, vous ayez trouvé la voie à suivre. Car cela vous épargnera de nombreuses années de recherche et de malheur et vous donnera l'occasion d'enseigner et de former vos enfants à ces vérités. Mais cette œuvre doit s'étendre au-delà de ce petit groupe, au-delà de cette ville, au-delà de ce pays et dans le monde entier. C'est pour cette raison qu'il y a tant de grands et puissants esprits qui se tiennent prêts à aider chacun d'entre vous qui peut être utilisé dans le service de Dieu. Je veux que vous connaissiez le Grand Amour de Dieu qui sera répandu et qui est répandu sur chacune de vos vies et de vos foyers. Beaucoup, beaucoup de hauts esprits Célestes se tiennent maintenant et donnent leurs bénédictions à ce travail et à vous qui êtes si nécessaires pour rendre ce grand travail possible. Que la paix de Dieu soit avec vous et que l'Amour de Dieu repose sur vous afin qu'il soit vôtre, moment après moment. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

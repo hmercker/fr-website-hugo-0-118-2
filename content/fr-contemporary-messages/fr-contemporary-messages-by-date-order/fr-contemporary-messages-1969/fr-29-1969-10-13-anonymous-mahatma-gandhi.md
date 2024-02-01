@@ -17,7 +17,9 @@ Vous considérez le luxe, jour après jour, comme une nécessité pour votre mod
 
 J'espère, je prie et j'ai confiance qu'à travers ce groupe, le don de la Voix Directe pourra s'accomplir, que ceux d'entre vous qui seront envoyés dans mon pays, ceux qui ont l'autorité et le pouvoir entendront ma voix et que je pourrai leur parler face à face. C'est ma prière sincère à Dieu notre Père - mon désir d'aider mon peuple et que vous puissiez devenir les instruments que je peux utiliser pour apporter de l'aide à ce peuple. J'ai observé ce groupe et sa progression, pour la raison que je vous ai mentionnée précédemment. Le jour viendra peut-être bientôt où je reviendrai sur Terre et où ceux qui m'ont connu dans la chair me connaîtront à nouveau alors que je me tiendrai devant eux. Je leur parlerai avec la plus grande connaissance et la plus grande compréhension que j'ai obtenues en esprit et cette connaissance qui est donnée à mon peuple et au monde sera d'une grande aide pour changer le monde tel que vous le connaissez aujourd'hui. Progressivement, il n'y aura plus de frontières entre nous et nous serons tous unis dans l'amour et la fraternité. Je vous demande ici de prier pour mon peuple et pour mon pays et d'envoyer votre amour à ceux qui gouvernent car leur sort est très difficile, très difficile même. C'est un pays qui a tant de facettes, tant de religions, tant de langues. Les séparations sont si grandes et les masses ne disposent d'aucune connaissance leur permettant d'apprendre à alléger le fardeau qui leur est imposé. Je vous demande donc de prier pour mon peuple et je souhaite ardemment l'accomplissement du don de la Voix Directe que vous recherchez également avec diligence. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

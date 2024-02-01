@@ -23,9 +23,13 @@ Vous constaterez, au fur et à mesure que vous avancerez dans la vie avance et q
 
 Il n'est pas facile que ces conditions changent soudainement et nous devons donc préparer ceux qui servent l'homme sur Terre à accepter le changement qui est inévitable. Parce qu'au sein de l'humanité se trouve une âme qui cherche Dieu, indépendamment de la manière dont l'homme vit et veut sa vie. Et à travers ce désir de l'âme de l'homme, nous, les esprits, qui nous préparons, pouvons venir et apporter une condition si merveilleuse que l'âme de l'homme comprend. Sachez mes amis que nous ne pourrons jamais séparer notre âme de Dieu. Aucun homme n'est assez fort pour le faire. Ainsi, vous voyez mes amis comment nous, qui avons servi sur la Terre, servons la Terre depuis l'esprit, comme vous le faites sur la Terre. Peu importe combien l'homme devient fort, il est perdu et faible s'il n'a pas l'Amour de Dieu dans son âme et bientôt il est détruit. Ainsi, mes amis, je vous bénis ce soir et ma prière est que vous receviez en grande abondance cet Amour Divin de Dieu qui est ici pour nous tous. Que la lumière vous guide partout où vous allez et que la lumière qui rayonne de vous pénètre toutes les ténèbres afin que ceux qui ne voient pas aient la vision.
 
-Nous venons donc partout où nous pouvons enseigner à l'homme le chemin, car il y a si peu d'occasions pour nous de venir. Maintenant, lentement, il y a beaucoup de groupes qui se forment, beaucoup qui cherchent comme vous la vérité et le plus haut, et nous allons donc en rencontrer beaucoup là où nous voyons et sentons le désir. Il y a beaucoup de groupes, comme vous le savez, mais la plupart ne recherchent pas la croissance de l'âme. Et vous allez trouver mes enfants que de nombreux groupes vont bientôt savoir et réaliser que nous les servons. Dans les années à venir, nous ferons en sorte que vous puissiez savoir où nous servons. C'est ce que nous voulons faire, car avec le temps, vous serez tous unis dans votre travail pour aider les autres à trouver leur salut. Bonne nuit.
+Nous venons donc partout où nous pouvons enseigner à l'homme le chemin, car il y a si peu d'occasions pour nous de venir. Maintenant, lentement, il y a beaucoup de groupes qui se forment, beaucoup qui cherchent comme vous la vérité et le plus haut, et nous allons donc en rencontrer beaucoup là où nous voyons et sentons le désir. Il y a beaucoup de groupes, comme vous le savez, mais la plupart ne recherchent pas la croissance de l'âme. Et vous allez trouver mes enfants que de nombreux groupes vont bientôt savoir et réaliser que nous les servons. Dans les années à venir, nous ferons en sorte que vous puissiez savoir où nous servons. C'est ce que nous voulons faire, car avec le temps, vous serez tous unis dans votre travail pour aider les autres à trouver leur salut. 
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+Bonne nuit.
+
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

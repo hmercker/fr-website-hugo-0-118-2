@@ -19,7 +19,9 @@ Il y a de l'espoir pour l'homme et il y a de l'espoir pour la paix sur Terre et 
 
 Dieu vous bénisse et que le succès soit au rendez-vous pour vous tous, mes enfants. Je reviendrai bientôt vers vous, mes amis.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

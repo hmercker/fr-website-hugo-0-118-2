@@ -17,7 +17,9 @@ J'ai le sentiment que certains d'entre vous n'ont pas une compréhension claire 
 
 Cela prend parfois beaucoup de temps et j'ai pensé que ce soir je devrais parler à certains d'entre vous qui ne comprennent pas et parfois j'ai l'impression qu'il y a de la déception parce que ceux qui sont tellement attendus ne sont pas amenés. Je vous dirai de toujours envoyer le désir et de prier pour ceux que vous voulez. Nous recueillons ces conditions auprès de vous, très chers, et nous travaillons et nous nous efforçons de leur apporter la condition et l'instrument pour que nous puissions vous les apporter. J'espère que je n'ai pas trop abusé de votre temps, mais vous devez comprendre qu'il est parfois très difficile pour ceux qui veulent revenir de venir. Mais je vais vous promettre ceci, lorsque je capterai la pensée et que je serai informé que c'est votre désir, je ferai le plus grand effort pour répondre à vos souhaits. Dans un grand nombre de cas, lorsque des forces supérieures viennent sur Terre, elles ne sont pas en mesure de venir directement. Nous devons les faire descendre par l'intermédiaire d'autres forces et parfois elles perdent leur personnalité en faisant cela. Mais je veux vous dire à tous ici que les forces supérieures que nous amenons dans ce groupe viennent directement et cela est rendu possible par votre capacité à nous donner la force dont nous avons besoin pour travailler du côté de la Terre et il n'y a pas de plus grande force que celle qui vient de l'amour dans vos âmes. Que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

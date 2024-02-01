@@ -25,7 +25,9 @@ Tant que les enfants de Dieu n’auront pas appris l’importance de leur nature
 
 En aidant les enfants du Père à connaître les vérités de Son Amour, nous pouvons également souligner comment Ses Lois fonctionnent pour régir leur vie de manière à continuer à les conduire dans la direction des désirs de leur cœur. Et que, lorsqu’ils cherchent à la Vérité, ou à faire la volonté de Dieu dans leur vie, ces pensées et ces désirs auront un effet bénéfique sur eux ; ils mettent en mouvement certaines attractions qui incluent la protection et l’influence des anges gardiens. Ces influences rayonnent largement et attirent même des situations matérielles qui rendront la vie plus confortable, ou plus tolérable, pour l’enfant qui veut se rapprocher de la Volonté de son Créateur. Ainsi, même si l’affirmation « prier sans cesse » semble être une demande impossible, n’oubliez pas que même un désir sincère est comme une prière ; un désir d’amour et d’harmonie qui fait partie de votre expérience est comme une prière. Toutes les bonnes pensées et les désirs de tous les enfants de Dieu leur sont utiles pour améliorer leur vie et purifier leur âme.
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

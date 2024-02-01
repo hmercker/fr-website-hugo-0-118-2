@@ -23,7 +23,9 @@ Lorsque vous n'aurez reçu qu'une petite partie de cet Amour, vos désirs ne fer
 
 Si vous leviez un peu les yeux au-dessus de la terre, vous verriez qu'il n'y a vraiment pas de problèmes, ni de peines, lorsque vous mettez votre confiance en Dieu et en nous ; car les choses qui vous semblent importantes aujourd'hui vous sembleront insignifiantes demain. Et dans cent ans, cela n'aura aucune importance. Si vous regardez au-delà du moment présent vers la grande éternité, vous apprendrez à voir les choses différemment et dans d'autres perspectives. Car à moins que vous n'ayez cet Amour Divin de Dieu dans vos âmes, je réalise qu'il est très difficile pour vous, Terriens, de regarder au-delà de vos petites vies. Je comprends cela car j'ai été autrefois de la Terre et, en regardant en arrière, je peux voir que c'est la raison pour laquelle je viens à vous pour vous épargner les nombreuses années sur votre plan terrestre. Comme il est agréable pour vous de passer de la Terre aux sphères supérieures. Comme il est agréable pour vous de former vos enfants et de leur parler de cet Amour de Dieu et de cette opportunité qu'ils ont aussi d'apprendre ces vérités, afin que toute peur soit écartée et que seule la joie et le bonheur soient votre lot. Je sais que vous serez testés, mais pensez à ces choses, mais ne les considérez pas comme des obstacles, mais sachez que ce sont des occasions pour vous de vous fortifier afin que dans votre force vous puissiez faire de plus grandes choses et aider les autres à apprendre ces vérités. Je dois partir. Que Dieu vous bénisse, mes amis, mes enfants.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,7 +22,9 @@ Pensez-vous que vous êtes ici par accident ce soir ? Chacun d'entre vous ici da
 
 Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse et soit avec vous cette année et que vous puissiez continuer à travailler ensemble comme une équipe. Que Dieu vous bénisse. Bonne nuit. 
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

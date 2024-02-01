@@ -29,7 +29,10 @@ Il y a une forte force d'amour avec vous, mais à moins que vous ne soyez en con
 
 Que Dieu vous bénisse mes enfants et que vous puissiez trouver cette porte qui libère vos âmes, que vous puissiez absorber facilement et aisément l'amour de Dieu et que vos corps physiques, vos esprits et vos âmes puissent surmonter ces obstacles de la chair et que vous puissiez connaître la joie et la paix qui est votre héritage légitime et que vous puissiez être un avec Dieu.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

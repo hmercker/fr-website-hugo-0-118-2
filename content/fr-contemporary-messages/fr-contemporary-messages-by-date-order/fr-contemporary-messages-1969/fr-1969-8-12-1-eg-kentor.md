@@ -53,7 +53,9 @@ Après le décès prématuré d’Alec, Elly a été guidée pour rencontrer et 
 
 Le 15 Mars 2018, nous avons reçu une nouvelle visite d’un extraterrestre; Shandor, qui a commenté notre désir d’atteindre la Voix Directe.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

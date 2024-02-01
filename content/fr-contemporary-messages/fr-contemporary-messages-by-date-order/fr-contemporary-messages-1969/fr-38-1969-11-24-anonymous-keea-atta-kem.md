@@ -19,7 +19,9 @@ Ce soir, avant de laisser passer les autres, je veux m'adresser à chacun d'entr
 
 Certains des chefs de gouvernement vont venir parmi vous. C'est quelque chose qui est prévu de ce côté de la vie. Toutes les phases du leadership seront attirées vers vous et vous devez montrer dans votre conduite ce que cette grande sagesse a fait pour vous et vous devez montrer dans votre conduite ce que cette grande sagesse a fait pour vous. J'espère que vous réalisez ce que cela signifie. Il n'y a rien sur Terre ou dans les autres sphères de la vie qui soit aussi gratifiant pour une âme que d'être un véritable exemple de ce que l'Amour de Dieu peut faire et l'humanité sur Terre attend la direction de Dieu que les institutions et les églises ne donnent pas. Lorsque vous serez prêts, tous les dons que vous demandez vous seront donnés. Nous ne souhaitons pas apporter ces dons sur Terre pour une autre raison que celle d'enseigner à l'homme comment trouver son salut. Nous sommes très heureux de vos efforts dans le passé, mais je voulais vous parler du travail qui vous attend à l'avenir. Que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

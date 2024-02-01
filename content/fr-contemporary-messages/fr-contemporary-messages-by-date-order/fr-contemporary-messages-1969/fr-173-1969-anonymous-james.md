@@ -19,7 +19,9 @@ Vous avez passé de nombreuses heures à méditer et à prier, de nombreuses heu
 
 Notre travail ne dépend pas de vous de ce groupe, car si vous tombez, vous serez remplacés par d'autres qui seront plus forts, qui grandiront, qui auront le désir. Ceux qui n'auront pas peur, car nous ne pouvons utiliser que les forts. Oui, nous sommes venus pour construire un pouvoir, une condition de pouvoir si grande et si forte et il y a ceux d'entre vous dans cette salle qui seront utilisés. Je vous remercie de m'avoir permis de venir vous parler ce soir et je vous remercie également tous pour les efforts que vous avez fournis. Je vois la croissance de vos âmes, alors continuez mes enfants, dans l'Amour de Dieu et grandissez dans l'Amour de Dieu. Car j'ai la charge de ce groupe. Je suis votre instructeur et votre frère, Jacques.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

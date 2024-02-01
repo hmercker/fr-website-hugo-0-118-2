@@ -17,7 +17,9 @@ Mes amis, le bonheur que nous procure cette grande œuvre, de pouvoir aller au-d
 
 Alors ce soir, je veux aussi ajouter mes bénédictions et je prie pour chacun d'entre vous pour que, dans les jours à venir, vous commenciez à voir et à sentir la récompense des efforts que vous faites. Cherchez toujours plus de l'Amour Divin de Dieu, soyez toujours prêts à aider ceux qui cherchent. Que la paix qui vient avec la bénédiction de Dieu soit toujours avec vous mes amis. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

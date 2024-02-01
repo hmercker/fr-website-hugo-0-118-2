@@ -19,7 +19,9 @@ Et il en est ainsi dans toutes les sphères de la vie. Nous ne pouvons pas recev
 
 Donc, vous devez semer la graine. Lorsque tous ceux qui enseignent comprendront qu'une âme ne dort pas, ne meurt pas, alors ceux qui comprennent feront de plus grands efforts pour enseigner la vérité. Il n'y a rien à craindre dans la vie. Dieu aime tous Ses enfants - il attend de vous aider. Alors, mes amis - commencez aujourd'hui à chercher dans la vérité. Voilà ce que vous devez dire mes enfants à ceux qui cherchent. Que Dieu vous bénisse - Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

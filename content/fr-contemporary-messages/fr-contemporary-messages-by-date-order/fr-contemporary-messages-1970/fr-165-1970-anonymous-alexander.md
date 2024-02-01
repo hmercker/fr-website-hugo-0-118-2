@@ -19,7 +19,9 @@ Quel est le but d'ouvrir des canaux, des canaux qui ne comprennent pas la loi de
 
 Ainsi, je vous dis, mes chers amis et à vous tous ici, libérer vos conditions d'esprit et vos émotions qui détruisent et se méfient. Soyez humbles et priez pour progresser en attirant dans vos âmes la force et la sagesse qui viennent avec l'Amour de Dieu. C'est la seule chose qui peut sauver l'homme sur Terre, rappelez-vous le. Bonne nuit et que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

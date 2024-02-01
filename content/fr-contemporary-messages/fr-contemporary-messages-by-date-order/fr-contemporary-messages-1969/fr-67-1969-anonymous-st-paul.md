@@ -25,7 +25,9 @@ Tout homme sait au fond de lui que trop de choses ont obscurci son chemin. Vous 
 
 Et donc je vous dis, mes enfants, prenez le temps chaque jour d'être saints et proches de Dieu. Faites de plus grands efforts pour diffuser ces vérités. Où que vous soyez, il est si facile de glisser un mot de gentillesse et de tendre une main secourable, et cela ouvre la porte à un plus grand service pour vous. Que la paix qui accompagne l'afflux de l'Essence divine de Dieu dans vos âmes soit toujours avec vous. Que vous puissiez marcher dans une grande lumière et que tous les efforts que vous faites soient bénis par Dieu, mes enfants.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

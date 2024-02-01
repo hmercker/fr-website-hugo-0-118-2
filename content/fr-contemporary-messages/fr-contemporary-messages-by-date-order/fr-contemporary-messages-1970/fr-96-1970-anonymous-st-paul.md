@@ -17,7 +17,9 @@ Pensez à ceci, chers enfants, il n'est pas facile d'enseigner à l'homme la man
 
 Que les bénédictions de Dieu soient toujours avec vous, que vos désirs soient toujours de vous réunir pour ne faire qu'un avec Dieu et que vous puissiez démontrer à toute l'humanité la force et la sagesse qui viennent avec cette connaissance. Soyez bénis, tous et chacun. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

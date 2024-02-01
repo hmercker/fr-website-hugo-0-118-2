@@ -17,7 +17,9 @@ Il a symbolisé, alors qu'il était sur Terre, comment la bénédiction de l'Amo
 
 Soyez bénis, mes enfants. Que la plus grande paix vienne sur chacun d'entre vous. Que chacun d'entre vous ici ressente en quittant ce lieu ce soir la présence de notre Maître qui vous a apporté le renouveau de la vie, mes chers. Que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

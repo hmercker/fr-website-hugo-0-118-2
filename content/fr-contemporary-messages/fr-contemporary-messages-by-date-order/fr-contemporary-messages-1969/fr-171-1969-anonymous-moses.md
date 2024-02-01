@@ -17,8 +17,9 @@ Cela fait longtemps que je ne vous ai pas parlé mais je veux venir vous parler 
 
 A certains d'entre vous viendra le don de pouvoir écrire - vous tous, mes amis, vous aurez des dons qui vous seront ouverts et donnés. Ainsi, vous saurez la meilleure façon de suivre et de donner ces merveilleuses vérités. Lentement, il y a un aperçu de la lumière de la compréhension et de la lueur de cette lumière, à travers le désir de l'homme pour la paix. Ce désir n'est pas seulement en lui-même, mais il y aussi le désir des personnes dans tous les pays, à travers cette lueur de lumière qui sera un phare de lumière. Ce dernier s'élargira et fera le tour de tout le plan terrestre et vous qui cherchez sincèrement la guidance pour aider les autres, vous aiderez à rendre cette lumière si forte que rien d'autre que la paix et la bonne volonté n'arrive à l'homme sur la Terre. Alors, soyez bénis, mes enfants, et sachez que nous, qui avons reçu de grands conseils dans le passé, vous aidons dans votre mission de devenir un travailleur pour Dieu.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

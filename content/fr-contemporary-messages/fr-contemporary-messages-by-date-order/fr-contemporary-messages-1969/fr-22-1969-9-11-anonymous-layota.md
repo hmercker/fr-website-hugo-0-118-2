@@ -21,7 +21,9 @@ Vous pensez que la façon dont vous traitez vos familles, vos femmes, vos maris,
 
 Faites tout votre possible pour que vous puissiez y habiter. Faites pour les enfants de la Lumière. Demandez cet Amour et il vous sera donné gratuitement. Oh, le désir de vous donner Son Amour, est si grand. Alors pourquoi devriez-vous rester assis dans le désespoir avec vos mains en coupe ? Essuyez les larmes de vos yeux car le salut est pour tous les hommes. Il n'y a personne de si bas que Dieu n'aime pas. Oh, petits enfants des ténèbres, venez à la lumière de Dieu, votre Père vous aime... et regardez autour de vous et vous verrez les esprits de lumière pour vous guider, vous aider et vous enseigner. A vous qui êtes assis dans cette salle, je vous remercie de m'avoir donné l'occasion de venir ce soir pour parler à ces esprits. Car, voyez-vous, je ne peux pas venir dans ma condition normale, car ils ne sont pas capables de me voir ou de me comprendre. Ils ne peuvent pas entendre mes paroles. Ce n'est que lorsque je parle par l'intermédiaire d'un instrument sur le plan terrestre, que je peux franchir cette barrière. Je vous remercie donc de m'avoir donné l'occasion de transmettre ce message de lumière à ces enfants des ténèbres. Le corps physique est faible, et ces choses sont temporelles, et elles passent, mais les choses de l'âme durent pour toujours. Alors, trouvez vos fondations, mes amis, et construisez sur des fondations solides afin de vous tenir pour toujours dans l'Amour de Dieu. Je suis reconnaissant de l'occasion qui m'est donnée d'être parmi vous et je demande que l'amour de Dieu vienne sur chacun de vous et j'espère qu'il me sera permis de revenir et de parler à ce groupe. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

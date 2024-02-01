@@ -77,7 +77,7 @@ Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contempora
 Moïse | [Nos enseignements sont simples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-73-1969-anonymous-moses/) |   1969
 Mahatma Gandhi | [Nous devons devenir de véritables serviteurs pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-74-1969-anonymous-mahatma-gandhi/) |   1969
 St Pierre | [Vous devez semer la Graine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-75-1969-anonymous-st-peter/) |   1969
-Lotus Blossom | [J'ai un grand amour pour la Chine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-76-1969-anonymous-lotus-blossom/) |   1969
+Fleur de Lotus | [J'ai un grand amour pour la Chine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-76-1969-anonymous-lotus-blossom/) |   1969
 St Paul | [Nous devons enseigner à tous ceux qui le souhaitent comment se libérer de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-77-1969-anonymous-st-paul/) |   1969
 Mario Lanza | [Je suis reconnaissant pour les prières et l'amour qui me sont envoyés de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-78-1969-anonymous-mario-lanza/) |   1969
 Shandor | [Cherchez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-79-1969-anonymous-shandor/) |   1969
@@ -124,7 +124,9 @@ Jacques | [Demandez davantage de l'Amour Divin de Dieu pour que vos lumières de
 Jésus | [Nous ne faisons qu'un avec Dieu, frères et sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-174-1969-anonymous-jesus/) |   1969
 Solomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-175-1969-anonymous-solomon/) |   1969
 
-[###**Lien vers les messages de l’année 1970**]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -23,7 +23,9 @@ Il y a tant de choses à faire. Nous avons besoin de tant de travailleurs. Nous 
 
 Je suis heureux de vous voir vous rassembler comme vous l'avez fait ce soir avec force, harmonie et avec l"amour qui grandit entre vous, pour le travail qui est devant vous. Nous vous renforçons dans notre amour et je veux que vous sachiez aussi et que vous sentiez que Dieu est aussi dans cette salle avec nous. Nous ne sommes pas séparés du Père, de l'amour et de la puissance de Dieu. Sentez que Dieu est dans la pièce, sentez l'Amour et l'harmonie se renforcer et grandir entre nous. Continuez et sachez que vous êtes bénis de Dieu et que vos efforts sont bénis, que nous sommes avec vous pour vous soutenir. Mes enfants et mes amis, je vous aime beaucoup, chacun d'entre vous. Je vous aime tellement.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

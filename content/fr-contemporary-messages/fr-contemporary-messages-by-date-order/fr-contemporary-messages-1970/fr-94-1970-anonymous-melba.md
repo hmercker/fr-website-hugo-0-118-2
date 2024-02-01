@@ -24,7 +24,9 @@ J'espère que je pourrai apporter un plus grand bonheur et une plus grande joie,
 
 1. <large id="f1"> **Nellie Melba**, de son nom de naissance Helen Porter Mitchell, née à Richmond (Victoria) le 19 mai 1861 et morte à Lilydale (Victoria) le 23 février 1931, est une soprano colorature australienne. Avec Adelina Patti, elle est une des premières cantatrices dont la voix fit l'objet d'enregistrements phonographiques. [↩](#a1)
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

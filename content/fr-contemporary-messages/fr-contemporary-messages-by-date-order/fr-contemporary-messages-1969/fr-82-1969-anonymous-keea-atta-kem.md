@@ -33,7 +33,9 @@ Nous essayons de faire en sorte que vous vous sentiez tous unis. Pendant que j'u
 
 Et maintenant, je vais vous quitter pour un court moment et vous offrir mes bénédictions ainsi qu'aux merveilleuses âmes qui me suivent.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

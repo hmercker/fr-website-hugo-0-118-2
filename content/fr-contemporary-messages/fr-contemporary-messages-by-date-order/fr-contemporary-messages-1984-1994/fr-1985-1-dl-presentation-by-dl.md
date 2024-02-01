@@ -45,7 +45,9 @@ Ainsi, mes chers, si l'un d'entre vous n'a pas encore ressenti la félicité de 
 
 Je vous remercie de votre aimable attention et je souhaite que Dieu vous bénisse tous avec la *« perle de grand prix »* - Son Amour Divin qui transforme et glorifie !
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

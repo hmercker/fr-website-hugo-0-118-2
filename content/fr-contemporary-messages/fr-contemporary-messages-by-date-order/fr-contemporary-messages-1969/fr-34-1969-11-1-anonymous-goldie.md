@@ -21,7 +21,10 @@ Alors, devenez forts, mes chers, et demandez à Dieu de vous renforcer. Pour que
 
 Nous venons vers tant de gens et pourtant il y en a si peu qui nous reçoivent. Mais à vous à qui nous nous faisons connaître et à vous qui avez reçu et recevez une plus grande connaissance du Don et des vérités de Dieu, je souhaite vous encourager à faire tous les efforts pour vous fortifier à désirer que l'Amour Divin de Dieu contrôle vos pensées. Nous devons le faire chaque jour et progressivement, vous découvrirez que cela devient beaucoup plus facile. Au début, c'est très difficile parce que la plupart des hommes de la Terre laissent les pensées entrer dans leur esprit sans les contrôler. Il faut effectivement un effort de la part de l'individu pour apprendre à contrôler ses pensées. Mais ce n'est qu'une école que chaque âme doit apprendre au fur et à mesure qu'elle progresse et sachez aussi que vous n'êtes pas seuls, mais que chaque autre âme sur la face de la Terre doit également passer par ce même processus de purification. Et donc, mes chers enfants, soyez encouragés et sachez que notre amour vous entoure et que nous sommes avec vous, toujours pour vous guider, vous aimer et vous protéger et je suis heureux d'avoir pu venir ce soir et parler car je ne vous ai pas parlé longuement depuis longtemps. Bonne nuit chers amis.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

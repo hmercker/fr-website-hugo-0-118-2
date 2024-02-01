@@ -29,7 +29,9 @@ Mes amis, vos vies privées ne sont pas aussi privées que vous le croyez. Les p
 
 Cela vous ferait du bien de vous lever et d'écouter les histoires de certains de ceux qui sont avec nous ce soir, les histoires de leurs vies. Pour vous, la porte est toujours ouverte et l'opportunité de la progression de l'âme est maintenant. Vous devez choisir le chemin que vous allez emprunter, mais rappelez-vous mes amis, vous récolterez aussi le chemin que vous avez choisi pour vous-même. Soyez donc miséricordieux envers vous-mêmes et bons envers vous-mêmes et donnez-vous l'opportunité d'évoluer vers une sphère de vie remplie de joie et de bonheur, où vos chagrins peuvent être laissés derrière vous et où vous pouvez récolter le bonheur que vous avez préparé pour vous-mêmes. La lumière, la joie et la paix qui peuvent être vôtres dans ce beau pays. Nombreux sont ceux qui ont été aidés ici ce soir et je vous remercie de m'avoir donné l'occasion d'utiliser le pouvoir qui était ici ce soir pour aider ces âmes à mieux comprendre la vie. Merci, mes chers amis et bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

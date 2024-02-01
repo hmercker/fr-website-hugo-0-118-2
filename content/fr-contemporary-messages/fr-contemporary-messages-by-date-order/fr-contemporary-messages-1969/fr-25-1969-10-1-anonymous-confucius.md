@@ -19,7 +19,9 @@ Je voudrais donner à chacun de vous la paix, car la paix de Dieu est gratuite e
 
 Il n'est pas déraisonnable pour vous de supposer que cela est en votre pouvoir et à votre portée. Car il se peut que chacun d'entre vous puisse utiliser ce pouvoir. Car si vous avez votre être dans l'Esprit de bienveillance de Dieu, votre Père qui prend soin et aime chacun d'entre vous ici ce soir et toute l'humanité, alors il est également possible pour vous de vous accorder à des quantités de plus en plus grandes de ce pouvoir. Il n'est pas nécessaire que vous soyez malheureux ou que vous soyez inquiets. Mais il est nécessaire que vous tourniez vos pensées vers les choses spirituelles. Lorsque vous désirez vraiment en vous-mêmes devenir une personne qui ne cherche que le bien pour elle-même et pour son prochain, il s'ensuit que l'aide vous sera donnée pour rendre ce désir possible. Alors, pourquoi ne pas commencer à pratiquer aujourd'hui l'ouverture de votre âme afin d'être en mesure de faire face aux choses de nature matérielle avec la sagesse et la compréhension que Dieu désire voir en chacun de vous. Je demande la bénédiction de Dieu sur chacun d'entre vous. Bonne nuit mes amis.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

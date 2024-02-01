@@ -21,7 +21,9 @@ Mais elle sera utilisée pour tous les peuples de la Terre et pour que la souffr
 
 C'est le désir de Dieu que le plan terrestre puisse les posséder. Comme je vous l'ai dit auparavant dans les domaines scientifiques et dans tous les autres domaines pour rendre le sort de l'humanité sur ce plan terrestre beaucoup plus facile et beaucoup plus heureux - les lois de Dieu sont universelles. Et maintenant que l'humanité a fait son premier pas, la réalisation est devenue de plus en plus grande qu'il n'y a pas de barrières entre nos mondes et les opportunités que nous avons de servir le plan terrestre, et pas seulement vous, habitants de la Terre, mais aussi ceux d'autres planètes et d'autres galaxies. Il est beaucoup plus facile, et il sera beaucoup plus facile pour nous et pour vous, dans les années à venir, de mettre ces choses à la disposition de l'humanité. Ainsi, nous ne perdons pas notre temps lorsque nous venons vers vous pour vous parler de ces choses et pour vous demander de vous préparer à l'autodiscipline, à la recherche et à la prière pour l'Amour Divin de Dieu dans vos âmes. Vous pourrez ainsi être utilisés comme instruments pour le travail du Père et la diffusion de ces choses et nous pourrons vous enseigner cette connaissance - non seulement des choses spirituelles mais aussi des choses scientifiques, des choses de l'agriculture et de tous les domaines qui sont ouverts à l'humanité aujourd'hui.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

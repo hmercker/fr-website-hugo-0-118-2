@@ -19,7 +19,9 @@ Ce soir, je veux vous donner une idée des âmes qui se sont rapprochées de vou
 
 Vous ne vous rendez pas compte de l'ampleur de ces rencontres, mes amis, mais nous le faisons et nous vous aiderons toujours. Nous devons aller de l'avant dans n'importe quelle sphère de la vie où nous nous trouvons et rassembler les perdus pour qu'ils puissent eux aussi se glorifier de cette grande sagesse qui vient avec l'amour. Que la paix et le bonheur éternels soient avec vous mes amis et que l'amour de Dieu trouve un canal clair dans vos âmes, éclairant votre aura à un tel point qu'il puisse pénétrer les lieux d'obscurité. Soyez bénis, mes enfants.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,7 +21,9 @@ Il y en a beaucoup ici ce soir avec un plus grand développement de l'âme qui p
 
 Vos amis et vos voisins ne connaissent peut-être pas les choses qui sont dans votre âme, mais vous n'avez aucun secret pour nous dans les sphères Célestes. Je ne dis pas que nous vous jugeons, car nous ne le faisons pas, mais nous connaissons les désirs qui sont dans vos âmes, les vrais désirs des âmes. Nous sommes conscients de vos désirs et de vos peines, des combats et des luttes que vous traversez. Ce sont aussi des occasions de renforcer la condition de votre âme. Considérez-les comme telles. Mes chers enfants, il y a beaucoup de merveilleux esprits ici ce soir. Il y a beaucoup d'enseignants. Je souhaite vous dire ces choses afin qu'elles vous donnent matière à réflexion. Je vous demande de prier et de demander à Dieu d'ouvrir vos âmes afin que vous puissiez recevoir cet Amour Divin de Dieu et si vous ne désirez pas prier, alors demandez à Dieu de mettre un désir dans vos âmes. Car, si vous cherchez, vous trouverez.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

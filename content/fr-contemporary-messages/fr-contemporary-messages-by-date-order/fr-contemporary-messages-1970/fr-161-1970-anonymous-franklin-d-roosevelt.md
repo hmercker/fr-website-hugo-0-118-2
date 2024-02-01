@@ -23,7 +23,9 @@ C'est difficile quand on essaie de gouverner et de diriger par les instincts nat
 
 Gardons la liberté pour tous les peuples de la Terre, travaillons plus fort pour Dieu, car en faisant cela mes amis, vous aidez à votre manière la progression de votre propre vie et quand vous vous joindrez à nous, vous comprendrez combien cela est important. Bonne nuit et que Dieu vous bénisse mes amis.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

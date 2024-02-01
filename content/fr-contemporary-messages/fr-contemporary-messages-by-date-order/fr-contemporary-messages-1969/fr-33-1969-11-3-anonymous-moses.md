@@ -21,7 +21,9 @@ Vous voyez qu'il y a un lien, aucun de nous n'est une île et nous sommes interd
 
 Et il doit en être de même pour vous de ce pays, vous devez revenir aux valeurs spirituelles que tant d'entre vous ont abandonnées et qui sont si nécessaires pour maintenir votre pays fort et puissant. Car vos gouvernements ne peuvent être aussi bons que les individus qui les composent. Lorsque la fibre morale du peuple se détériore, il s'ensuit nécessairement que votre gouvernement se détériore. Ainsi, lorsque vous critiquez votre gouvernement, vous pouvez savoir qu'il y a une détérioration de la qualité et de la fibre morale des peuples qui composent ce pays. Et ceux d'entre vous qui sont dans une sphère plus éclairée et qui ont un certain développement spirituel, c'est votre privilège et votre devoir de prier pour les dirigeants des pays du plan terrestre et de leur envoyer de l'amour afin que les dirigeants puissent être influencés par l'amour que vous leur envoyez. Car nous, les êtres spirituels, pouvons utiliser ce pouvoir pour influencer ceux qui détiennent l'autorité. Je dois y aller. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

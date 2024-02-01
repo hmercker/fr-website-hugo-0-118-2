@@ -19,7 +19,9 @@ Lorsque j'étais sur Terre, beaucoup d'entre vous connaissaient l'histoire de ma
 
 Et sachez mes amis que mes connaissances et mes désirs n'ont été réalisés que grâce à votre amour et vos prières. Que Dieu vous bénisse et que vous ayez toujours un chant dans votre cœur.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

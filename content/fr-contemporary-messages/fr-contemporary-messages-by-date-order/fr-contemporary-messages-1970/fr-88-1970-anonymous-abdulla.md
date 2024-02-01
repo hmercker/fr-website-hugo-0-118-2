@@ -19,7 +19,9 @@ Sur la Terre aujourd'hui, beaucoup sont dans cette position et pourraient être 
 
 Alors, partez de cet endroit ce soir, résolus que dans les jours à venir vous essayerez d'aider une âme à trouver son salut chaque jour de votre semaine. Vous constaterez que les bénédictions de Dieu se déverseront sur vous. Je me glorifie avec vous, mes amis, des conditions merveilleuses que vous avez parmi vous ce soir, sachant que moi aussi, en quittant ce groupe, j'aurai fait un pas un peu plus haut sur le chemin de la vie heureuse. Que Dieu vous bénisse et bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

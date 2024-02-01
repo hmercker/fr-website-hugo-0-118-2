@@ -25,7 +25,9 @@ Nous attendons le jour où vous aurez la voix directe. Nous n'avons pas besoin d
 
 Continuez à aspirer, et je vous l'ai toujours dit, à ce qu'une plus grande quantité de cet Amour Divin se déverse dans vos âmes et les remplisse de tellement de bonté et d'amour merveilleux, qu'il n'y aura pas la moindre place pour une quelconque corruption. Tout ce qui est avarié ou méchant sera immédiatement écarté et effacé, même de votre esprit, lorsque vous recherchez le bien et je sens que dans peu de temps, les gens viendront chercher cette aide et, en attendant, priez et priez comme vous n'avez jamais prié auparavant et croyez. Je veux être une grande aide pour vous. Chacun dans cette classe possède un pouvoir de guérison, certains plus que d'autres et plus vite vous vous en rendrez compte, plus vous serez heureux en vous. Il suffit parfois d'une poignée de main pour le faire. Ce pouvoir est venu à chacun d'entre vous depuis que vous recherchez l'Amour Divin et il est beaucoup plus fort maintenant qu'il ne l'a jamais été et il va être encore beaucoup plus fort. Vous serez tous propriétaires de votre maison et vous aurez un centre pour travailler. Il y aura beaucoup à faire et cela viendra très vite une fois que cela aura commencé. Souvenez-vous simplement que lorsque je ne peux pas venir, lorsque vous avez besoin d'aide ou de conseils, j'enverrai quelqu'un d'autre. Continuez à désirer l'Amour Divin et remerciez quotidiennement votre Père pour les bénédictions reçues. Bonne nuit. Et en terminant, n'oubliez pas mon chant *« Have Thy Own Way Lord (Fais Ton Chemin Seigneur) »"*.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

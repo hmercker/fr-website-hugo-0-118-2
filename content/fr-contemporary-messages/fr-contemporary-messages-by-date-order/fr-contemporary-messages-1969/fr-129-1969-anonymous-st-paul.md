@@ -17,7 +17,9 @@ Nous attendons de pouvoir parler à l'homme sur Terre par un canal clair de l'es
 
 Puissiez-vous tous avoir une vie glorieuse sur Terre. Lorsque le moment sera venu de quitter la Terre, vous pourrez fermer le livre en sachant que la fin a été bien méritée. La vie qui vous attend sera tellement plus facile et le chemin que vous trouverez sera tellement plus droit. Que Dieu vous bénisse, mes enfants, et que la paix soit avec vous.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

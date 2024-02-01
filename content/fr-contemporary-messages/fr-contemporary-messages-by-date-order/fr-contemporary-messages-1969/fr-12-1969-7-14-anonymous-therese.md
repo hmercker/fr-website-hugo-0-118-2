@@ -15,7 +15,9 @@ Je voudrais vous donner quelques mots d'encouragement et je suis heureuse de vou
 
 Je vous ai dit, et d'autres sont venus et vous ont dit aussi, qu'ici et pour toute l'éternité, la chose la plus importante que vous puissiez faire est de chercher, de prier, de désirer un afflux de cette essence de Dieu. Lorsque vous ferez cela, le bonheur et l'amour qui vous viendront seront si grands que votre vie même changera et que tous - vos amis, vos familles - verront ce changement en vous. Vous pouvez aussi rendre les autres heureux et ils vous le diront aussi. Vous pourrez alors leur dire ce que ce grand Amour de Dieu fait pour vous, qu'il est disponible pour vous et qu'il peut être à vous, seulement si vous le désirez, mais vous, mes enfants, pouvez avoir ce merveilleux cadeau, ce plus grand cadeau de Dieu. Par-dessus tout, dans ce monde et dans l'autre, cherchez l'Amour de Dieu.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,7 +17,9 @@ Si vous n'êtes pas capables de mettre de côté les problèmes qui surgissent d
 
 Ce travail est très important pour moi, car c'est mon grand désir de servir mon peuple de l'Inde. Je suis tellement conscient de la pauvreté et des besoins de ces gens que mon âme désire qu'ils puissent voir suffisamment la lumière, qu'ils puissent être sortis de cette condition de pauvreté au sens matériel et au sens de l'âme. J'ai l'impression d'avoir été très clair et je ne demanderais à aucun d'entre vous de s'asseoir, je vous dirais plutôt que la route ne sera pas toujours facile. Le choix vous appartient, la décision vous appartient. Réfléchissez bien avant de faire votre choix. Alec, je souhaite toujours être sous ton contrôle. Réfléchis à ce que je t'ai dit ce soir et je préférerais que tu dises "non", si tu ne te sens pas capable de te montrer à la hauteur de l'obligation que tu vas accepter. Je ne parle maintenant que pour la Voix Directe et je m'assieds pour la Voix Directe.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

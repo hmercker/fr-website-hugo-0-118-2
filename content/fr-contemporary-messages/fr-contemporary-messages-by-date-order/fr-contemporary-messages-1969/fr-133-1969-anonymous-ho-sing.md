@@ -19,7 +19,9 @@ Nous sommes tous venus ce soir pour nous joindre à vous en cette merveilleuse h
 
 Nous essayons tous si fort d'apporter le bonheur aux peuples de la Terre, mes amis, et cela doit être apporté à toute l'humanité. L'humanité doit apprendre les lois simples de Dieu et elles sont simples, mes amis. L'homme doit d'abord apprendre à redevenir un enfant, humble, tranquille en lui-même. Il doit apprendre à relâcher toutes ses tensions, ses peurs, ses soucis. Il doit apprendre à avoir une plus grande foi et alors, lentement, il obtiendra la force et cela viendra lorsque l'homme sera prêt à recevoir, mes amis. La loi de la bonne vie, dans toutes les sphères de la vie, est si simple. L'homme n'a pas besoin d'essayer par tant de moyens détournés de trouver le bonheur. Il lui suffit d'en avoir le désir, de s'asseoir tranquillement et de se préparer à la plus grande bénédiction que l'on puisse recevoir. Vous, mes amis, qui avez testé cette connaissance et qui avez trouvé qu'elle ne manquait pas, vous devez faire un plus grand effort pour diffuser ces vérités. Vivre selon la loi de Dieu est le seul moyen pour vous, mes amis, de trouver la paix et le bonheur. Être heureux dans son esprit, rayonner la bonté dans tout ce que l'on fait, c'est vraiment se rapprocher de Dieu. Voir la beauté dans tout ce que vous touchez. Chercher la beauté est aussi une chose merveilleuse, mes amis. Nous pouvons trouver l'obscurité si nous regardons. Il est beaucoup plus sage de regarder et de voir la lumière. Que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

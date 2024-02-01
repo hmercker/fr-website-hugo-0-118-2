@@ -21,7 +21,9 @@ L'homme sur Terre aujourd'hui doit se trouver. L'homme ne peut pas continuer à 
 
 Bientôt, certains d'entre vous ici voyageront dans des pays lointains pour donner ces messages et ces leçons et nous irons avec vous mes amis. Tenez compte de nos paroles, vivez ces vérités, et que le Grand Esprit Blanc vous bénisse tous.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,7 +21,9 @@ Nous venons à vous pour vous supplier, pour vous implorer, pour que vous soyez 
 
 Lorsque j'étais sur Terre, il y a de nombreuses années, j'avais un grand désir de travailler pour Dieu et à ma façon, à la façon dont on m'a enseigné, je l'ai fait. Mais je n'avais pas la vraie compréhension et c'est pourquoi je veux à nouveau servir l'homme de la Terre. Et tant que l'homme n'a pas vraiment ressenti l'afflux de l'Amour Divin de Dieu dans son âme, il n'a pas vraiment vécu. Mes amis, nous devons enseigner et démontrer ce que l'Amour de Dieu peut faire pour toute l'humanité. Bientôt, beaucoup de ceux qui dirigent les Terriens aujourd'hui se tourneront vers les choses de l'esprit et nous devons être prêts à servir. Beaucoup doit être fait. Beaucoup a été accompli. Mais nous ne pouvons pas nous arrêter mes amis. Que ceux qui cherchent soient récompensés, mes amis. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

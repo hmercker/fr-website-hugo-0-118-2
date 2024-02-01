@@ -27,7 +27,9 @@ Si vous le désirez, nous viendrons. Il y a beaucoup d'endroits où nous travail
 
 Nous savons comme vous que l'homme sur Terre ne peut pas réussir, être heureux ou en paix intérieurement tant qu'il ne sait pas comment se rapprocher de Dieu. Et donc, nous venons en tant qu'amis et serviteurs pour vous bénir et vous servir mes amis. Qu'une telle paix descende sur vous, qu'une grande sagesse vous soit donnée, que la force soit avec vous, mais surtout, que la bénédiction de Dieu tombe sur chacun d'entre vous, éclairant votre chemin et tous ceux avec qui vous entrez en contact mes amis et maintenant je dois vous quitter.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

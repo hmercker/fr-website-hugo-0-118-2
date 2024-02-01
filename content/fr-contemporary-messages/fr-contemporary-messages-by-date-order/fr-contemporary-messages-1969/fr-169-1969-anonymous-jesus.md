@@ -19,7 +19,9 @@ Dans les jours à venir, beaucoup d'entre vous trouveront qu'il sera très néce
 
 Les bénédictions de notre Père se déversent sur vous tous et il n'y a rien que l'homme puisse créer qui lui apporte toutes les choses dont il a besoin pour une vie heureuse comme peut le faire l'Amour de Dieu dans son âme. Que Dieu vous bénisse, mes amis.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

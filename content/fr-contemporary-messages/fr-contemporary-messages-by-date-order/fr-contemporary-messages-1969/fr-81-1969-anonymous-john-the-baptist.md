@@ -21,7 +21,9 @@ Et donc ce soir mon message pour vous est de vous rapprocher de Dieu dans la pri
 
 Nous avons encore beaucoup à faire et nous devons travailler ensemble. Et le lien d'amour le plus étroit vient lorsque nous avons tous une grande compréhension et que nous travaillons tous pour servir. Ainsi, je vous le dis, que toutes vos prières soient exaucées et sachez que lorsque vous priez avec foi et compréhension, les bénédictions de Dieu se déverseront sur vous et un grand bonheur et une grande joie seront vôtres et lentement viendra sur vous la connaissance que votre âme s'élève au-dessus de toutes choses et conditions dans une grande joie et un grand bonheur. Et ainsi, je vous laisse maintenant, semez des graines de sagesse sur un sol fertile, bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

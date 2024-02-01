@@ -25,7 +25,9 @@ Nous devons nous développer, nous ne pouvons pas rester immobiles et pour chaqu
 
 Faisons grandir cette armée et allons chercher des recrues, non pas pour la destruction mais pour le salut de l'homme. Quelle glorieuse entreprise et sachez que nous marcherons côte à côte. Bonne nuit et que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

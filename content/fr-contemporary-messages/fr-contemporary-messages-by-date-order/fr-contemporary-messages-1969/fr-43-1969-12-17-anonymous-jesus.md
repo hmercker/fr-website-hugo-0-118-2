@@ -19,7 +19,9 @@ Vous pouvez aussi avoir des enseignants pour Dieu et suivre l'exemple que j'ai d
 
 Que tous les hommes sachent que la source de la joie, de la paix, de l'amour et du pouvoir vous appartient. Ils sont en vous et ne peuvent pas vous être enlevés. Alors soyez heureux, mes enfants, soyez heureux dans l'Amour de Dieu. Soyez remplis de paix et de joie car vous savez que vos familles, que tous ceux avec qui vous entrez en contact sont sous l'aile protectrice de notre amour et bien qu'ils puissent nous abandonner, nous n'abandonnerons jamais ceux que nous avons aimés car l'amour que nous avons est permanent et durable. L'amour que nous donnons ne dépend pas de ce qu'un mortel peut faire, nous aimons sans cesse et pour nous, il n'y a aucune âme qui ne le mérite pas. Nous accueillons à bras ouverts tous ceux qui viennent au bercail. A bras ouverts, nous cherchons aussi ceux qui ne connaissent pas le chemin, qui trébuchent et tombent dans les ténèbres. Nos bras sont également tendus vers ceux-là, car notre amour englobe tout. Car nous donnons de l'Amour de Dieu - le Père donne si librement et demande seulement que vous receviez le don qu'il apporte à chaque âme et qui de vous peut se séparer du grand amour de Dieu. Il n'y a personne, il n'y a rien qui puisse vous séparer de l'Amour de Dieu, sinon vous-mêmes. Mais l'Amour de Dieu vous entoure encore patiemment, nous attendons notre opportunité de servir. Mes chers, vous avez travaillé dur cette année - soyez en paix, acceptez l'amour et la joie qui vous sont donnés. Acceptez le bonheur qui vous est donné et priez toujours le Père pour plus de Son amour et comme nous prions pour vous, priez aussi pour nous afin que nous soyons un. Que Dieu soit avec vous.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

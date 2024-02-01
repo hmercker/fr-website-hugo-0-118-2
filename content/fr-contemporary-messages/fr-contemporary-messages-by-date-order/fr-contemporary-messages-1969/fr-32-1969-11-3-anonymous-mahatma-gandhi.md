@@ -21,7 +21,9 @@ Je m'adresse à ceux qui sont avec nous en ce moment depuis le pays de l'Inde et
 
 Apprenez à accepter ce qui est votre héritage légitime, à savoir que vous êtes des enfants de Dieu. Comme l'enseigne la parabole de la Bible, il n'est pas nécessaire que vous mangiez les enveloppes pour pouvoir festoyer à la table du Père. Car le Père est toujours désireux et impatient que les siens viennent à lui et ses bras aimants attendent toujours de vous envelopper. Recevez de Dieu, Son Amour Divin, mes enfants et que les bénédictions de Dieu reposent sur vous et que l'Amour de Dieu vous enveloppe et ceux d'entre vous qui veulent entendre davantage sur ces sujets, nous aurons d'autres cours pour vous. Venez à nouveau mes enfants. Je parle partiellement à ceux de l'esprit. Vous comprendrez que je leur parle aussi bien qu'à vous. Les classes auxquelles je me réfère sont pour ceux en esprit qui sont désireux de recevoir plus de lumière et elle vous sera donnée à vous qui cherchez sincèrement et cette porte sera ouverte afin que votre souffrance puisse cesser. Et à vous, petits enfants de la Terre, cherchez l'amour de Dieu. Mes bénédictions sur vous. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

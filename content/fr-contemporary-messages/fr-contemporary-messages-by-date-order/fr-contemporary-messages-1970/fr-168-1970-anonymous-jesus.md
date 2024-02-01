@@ -21,7 +21,9 @@ Dieu répond à toutes les prières et donc mes enfants, nous devons prier davan
 
 Beaucoup d'entre vous ont étudié, ont lu et se sont assis tranquillement pour méditer. Oui, mes enfants, nous pouvons prier Dieu où que nous soyons ou pour un moment peu importe ce que nous faisons pour trouver la paix et un grand bonheur, nous devons le faire. Au fur et à mesure que l'influx de l'Amour de Dieu pénètre vos âmes en plus grande abondance, alors vous trouverez que la vie s'ouvre à une telle beauté et à un tel bonheur et que toute la détresse ne vous touchera pas. Ainsi, je viens à vous ce soir en tant qu'ami, heureux d'ouvrir votre merveilleuse réunion et de vous apporter mes bénédictions en tant que votre frère, mes amis. Que Dieu vous bénisse, Jésus.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

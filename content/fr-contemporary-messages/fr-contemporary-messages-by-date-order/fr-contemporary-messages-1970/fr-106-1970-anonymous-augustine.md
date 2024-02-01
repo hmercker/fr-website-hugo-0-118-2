@@ -21,7 +21,9 @@ Il est important de ne pas leur donner trop de connaissances au début. Il faut 
 
 C'est un plan de très grande envergure qui commence sur votre plan terrestre et c'est à vous, mes amis, de décider jusqu'où vous irez. Sachez que nous sommes à vos côtés et que nous viendrons chaque fois que vous appellerez. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

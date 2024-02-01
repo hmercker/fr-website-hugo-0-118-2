@@ -17,7 +17,9 @@ Alec, j'ai travaillé avec toi pendant tant d'années pour réaliser ce projet e
 
 Oh, mes chers amis, comme c'est merveilleux pour vous d'être choisis pour accomplir ce grand travail pour Dieu. Quel grand privilège et quelle opportunité vous ont été donnés et quelle grande bénédiction vous recevrez grâce à vos efforts. Continuez à rechercher et à prier davantage pour l'Amour Divin de Dieu, car de cette façon vous serez renforcés et aidés et vous serez plus à même de recevoir l'aide, la guidance et l'amour que nous, de l'Esprit, vous apportons tout au long de la journée, tout au long de la nuit et pas seulement à vous mais aussi à vos familles, car nous réalisons que ceux qui vous sont proches et chers influencent vos vies et nous essayons donc d'apporter la paix et l'amour à ces individus également dans vos maisons. Je dois partir maintenant mais je vous embrasse, bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

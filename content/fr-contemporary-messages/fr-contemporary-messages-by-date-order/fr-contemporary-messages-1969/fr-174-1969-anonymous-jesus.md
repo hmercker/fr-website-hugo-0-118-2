@@ -15,7 +15,9 @@ Mes chers frères et sœurs bien-aimés. Combien grand est mon amour pour vous e
 
 Quelle grande mission pour vous sur Terre et combien peu en comprennent le sens. Il y a ceux dans la salle qui comprennent et ils seront utilisés par Dieu pour soulager la souffrance de beaucoup sur ce plan terrestre. Je suis heureux d'avoir pu venir à vous si facilement ce soir. L'état d'âme de ceux d'entre vous qui sont assis m'a permis de venir et de vous parler si facilement. Car il faut une grande quantité de puissance pour permettre ma venue et celle de ces amis qui vous ont parlé ce soir. Lorsque je viendrai, sachez qu'il y a eu ceux qui se sont préparés car je dois aussi respecter la loi de la communication. Je demande que vos âmes soient ouvertes à l'afflux de l'Amour de Dieu - que vous soyez ainsi remplis de l'Amour de Dieu. Je demande la Bénédiction de Dieu sur chacun de vous réunis ici et sur toutes les âmes qui entendent mes paroles. Mon amour reste avec vous, l'Amour Divin de Dieu, votre ami et frère, Jésus.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

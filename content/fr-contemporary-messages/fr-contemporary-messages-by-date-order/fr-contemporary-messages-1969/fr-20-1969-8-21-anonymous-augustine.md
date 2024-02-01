@@ -19,7 +19,9 @@ Pour quelle raison vous réunissez-vous ? Quel est votre but ? Demandez-vous pou
 
 Rappelez-vous que l'Amour de Dieu entoure chacun d'entre vous. Vous avez une grande puissance qui vous entoure dans l'amour. Souvenez-vous de ces choses et méditez sur ces choses. Tournez vos pensées vers Dieu et vers vos anges amis et vous constaterez que vos âmes deviendront très réceptives à un afflux de l'Amour Divin de Dieu. Il vous sera alors beaucoup plus facile de contrôler vos pensées. Car, plus vous recevez de cet Amour dans vos âmes, plus il est facile d'en recevoir de plus grandes quantités. Pour ceux d'entre vous qui débutent, c'est le plus dur pour vous et nous le savons, et nous vous aidons. Nous ne vous laissons pas seuls dans le monde, mais nous restons toujours avec vous, pour vous influencer, pour faire le travail de Dieu, pour répandre ces vérités, pour développer ces dons spirituels. Comme c'est merveilleux pour vous d'avoir cette opportunité. Cela fait un certain temps que je ne suis pas venu vous parler aussi longuement, bien que je sois souvent venu ici pour observer la progression de ce groupe. Mes chers enfants, si vous saviez à quel point Dieu vous aime, si vous saviez seulement à quel point Dieu vous aime, quel changement s'opérerait dans vos vies. Comme vous seriez heureux et comme les petits problèmes de ce plan terrestre vous sembleraient insignifiants. Alors, ouvrez vos âmes mes enfants et recevez l'Amour Divin de Dieu. Que les bénédictions de Dieu reposent sur chacun de vous. Que les conseils et la protection de Dieu soient avec vous.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

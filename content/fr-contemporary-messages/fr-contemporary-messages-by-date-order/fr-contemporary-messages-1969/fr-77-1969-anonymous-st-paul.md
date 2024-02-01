@@ -21,7 +21,9 @@ Mes enfants, nous devons venir et enseigner à l'homme les simples vérités tel
 
 Alors, maintenant, mes amis, nous venons à nouveau parler directement à l'homme. La force qui se construit autour de chacun d'entre vous est si grande que vous constaterez que vous serez ensemble et que beaucoup de ceux qui viennent écouter verront, certains verront, d'autres non. C'est ce que nous souhaitons. Bonne nuit et que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

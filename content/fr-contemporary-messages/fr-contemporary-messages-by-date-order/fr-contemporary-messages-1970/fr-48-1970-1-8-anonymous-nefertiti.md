@@ -23,7 +23,9 @@ Je suis heureuse de voir la progression de ce groupe, car mes espoirs sont renfo
 
 Je vous remercie et je vous suis reconnaissante d'avoir fait cela pour nous aider. Je vous remercie de m'avoir permis de venir ce soir et de m'avoir laissé parler. Je veux revenir bientôt, mais je désire venir avec la Voix Directe et la matérialisation. Alors, s'il vous plaît, continuez dans vos efforts et dans votre désir de l'Amour Divin et de la voix directe. Bonne nuit mes amis, que Dieu vous bénisse tous, bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

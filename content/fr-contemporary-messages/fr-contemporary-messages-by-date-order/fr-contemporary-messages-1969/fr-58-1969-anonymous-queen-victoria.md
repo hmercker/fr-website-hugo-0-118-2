@@ -21,7 +21,9 @@ Il faut parfois de la force pour être loyal, mais l'homme peut être renouvelé
 
 Donc, si le merveilleux empire a bénéficié de l'Esprit grâce au peu de connaissances que j'avais, pensez simplement à la façon dont vous pouvez aider votre pays à en bénéficier grâce aux grandes connaissances que vous avez, mes amis. Travaillez pour Dieu. Soyez loyaux envers vous-mêmes et envers vos compagnons de travail et travaillez pour le bien de toute l'humanité, quel que soit le pays, la race, d'où elle vient. Faites de votre Terre une seule famille pour Dieu et merci de m'avoir permis de venir.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

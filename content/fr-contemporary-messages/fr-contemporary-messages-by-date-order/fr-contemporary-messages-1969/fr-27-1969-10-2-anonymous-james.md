@@ -15,7 +15,9 @@ Bonsoir. Je suis heureux d'être ici car il y a un tel nombre de personnes qui c
 
 Puisque la musique sera utilisée, nous ferons venir d'autres personnes dans ce domaine afin de familiariser les instruments et les entités avec nos méthodes de fonctionnement. Ainsi, lorsque la Voix Directe sera établie, il leur sera plus facile de suivre le travail que nous préparons pour eux, et je ne souhaite pas que vous soyez perturbés lorsque ceux dont la croissance et la progression de l'âme sont moindres que celles des sphères supérieures viennent à vous. Ce n'est pas que votre condition se soit détériorée. Nous voulons que vous sachiez que nous avons le contrôle à tout moment et qu'aucune entité ne sera autorisée, à moins que ce ne soit avec notre consentement. Vous devez vous attendre à partir de maintenant à ce que des personnes viennent par le biais de cet instrument. Je parle dans votre intérêt, Alec, afin que vous soyez conscient de cela et c'est définitivement pour l'établissement de la Voix Directe et ces personnes seront utilisées pour la musique, la science et d'autres domaines d'activité. Nous souhaitons qu'ils se familiarisent davantage avec l'instrument et les membres de ce groupe qui siègent régulièrement, afin qu'ils se sentent chez eux, dans l'amour et l'harmonie. George Gershwin est ici ce soir et Chopin a également dit qu'ils seront utilisés dans le futur pour la Voix Directe et qu'ils seront reconnus comme je vous l'ai dit. Maintenant, nous avons ici plusieurs nouveaux venus qui ne sont pas trop familiers avec les lois de Dieu, ils n'ont pas encore eu l'occasion de s'asseoir ou ils ne sont pas familiers avec les procédures et pour ces personnes, il serait avantageux qu'un enseignant vienne et leur donne quelques conseils, afin qu'à leur tour ils ne gênent pas le groupe dans son ensemble. Nous laisserons au contrôle de l'instrument le soin de voir ce qu'elle souhaite faire. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

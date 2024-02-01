@@ -21,7 +21,9 @@ Ce soir, alors que vous êtes assis tranquillement, nous avons puisé dans votre
 
 Pendant que je me tiens ici, un de vos amis se tient à côté de moi, attendant de vous parler. Je vous remercie pour ce que vous faites. Sachez que nous, en esprit, réalisons les sacrifices que vous faites tous. Comme vous êtes bénis. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

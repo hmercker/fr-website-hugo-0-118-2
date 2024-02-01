@@ -19,7 +19,9 @@ Les pensées et l'état d'esprit d'une personne affectent également la chimie d
 
 Car, comme vous le savez, l'Amour Divin de Dieu et la maladie sont incompatibles. Ainsi, à mesure que vous recevez davantage de l'Amour Divin de Dieu dans votre âme, il est impossible que vous soyez malades. Ainsi nous désirons également que vos enseignants viennent et vous donnent la connaissance concernant ce fait merveilleux mais par l'Amour Divin de Dieu et en quantités suffisantes vous serez soulagés de toutes vos maladies de façon permanente et elles ne trouveront pas de logement dans vos corps. Mais pour les esprits, les mortels et les animaux qui n'ont pas ou ont des quantités moindres d'Amour de Dieu dans leurs âmes, nous travaillons avec eux et nous sommes heureux de le faire. Nous sommes heureux de savoir qu'à notre manière, nous avons aidé, nous avons soulagé des conditions. J'ai été heureux de venir vous parler ce soir et de vous faire part de ces choses. Il serait intéressant de vous parler également de l'importance de la couleur en relation avec les produits chimiques de guérison. Je viendrai une autre fois vous parler de la couleur, mais je ne resterai pas ce soir, mais demandez la bénédiction de Dieu sur chacun d'entre vous et n'oubliez pas de demander l'Amour Divin de Dieu afin d'apporter une guérison permanente pour toujours. Je resterai bien sûr en retrait, car c'est mon travail et je travaille dans ce groupe depuis un certain temps. Donc, vous pouvez penser à moi parfois lorsque vous êtes dans vos différents états de conscience et savoir que j'ai quelque chose à voir avec votre état et vous saurez que vous êtes entre de bonnes mains et entre les mains de quelqu'un qui vous aime. Bonne nuit mes amis.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

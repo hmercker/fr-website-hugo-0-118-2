@@ -23,7 +23,9 @@ Prier Dieu pour le don le plus précieux qui soit - Son Amour Divin. Il ne s'agi
 
 Ma bénédiction pour vous ce soir est pour la bénédiction de Dieu. En quittant cet endroit ce soir, vous laissez derrière vous tous les soucis avec lesquels vous êtes entrés, ceux qui sont épuisés dans leur corps sortiront d'ici en bonne santé, vous le pouvez mes amis. Ceux dont les âmes sont affamées quitteront cet endroit renouvelés, renforcés, prêts à relever le défi que tous ceux qui enseignent la vérité doivent affronter et maintenant je m'en vais, votre ami, Nuage Blanc.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

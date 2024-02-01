@@ -67,7 +67,9 @@ Je sais que le message d’aujourd’hui est différent, mais je voulais venir v
 
 Je vais maintenant quitter R*. Et je vais demander à Dieu de bénir chacun d’entre vous ici, afin que lorsque vous quitterez cet endroit, vous ressentiez la grande paix et le bonheur que je ressens en étant ici avec vous. Que Dieu vous bénisse tous avec une grande abondance. Je vous demande, mes bien-aimés, de sentir, lorsque vous venez à ces réunions, que vous entrez dans un sanctuaire qui est béni par Dieu et de sentir, en franchissant ses portes, que vous avez été renouvelés par l’Esprit Saint et que vous avez un plus grand but à atteindre dans les jours à venir. Que ce soit toujours votre but, mes bien-aimés. Je vous souhaite un bel après-midi. Que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

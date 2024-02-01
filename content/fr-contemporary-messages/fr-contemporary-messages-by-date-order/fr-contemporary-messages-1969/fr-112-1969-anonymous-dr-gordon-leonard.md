@@ -21,6 +21,9 @@ Je ne viens pas à vous pour me tenir debout et vous parler sans rien faire. Je 
 
 Je viens à vous comme un ami. Je viens à vous en tant que guérisseur et je vous demande de prendre le temps, chaque jour, de vous rapprocher de Dieu et vous découvrirez que toutes les choses qui vous perturbent et vous affligent maintenant disparaîtront et que la paix et le bonheur, la sagesse et la bonne santé viendront à vous, mes amis. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

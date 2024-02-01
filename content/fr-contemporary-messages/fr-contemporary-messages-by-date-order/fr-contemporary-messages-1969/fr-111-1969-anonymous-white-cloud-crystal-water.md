@@ -33,6 +33,9 @@ Moi, mes amis, je vous parle en tant que frère utilisant votre langue et pourta
 
 Si l'amour de vos cœurs peut faire cela pour moi, que peut faire l'amour de Dieu dans vos âmes pour vous, mes amis. Pensez à mes paroles. Je vous bénis, je vous apporte la guérison et je prie pour vous. Que Dieu vous bénisse toujours, mes amis.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

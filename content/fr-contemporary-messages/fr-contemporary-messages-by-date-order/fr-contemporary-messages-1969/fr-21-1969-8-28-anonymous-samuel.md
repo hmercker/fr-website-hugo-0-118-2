@@ -23,7 +23,9 @@ Pensez à la transformation de vos âmes et de toute l'humanité si chaque perso
 
 Tous ces dons sont disponibles gratuitement pour quiconque fait l'effort de recevoir dans son âme l'Amour Divin de Dieu à un degré tel qu'il permette à Dieu de vous utiliser pendant que vous êtes ici et pensez à la bénédiction de vos enfants. Comme Jésus désire que ces vérités soient répandues dans le monde entier. Comme Jésus prie pour que les souffrances de l'humanité cessent. Car, je vous le dis ici... lorsque vous vous surprenez à dire les mots *« ils devraient faire ceci »* et « ils devraient faire cela »... dites-vous « je devrais faire ceci » et « je devrais faire cela ». Car chaque personne assise ici ce soir a le potentiel de devenir un autre Jésus, car l'esprit du Christ ne connaît ni frontières ni limitations. Demandez et il vous sera donné. Cherchez et vous trouverez. Frappez et la porte vous sera ouverte. Ne vous limitez pas. Oui, il me tarde de vous prendre par la main, de vous conduire et de vous garder sur le chemin étroit afin que vos horizons s'élargissent dans le monde entier et dans tout l'univers. Je vais vous dire bonne nuit et que les bénédictions de Dieu reposent sur chacun d'entre vous. Pensez aux paroles que je vous ai dites et que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

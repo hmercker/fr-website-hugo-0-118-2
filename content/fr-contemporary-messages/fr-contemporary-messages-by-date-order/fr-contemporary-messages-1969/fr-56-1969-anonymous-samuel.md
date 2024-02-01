@@ -21,7 +21,8 @@ Que Dieu vous bénisse, chacun de vous, qui êtes assis ici ce soir, car l'Amour
 
 Vous qui avez des petits enfants... vous avez l'occasion de planter dans l'esprit de ces petites âmes de grandes choses. Faites connaître à vos enfants leur vraie valeur. Apprenez-leur qu'ils sont les enfants de Dieu et permettez-leur de vivre à la hauteur de ce que Dieu voudrait qu'ils fassent et ils deviendront de vrais hommes et de vraies femmes. Car le pouvoir qui est en eux dépasse la conception de l'humanité matérielle, car ils seront dans le monde mais pas du monde, car ils seront comme Dieu et vous-mêmes pouvez être comme Dieu et transformer votre monde. Ne vous imposez aucune limite, cherchez Dieu et cherchez le meilleur pour vous-mêmes. Choisissez le meilleur pour vos enfants. Réfléchissez avant de parler. Que vos pensées soient constructives. Que vos paroles soient constructives. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

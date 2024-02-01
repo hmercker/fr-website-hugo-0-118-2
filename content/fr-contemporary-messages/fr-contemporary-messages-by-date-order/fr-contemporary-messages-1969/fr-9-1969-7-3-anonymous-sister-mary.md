@@ -19,7 +19,9 @@ Mais vos âmes, qui sont créées à l'image de Dieu, n'ont rien de Dieu le Pèr
 
 Car nous désirons depuis de nombreuses années apporter à la Terre ce grand don de la voix directe qui nous permet de parler, non par l'intermédiaire d'un instrument, mais par notre propre voix, et pour que ce don puisse se manifester sur Terre, nous avons besoin de ces personnes dévouées qui ont un développement de l'âme, ce qui signifie qu'elles ont l'essence du Père dans leur âme afin que nous puissions travailler à travers elles. Car si un homme n'a pas cette Essence en lui, nous ne pouvons pas et n'avons pas la possibilité, bien que nous le désirions, de travailler à travers cette personne et nous avons donc un double objectif dans notre désir de vous voir obtenir cet Amour Divin dans vos âmes. Premièrement, pour votre propre progression et votre propre bonheur et joie qui vous seront donnés par ce grand Amour et ici je ne parle pas de l'amour naturel mais de l'Amour Divin de Dieu. Ceci est la raison première. La raison secondaire est notre désir de recevoir la voix directe et de la voir se manifester sur le plan terrestre afin que tous les peuples du monde puissent entendre les vrais enseignements de Jésus le Maître et que les hommes qui le désirent puissent obtenir cette expiation du Père. Je n'en dirai pas plus ce soir. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

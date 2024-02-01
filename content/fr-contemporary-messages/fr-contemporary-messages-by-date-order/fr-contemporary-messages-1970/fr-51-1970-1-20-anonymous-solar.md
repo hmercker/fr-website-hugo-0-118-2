@@ -17,7 +17,9 @@ Je viens mes enfants, mais il y a encore beaucoup de progrès à faire dans ce g
 
 Je vous salue avec amour et notre groupe vous salue avec amour. Nous allons prier pour votre progression. Que Dieu vous bénisse mes enfants et que Sa protection reste avec vous. Bonne nuit.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

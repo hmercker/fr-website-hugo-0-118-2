@@ -17,7 +17,9 @@ Nous avons tant de raisons d'être reconnaissants. La paix et l'harmonie que nou
 
 Notre frère bien-aimé Jésus, lorsqu'il marchait sur votre plan terrestre, était l'exemple vivant de l'amour de notre Père et pourtant il a souffert de toutes les adversités, de toutes les cruautés que l'homme peut subir, mais il était un exemple de ce que l'Amour Divin de Dieu peut faire pour l'homme. Il était tellement dans l'esprit de Dieu que toutes les épreuves, les cruautés qu'il a subies, il les a surmontées, et il vient encore sur Terre, aider l'homme. Comme ce sera merveilleux lorsque tous les hommes auront le désir d'être comme notre frère Jésus. Il est avec nous ce soir, il vous bénit, il me donne la force, il remplit mon âme du désir d'être renouvelé à nouveau dans l'Amour de Dieu. Oh mes enfants, c'est vraiment votre moment d'amour. Soyez comme des petits enfants, soyez humbles, soyez tranquilles en vous-mêmes. Laissez l'influx de cet Amour Divin couler dans vos âmes. Gardez vos pensées et vos paroles dans les jours à venir. Soyez de vrais enfants de notre Père qui est aux Cieux. La paix viendra à vous. Vous découvrirez que vos vies seront tellement plus heureuses si vous les vivez selon la grande sagesse que vous avez. Vous êtes tellement bénis. Ressentez la paix qui est ici avec vous maintenant. Sachez que nous sommes à vos côtés. Sachez que nous vous protégeons et que nous vous gardons. Sachez que les bénédictions de notre Père se déversent sur vous. C'est si important pour vous. Que Dieu vous bénisse, mes enfants.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

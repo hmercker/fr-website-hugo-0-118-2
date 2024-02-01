@@ -21,7 +21,9 @@ Devenir un enseignant et un disciple, comme certains d'entre vous le souhaitent,
 
 Lorsque vous consacrez vos vies, lorsque vous appliquez ces vérités à tout ce que vous faites, vous trouverez votre vie des plus gratifiantes et lorsque le temps viendra pour vous de quitter votre plan terrestre, vous irez vers une plus grande gloire et un plus grand travail. Votre vie terrestre est si courte, mais elle est très importante pour vous, mes amis. Alors, trouvez la paix et le bonheur dans cette vie terrestre. Mais rappelez-vous que dans tout ce que vous faites, vous devez appliquer la loi de Dieu qui est l'Amour. Lorsque l'homme apprend à faire cela, rien d'autre que le bien ne peut lui arriver et rien d'autre qu'une vie terrestre satisfaisante sera la vôtre, mes amis. Que Dieu vous bénisse et bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

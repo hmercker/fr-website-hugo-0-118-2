@@ -19,7 +19,9 @@ Dans un grand nombre de pays sur la Terre aujourd'hui, il y a des groupes qui se
 
 Donc, je bénis chacun d'entre vous et j'exhorte chacun d'entre vous à chercher, dans n'importe quel travail que vous faites, cet Amour de Dieu et à l'utiliser dans vos occupations afin que les autres puissent voir et réaliser votre force cachée. Que Dieu vous bénisse. Je vous souhaite une bonne nuit mes amis.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -15,7 +15,9 @@ Cherchez vraiment la sagesse du Père. Pourquoi tâtonner dans les ténèbres qu
 
 Cherchez Dieu et Son amour. Êtes-vous si aveugles que vous ne pouvez pas voir ? Vos esprits sont-ils si fermés et vos âmes si couvertes ? Je vous le dis... toutes les bonnes choses sont là, à vous de les prendre et de les demander. Mais cherchez Dieu et vous trouverez que tous vos besoins sont satisfaits. Les désirs de votre âme vous seront donnés. Oubliez les ténèbres, cherchez la lumière. Augustine parle... Bonne nuit.
 
-[###**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -23,7 +23,9 @@ Pendant que je vous parle, de nombreux amis spirituels se rapprochent de vous, d
 
 Pensez à l'importance que vous avez pour nous, car chacun d'entre vous ici peut aller de l'avant dans sa vie quotidienne en ayant une plus grande compréhension et en apportant réconfort et paix à ceux avec qui il entre en contact, et comme vous donnez, vous recevrez. Plus vous donnez de l'amour et de la compréhension aux autres, plus vous recevez de l'amour de Dieu. C'est l'une des lois de Dieu, et donc ce soir, très chers, j'ai été heureux de venir et de parler avec vous et pour certains d'entre vous qui ne me connaissent pas, je suis la lumière, je vous apporte la lumière, je prie pour vous, je vous bénis et je sais que lorsque vous cherchez la lumière, la lumière viendra à vous. Que Dieu vous bénisse.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

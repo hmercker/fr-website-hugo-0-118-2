@@ -21,7 +21,10 @@ Peu de gens sur Terre sentent qu'ils doivent garder leur lampe propre et pourtan
 
 Nous viendrons encore et encore vous demander de faire briller votre Lumière car chaque corps physique a une Lumière et ce n'est que lorsque votre progression se rapproche des choses supérieures de la vie que vous rayonnez et comme tout homme rayonne la Lumière, elle encerclera votre Terre. Ainsi, je demande à chacun d'entre vous ici de nous aider en esprit à maintenir la Lumière de Dieu toujours brillante et en faisant cela, vous apporterez la paix et le bonheur à votre prochain. Bonne nuit et que Dieu vous bénisse tous.
 
-[###**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
